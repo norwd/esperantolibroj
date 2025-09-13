@@ -1,12 +1,5 @@
-% Frau'lino Julie
-% August Strindberg
-
 FRAŭLINO JULIE
 
-
-eLIBRO
-
-eLIBRO
 
 August Strindberg
 
@@ -15,14 +8,10 @@ Fraŭlino Julie
 Naturalista tragedio
 
 
-
-## I N K O
-
 ### 1
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 August Strindberg
 
@@ -30,31 +19,19 @@ FRAŭLINO JULIE
 
 Naturalista tragedio
 
-El la sveda tradukis
 
-Paul Nylén kaj S. E. Krikortz \(1908\)
+Paul Nylén kaj S. E. Krikortz (1908)
 
-Lingve reviziis Franko Luin \(2001\)
+Lingve reviziis Franko Luin (2001)
 
-eLIBRO
 
-Aranĝis: Franko Luin
+@omnibus.se
 
-ISBN 91-7303-081-3
+·
 
-inko@omnibus.se
-
-INKO · SE-13542 TYRESÖ · SVEDIO
-
-http://www.omnibus.se/inko
-
-FEBRUARO 2001
-
-2
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Personoj
 
@@ -66,33 +43,29 @@ Kristin, kuiristino, 35—jara
 
 La agado: en la kuirejo de la grafo, somermeza nokto
 
-3
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Scenejo
 
-Granda kuirejo, kies plafonon kaj flankajn murojn kaŝas drapiroj kaj sufitoj. La malantaŭa muro direktiĝas malrekte internen kaj supren laŭ la scenejo, de maldekstre; sur ĝi maldekstre du bretaroj kun vazoj kupraj, bronzaj, feraj kaj stanaj; la bretoj estas garnitaj per papero, krispita; iom dekstre tri kvaronoj de la granda arkaĵa elirejo kun du vitraj pordoj, tra kiuj oni vidas fontanon kun Amoreto, florantajn siringojn kaj elstaran-tajn piramidajn poplojn. 
+Granda kuirejo, kies plafonon kaj flankajn murojn kaŝas drapiroj kaj sufitoj. La malantaŭa muro direktiĝas malrekte internen kaj supren laŭ la scenejo, de maldekstre; sur ĝi maldekstre du bretaroj kun vazoj kupraj, bronzaj, feraj kaj stanaj; la bretoj estas garnitaj per papero, krispita; iom dekstre tri kvaronoj de la granda arkaĵa elirejo kun du vitraj pordoj, tra kiuj oni vidas fontanon kun Amoreto, florantajn siringojn kaj elstaran-tajn piramidajn poplojn.
 
-Maldekstre sur la scenejo la angulo kun granda kahela kameno kun parto de ĝia kapuĉo. 
+Maldekstre sur la scenejo la angulo kun granda kahela kameno kun parto de ĝia kapuĉo.
 
-Dekstre elŝoviĝas unu fino de la manĝotablo, el blanka pinligno, de la servistaro kun kelkaj seĝoj. 
+Dekstre elŝoviĝas unu fino de la manĝotablo, el blanka pinligno, de la servistaro kun kelkaj seĝoj.
 
-La kameno estas ornamita per foliriĉaj betulbranĉoj; la planko estas surŝutita per juniperaĵo. 
+La kameno estas ornamita per foliriĉaj betulbranĉoj; la planko estas surŝutita per juniperaĵo.
 
-Sur la fino de la tablo granda japana spicoskatolo kun florantaj siringoj. 
+Sur la fino de la tablo granda japana spicoskatolo kun florantaj siringoj.
 
-Glaciŝranketo, tablo por purigi porcelanon, lavostablo. 
+Glaciŝranketo, tablo por purigi porcelanon, lavostablo.
 
-Granda antikviĝinta sonorigilo super la pordo kaj elbuŝiganta paroltubo sur la maldekstra flanko de la pordo. 
+Granda antikviĝinta sonorigilo super la pordo kaj elbuŝiganta paroltubo sur la maldekstra flanko de la pordo.
 
-4
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin staras apud la kameno kaj fritas en fritpoto; ŝi
 
@@ -102,17 +75,17 @@ taŭtukon antaŭ si; Jean eniras, vestita en livreo, port-
 
 anta paron da grandaj rajdbotoj spronhavaj, kiujn li
 
-metas for de si sur videblan lokon sur la planko. 
+metas for de si sur videblan lokon sur la planko.
 
 Jean
 
 ĉi vespere fraŭlino Julie estas denove freneza; tute
 
-freneza\! 
+freneza!
 
 Kristin
 
-Nu, ĉu vi estas ĉi tie nun? 
+Nu, ĉu vi estas ĉi tie nun?
 
 Jean
 
@@ -128,53 +101,51 @@ kaj invitis min por la virinelekta valso. Kaj poste ŝi
 
 valsadis tiel, ke neniam mi partoprenis ion similan. ŝi
 
-estas freneza\! 
+estas freneza!
 
 Kristin
 
 Tio ŝi ĉiam estis, sed neniam same kiel dum la lastaj
 
-dek kvar tagoj, post kiam la gefianĉiĝo rompiĝis. 
+dek kvar tagoj, post kiam la gefianĉiĝo rompiĝis.
 
 Jean
 
-Ja, kio estas tiu historio? Li ja estis bonkonduta viro, 
+Ja, kio estas tiu historio? Li ja estis bonkonduta viro,
 
-kvankam li ne estis riĉa. Ha\! ili okupas sin per tiom da
+kvankam li ne estis riĉa. Ha! ili okupas sin per tiom da
 
-strangaĵoj. 
+strangaĵoj.
 
-Sidiĝas apud la fino de la tablo. 
+Sidiĝas apud la fino de la tablo.
 
 Estas tamen strange, pri la fraŭlino, hm, preferi res-
 
-5
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 ti hejme kun la popolo, ĉu ne?, ol akompani sian pa-
 
-tron por viziti parencojn? 
+tron por viziti parencojn?
 
 Kristin
 
 ŝi estas sendube iom ĝenata post tiu tumulto kun la
 
-fianĉo. 
+fianĉo.
 
 Jean
 
-Kredeble\! Sed li estis viro, fakte kuraĝa viro. ĉu vi
+Kredeble! Sed li estis viro, fakte kuraĝa viro. ĉu vi
 
 scias, Kristin, kiel tio okazis. Mi vidis tion mem, kvan-
 
-kam mi pretendis, ke mi ne faras. 
+kam mi pretendis, ke mi ne faras.
 
 Kristin
 
-Ne\! ĉu vi vidis tion? 
+Ne! ĉu vi vidis tion?
 
 Jean
 
@@ -192,17 +163,17 @@ ton ĉiufoje; sed la trian fojon li prenis el ŝia mano la
 
 rajdvipon kaj rompis ĝin en mil pecojn; post tio li for-
 
-iris. 
+iris.
 
 Kristin
 
-ĉu tiel tio okazis\! Ho ne\! Kion vi diras\! 
+ĉu tiel tio okazis! Ho ne! Kion vi diras!
 
 Jean
 
-Jes, tiel okazis tiu afero\! — Sed kion bonan vi povas
+Jes, tiel okazis tiu afero! — Sed kion bonan vi povas
 
-doni al mi, Kristin? 
+doni al mi, Kristin?
 
 Kristin
 
@@ -210,117 +181,113 @@ elprenas el la poto kaj antaŭmetas al Jean
 
 Nu, estas nur iom da reno, kiun mi eltranĉis el la bo-
 
-vidaĵo\! 
+vidaĵo!
 
 Jean
 
 flaras la manĝaĵon
 
-Bele\! ¯i estas mia granda delikataĵo\! 
+Bele! i estas mia granda delikataĵo!
 
 Palpas la teleron
 
-Sed vi povus esti varmiginta la teleron\! 
+Sed vi povus esti varmiginta la teleron!
 
-6
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
-Vi ne estas pli facile kontentigebla ol la grafo mem, 
+Vi ne estas pli facile kontentigebla ol la grafo mem,
 
-kiam li estas en sia kaprica humoro. 
+kiam li estas en sia kaprica humoro.
 
-Tiras karese liajn harojn. 
+Tiras karese liajn harojn.
 
 Jean
 
 kolera
 
-Ne, vi ne taŭzu al mi la harojn\! Vi scias, kiel sentema
+Ne, vi ne taŭzu al mi la harojn! Vi scias, kiel sentema
 
-mi estas. 
+mi estas.
 
 Kristin
 
-Nu nu, estis nur amo, tion vi ja scias\! 
+Nu nu, estis nur amo, tion vi ja scias!
 
-Jean manĝas. Kristin malfermas botelon da biero. 
+Jean manĝas. Kristin malfermas botelon da biero.
 
 Jean
 
 Biero, en la somermeza antaŭvespero; ne, mi dankas
 
-rifuze\! Feliĉe mi havas ion pli bonan mem. 
+rifuze! Feliĉe mi havas ion pli bonan mem.
 
 Malfermas tirkeston de tablo kaj elprenas botelon da
 
-ruĝa vino kun flava sigelvakso. 
+ruĝa vino kun flava sigelvakso.
 
-La Flava Sigelvakso, vi vidas\! — Donu al mi nun gla-
+La Flava Sigelvakso, vi vidas! — Donu al mi nun gla-
 
-son\! Piedan glason, kompreneble, kiam oni trinkas
+son! Piedan glason, kompreneble, kiam oni trinkas
 
-klase\! 
+klase!
 
 Kristin
 
-reiras al la kameno kaj surmetas malgrandan kaserolon. 
+reiras al la kameno kaj surmetas malgrandan kaserolon.
 
-Dio gardu tiun, kiu havos vin kiel edzo\! Tia dorlotu-
+Dio gardu tiun, kiu havos vin kiel edzo! Tia dorlotu-
 
-lo\! 
+lo!
 
 Jean
 
-Ho, babilaĵo\! Vi estus sendube ĝoja, se vi povus havi
+Ho, babilaĵo! Vi estus sendube ĝoja, se vi povus havi
 
-tian bonmanieran viron, kiel min; kaj mi ne kredas, 
+tian bonmanieran viron, kiel min; kaj mi ne kredas,
 
-ke malutilis al vi, ke oni nomas min via fianĉo\! 
+ke malutilis al vi, ke oni nomas min via fianĉo!
 
-Gustumas la vinon. 
+Gustumas la vinon.
 
-Bona\! Tre bona\! Nur iom tro malmulte ĉambrumita\! 
+Bona! Tre bona! Nur iom tro malmulte ĉambrumita!
 
-Varmigas la glason per la mano. 
+Varmigas la glason per la mano.
 
-Tion ĉi ni aĉetis en Dijon. ¯i kostis kvar frankojn po
+Tion ĉi ni aĉetis en Dijon. i kostis kvar frankojn po
 
-unu litro sen vitro; kaj krom tio aldoniĝas la dogano\! 
+unu litro sen vitro; kaj krom tio aldoniĝas la dogano!
 
-— Kion vi kuiras nun, kio odoras tiel infere? 
+— Kion vi kuiras nun, kio odoras tiel infere?
 
-7
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
 Ho, tio estas ia diablaĵo, kiun la fraŭlino uzos por
 
-Diana. 
+Diana.
 
 Jean
 
-Vi devas esprimi vin bonzorge, Kristin\! Sed kial vi
+Vi devas esprimi vin bonzorge, Kristin! Sed kial vi
 
 kuiru por la hundino en la antaŭvespero de festo? ĉu
 
-ĝi estas malsana? 
+ĝi estas malsana?
 
 Kristin
 
-Jes, ŝi estas malsana\! ŝi ŝteliĝis eksteren kun la mopso
+Jes, ŝi estas malsana! ŝi ŝteliĝis eksteren kun la mopso
 
 de la barilporda dometo — nun malfeliĉo okazis —
 
-kaj tion la fraŭlino ne volas toleri. 
+kaj tion la fraŭlino ne volas toleri.
 
 Jean
 
@@ -330,7 +297,7 @@ tro malmulte fiera en aliaj, same kiel la grafino dum
 
 ŝi vivis. ŝi fartis plej bone en la kuirejo kaj la brutejo, sed ŝi neniam volis veturi per nur unu ĉevalo; ßi portis malpurajn manumojn, sed sur la butonoj devis esti
 
-la grafa krono. — La fraŭlino, se ni parolu nun pri ŝi, 
+la grafa krono. — La fraŭlino, se ni parolu nun pri ŝi,
 
 ne prizorgas sin kaj sian personon. Mi volus diri, ke
 
@@ -338,61 +305,59 @@ ne prizorgas sin kaj sian personon. Mi volus diri, ke
 
 jo, ŝi fortiris de la flanko de Anna la arbargardiston
 
-kaj mem lin invitis danci. Ni ne agus en tia maniero; 
+kaj mem lin invitis danci. Ni ne agus en tia maniero;
 
 sed tiel estas; kiam gesinjoroj volas montri sin malal-
 
-taj — tiam ili fariĝas malaltaj\! Sed belega ŝi estas\! 
+taj — tiam ili fariĝas malaltaj! Sed belega ŝi estas!
 
-Luksa\! Ha\! Kiaj ŝultroj\! kaj — kaj tiel plu\! 
-
-Kristin
-
-Ho ja, ne tiom fanfaronu\! Mi tamen aŭdis, kion diras
-
-Klara, kiu ŝin vestis. 
-
-Jean
-
-E˛, Klara\! Vi estas ĉiam ĵaluzaj unu al la alia\! Mi, kiu
-
-rajdis kun ŝi … Kaj ankaŭ kiel ŝi dancas\! 
+Luksa! Ha! Kiaj ŝultroj! kaj — kaj tiel plu!
 
 Kristin
 
-Aŭdu, Jean\! ĉu vi ne volos danci kun mi, kiam mi es-
+Ho ja, ne tiom fanfaronu! Mi tamen aŭdis, kion diras
 
-tos preta? 
+Klara, kiu ŝin vestis.
 
 Jean
 
-Jes, kompreneble mi volos. 
+E˛, Klara! Vi estas ĉiam ĵaluzaj unu al la alia! Mi, kiu
 
-8
+rajdis kun ŝi … Kaj ankaŭ kiel ŝi dancas!
+
+Kristin
+
+Aŭdu, Jean! ĉu vi ne volos danci kun mi, kiam mi es-
+
+tos preta?
+
+Jean
+
+Jes, kompreneble mi volos.
+
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
-ĉu vi promesas tion? 
+ĉu vi promesas tion?
 
 Jean
 
-Promesas? Kiam mi diras, ke mi faros, tiam mi faros\! 
+Promesas? Kiam mi diras, ke mi faros, tiam mi faros!
 
-Nun vi havu dankon por la manĝo. Estis tre agrable\! 
+Nun vi havu dankon por la manĝo. Estis tre agrable!
 
-Enmetas la korkon en la botelon. 
+Enmetas la korkon en la botelon.
 
 La fraŭlino en la pordo, parolas eksteren
 
-Mi baldaŭ revenos\! Vi jam iru\! 
+Mi baldaŭ revenos! Vi jam iru!
 
 La fraŭlino envenas; aliras al Kristin apud la spegulo
 
-Nu\! ĉu vi estas preta? 
+Nu! ĉu vi estas preta?
 
 Kristin
 
@@ -402,21 +367,21 @@ Jean
 
 kavalire
 
-ĉu sekretojn vi havas, sinjorinoj? 
+ĉu sekretojn vi havas, sinjorinoj?
 
-La fraŭlino batas lin en la vizaĝo per sia poŝtuko. 
+La fraŭlino batas lin en la vizaĝo per sia poŝtuko.
 
-Kia scivolulo\! 
+Kia scivolulo!
 
 Jean
 
-Ha, kiel bonodoris tiu violaĵo\! 
+Ha, kiel bonodoris tiu violaĵo!
 
 La fraŭlino kokete
 
-Senhonte\! ĉu vi komprenas la parfumojn ankaŭ? 
+Senhonte! ĉu vi komprenas la parfumojn ankaŭ?
 
-Danci, tion vi scias bone … nun ne rigardu\! foriru. 
+Danci, tion vi scias bone … nun ne rigardu! foriru.
 
 Jean
 
@@ -424,25 +389,23 @@ arogante, ĝentile
 
 ĉu ian sorĉosupon vi kuiras, sinjorinoj, en la somer-
 
-meza nokto? Ion por antaŭdiri\! la stelon de feliĉo, en
+meza nokto? Ion por antaŭdiri! la stelon de feliĉo, en
 
-kiu oni povas vidi sian estontan fianĉon\! 
+kiu oni povas vidi sian estontan fianĉon!
 
 La fraŭlino akre
 
-Se li povos vidi tion, li devos havi bonajn okulojn\! 
+Se li povos vidi tion, li devos havi bonajn okulojn!
 
 Al Kristin
 
-Verŝu en trionlitran botelon kaj korku bone\! — Nun
+Verŝu en trionlitran botelon kaj korku bone! — Nun
 
 venu danci ŝotiŝon kun mi, Jean …
 
-9
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
@@ -452,13 +415,13 @@ Mi ne volas esti malĝentila al iu, sed tiun ĉi dancon
 
 mi promesis al Kristin …
 
-La fraŭlino Nu, ŝi povos ja havi alian; ĉu ne, Kristin? ĉu vi ne volas prunti Jean-on al mi? 
+La fraŭlino Nu, ŝi povos ja havi alian; ĉu ne, Kristin? ĉu vi ne volas prunti Jean-on al mi?
 
 Kristin
 
 Tio ne dependas de mi. Se vi, fraŭlino, estas tiel mal-
 
-fiere afabla, tiam ne decas, ke li rifuzu. Vi iru\! kaj dan-ku ankoraŭ por la honoro. 
+fiere afabla, tiam ne decas, ke li rifuzu. Vi iru! kaj dan-ku ankoraŭ por la honoro.
 
 Jean
 
@@ -472,7 +435,7 @@ malrapidas fari komentariojn …
 
 La fraŭlino ekkoleras
 
-Kion? Kiajn komentariojn? Kion vi volas diri? 
+Kion? Kiajn komentariojn? Kion vi volas diri?
 
 Jean
 
@@ -486,67 +449,65 @@ subuloj antaŭ aliaj, kiuj atendas saman neordinaran
 
 honoron …
 
-La fraŭlino Preferi\! Kiaj pensoj\! Mi estas mirigita\! Mi, la domes-trino, honoras per mia ĉeesto la dancadon de la po-
+La fraŭlino Preferi! Kiaj pensoj! Mi estas mirigita! Mi, la domes-trino, honoras per mia ĉeesto la dancadon de la po-
 
 polo, kaj kiam nun fakte mi volas danci, tiam mi vo-
 
 las danci kun homo scianta konduki, tiel ke mi evitu
 
-fariĝi ridinda. 
+fariĝi ridinda.
 
 Jean
 
-Kiel vi, fraŭlino, ordonas\! Mi estas preta vin servi\! 
+Kiel vi, fraŭlino, ordonas! Mi estas preta vin servi!
 
 La fraŭlino afable
 
-Ne komprenu tion kiel ordono\! Hodiaŭ vespere ni
+Ne komprenu tion kiel ordono! Hodiaŭ vespere ni
 
-10
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-festas kiel gajaj homoj kaj formetas ĉian rangon\! Jen, 
+festas kiel gajaj homoj kaj formetas ĉian rangon! Jen,
 
-donu al mi la brakon\! Ne estu maltrankvila, Kristin\! 
+donu al mi la brakon! Ne estu maltrankvila, Kristin!
 
-Mi ne forprenos vian fianĉon\! 
+Mi ne forprenos vian fianĉon!
 
 Jean
 
-donas sian brakon kaj elkondukas la fraŭlinon. 
+donas sian brakon kaj elkondukas la fraŭlinon.
 
 Pantomimo
 
 Estas ludata tiel kiel se la aktorino efektive estus sola en la ĉambro; turnas, se bezone, la dorson al la publiko; ne elrigardas en la salonon; ne rapidas, kvazaŭ ŝi
 
-timus, ke la publiko estos malpacienca. 
+timus, ke la publiko estos malpacienca.
 
 Kristin
 
 Sola. Mallaŭta muziko de violono de malproksime laŭ
 
-takto de ŝotiŝo. 
+takto de ŝotiŝo.
 
 Kristin
 
 kantetanta laŭ la muziko; malplenigas la tablon post
 
-la manĝo de Jean, lavas la teleron ĉe la akvostablo, 
+la manĝo de Jean, lavas la teleron ĉe la akvostablo,
 
-viŝas kaj enmetas en ŝrankon. 
+viŝas kaj enmetas en ŝrankon.
 
 Post tio ŝi demetas de si la kuirejan antaŭtukon, elpre-
 
 nas el tirkeston de tablo malgrandan spegulon, metas
 
-ĝin kontraŭ la kruĉon kun siringoj sur la tablo; ekbruli-
+ĝntraŭ la kruĉon kun siringoj sur la tablo; ekbruli-
 
 gas seban kandelon kaj varmigas harpinglon, per kiu ŝi
 
-krispigas la harojn de la frunto. 
+krispigas la harojn de la frunto.
 
 Poste eksteren en la pordo aŭskultante. Revenas al la
 
@@ -556,31 +517,25 @@ ras ĝin; poste ŝi etendas ĝin, kvazaŭ enpensiĝe, streĉas
 
 ĝin, glatigas per la mano kaj faldas ĝin je kvar partoj
 
-k. t. p. 
-
-
-
-\* \* \*
-11
+k. t. p.
 
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
 eniras sola
 
-Ja, sed ŝi estas freneza\! Tia maniero danci\! Kaj la po-
+Ja, sed ŝi estas freneza! Tia maniero danci! Kaj la po-
 
 polo staras mokridante al ŝi malantaŭ la pordoj. Kion
 
-vi diras pri tio, Kristin? 
+vi diras pri tio, Kristin?
 
 Kristin
 
-Ha, estas ja ŝia periodo nun, kaj tiam ŝi estas ĉiam tiel stranga. Sed ĉu vi volas veni danci kun mi nun? 
+Ha, estas ja ŝia periodo nun, kaj tiam ŝi estas ĉiam tiel stranga. Sed ĉu vi volas veni danci kun mi nun?
 
 Jean
 
@@ -588,7 +543,7 @@ Vi ne estas kolera al mi, ĉar mi lasis vin sidi …
 
 Kristin
 
-Neniel\! — Ne pro tia bagatelo, tion vi certe scias; kaj
+Neniel! — Ne pro tia bagatelo, tion vi certe scias; kaj
 
 mi ankaŭ konas mian lokon …
 
@@ -602,19 +557,19 @@ no …
 
 La fraŭlino eniras; malagrable surprizita; per pena ŝercemo Vi estas ĝuste ĉarma kavaliro — kiu forkuras de via
 
-sinjorino. 
+sinjorino.
 
 Jean
 
 Male, fraŭlino Julie, kiel vi vidas, mi rapidis trovi
 
-mian lasitan\! 
+mian lasitan!
 
 La fraŭlino preterturnas la aferon
 
-Sciu, vi dancas kiel neniu alia\! — Sed kial vi estas en
+Sciu, vi dancas kiel neniu alia! — Sed kial vi estas en
 
-livreo dum antaŭvespero de festo\! Demetu tion tuj\! 
+livreo dum antaŭvespero de festo! Demetu tion tuj!
 
 Jean
 
@@ -624,17 +579,15 @@ mento, ĉar mia nigra surtuto pendas ĉi tie …
 
 iras dekstren kun gesto
 
-La fraŭlino ĉu mi ĝenas vin? Por ŝanĝi surtuton\! Eniru en vian ĉambron do kaj revenu\! Aŭ vi povas resti, kaj mi tur-nos la dorson. 
+La fraŭlino ĉu mi ĝenas vin? Por ŝanĝi surtuton! Eniru en vian ĉambron do kaj revenu! Aŭ vi povas resti, kaj mi tur-nos la dorson.
 
 Jean
 
-Kun via permeso, fraŭlino\! 
+Kun via permeso, fraŭlino!
 
-12
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 iras dekstren; oni vidas lian brakon, kiam li ŝanĝas
 
@@ -642,55 +595,55 @@ surtuton
 
 La fraŭlino al Kristin
 
-Aŭdu Kristin; ĉu Jean estas via fianĉo, ĉar li estas tiel intima? 
+Aŭdu Kristin; ĉu Jean estas via fianĉo, ĉar li estas tiel intima?
 
 Kristin
 
-Fianĉo? Jes, se oni tiel volas\! Ni nomas ĝin tiel. 
+Fianĉo? Jes, se oni tiel volas! Ni nomas ĝin tiel.
 
-La fraŭlino Nomas? 
+La fraŭlino Nomas?
 
 Kristin
 
 Nu, la fraŭlino mem havis ja fianĉon kaj …
 
-La fraŭlino Jes ni estis fianĉigitaj vere. 
+La fraŭlino Jes ni estis fianĉigitaj vere.
 
 Kristin
 
-Sed tio fariĝis ja nenio malgraŭ tio. 
+Sed tio fariĝis ja nenio malgraŭ tio.
 
 Jean
 
 eniras; en nigra longsurtuto kaj nigra melonĉapelo
 
-La fraŭlino Trés gentil; monsieur Jean\! Trés gentil\! 
+La fraŭlino Trés gentil; monsieur Jean! Trés gentil!
 
 Jean
 
-Vous voulez plaisanter, madame\! 
+Vous voulez plaisanter, madame!
 
-La fraŭlino Et vous voulez parler francais\! Kie vi lernis ĝin? 
+La fraŭlino Et vous voulez parler francais! Kie vi lernis ĝin?
 
 Jean
 
 En Svisujo dum mi estis ”sommelier” en unu el la plej
 
-grandaj hoteloj de Lucerno\! 
+grandaj hoteloj de Lucerno!
 
-La fraŭlino Sed vi aspektas ja kiel ”gentleman” en tiu redingoto\! 
+La fraŭlino Sed vi aspektas ja kiel ”gentleman” en tiu redingoto!
 
-ĉarme\! 
+ĉarme!
 
 sidiĝas apud la tablo
 
 Jean
 
-Ho, vi flatas\! 
+Ho, vi flatas!
 
 La fraŭlino ofendite
 
-Flatas vin? 
+Flatas vin?
 
 Jean
 
@@ -698,149 +651,143 @@ Mia natura modesteco malpermesas al mi kredi, ke vi
 
 diras verajn ĝentilaĵojn al tia homo kiel mi, kaj tial mi permesis al mi supozi, ke vi troigis, aŭ kiel ĝi ankaŭ
 
-estas nomata flati\! 
+estas nomata flati!
 
-13
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Kie vi lernis esprimi la parolojn tiamaniere? Vi sendube vizitis la teatrojn multe? 
+La fraŭlino Kie vi lernis esprimi la parolojn tiamaniere? Vi sendube vizitis la teatrojn multe?
 
 Jean
 
-Ankaŭ tion\! Mi vizitis multajn lokojn, mi\! 
+Ankaŭ tion! Mi vizitis multajn lokojn, mi!
 
-La fraŭlino Sed vi ja naskiĝis en ĉi tiu regiono, ĉu? 
+La fraŭlino Sed vi ja naskiĝis en ĉi tiu regiono, ĉu?
 
 Jean
 
 Mia patro estis taglaboristo ĉe la advokatfiskalo ĉi
 
-proksime, kaj mi jam vidis la fraŭlinon kiel infanon, 
+proksime, kaj mi jam vidis la fraŭlinon kiel infanon,
 
-kvankam la fraŭlino min ne rimarkis\! 
+kvankam la fraŭlino min ne rimarkis!
 
-La fraŭlino Ne, efektive\! 
+La fraŭlino Ne, efektive!
 
 Jean
 
 Jes, kaj mi rememoras speciale unu fojon. Ja, tion mi
 
-ne povas rakonti\! 
+ne povas rakonti!
 
-La fraŭlino Tamen jes\! Faru\! ĉu? Faru escepton al regulo\! 
-
-Jean
-
-Ne, mi fakte ne povas nun\! Alian fojon, eble. 
-
-La fraŭlino ”Alia fojo estas fripono”. ĉu estas tiel danĝere nun? 
+La fraŭlino Tamen jes! Faru! ĉu? Faru escepton al regulo!
 
 Jean
 
-Danĝere ne estas, sed min ĝenas\! — Rigardu tiun tie\! 
+Ne, mi fakte ne povas nun! Alian fojon, eble.
+
+La fraŭlino ”Alia fojo estas fripono”. ĉu estas tiel danĝere nun?
+
+Jean
+
+Danĝere ne estas, sed min ĝenas! — Rigardu tiun tie!
 
 Montras al Kristin, kiu endormiĝis en seĝo apud la ka-
 
-meno. 
+meno.
 
-La fraŭlino Estos agrabla edzino, tiu\! Povas esti ke ŝi ankaŭ ron-kas? 
+La fraŭlino Estos agrabla edzino, tiu! Povas esti ke ŝi ankaŭ ron-kas?
 
 Jean
 
-Tion ŝi ne faras, sed ŝi parolas en dormo. 
+Tion ŝi ne faras, sed ŝi parolas en dormo.
 
 La fraŭlino cinike
 
-Kiel vi scias, ke ŝi parolas en dormo? 
+Kiel vi scias, ke ŝi parolas en dormo?
 
 Jean
 
 senhonte
 
-Mi aŭdis\! 
+Mi aŭdis!
 
-Paŭzo, dum kiu ili rigardas unu la alian. 
+Paŭzo, dum kiu ili rigardas unu la alian.
 
-La fraŭlino Kial vi ne sidiĝas? 
+La fraŭlino Kial vi ne sidiĝas?
 
 Jean
 
-Tion mi ne povas permesi al mi en via ĉeesto\! 
+Tion mi ne povas permesi al mi en via ĉeesto!
 
-14
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Sed se mi ordonas tion? 
+La fraŭlino Sed se mi ordonas tion?
 
 Jean
 
-Tiam mi obeas\! 
+Tiam mi obeas!
 
-La fraŭlino Do, sidiĝu\! — Sed atendu\! ĉu vi povas doni al mi ion por trinki unue? 
+La fraŭlino Do, sidiĝu! — Sed atendu! ĉu vi povas doni al mi ion por trinki unue?
 
 Jean
 
 Mi ne scias, kion ni povas havi en tiu glacikesto. Mi
 
-pensas, ke estas nur biero. 
+pensas, ke estas nur biero.
 
-La fraŭlino Tio ne estas ”nur”\! kaj mi havas tiel simplan gusto-senton, ke mi preferas ĝin al vino. 
+La fraŭlino Tio ne estas ”nur”! kaj mi havas tiel simplan gusto-senton, ke mi preferas ĝin al vino.
 
 Jean
 
 elprenas el la glacikesto botelon da biero, kiun li mal-
 
-fermas; serĉas en la ŝranko glason kaj teleron, servas. 
+fermas; serĉas en la ŝranko glason kaj teleron, servas.
 
-Bonvolu\! 
+Bonvolu!
 
-La fraŭlino Dankon\! ĉu vi ne volas trinki mem? 
-
-Jean
-
-Mi ne tre ŝatas bieron, sed se la fraŭlino ordonas\! 
-
-La fraŭlino Ordonas? — ŝajnas al mi, ke vi povas, kiel ĝentila kavaliro, fari societon al via sinjorino. 
+La fraŭlino Dankon! ĉu vi ne volas trinki mem?
 
 Jean
 
-Tio estas tre ĝusta rimarko\! 
+Mi ne tre ŝatas bieron, sed se la fraŭlino ordonas!
 
-Malfermas ankoraŭ unu botelon, prenas glason. 
+La fraŭlino Ordonas? — ŝajnas al mi, ke vi povas, kiel ĝentila kavaliro, fari societon al via sinjorino.
 
-La fraŭlino Trinku nun je mia sano\! 
+Jean
+
+Tio estas tre ĝusta rimarko!
+
+Malfermas ankoraŭ unu botelon, prenas glason.
+
+La fraŭlino Trinku nun je mia sano!
 
 Jean
 
 ŝanceliĝas
 
-La fraŭlino Mi kredas, ke la plenkreskulo estas timema\! 
+La fraŭlino Mi kredas, ke la plenkreskulo estas timema!
 
 Jean
 
 surgenue, ŝercante parodie; levante sian glason
 
-Je la sano de mia ordonantino\! 
+Je la sano de mia ordonantino!
 
-La fraŭlino Brave\! Nun vi kisu mian ŝuon ankaŭ, kaj la pentraĵo estos plensukcesa. 
+La fraŭlino Brave! Nun vi kisu mian ŝuon ankaŭ, kaj la pentraĵo estos plensukcesa.
 
 Jean
 
-ŝanceliĝe, sed poste kuraĝe kaptante ŝian piedon, kiun li kisas malpeze. 
+ŝanceliĝe, sed poste kuraĝe kaptante ŝian piedon, kiun li kisas malpeze.
 
-15
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Perfekte\! Vi estus fariĝinta aktoro. 
+La fraŭlino Perfekte! Vi estus fariĝinta aktoro.
 
 Jean
 
@@ -848,17 +795,17 @@ stariĝas
 
 Tio ĉi ne plu konvenas, fraŭlino; iu povus veni kaj
 
-vidi nin. 
+vidi nin.
 
-La fraŭlino ĉu tio gravus? 
+La fraŭlino ĉu tio gravus?
 
 Jean
 
-ĉar la bienhomoj kalumnie babilas, tute simple\! Kaj
+ĉar la bienhomoj kalumnie babilas, tute simple! Kaj
 
 se la fraŭlino scius, kiel rapide ĵus iliaj langoj moviĝis tie supre, tiam …
 
-La fraŭlino Kion ili diris do? Rakontu al mi\! — Sidiĝu nun\! 
+La fraŭlino Kion ili diris do? Rakontu al mi! — Sidiĝu nun!
 
 Jean
 
@@ -868,31 +815,31 @@ Mi ne volas ofendi vin, sed ili uzis esprimojn, kiuj
 
 ĵetis suspektojn tiaspecajn, ke … ja tion vi povas kom-
 
-preni mem\! Vi ne estas infano, kaj kiam oni vidas sin-
+preni mem! Vi ne estas infano, kaj kiam oni vidas sin-
 
 jorinon trinkantan sola kun viro — eĉ se estas dom-
 
 servisto — nokte — oni …
 
-La fraŭlino Oni kion\! Kaj cetere ni ne estas solaj. Kristin ja ĉeestas. 
+La fraŭlino Oni kion! Kaj cetere ni ne estas solaj. Kristin ja ĉeestas.
 
 Jean
 
-Dormanta, jes\! 
+Dormanta, jes!
 
-La fraŭlino Do mi vekos ŝin\! 
+La fraŭlino Do mi vekos ŝin!
 
 stariĝas
 
-Kristin\! ĉu vi dormas\! 
+Kristin! ĉu vi dormas!
 
 Kristin
 
 en la dormo
 
-Bla — bla — bla — bla\! 
+Bla — bla — bla — bla!
 
-La fraŭlino Kristin\! — ŝi povas dormi\! 
+La fraŭlino Kristin! — ŝi povas dormi!
 
 Kristin
 
@@ -900,27 +847,25 @@ en la dormo
 
 La botoj de la grafo estas purigitaj — ekkuiri la kafon
 
-— tuj, tuj, tuj, — ho ho — puh\! 
+— tuj, tuj, tuj, — ho ho — puh!
 
-16
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino prenas ŝian nazon
 
-ĉu vi volas vekiĝi\! 
+ĉu vi volas vekiĝi!
 
 Jean
 
 severe
 
-Oni ne ĝenu dormanton\! 
+Oni ne ĝenu dormanton!
 
 La fraŭlino akre
 
-Kion\! 
+Kion!
 
 Jean
 
@@ -934,77 +879,75 @@ La fraŭlino transturnas la aferon
 
 Tio estas bela penso, kaj ĝi honoras vin — dankon
 
-pro tio\! 
+pro tio!
 
 donas al Jean la manon
 
 Venu nun eksteren kaj kolektu por mi iom da sirin-
 
-goj\! 
+goj!
 
 Dum la sekvanta tempo Kristin vekiĝas, pasas dorme-
 
-ma dekstren por kuŝiĝi. 
+ma dekstren por kuŝiĝi.
 
 Jean
 
-Kun la fraŭlino? 
+Kun la fraŭlino?
 
-La fraŭlino Kun mi\! 
-
-Jean
-
-Tio ne konvenas\! Absolute ne\! 
-
-La fraŭlino Mi ne povas kompreni viajn pensojn. ĉu estus eble, ke vi imagas al vi ion? 
+La fraŭlino Kun mi!
 
 Jean
 
-Ne\! mi ne, sed la homoj. 
+Tio ne konvenas! Absolute ne!
 
-La fraŭlino Kion? Ke mi estus enamiĝinta al la servisto? 
+La fraŭlino Mi ne povas kompreni viajn pensojn. ĉu estus eble, ke vi imagas al vi ion?
+
+Jean
+
+Ne! mi ne, sed la homoj.
+
+La fraŭlino Kion? Ke mi estus enamiĝinta al la servisto?
 
 Jean
 
 Mi ne estas tromemfida viro, sed oni vidis ekzem-
 
-plojn — kaj al la bienpopolo nenio restas sankta\! 
+plojn — kaj al la bienpopolo nenio restas sankta!
 
-17
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Vi estas aristokrato, mi kredas\! 
+La fraŭlino Vi estas aristokrato, mi kredas!
 
 Jean
 
-Jes, tia mi estas. 
+Jes, tia mi estas.
 
 La fraŭlino Mi malsupreniros …
 
 Jean
 
-Ne malsupreniru, aŭskultu mian konsilon\! Neniu
+Ne malsupreniru, aŭskultu mian konsilon! Neniu
 
 kredos, ke vi memvole malsupreniras; la popolo ĉiam
 
-diros, ke vi malsuprenfalas\! 
+diros, ke vi malsuprenfalas!
 
-La fraŭlino Mi havas pli altajn pensojn pri la popolo ol vi\! Venu kaj provu\! — Venu\! 
+La fraŭlino Mi havas pli altajn pensojn pri la popolo ol vi! Venu kaj provu! — Venu!
 
 ŝi englutas lin per siaj okuloj
 
 Jean
 
-Sciu, ke vi estas stranga\! 
+Sciu, ke vi estas stranga!
 
-La fraŭlino Povas esti\! Sed tia vi ankaŭ estas\! ĉio estas stranga cetere\! La vivo, la homoj, ĉio estas naĝanta miksaĵo, 
+La fraŭlino Povas esti! Sed tia vi ankaŭ estas! ĉio estas stranga cetere! La vivo, la homoj, ĉio estas naĝanta miksaĵo,
 
 kiu peliĝas, peliĝadas antaŭen sur la akvo, ĝis ĝi sub-
 
-akviĝas, subakviĝadas\! Mi havas sonĝon, kiu revenas
+akviĝas, subakviĝadas! Mi havas sonĝon, kiu revenas
 
 de tempo al tempo; kaj kiun mi rememoras nun. Mi
 
@@ -1020,27 +963,25 @@ teni min kaj mi deziregas fali; sed mi ne ekfalas. Kaj
 
 tamen mi ne havos trankvilon antaŭ ol mi iros mal-
 
-supren, ne havos ripozon antaŭ ol mi iros malsupren, 
+supren, ne havos ripozon antaŭ ol mi iros malsupren,
 
-malsupren sur la terfundon\! Kaj se mi estos atinginta
+malsupren sur la terfundon! Kaj se mi estos atinginta
 
 la terfundon, mi volus eniĝi en la teron … ĉu vi sen-
 
-tis ion tiaspecan? 
+tis ion tiaspecan?
 
 Jean
 
-Ne\! Mi kutimas sonĝi, ke mi kuŝas sub alta arbo en
+Ne! Mi kutimas sonĝi, ke mi kuŝas sub alta arbo en
 
 malluma arbaro. Mi volas leviĝi, leviĝi sur la supron
 
 por ĉirkaŭrigardi la luman pejzaĝon, kie la suno bri-
 
-18
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 las, rabi la birdneston tie supre, kie troviĝas la oraj
 
@@ -1052,179 +993,175 @@ unuan branĉon, mi marŝus al la supro, kvazaŭ sur
 
 ŝtupetaro. Ankoraŭ mi ne atingis ĝin, sed mi ĝin atin-
 
-gos, eĉ se nur en sonĝo\! 
+gos, eĉ se nur en sonĝo!
 
-La fraŭlino Jen mi staras babilante pri sonĝoj kun vi. Venu nun\! 
+La fraŭlino Jen mi staras babilante pri sonĝoj kun vi. Venu nun!
 
-Nur en la parkon\! 
+Nur en la parkon!
 
-ŝi prezentas al li sian brakon, kaj ili iras. 
+ŝi prezentas al li sian brakon, kaj ili iras.
 
 Jean
 
-Ni dormos sur naŭ somermezaj floroj hodiaŭ nokte, 
+Ni dormos sur naŭ somermezaj floroj hodiaŭ nokte,
 
-kaj ni sonĝos la estonton, fraŭlino\! 
+kaj ni sonĝos la estonton, fraŭlino!
 
 La fraŭlino kaj Jean turnas sin en la pordo. Jean tenas
 
-la manon antaŭ unu okulo. 
+la manon antaŭ unu okulo.
 
-La fraŭlino Lasu min vidi, kion vi ekhavis en la okulo\! 
+La fraŭlino Lasu min vidi, kion vi ekhavis en la okulo!
 
 Jean
 
-Ho, estas nenio — nur polvero — tio tuj pasos. 
+Ho, estas nenio — nur polvero — tio tuj pasos.
 
-La fraŭlino La maniko de mia vesto vin ekfrotetis; sidiĝu nun, kaj mi helpos vin\! 
+La fraŭlino La maniko de mia vesto vin ekfrotetis; sidiĝu nun, kaj mi helpos vin!
 
 Prenas lian brakon kaj sidigas lin, ekkaptas lian kapon
 
 kaj klinas ĝin malantaŭen; per la ekstremaĵo de la poŝ-
 
-tuko ŝi provas forigi la polveron. 
+tuko ŝi provas forigi la polveron.
 
-Sidu senmove nun; tute senmove\! 
+Sidu senmove nun; tute senmove!
 
-Ekfrapas lian manon. 
+Ekfrapas lian manon.
 
-Jen\! volu obei\! — Mi kredas, ke li tremas, la granda
+Jen! volu obei! — Mi kredas, ke li tremas, la granda
 
-forta viro\! 
+forta viro!
 
-Prempalpas lian brakon. 
+Prempalpas lian brakon.
 
-Kun tiaj brakoj\! 
+Kun tiaj brakoj!
 
-19
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
 avertante
 
-Fraŭlino Julie\! 
+Fraŭlino Julie!
 
-La fraŭlino Jes, monsieur Jean. 
+La fraŭlino Jes, monsieur Jean.
 
 Jean
 
-Attention\! Je ne suis qu’un homme\! 
+Attention! Je ne suis qu’un homme!
 
-La fraŭlino Bonvolu sidi trankvile\! — Jen\! Nun ĝi estas for\! Kisu mian manon, kaj danku min\! 
+La fraŭlino Bonvolu sidi trankvile! — Jen! Nun ĝi estas for! Kisu mian manon, kaj danku min!
 
 Jean
 
 stariĝas
 
-Fraŭlino Julie\! Aŭskultu min\! Kristin jam foriris por
+Fraŭlino Julie! Aŭskultu min! Kristin jam foriris por
 
-kuŝiĝi. — Bonvolu aŭskulti min\! 
+kuŝiĝi. — Bonvolu aŭskulti min!
 
-La fraŭlino Kisu unue mian manon\! 
-
-Jean
-
-Aŭskultu min\! 
-
-La fraŭlino Kisu unue mian manon\! 
+La fraŭlino Kisu unue mian manon!
 
 Jean
 
-Jes, sed kulpigu vin mem\! 
+Aŭskultu min!
 
-La fraŭlino Pro kio? 
+La fraŭlino Kisu unue mian manon!
+
+Jean
+
+Jes, sed kulpigu vin mem!
+
+La fraŭlino Pro kio?
 
 Jean
 
 Pro kio? ĉu vi estas infano ĉe dudekkvin jaroj? ĉu vi
 
-ne scias, ke estas danĝere ludi kun la fajro? 
+ne scias, ke estas danĝere ludi kun la fajro?
 
-La fraŭlino Por mi ne; mi estas asekurita\! 
+La fraŭlino Por mi ne; mi estas asekurita!
 
 Jean
 
 kuraĝe
 
-Vi ne estas\! Kaj se vi estas, tamen estas brulemaĵo en
+Vi ne estas! Kaj se vi estas, tamen estas brulemaĵo en
 
-la proksimeco\! 
+la proksimeco!
 
-La fraŭlino ĉu tio estas vi? 
+La fraŭlino ĉu tio estas vi?
 
 Jean
 
-Jes\! Ne pro tio, ke estas mi, sed pro tio, ke mi estas
+Jes! Ne pro tio, ke estas mi, sed pro tio, ke mi estas
 
-juna viro. 
+juna viro.
 
-La fraŭlino Kun beleta vizaĝo — kia nekredebla tromemfideco\! 
+La fraŭlino Kun beleta vizaĝo — kia nekredebla tromemfideco!
 
-Iu Don Juan eble\! Aŭ iu Jozefo\! Mi kredas, je mia fido, 
+Iu Don Juan eble! Aŭ iu Jozefo! Mi kredas, je mia fido,
 
-ke li estas iu Jozefo\! 
+ke li estas iu Jozefo!
 
-20
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
-ĉu vi kredas? 
+ĉu vi kredas?
 
-La fraŭlino Mi preskaŭ timas\! 
+La fraŭlino Mi preskaŭ timas!
 
 Jean
 
-kuraĝe aliras kaj volas kapti ŝin ĉirkaŭ la talio por kisi ŝin. 
+kuraĝe aliras kaj volas kapti ŝin ĉirkaŭ la talio por kisi ŝin.
 
 La fraŭlino batas liajn vangojn
 
-Hontu\! 
+Hontu!
 
 Jean
 
-ĉu estas serioze aŭ ŝerce? 
+ĉu estas serioze aŭ ŝerce?
 
-La fraŭlino Serioze\! 
+La fraŭlino Serioze!
 
 Jean
 
-Sekve ankaŭ ĵus estis serioze\! Vi petolas entute tro se-
+Sekve ankaŭ ĵus estis serioze! Vi petolas entute tro se-
 
-rioze kaj tio estas la danĝero\! Nun mi estas tedita je
+rioze kaj tio estas la danĝero! Nun mi estas tedita je
 
 la ludo kaj petas senkulpigon, ĉar mi reiros al mia
 
 laboro. La grafo volas rehavi siajn botojn ĝustatem-
 
-pe, kaj noktomezo jam de longe pasis. 
+pe, kaj noktomezo jam de longe pasis.
 
-La fraŭlino Formetu la botojn\! 
+La fraŭlino Formetu la botojn!
 
 Jean
 
-Ne\! Tio estas mia servado, kiun devas fari, sed mi ne-
+Ne! Tio estas mia servado, kiun devas fari, sed mi ne-
 
 niam prenis sur min la taskon esti via kunludulo, kaj
 
 neniam mi povos esti, ĉar mi opinias min tro bona
 
-por tio. 
+por tio.
 
-La fraŭlino Vi estas fiera\! 
+La fraŭlino Vi estas fiera!
 
 Jean
 
-En kelkaj okazoj jes; en aliaj ne. 
+En kelkaj okazoj jes; en aliaj ne.
 
-La fraŭlino ĉu vi iam amis? 
+La fraŭlino ĉu vi iam amis?
 
 Jean
 
@@ -1232,53 +1169,51 @@ Ni ne uzas tiun vorton, sed mi amis multe da knabi-
 
 noj, kaj unu fojon mi estis malsana pro tio, ke mi ne
 
-povis ricevi tiun, kiun mi volis havi: malsana, aŭdu, 
+povis ricevi tiun, kiun mi volis havi: malsana, aŭdu,
 
-kiel la princoj en Mil kaj unu noktoj\! kiuj ne povis
+kiel la princoj en Mil kaj unu noktoj! kiuj ne povis
 
-manĝi nek trinki pro nura amo\! 
+manĝi nek trinki pro nura amo!
 
-La fraŭlino Kiu estis ŝi? 
+La fraŭlino Kiu estis ŝi?
 
-21
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
 silentas
 
-La fraŭlino Kiu estis ŝi? 
+La fraŭlino Kiu estis ŝi?
 
 Jean
 
-Tion vi ne povas devigi min diri. 
+Tion vi ne povas devigi min diri.
 
-La fraŭlino Se mi petas vin kiel egalulo, petas — amikon\! Kiu estis ŝi? 
+La fraŭlino Se mi petas vin kiel egalulo, petas — amikon! Kiu estis ŝi?
 
 Jean
 
-ŝi estis vi\! 
+ŝi estis vi!
 
 La fraŭlino eksidiĝas
 
-Kiel strange\! 
+Kiel strange!
 
 Jean
 
-Jes, se vi volas tiel diri\! Estis ridinde\! — Jen aŭdu, tio estis la historio, kiun mi ĵus ne volis rakonti, sed nun mi rakontos ĝin\! 
+Jes, se vi volas tiel diri! Estis ridinde! — Jen aŭdu, tio estis la historio, kiun mi ĵus ne volis rakonti, sed nun mi rakontos ĝin!
 
 ĉu vi scias, kiel la mondo aspektas de tie malsupre
 
-— tion vi ne scias\! Simile al akcipitroj kaj falkoj, kies dorsojn oni malofte povas vidi, ĉar ili flugas tie supre\! 
+— tion vi ne scias! Simile al akcipitroj kaj falkoj, kies dorsojn oni malofte povas vidi, ĉar ili flugas tie supre!
 
 Mi vivis en la dometo de taglaboristo, kun sep gefra-
 
-toj kaj unu porkido, ekstere sur la griza plugkampo, 
+toj kaj unu porkido, ekstere sur la griza plugkampo,
 
-kie kreskis neniu arbo\! Sed de la fenestroj mi vidis la
+kie kreskis neniu arbo! Sed de la fenestroj mi vidis la
 
 ŝtonmuron de la parko de la grafo, kun la pomarboj
 
@@ -1292,23 +1227,21 @@ buboj trovis la vojon al la arbo de la vivo — nun vi
 
 min malestimas —
 
-La fraŭlino Ha\! Pomojn ŝtelas ja ĉiuj buboj. 
+La fraŭlino Ha! Pomojn ŝtelas ja ĉiuj buboj.
 
 Jean
 
 Tiel vi povas diri nun, sed vi malestimas min en ĉiu
 
-kazo. Tute egale\! Unu fojon mi envenis en la paradi-
+kazo. Tute egale! Unu fojon mi envenis en la paradi-
 
 zon kun mia patrino por sarki la cepobedojn. Apud la
 
 plantejoj de la ĝardeno staris turka pavilono en la
 
-22
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 ombro de jasmenoj kaj kovrita per kreskanta lonice-
 
@@ -1338,11 +1271,11 @@ iom post iom naskiĝis en mi la sopiro provi unu fo-
 
 jon la plezuron de — fine, mi enŝteliĝis, vidis kaj ad-
 
-miris. Sed tiam iu venis\! Ekzistis nur unu elirejo por
+miris. Sed tiam iu venis! Ekzistis nur unu elirejo por
 
 sinjoraj homoj, sed por mi ekzistis ankoraŭ unu, kaj
 
-mi ne havis alian elekton ol ĝin\! 
+mi ne havis alian elekton ol ĝin!
 
 La fraŭlino kiu prenis la siringon, lasas ĝin fali sur la tablon Jean
 
@@ -1352,7 +1285,7 @@ arbustoj, rapidegis trans plantejon de fragoj kaj alve-
 
 nis sur la terason de rozoj. Tie mi ekvidis rozkoloran
 
-veston kaj paron da blankaj ŝtrumpoj — tio estis vi. 
+veston kaj paron da blankaj ŝtrumpoj — tio estis vi.
 
 Mi kuŝigis min sub amason da sarkaĵo, sub — imagu
 
@@ -1366,35 +1299,33 @@ enveni en la ĉielon kaj resti kun la anĝeloj, tiam estas
 
 strange, ke infano de taglaboristo tie ĉi sur la tero de
 
-23
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Dio ne povas enveni en la kastelan parkon kaj ludi
 
-kun la filino de grafo\! 
+kun la filino de grafo!
 
 La fraŭlino elegie
 
 ĉu vi kredas, ke ĉiuj malriĉaj infanoj havus tiajn sa-
 
-majn pensojn, kiel vi en tiu okazo? 
+majn pensojn, kiel vi en tiu okazo?
 
 Jean
 
 unue ŝanceliĝe, poste konvinkige
 
-ĉu ĉiuj malriĉaj — jes — kompreneble\! Kompreneble\! 
+ĉu ĉiuj malriĉaj — jes — kompreneble! Kompreneble!
 
-La fraŭlino Estas, sendube, senlima malfeliĉo esti malriĉa\! 
+La fraŭlino Estas, sendube, senlima malfeliĉo esti malriĉa!
 
 Jean
 
 kun profunda doloro, troemfaze
 
-Ho, fraŭlino Julie\! Ho\! — Hundo povas havi la perme-
+Ho, fraŭlino Julie! Ho! — Hundo povas havi la perme-
 
 son kuŝi en la sofo de la grafino, ĉevalo povas esti
 
@@ -1404,9 +1335,9 @@ utulo —
 
 turniĝas
 
-— ja ja, estas ŝtofo en unu aŭ alia, tiel ke li altiĝas en la mondo, sed kiom ofte tio okazas\! — nu, ĉu vi scias kion mi poste faris\! — Mi enkuris en la muelejan
+— ja ja, estas ŝtofo en unu aŭ alia, tiel ke li altiĝas en la mondo, sed kiom ofte tio okazas! — nu, ĉu vi scias kion mi poste faris! — Mi enkuris en la muelejan
 
-rivereton tute vestita; estis eltirita kaj ricevis batojn. 
+rivereton tute vestita; estis eltirita kaj ricevis batojn.
 
 Sed la sekvintan dimanĉon, kiam la patro kaj ĉiuj de
 
@@ -1416,7 +1347,7 @@ aranĝis, ke mi restis hejme. Kaj tiam mi lavis min per
 
 nigra sapo kaj varma akvo, surmetis mian plej bonan
 
-veston kaj iris en preĝejon, kie mi estis vidonta vin\! 
+veston kaj iris en preĝejon, kie mi estis vidonta vin!
 
 Mi vidis vin kaj reiris hejmen, decidinte morti; sed mi
 
@@ -1424,15 +1355,13 @@ volis morti bele kaj agrable, sen doloro. Kaj tiam mi
 
 memoris, ke estas danĝere dormi sub sambuko. Ni
 
-havis grandan sambukon ĵus florantan. ¯in mi prira-
+havis grandan sambukon ĵus florantan. in mi prira-
 
 bis je ĉio, kion ĝi posedis, kaj tiarimede mi sternis
 
-24
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 kuŝujon al mi en avenkestego. ĉu vi rimarkis, kiel gla-
 
@@ -1440,49 +1369,49 @@ ta estas aveno? mola por la mano kiel homa haŭto —
 
 nu, mi surfaligis la kestan kovrilon kaj fermis la oku-
 
-lojn; endormiĝis kaj estis vekita fakte tre malsana. 
+lojn; endormiĝis kaj estis vekita fakte tre malsana.
 
-Sed mi ne mortis, laŭ kio vi povas vidi. 
+Sed mi ne mortis, laŭ kio vi povas vidi.
 
-Kion mi volis — mi ne scias\! Vin gajni estis ja ne-
+Kion mi volis — mi ne scias! Vin gajni estis ja ne-
 
 nia espero — sed vi estis simbolo kiel senespere estas
 
-leviĝi el la rondo, en kiu mi naskiĝis. 
+leviĝi el la rondo, en kiu mi naskiĝis.
 
-La fraŭlino Vi rakontas ĉarme, sciu\! ĉu vi vizitadis lernejon? 
+La fraŭlino Vi rakontas ĉarme, sciu! ĉu vi vizitadis lernejon?
 
 Jean
 
-Iom; sed mi legis multajn romanojn kaj iris al teatro. 
+Iom; sed mi legis multajn romanojn kaj iris al teatro.
 
 Krom tio mi aŭdis bonedukitajn homojn paroli, kaj
 
-de ili mi lernis plej multe. 
+de ili mi lernis plej multe.
 
-La fraŭlino ĉu vi staras kaj aŭskultas, kion ni diras\! 
+La fraŭlino ĉu vi staras kaj aŭskultas, kion ni diras!
 
 Jean
 
-Jes certe\! Kaj multon mi aŭdis\! kiam mi okupis la ve-
+Jes certe! Kaj multon mi aŭdis! kiam mi okupis la ve-
 
 turigistan sidilon aŭ remis la ŝipeton. Iun fojon mi
 
 aŭdis fraŭlinon Julie kun amikino…
 
-La fraŭlino Ho\! — Kion vi aŭdis tiam? 
+La fraŭlino Ho! — Kion vi aŭdis tiam?
 
 Jean
 
-Jes ja, ne estas facile rediri; sed certe mi miris iom, kaj ne komprenis, kie vi lernis ĉiujn vortojn. Povas esti, 
+Jes ja, ne estas facile rediri; sed certe mi miris iom, kaj ne komprenis, kie vi lernis ĉiujn vortojn. Povas esti,
 
 ke en la fundo ne ekzistas tiel granda diferenco inter
 
-homoj kaj homoj\! 
+homoj kaj homoj!
 
-La fraŭlino Ho fi\! Ni ne vivas same kiel vi, kiam ni estas gefian-
+La fraŭlino Ho fi! Ni ne vivas same kiel vi, kiam ni estas gefian-
 
-ĉoj. 
+ĉoj.
 
 Jean
 
@@ -1492,59 +1421,57 @@ fikse rigardas ŝin
 
 nigu sin senkulpa …
 
-La fraŭlino Estis malnoblulo, al kiu mi donis mian amon. 
+La fraŭlino Estis malnoblulo, al kiu mi donis mian amon.
 
-25
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
-Tiel vi ĉiam diras — poste. 
+Tiel vi ĉiam diras — poste.
 
-La fraŭlino ĉiam? 
+La fraŭlino ĉiam?
 
 Jean
 
 Mi kredas, ke ĉiam, ĉar mi aŭdis la esprimon multfoje
 
-antaŭe ĉe samspecaj okazoj. 
+antaŭe ĉe samspecaj okazoj.
 
-La fraŭlino Kia okazo? 
+La fraŭlino Kia okazo?
 
 Jean
 
-Sama kiel la nun priparolata\! La lastan fojon …
+Sama kiel la nun priparolata! La lastan fojon …
 
 La fraŭlino stariĝas
 
-Silentu\! Mi ne volas aŭdi pli\! 
+Silentu! Mi ne volas aŭdi pli!
 
 Jean
 
 Ankaŭ ŝi ne volis — tio estas stranga. Nu, mi petas do
 
-vian permeson foriri por dormi. 
+vian permeson foriri por dormi.
 
 La fraŭlino afable
 
-Foriri por domi en la somermeza nokto\! 
+Foriri por domi en la somermeza nokto!
 
 Jean
 
-Jes\! Danci kun la popolaĉo tie sur la monteto ne ne-
+Jes! Danci kun la popolaĉo tie sur la monteto ne ne-
 
-pre plaĉas al mi. 
+pre plaĉas al mi.
 
-La fraŭlino Kunprenu la ŝlosilon de la boato kaj remveturigu min sur la lago, mi volas vidi la sunleviĝon? 
+La fraŭlino Kunprenu la ŝlosilon de la boato kaj remveturigu min sur la lago, mi volas vidi la sunleviĝon?
 
 Jean
 
-ĉu tio estas saĝa? 
+ĉu tio estas saĝa?
 
-La fraŭlino ŝajnas laŭ viaj paroloj, ke vi timas pri via famo\! 
+La fraŭlino ŝajnas laŭ viaj paroloj, ke vi timas pri via famo!
 
 Jean
 
@@ -1554,7 +1481,7 @@ pelota kaj resti sen serva atestaĵo, kiam mi fondos
 
 mian propran entreprenon. Kaj mi opinias ankaŭ, ke
 
-min ligas ia devo rilate al Kristin. 
+min ligas ia devo rilate al Kristin.
 
 La fraŭlino O ho, nun ankaŭ Kristin …
 
@@ -1562,117 +1489,113 @@ Jean
 
 Jes, sed ankaŭ vi. — Obeu mian konsilon, iru en vian
 
-ĉambron por dormi\! 
+ĉambron por dormi!
 
-La fraŭlino ĉu mi obeu al vi? 
+La fraŭlino ĉu mi obeu al vi?
 
-26
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
-Unu fojon nur; por via propra bono\! Mi vin petas\! La
+Unu fojon nur; por via propra bono! Mi vin petas! La
 
 nokto estas baldaŭ finota, la dormo ebriigas, kaj la
 
-kapo fariĝas varmega\! Iru dormi\! Cetere — se mi ne
+kapo fariĝas varmega! Iru dormi! Cetere — se mi ne
 
-aŭdas erare — la homoj venas ĉi tien por serĉi min\! 
+aŭdas erare — la homoj venas ĉi tien por serĉi min!
 
-Kaj se oni trovas vin ĉi tie, vi estas perdita\! 
+Kaj se oni trovas vin ĉi tie, vi estas perdita!
 
 La ˛oro alproksimiĝas kantante:
 
 Du venis virinoj el arboj
 
-Tridiridi-ralla tridiridi-ra. 
+Tridiridi-ralla tridiridi-ra.
 
 Piedoj de unu malsekaj
 
-Tridiridi-ralla-la. 
+Tridiridi-ralla-la.
 
 Pri cent ili diris taleroj
 
-Tridiridi-ralla tridiridi-ra. 
+Tridiridi-ralla tridiridi-ra.
 
 Sed havis apenaŭ oeron
 
-Tridiridi-ralla-la. 
+Tridiridi-ralla-la.
 
 Florkronon mi al vi donas
 
-Tridiridi—ralla—tridira. 
+Tridiridi—ralla—tridira.
 
 Alian mi penskonas
 
-Tridiridi—ralla—la\! 
+Tridiridi—ralla—la!
 
-La fraŭlino Mi konas la bienhomojn, kaj mi ilin amas, kiel ili amas min. Lasu ilin veni kaj vi vidos\! 
+La fraŭlino Mi konas la bienhomojn, kaj mi ilin amas, kiel ili amas min. Lasu ilin veni kaj vi vidos!
 
 Jean
 
 Ne, fraŭlino Julie, ili ne amas vin. Ili akceptas vian
 
-nutraĵon, sed ili kraĉas post ĝin\! Kredu min\! Aŭskultu
+nutraĵon, sed ili kraĉas post ĝin! Kredu min! Aŭskultu
 
-ilin, nur aŭskultu ilin, kion ili kantas\! — Ne, ne aŭs-
+ilin, nur aŭskultu ilin, kion ili kantas! — Ne, ne aŭs-
 
-kultu\! 
+kultu!
 
-27
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino Ekaŭskultas
 
-Kion ili kantas? 
+Kion ili kantas?
 
 Jean
 
-Estas kalumnia kantaĵo\! Pri vi kaj mi\! 
+Estas kalumnia kantaĵo! Pri vi kaj mi!
 
-La fraŭlino Hontinde\! Ho, fi\! Kaj kiel perfide\! —
-
-Jean
-
-La kanajlaro estas ĉiam malkuraĝa\! Kaj en ĉi tiu ba-
-
-talo oni povas nur forkuri\! 
-
-La fraŭlino Forkuri? Sed kien? Eksteren ne estas eble trairi\! Kaj al Kristin ni ne povas iri\! 
+La fraŭlino Hontinde! Ho, fi! Kaj kiel perfide! —
 
 Jean
 
-Tiel\! ĉu en mian ĉambron? La neceso ne havas leĝon; 
+La kanajlaro estas ĉiam malkuraĝa! Kaj en ĉi tiu ba-
+
+talo oni povas nur forkuri!
+
+La fraŭlino Forkuri? Sed kien? Eksteren ne estas eble trairi! Kaj al Kristin ni ne povas iri!
+
+Jean
+
+Tiel! ĉu en mian ĉambron? La neceso ne havas leĝon;
 
 kaj al mi vi povos fidi, ĉar mi estas via vera, sincera
 
-kaj respektoplena amiko\! 
+kaj respektoplena amiko!
 
-La fraŭlino Sed supozu\! — supozu ke oni serĉos nin tie? 
+La fraŭlino Sed supozu! — supozu ke oni serĉos nin tie?
 
 Jean
 
 Mi riglos la pordon, kaj se oni volos enrompi ĝin, mi
 
-pafos\! — Venu\! 
+pafos! — Venu!
 
 surgenue
 
-Venu\! 
+Venu!
 
 La fraŭlino grave
 
-ĉu vi promesas al mi …? 
+ĉu vi promesas al mi …?
 
 Jean
 
-Mi ĵuras\! 
+Mi ĵuras!
 
 La fraŭlino eliras rapide dekstren
 
@@ -1680,11 +1603,9 @@ Jean
 
 rapide postsekvas
 
-28
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Baledo
 
@@ -1698,13 +1619,11 @@ trinkas. Poste oni faras rondon, kantas kaj dancas la
 
 dancludon:
 
-”Du venis virinoj el arboj”. 
+”Du venis virinoj el arboj”.
 
-Farinte ĉi tion, ili reforiras kantante. 
+Farinte ĉi tion, ili reforiras kantante.
 
 
-
-\* \* \*
 La fraŭlino eniras sola; ekvidas la malordon en la kuirejo; kunfrapas la manojn; poste ŝi elprenas plumtufon kaj pudrumas
 
 
@@ -1714,43 +1633,41 @@ Jean
 
 eniras; ekscitita
 
-Jen vi vidas\! Kaj vi aŭdis\! ĉu vi pensas, ke estas eble
+Jen vi vidas! Kaj vi aŭdis! ĉu vi pensas, ke estas eble
 
-resti ĉi tie\! 
+resti ĉi tie!
 
-La fraŭlino Ne\! Mi pensas ke ne\! sed kion ni devas do fari? 
-
-Jean
-
-Forkuri, forvojaĝi, malproksimen de ĉi tie\! 
-
-La fraŭlino Forvojaĝi? Jes, sed kien? 
+La fraŭlino Ne! Mi pensas ke ne! sed kion ni devas do fari?
 
 Jean
 
-Al Svisujo, al la italaj lagoj; tie vi ne estis? 
+Forkuri, forvojaĝi, malproksimen de ĉi tie!
 
-La fraŭlino Ne\! ĉu tie estas bele? 
+La fraŭlino Forvojaĝi? Jes, sed kien?
 
 Jean
 
-Ho, eterna somero, oranĝarboj, laŭroj, ho\! 
+Al Svisujo, al la italaj lagoj; tie vi ne estis?
 
-La fraŭlino Sed kion ni poste faru tie\! 
+La fraŭlino Ne! ĉu tie estas bele?
 
-29
+Jean
+
+Ho, eterna somero, oranĝarboj, laŭroj, ho!
+
+La fraŭlino Sed kion ni poste faru tie!
+
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
 Mi fondos hotelon kun unuaklasaj vendaĵoj kaj unu-
 
-aklasaj klientoj. 
+aklasaj klientoj.
 
-La fraŭlino Hotelon? 
+La fraŭlino Hotelon?
 
 Jean
 
@@ -1760,21 +1677,21 @@ gvoj; ne unu minuto da libertempo por cerbumado
 
 aŭ nervoj; nenia serĉo de okupado — ĉar la laboro
 
-donas sin mem: nokte kaj tage la sonorileto ektintas, 
+donas sin mem: nokte kaj tage la sonorileto ektintas,
 
 la vagonaro fajfas, la omnibuso iras kaj reiras; dum la
 
-pecoj da oro ruladas en la kontoro. Jes estas vivo\! 
+pecoj da oro ruladas en la kontoro. Jes estas vivo!
 
-La fraŭlino Jes, tio estas vivi\! Kaj mi? 
+La fraŭlino Jes, tio estas vivi! Kaj mi?
 
 Jean
 
-La ordonantino de la domo; la ornamo de la firmao. 
+La ordonantino de la domo; la ornamo de la firmao.
 
 Kun via aspekto … kaj via kondutmaniero — ho estos
 
-certa sukceso\! Kolosa\! Vi sidas kvazaŭ reĝino en la
+certa sukceso! Kolosa! Vi sidas kvazaŭ reĝino en la
 
 kontoro movigante la sklavojn per ekpremo al elek-
 
@@ -1782,17 +1699,17 @@ tra butono; la gastoj pretermarŝas en longa vico an-
 
 taŭ via trono kaj metas modestaj sian trezoron sur
 
-vian tablon — vi ne povas kredi, kiel tremas la homoj, 
+vian tablon — vi ne povas kredi, kiel tremas la homoj,
 
 kiam ili ricevas en sian manon kalkulon — mi salos la
 
-notojn kaj vi sukeros ilin per via plej bela rideto — ha\! 
+notojn kaj vi sukeros ilin per via plej bela rideto — ha!
 
 ni forvojaĝu de ĉi tie —
 
 elprenas el sia poŝo informlibreton de veturoj
 
-— tuj, per la proksima vagonaro\! — ni estos en Mal-
+— tuj, per la proksima vagonaro! — ni estos en Mal-
 
 mö je la sesa kaj tridek minutoj; en Hamburgo je la
 
@@ -1800,43 +1717,42 @@ oka kaj kvardek minutoj morgaŭ matene; Frankfur-
 
 to—Bazelo unu tagon, kaj en Komo per la fervojo de
 
-Sankta Gotardo post, mi vidu, tri tagoj\! Tri tagoj\! 
+Sankta Gotardo post, mi vidu, tri tagoj! Tri tagoj!
 
-La fraŭlino ĉio tio estas tre bona\! Sed Jean — donu al mi la kura-30
+La fraŭlino ĉio tio estas tre bona! Sed Jean — donu al mi la kura-30
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-ĝon — diru, ke vi amas min\! Venu kaj ĉirkaŭbraku
+ĝon — diru, ke vi amas min! Venu kaj ĉirkaŭbraku
 
-min\! 
+min!
 
 Jean
 
 ŝanceliĝante
 
-Mi volas — sed mi ne kuraĝas\! Ne en ĉi tiu domo plu. 
+Mi volas — sed mi ne kuraĝas! Ne en ĉi tiu domo plu.
 
-Mi amas vin — sen dubo — ĉu vi povas dubi pri tio? 
+Mi amas vin — sen dubo — ĉu vi povas dubi pri tio?
 
 La fraŭlino timente, vere virinece
 
-”Vi”\! — Diru ”ci”\! Inter ni ne ekzistas plu baroj\! —
+”Vi”! — Diru ”ci”! Inter ni ne ekzistas plu baroj! —
 
-Diru ”ci’\! 
+Diru ”ci’!
 
 Jean
 
 turmentite
 
-Mi ne povas\! Ekzistas baroj inter ni ankoraŭ, tiel lon-
+Mi ne povas! Ekzistas baroj inter ni ankoraŭ, tiel lon-
 
 ge kiel ni restas en ĉi tiu domo — ekzistas la estinte-
 
 co, ekzistas la grafo — kaj mi neniam renkontis iun
 
-personon, al kiu mi havas tian respekton — sufiĉas, 
+personon, al kiu mi havas tian respekton — sufiĉas,
 
 ke mi ekvidas liajn gantojn kuŝantaj sur seĝo, mi tuj
 
@@ -1846,7 +1762,7 @@ norileton tie supre, mi kuntiriĝas pro timo, kiel time-
 
 ma ĉevalo — kaj kiam mi vidas nun liajn botojn sta-
 
-rantaj tiel rektaj kaj fieraj, mi sentas ektiriĝon en mia dorso\! 
+rantaj tiel rektaj kaj fieraj, mi sentas ektiriĝon en mia dorso!
 
 piedfrapas la botojn
 
@@ -1858,21 +1774,19 @@ forgesi. Venu nur en alian landon, kie estas respubli-
 
 ko, kaj oni ekstaras sur la nazo antaŭ la livreo de mia
 
-pordisto — sur la nazo oni devas stari, vi komprenu\! 
+pordisto — sur la nazo oni devas stari, vi komprenu!
 
-sed mi ne staros\! Mi ne estas naskita por stari sur la
+sed mi ne staros! Mi ne estas naskita por stari sur la
 
 nazo, ĉar troviĝas en mi ŝtofo, troviĝas karaktero, kaj
 
-se mi nur ekkaptos la unuan branĉon, tiam vi vidos, 
+se mi nur ekkaptos la unuan branĉon, tiam vi vidos,
 
-31
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-ke mi surrampos la arbon\! Mi estas lakeo hodiaŭ, sed
+ke mi surrampos la arbon! Mi estas lakeo hodiaŭ, sed
 
 venontjare mi estos posedanto, post dek jaroj mi es-
 
@@ -1880,81 +1794,79 @@ tos rentulo, kaj poste mi iros en Rumanujon, ordeni-
 
 gos min, kaj povos — rimarku bone ke mi diras povos
 
-— fini kiel grafo\! 
+— fini kiel grafo!
 
-La fraŭlino Bele, bele\! 
-
-Jean
-
-Ha, en Rumanujo oni aĉetas al si la titolon de grafo, 
-
-kaj tiel vi estos grafino malgraŭ ĉio\! Mia grafino\! 
-
-La fraŭlino Mi ne zorgas pri tio, kion mi nun ĵetas post min\! —
-
-Diru, ke vi min amas, se ne — ja, kio mi estas se ne? 
+La fraŭlino Bele, bele!
 
 Jean
 
-Mi diros ĝin mil fojojn — poste\! Nur ne tie ĉi\! Kaj an-
+Ha, en Rumanujo oni aĉetas al si la titolon de grafo,
 
-taŭ ĉio, neniaj sentoj, se ĉio ne estu perdita\! Ni devas
+kaj tiel vi estos grafino malgraŭ ĉio! Mia grafino!
 
-konsideri la aferon sobre\! kiel saĝaj homoj, 
+La fraŭlino Mi ne zorgas pri tio, kion mi nun ĵetas post min! —
+
+Diru, ke vi min amas, se ne — ja, kio mi estas se ne?
+
+Jean
+
+Mi diros ĝin mil fojojn — poste! Nur ne tie ĉi! Kaj an-
+
+taŭ ĉio, neniaj sentoj, se ĉio ne estu perdita! Ni devas
+
+konsideri la aferon sobre! kiel saĝaj homoj,
 
 elprenas cigaron, senpintigas kaj ekbruligas ĝin
 
-Sidiĝu nun tie\! kaj mi sidiĝu ĉi tie, kaj tiel ni interparolu, kvazaŭ nenio estus okazinta. 
+Sidiĝu nun tie! kaj mi sidiĝu ĉi tie, kaj tiel ni interparolu, kvazaŭ nenio estus okazinta.
 
 La fraŭlino senespera
 
-Ho, Die mia\! ĉu vi ne havas sentojn\! 
+Ho, Die mia! ĉu vi ne havas sentojn!
 
 Jean
 
-Mi\! Ne ekzistas homo same sentema kiel mi; sed mi
+Mi! Ne ekzistas homo same sentema kiel mi; sed mi
 
-scias min regi. 
+scias min regi.
 
-La fraŭlino ĵus vi povis kisi mian ŝuon — kaj nun\! 
+La fraŭlino ĵus vi povis kisi mian ŝuon — kaj nun!
 
 Jean
 
 severe
 
-Jes, tio estis tiam\! Nun alion ni devas pripensi. 
+Jes, tio estis tiam! Nun alion ni devas pripensi.
 
-La fraŭlino Ne parolu al mi severe\! 
+La fraŭlino Ne parolu al mi severe!
 
 Jean
 
-Ne\! sed saĝe\! Unu malsaĝaĵo estas farita, ne faru pli
+Ne! sed saĝe! Unu malsaĝaĵo estas farita, ne faru pli
 
-da ili\! La grafo povas reveni en kiu ajn momento kaj
+da ili! La grafo povas reveni en kiu ajn momento kaj
 
-32
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-antaŭ tio niaj sortoj devas esti difinitaj. Kiel ŝajnas al vi miaj planoj pri la estonteco? ĉu vi aprobas ilin? 
+antaŭ tio niaj sortoj devas esti difinitaj. Kiel ŝajnas al vi miaj planoj pri la estonteco? ĉu vi aprobas ilin?
 
 La fraŭlino Ili ŝajnas al mi tre akcepteblaj, sed nur unu deman-don: por tiel granda entrepreno estas necesa granda
 
-kapitalo; ĉu vi havas ĝin? 
+kapitalo; ĉu vi havas ĝin?
 
 Jean
 
 mordetas la cigaron
 
-Mi\! Tute certe\! Mi havas mian konon specialistan, 
+Mi! Tute certe! Mi havas mian konon specialistan,
 
-mian eksterordinaran sperton, miajn lingvokonojn\! 
+mian eksterordinaran sperton, miajn lingvokonojn!
 
-Tio estas kapitalo taŭga, mi kredas\! 
+Tio estas kapitalo taŭga, mi kredas!
 
-La fraŭlino Sed per ĝi vi eĉ ne povas aĉeti fervojan bileton. 
+La fraŭlino Sed per ĝi vi eĉ ne povas aĉeti fervojan bileton.
 
 Jean
 
@@ -1962,15 +1874,15 @@ Tio estas sendube vera; sed jen la kaŭzo, kial mi ser-
 
 ĉas komanditanton, kiu povos pruntedoni la fondka-
 
-pitalon\! 
+pitalon!
 
-La fraŭlino Kie vi trovos tian homon rapide? 
+La fraŭlino Kie vi trovos tian homon rapide?
 
 Jean
 
-Tian vi trovos, se vi volas fariĝi mia kompanianino\! 
+Tian vi trovos, se vi volas fariĝi mia kompanianino!
 
-La fraŭlino Tion mi ne povas. Kaj mi mem nenion posedas. 
+La fraŭlino Tion mi ne povas. Kaj mi mem nenion posedas.
 
 Paŭzo
 
@@ -1982,159 +1894,153 @@ La fraŭlino Kaj —
 
 Jean
 
-ĉio restas kiel estas\! 
+ĉio restas kiel estas!
 
 La fraŭlino ĉu vi kredas, ke mi restos sub ĉi tiu tegmento kiel via kunkuŝantino? ĉu vi kredas, ke mi volas lasi la bien-personaron fingromontri al mi; ĉu vi pensas, ke mi
 
-povas rigardi mian patron en la vizaĝon post tio ĉi? 
+povas rigardi mian patron en la vizaĝon post tio ĉi?
 
-Ne\! Forkonduku min de ĉi tie, de la malhonoriĝo kaj
+Ne! Forkonduku min de ĉi tie, de la malhonoriĝo kaj
 
-hontego\! — Ho, kion mi faris, Dio mia, Dio mia\! 
+hontego! — Ho, kion mi faris, Dio mia, Dio mia!
 
 Ploras
 
-33
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
-Aj nu, ĉu nun komenciĝas tiu tono\! — Kion vi faris? 
+Aj nu, ĉu nun komenciĝas tiu tono! — Kion vi faris?
 
-La samon, kion multaj antaŭ vi\! 
+La samon, kion multaj antaŭ vi!
 
 La fraŭlino krias en konvulsia tordiĝo
 
-Kaj nun vi malestimas min\! — Mi falas, mi falas\! 
+Kaj nun vi malestimas min! — Mi falas, mi falas!
 
 Jean
 
-Falu malsupren al mi, kaj mi levos vin poste\! 
+Falu malsupren al mi, kaj mi levos vin poste!
 
-La fraŭlino Kiu terura potenco altiris min al vi? Tiu de la malfor-tulo al la fortulo? Tiu de la falanto al la leviĝanto\! Aŭ ĉu tio estis amo\! Amo tio\! ĉu vi scias, kio estas amo? 
-
-Jean
-
-Mi? Jes certe, pri tio vi estu tute certa; ĉu vi kredas, ke mi ne provis jam la batalon? 
-
-La fraŭlino Kian lingvaĵon vi parolas kaj kiajn pensojn vi pensas\! 
+La fraŭlino Kiu terura potenco altiris min al vi? Tiu de la malfor-tulo al la fortulo? Tiu de la falanto al la leviĝanto! Aŭ ĉu tio estis amo! Amo tio! ĉu vi scias, kio estas amo?
 
 Jean
 
-Tion mi lernis, kaj tia mi estas\! Ne estu nun nerva kaj
+Mi? Jes certe, pri tio vi estu tute certa; ĉu vi kredas, ke mi ne provis jam la batalon?
+
+La fraŭlino Kian lingvaĵon vi parolas kaj kiajn pensojn vi pensas!
+
+Jean
+
+Tion mi lernis, kaj tia mi estas! Ne estu nun nerva kaj
 
 ne ludu noblamaniere, ĉar ni estas nun ambaŭ egal-
 
-valoraj\! — Nu nu, knabineto mia, venu kaj mi propo-
+valoraj! — Nu nu, knabineto mia, venu kaj mi propo-
 
-nos al vi glason da ekstra bonaĵo\! 
+nos al vi glason da ekstra bonaĵo!
 
 Malfermas la tirkeston de la tablo kaj elprenas vin-
 
-botelon; plenigas du uzitajn glasojn. 
+botelon; plenigas du uzitajn glasojn.
 
-La fraŭlino De kie vi ricevis tiun vinon? 
-
-Jean
-
-De la kelo\! 
-
-La fraŭlino Burgunda de mia patro\! 
+La fraŭlino De kie vi ricevis tiun vinon?
 
 Jean
 
-ĉu ĝi ne taŭgas por la bofilo? 
+De la kelo!
 
-La fraŭlino Kaj mi trinkas bieron\! Mi\! 
+La fraŭlino Burgunda de mia patro!
+
+Jean
+
+ĉu ĝi ne taŭgas por la bofilo?
+
+La fraŭlino Kaj mi trinkas bieron! Mi!
 
 Jean
 
 Tio montras nur, ke vi havas malpli bonan gustosen-
 
-ton ol mi. 
+ton ol mi.
 
-La fraŭlino ŝtelisto\! 
+La fraŭlino ŝtelisto!
 
 Jean
 
-ĉu vi intencos ĉikani min? 
+ĉu vi intencos ĉikani min?
 
-34
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Ho ho\! Kunkulpa kun endoma ŝtelisto\! ĉu mi estis ebria, ĉu mi agis sonĝante en ĉi tiu nokto? La somermeza nokto\! La festo de ludoj senkulpaj …
+La fraŭlino Ho ho! Kunkulpa kun endoma ŝtelisto! ĉu mi estis ebria, ĉu mi agis sonĝante en ĉi tiu nokto? La somermeza nokto! La festo de ludoj senkulpaj …
 
 Jean
 
-Senkulpaj, hm\! 
+Senkulpaj, hm!
 
 La fraŭlino iradas tien reen
 
 ĉu ekzistas sur la tero en ĉi tiu momento homo same
 
-malfeliĉa kiel mi\! 
+malfeliĉa kiel mi!
 
 Jean
 
-Kial vi estas malfeliĉa? Post tia konkero\! Pensu pri
+Kial vi estas malfeliĉa? Post tia konkero! Pensu pri
 
-Kristin tie interne\! ĉu vi ne kredas, ke ankaŭ ŝi havas
+Kristin tie interne! ĉu vi ne kredas, ke ankaŭ ŝi havas
 
-sentojn? 
+sentojn?
 
-La fraŭlino Mi tion kredis antaŭ momento, sed mi ne kredas plu\! 
+La fraŭlino Mi tion kredis antaŭ momento, sed mi ne kredas plu!
 
 Ne; lakeo estas lakeo …
 
 Jean
 
-Kaj putino estas putino\! 
+Kaj putino estas putino!
 
 La fraŭlino surgenue kunplektinte la manojn
 
-Ho, Dio en la ĉielo, ĉesigu mian mizeran vivon\! For-
+Ho, Dio en la ĉielo, ĉesigu mian mizeran vivon! For-
 
-prenu min el tiu ĉi putraĵo, en kiun mi dronas\! Savu
+prenu min el tiu ĉi putraĵo, en kiun mi dronas! Savu
 
-min\! Savu min\! 
+min! Savu min!
 
 Jean
 
-Mi ne povas nei, ke mi kompatas vin\! Kiam mi kuŝis
+Mi ne povas nei, ke mi kompatas vin! Kiam mi kuŝis
 
 en la cepobedo kaj vidis vin en rozĝardeno, tiam … ĉu
 
 mi diru tion nun... mi havis la samajn malbelajn pen-
 
-sojn, kiel ĉiuj buboj. 
+sojn, kiel ĉiuj buboj.
 
-La fraŭlino Sed vi, kiu volis morti pro mi\! 
+La fraŭlino Sed vi, kiu volis morti pro mi!
 
 Jean
 
-En la avenkestego? Tio estis nura babilaĵo. 
+En la avenkestego? Tio estis nura babilaĵo.
 
-La fraŭlino ĉu mensogo sekve—\! 
+La fraŭlino ĉu mensogo sekve—!
 
 Jean
 
 kontencas esti dormema
 
-Preskaŭ\! Tiun rakonton mi laŭ mia memoro legis en
+Preskaŭ! Tiun rakonton mi laŭ mia memoro legis en
 
 ia gazeto pri kamentubisto, kiu kuŝiĝis sin en brulo-
 
-35
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 lignaĵujon kun siringfloroj, ĉar li estis leĝe persekuta-
 
@@ -2144,15 +2050,15 @@ La fraŭlino Ha, vi estas tia …
 
 Jean
 
-Ion mi devis trovi\! Oni ĉiam kaptas la virinojn per
+Ion mi devis trovi! Oni ĉiam kaptas la virinojn per
 
-luksbrilaĵoj\! 
+luksbrilaĵoj!
 
-La fraŭlino Malnoblulo\! 
+La fraŭlino Malnoblulo!
 
 Jean
 
-Fek\! 
+Fek!
 
 La fraŭlino Kaj nun vi ekvidis la dorson de la akcipitro —
 
@@ -2178,19 +2084,19 @@ Jean
 
 Tion mi mem —
 
-La fraŭlino Ke homa animo povas esti tiel profunde malpurega\! 
+La fraŭlino Ke homa animo povas esti tiel profunde malpurega!
 
 Jean
 
-Lavu ĝin do\! 
+Lavu ĝin do!
 
-La fraŭlino Lakeo, servisto, stariĝu, kiam mi parolas\! 
+La fraŭlino Lakeo, servisto, stariĝu, kiam mi parolas!
 
 Jean
 
 Kunkuŝantino de servisto, voluptbubino de lakeo, si-
 
-lentu kaj eliru de ĉi tie. ĉu vi venas por riproĉi min, 
+lentu kaj eliru de ĉi tie. ĉu vi venas por riproĉi min,
 
 ke mi estas kruda? Tiel krude, kiel vi kondutis hodiaŭ
 
@@ -2200,21 +2106,19 @@ kredas, ke iu servistino atakas virojn kiel vi? ĉu vi vi-
 
 dis iun knabinon el mia klaso sin proponi tiamanie-
 
-re? Tion mi vidis nur inter bestoj kaj virinoj falintaj\! 
+re? Tion mi vidis nur inter bestoj kaj virinoj falintaj!
 
-36
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino frakasita
 
 Estas ĝuste; batu min; piedpremu min; mi ne meritas
 
-ion pli bonan. Mi estas malbonega; sed helpu min\! 
+ion pli bonan. Mi estas malbonega; sed helpu min!
 
-Helpu min eliri el ĉi tio, se ekzistas ia ajn eblo\! 
+Helpu min eliri el ĉi tio, se ekzistas ia ajn eblo!
 
 Jean
 
@@ -2226,7 +2130,7 @@ cion de la honoro esti deloginta; sed ĉu vi kredas, ke
 
 homo en mia situacio kuraĝus ĵeti siajn rigardojn al
 
-vi, se vi mem ne estus sendinta la inviton\! Mi sidas
+vi, se vi mem ne estus sendinta la inviton! Mi sidas
 
 ankoraŭ mirigita —
 
@@ -2236,15 +2140,15 @@ Jean
 
 Kial ne? Kvankam mi devas konfesi, ke la venko es-
 
-tis por mi tro facila por povi efektive doni ebriecon. 
+tis por mi tro facila por povi efektive doni ebriecon.
 
-La fraŭlino Batu min plie\! 
+La fraŭlino Batu min plie!
 
 Jean
 
 stariĝas
 
-Ne\! Pardonu al mi, anstataŭe, tion, kion mi diris\! Mi
+Ne! Pardonu al mi, anstataŭe, tion, kion mi diris! Mi
 
 ne batas senarmigiton, eĉ malpli virinon. Mi ne po-
 
@@ -2262,53 +2166,51 @@ ko estis malpura kvankam ĝi odoris parfumon — sed
 
 aliflanke turmentas min esti vidinta, ke tio al kies
 
-atingo mi klopodadis, estis nenio pli alta, pli solida; 
+atingo mi klopodadis, estis nenio pli alta, pli solida;
 
 turmentas min vidi vin malleviĝinta tiel profunde, ke
 
 vi estas longe sub via kuiristino; tio turmentas min
 
-37
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 kvazaŭ vidi la aŭtunajn florojn, kiujn disvipadas la
 
-pluvo kaj ŝanĝas en kotaĵon. 
+pluvo kaj ŝanĝas en kotaĵon.
 
-La fraŭlino Vi parolas, kvazaŭ vi estus jam mia superrangulo? 
+La fraŭlino Vi parolas, kvazaŭ vi estus jam mia superrangulo?
 
 Jean
 
 Tia mi ankaŭ estas: sciu, mi povus igi vin grafino, sed
 
-vi neniam povos fari grafon el mi. 
+vi neniam povos fari grafon el mi.
 
-La fraŭlino Sed mi estas naskita de grafo, kaj tio vi neniam povos esti\! 
+La fraŭlino Sed mi estas naskita de grafo, kaj tio vi neniam povos esti!
 
 Jean
 
 Tio estas vera: sed mi povus naski grafojn, se —
 
-La fraŭlino Sed vi estas ŝtelisto; tio ne estas mi. 
+La fraŭlino Sed vi estas ŝtelisto; tio ne estas mi.
 
 Jean
 
-ŝtelisto ne estas la plej malbona\! Ekzistas pli malbona
+ŝtelisto ne estas la plej malbona! Ekzistas pli malbona
 
-speco\! kaj cetere: ĉar mi servas en iu domo, mi kon-
+speco! kaj cetere: ĉar mi servas en iu domo, mi kon-
 
 sideras min iasence membro de la familio, kvazaŭ in-
 
 fano de la familio, kaj oni ne kalkulas kiel ŝtelon, ke
 
-la infanoj rabetas beron el plenaj arbetoj\! 
+la infanoj rabetas beron el plenaj arbetoj!
 
 Lia pasio ekvekiĝas denove
 
-Fraŭlino Julie, vi estas belega virino, tute tro bona por tia, kia mi estas\! Vi estis kaptaĵo de deliro, kaj vi volas kaŝi la kulpon imagante al vi, ke vi min amas\! Tion
+Fraŭlino Julie, vi estas belega virino, tute tro bona por tia, kia mi estas! Vi estis kaptaĵo de deliro, kaj vi volas kaŝi la kulpon imagante al vi, ke vi min amas! Tion
 
 vi ne faras, se ne povas esti, ke mia eksteraĵo vin lo-
 
@@ -2316,29 +2218,27 @@ gas — kaj tiam via amo ne superas la mian — sed mi
 
 neniam kontentiĝos esti por vi la nura animalo, kaj
 
-vian amon mi neniam scios veki. 
+vian amon mi neniam scios veki.
 
-La fraŭlino ĉu vi estas certa pri tio? 
+La fraŭlino ĉu vi estas certa pri tio?
 
 Jean
 
-Vi volas diri, ke tio povos okazi\! Ke mi povus ami vin, 
+Vi volas diri, ke tio povos okazi! Ke mi povus ami vin,
 
-jes sen dubo: vi estas bela, vi estas bonedukita, 
+jes sen dubo: vi estas bela, vi estas bonedukita,
 
 alproksimiĝas al ŝi kaj kaptas ŝian manon
 
-38
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 klera, aminda kiom vi volas, kaj la flamo, kiun vi ve-
 
-kis en viro, kredeble neniam estingiĝos. 
+kis en viro, kredeble neniam estingiĝos.
 
-Metas la brakon ĉirkaŭ ŝian talion. 
+Metas la brakon ĉirkaŭ ŝian talion.
 
 Vi estas kvazaŭ bruligita vino kun fortaj spicoj, kaj
 
@@ -2346,75 +2246,73 @@ kiso de vi …
 
 Li provas konduki ŝin eksteren; sed ŝi liberigas sin mal-
 
-rapide. 
+rapide.
 
-La fraŭlino Lasu min\! — Ne en tiu maniero vi min gajnos\! 
+La fraŭlino Lasu min! — Ne en tiu maniero vi min gajnos!
 
 Jean
 
-Kiel do? — Ne en tiu maniero\! Ne karesoj kaj belaj
+Kiel do? — Ne en tiu maniero! Ne karesoj kaj belaj
 
 paroloj; ne prizorgo pri la estonteco, savo el malhon-
 
-oro\! Kiel do? 
+oro! Kiel do?
 
-La fraŭlino Kiel? Kiel? Mi ne scias\! — Nepre ne\! — Mi abomenas vin same kiel mi abomenas musojn, sed mi ne povos
+La fraŭlino Kiel? Kiel? Mi ne scias! — Nepre ne! — Mi abomenas vin same kiel mi abomenas musojn, sed mi ne povos
 
-forkuri de vi\! 
+forkuri de vi!
 
 Jean
 
-Forkuru kun mi\! 
+Forkuru kun mi!
 
 La fraŭlino sin rektiĝas
 
-Forkuri? Jes, ni forkuru\! — Sed mi estas tiel lacega\! 
+Forkuri? Jes, ni forkuru! — Sed mi estas tiel lacega!
 
-Donu al mi glason da vino\! 
+Donu al mi glason da vino!
 
 Jean enverŝas vinon
 
 La fraŭlino ekrigardas sian horloĝeton
 
-Sed ni unue parolu; ni havas ankoraŭ iom da tempo. 
+Sed ni unue parolu; ni havas ankoraŭ iom da tempo.
 
-Trinkas unu glason; prezentas la glason por ricevi pli. 
-
-Jean
-
-Ne trinku tiel malmodere, vi estos ebria\! 
-
-La fraŭlino Kial tio estus grava? 
+Trinkas unu glason; prezentas la glason por ricevi pli.
 
 Jean
 
-Kial tio estus grava? Estas malnoble ebriigi sin\! —
+Ne trinku tiel malmodere, vi estos ebria!
 
-Kion vi intencis diri al mi nun? 
+La fraŭlino Kial tio estus grava?
 
-39
+Jean
+
+Kial tio estus grava? Estas malnoble ebriigi sin! —
+
+Kion vi intencis diri al mi nun?
+
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Ni forkuru\! Sed ni unue parolu, tio estas: mi parolu, ĉar nur vi parolis ĝis nun. Vi rakontis vian vivon, nun
+La fraŭlino Ni forkuru! Sed ni unue parolu, tio estas: mi parolu, ĉar nur vi parolis ĝis nun. Vi rakontis vian vivon, nun
 
 mi volas rakonti mian, tiel ni konos unu la alian ĝis-
 
-funde, antaŭ ol ni komencos la migradon kune. 
+funde, antaŭ ol ni komencos la migradon kune.
 
 Jean
 
-Momenton\! Pordonu\! Pripensu, ĉu vi ne pentos pos-
+Momenton! Pordonu! Pripensu, ĉu vi ne pentos pos-
 
-te, ke vi malzorge liveris la sekretojn de via vivo\! 
+te, ke vi malzorge liveris la sekretojn de via vivo!
 
-La fraŭlino ĉu vi ne estas mia amiko? 
+La fraŭlino ĉu vi ne estas mia amiko?
 
 Jean
 
-Jes kelkfoje\! Sed ne fidu al mi. 
+Jes kelkfoje! Sed ne fidu al mi.
 
 La fraŭlino Tiel vi diras nur; — kaj cetere: miajn sekretojn konas, krome, ĉiu homo. — Sciu, mia patrino estis de neno-bela deveno, io tre simpla. ŝi estis edukita en la sia-
 
@@ -2430,13 +2328,13 @@ povos fariĝi lia amantino. Li klarigis al ŝi, ke li ne volas, ke la virino, ki
 
 to ol li mem. Al ŝia klarigo, ke la respekto de la ĉir-
 
-kaŭa mondo ne gravis por ŝi, kaj influita de sia pasio, 
+kaŭa mondo ne gravis por ŝi, kaj influita de sia pasio,
 
-li akceptis ŝiajn kondiĉojn. 
+li akceptis ŝiajn kondiĉojn.
 
 Sed per tio li estis forigita de sia kunularo kaj res-
 
-tis al li nur la hejma vivo, kiu ne povis kontentigi lin. 
+tis al li nur la hejma vivo, kiu ne povis kontentigi lin.
 
 Mi eniris la mondon — kontraŭ la deziro de mia pa-
 
@@ -2448,19 +2346,17 @@ krom tio mi lernis ĉion, kion knabo lernas, por ke mi
 
 estu ekzemplo de tio, ke virino egalvaloras al viro. Mi
 
-surhavis knabajn vestojn, lernis mastrumi ĉevalojn, 
+surhavis knabajn vestojn, lernis mastrumi ĉevalojn,
 
 sed ne la bovinejon; mi devis strigli kaj surmeti la
 
-40
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-jungilaron kaj ĉasi, eĉ provi lerni la terkulturadon\! En
+jungilaron kaj ĉasi, eĉ provi lerni la terkulturadon! En
 
-la bieno la virojn oni igis plenumi okupojn virinajn, 
+la bieno la virojn oni igis plenumi okupojn virinajn,
 
 kaj virinojn plenumi okupojn virajn — kun la rezul-
 
@@ -2488,81 +2384,79 @@ mioj, kiujn estis ensendinta mia patro, malfruiĝis per
 
 la malzorgo de la transportanto, tiel ke ili ne alvenis
 
-ĝustatempe. 
+ĝustatempe.
 
-ŝi plenigas la glason kaj trinkas. 
+ŝi plenigas la glason kaj trinkas.
 
 Jean
 
-Ne trinku pli multe\! 
+Ne trinku pli multe!
 
-La fraŭlino Ho, ĉu tio gravas\! — Ni estis sen hejmo kaj devis dormi en la veturiloj. Mia patro ne sciis, kie ricevi monon
+La fraŭlino Ho, ĉu tio gravas! — Ni estis sen hejmo kaj devis dormi en la veturiloj. Mia patro ne sciis, kie ricevi monon
 
 por la rekonstruo de la domoj. Tiam la patrino pro-
 
 ponis al li pruntepreni de amiko el ŝia juneco, brik-
 
-fabrikisto en la proksimaĵo. La patro prunteprenis, 
+fabrikisto en la proksimaĵo. La patro prunteprenis,
 
 sed ne bezonas pagi procentaĵon, kio mirigas lin. Kaj
 
-tiel la biendomoj estis rekonstruitaj\! 
+tiel la biendomoj estis rekonstruitaj!
 
-Trinkas denove. 
+Trinkas denove.
 
-ĉu vi scias, kiu forbruligis la biendomojn? 
+ĉu vi scias, kiu forbruligis la biendomojn?
 
 Jean
 
-Via patrino\! 
+Via patrino!
 
-41
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino ĉu vi scias, kiu estis la brikfabrikisto? 
-
-Jean
-
-ĉu la amanto de via patrino? 
-
-La fraŭlino ĉu vi scias, kies estis la mono? 
+La fraŭlino ĉu vi scias, kiu estis la brikfabrikisto?
 
 Jean
 
-Silentu iom — ne\! tion mi ne scias? 
+ĉu la amanto de via patrino?
 
-La fraŭlino ¯i estis de mia patrino\! 
+La fraŭlino ĉu vi scias, kies estis la mono?
 
 Jean
 
-De la grafo, sekve, se ne estis dota kontrakto? 
+Silentu iom — ne! tion mi ne scias?
 
-La fraŭlino Ne ekzistis dota kontrakto\! — Mia patrino havis malgrandan bonhavon, kiun ŝi ne volis meti sub la mas-
+La fraŭlino i estis de mia patrino!
+
+Jean
+
+De la grafo, sekve, se ne estis dota kontrakto?
+
+La fraŭlino Ne ekzistis dota kontrakto! — Mia patrino havis malgrandan bonhavon, kiun ŝi ne volis meti sub la mas-
 
 trumadon de mia patro, kaj tial ŝi deponis ĝin ĉe la
 
-amiko. 
+amiko.
 
 Jean
 
-Kiu ĝin pinĉis\! 
+Kiu ĝin pinĉis!
 
-La fraŭlino Tute prave\! Li ĝin retenis\! — Tion ĉi ĉion mia patro eksciis; li ne povas procesi, ne povas repagi al la amanto de lia edzino, nek pruvi, ke estas la mono de
+La fraŭlino Tute prave! Li ĝin retenis! — Tion ĉi ĉion mia patro eksciis; li ne povas procesi, ne povas repagi al la amanto de lia edzino, nek pruvi, ke estas la mono de
 
-la edzino\! — Tio estis la venĝo de mia patrino, ĉar li
+la edzino! — Tio estis la venĝo de mia patrino, ĉar li
 
-ekprenis la regadon en la domo\! Tiun fojon li pensis
+ekprenis la regadon en la domo! Tiun fojon li pensis
 
-pafmortigi sin\! — famoj ĉirkaŭkuris, ke li tion faris, 
+pafmortigi sin! — famoj ĉirkaŭkuris, ke li tion faris,
 
-sed malsukcesis\! Sed li reviviĝas, kaj mia patrino de-
+sed malsukcesis! Sed li reviviĝas, kaj mia patrino de-
 
-vas punpagi siajn agojn\! Kvin jarojn mi travivis, kaj
+vas punpagi siajn agojn! Kvin jarojn mi travivis, kaj
 
-imagu al vi kiajn\! Mi simpatiis kun mia patro, sed mi
+imagu al vi kiajn! Mi simpatiis kun mia patro, sed mi
 
 tamen stariĝis por mia patrino, ĉar mi ne konis la cir-
 
@@ -2570,87 +2464,83 @@ konstancojn. De ŝi mi lernis malfidon kaj malamon al
 
 la viroj — ĉar ŝi malamis la virojn, laŭ tio kion vi aŭ-
 
-dis — kaj mi ĵuris al ŝi neniam fariĝi sklavino de viro. 
+dis — kaj mi ĵuris al ŝi neniam fariĝi sklavino de viro.
 
 Jean
 
-Kaj vi fianĉiniĝis kun la regna vokto\! 
+Kaj vi fianĉiniĝis kun la regna vokto!
 
-La fraŭlino ¯uste tial, por ke li estu mia sklavo. 
+La fraŭlino uste tial, por ke li estu mia sklavo.
 
 Jean
 
-Kaj tion li ne volis? 
+Kaj tion li ne volis?
 
-42
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Li volis sendube, sed ne estis permesite al li\! Mi enu-iĝis kun li\! 
-
-Jean
-
-Mi vidis tion — en la ĉevaleja korto\! 
-
-La fraŭlino Kion vi vidis? 
+La fraŭlino Li volis sendube, sed ne estis permesite al li! Mi enu-iĝis kun li!
 
 Jean
 
-Kion mi vidis — kiamaniere li rompis la fianĉecon. 
+Mi vidis tion — en la ĉevaleja korto!
 
-La fraŭlino Tio estas mensogo\! Estis mi, kiu rompis\! ĉu li diris, ke estis li, la malnoblulo? 
+La fraŭlino Kion vi vidis?
+
+Jean
+
+Kion mi vidis — kiamaniere li rompis la fianĉecon.
+
+La fraŭlino Tio estas mensogo! Estis mi, kiu rompis! ĉu li diris, ke estis li, la malnoblulo?
 
 Jean
 
 Li certe ne estis ia malnoblulo? ĉu vi malamas la vi-
 
-rojn, fraŭlino? 
+rojn, fraŭlino?
 
-La fraŭlino Jes\! — Plej ofte\! Sed kelkfoje — kiam la malforteco venas — ho fi\! 
-
-Jean
-
-ĉu vi malamas ankaŭ min? 
-
-La fraŭlino Senlime\! Mi volus mortigi vin kiel beston …
+La fraŭlino Jes! — Plej ofte! Sed kelkfoje — kiam la malforteco venas — ho fi!
 
 Jean
 
-Kiel oni rapidas pafmortigi rabian hundon. ĉu ne? 
+ĉu vi malamas ankaŭ min?
 
-La fraŭlino Jes, tiel\! 
+La fraŭlino Senlime! Mi volus mortigi vin kiel beston …
+
+Jean
+
+Kiel oni rapidas pafmortigi rabian hundon. ĉu ne?
+
+La fraŭlino Jes, tiel!
 
 Jean
 
 Sed nun ne aperas ilo por pafi — kaj ne aperas hun-
 
-do\! Kion ni do faru? 
+do! Kion ni do faru?
 
-La fraŭlino Forvojaĝu\! 
-
-Jean
-
-Por mortigi per turmentadoj unu la alian? 
-
-La fraŭlino Ne — por ĝuadi, du tagojn, semajnon, tiom longe ki-om oni povas ĝui kaj poste — morti. 
+La fraŭlino Forvojaĝu!
 
 Jean
 
-Morti? Kia malsaĝaĵo\! Mi tre preferas fondi hotelon\! 
+Por mortigi per turmentadoj unu la alian?
+
+La fraŭlino Ne — por ĝuadi, du tagojn, semajnon, tiom longe ki-om oni povas ĝui kaj poste — morti.
+
+Jean
+
+Morti? Kia malsaĝaĵo! Mi tre preferas fondi hotelon!
 
 La fraŭlino ne aŭdante Jean-on
 
-— ĉe la lago de Komo, kie konstante briladas la suno, 
+— ĉe la lago de Komo, kie konstante briladas la suno,
 
-kie la laŭroj verdas en Kristnasko kaj la oranĝoj varmruĝas. 
+kie la laŭroj verdas en Kristnasko kaj la oranĝoj varmruĝas.
 
-43
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
@@ -2666,43 +2556,43 @@ dustrio — ĉu vi scias kial? Ho, ili faras sian lukontrak-
 
 ton por duonjaro kaj tamen post tri semajnoj ili fori-
 
-ras\! 
+ras!
 
 La fraŭlino naive
 
-Kial post tri semajnoj? 
+Kial post tri semajnoj?
 
 Jean
 
-Ili ekmalpaciĝas, kompreneble\! Sed la luprezon ili de-
+Ili ekmalpaciĝas, kompreneble! Sed la luprezon ili de-
 
-vas pagi malgraŭ ĉio. Kaj post tio oni luigas denove. 
+vas pagi malgraŭ ĉio. Kaj post tio oni luigas denove.
 
 Tiamaniere oni daŭrigas en senĉesa vico, ĉar la amo
 
-sufiĉas — kvankam ĝi ne longe daŭras\! 
+sufiĉas — kvankam ĝi ne longe daŭras!
 
-La fraŭlino ĉu vi ne volas morti kun mi? 
+La fraŭlino ĉu vi ne volas morti kun mi?
 
 Jean
 
-Mi ne volas morti, tute ne\! ĉar plaĉas al mi vivi, kaj
+Mi ne volas morti, tute ne! ĉar plaĉas al mi vivi, kaj
 
 ankaŭ ĉar memmortigo ŝajnas al mi krimo kontraŭ la
 
-Providenco, kiu donis al ni la vivon. 
+Providenco, kiu donis al ni la vivon.
 
-La fraŭlino ĉu vi kredas al Dio, vi? 
+La fraŭlino ĉu vi kredas al Dio, vi?
 
 Jean
 
-Jes, certe mi kredas\! Kaj mi iras al preĝejo ĉiun duan
+Jes, certe mi kredas! Kaj mi iras al preĝejo ĉiun duan
 
 dimanĉon. — Sincere dirite, nun mi estas laca pri tio
 
-ĉi, kaj nun mi foriros por dormi. 
+ĉi, kaj nun mi foriros por dormi.
 
-La fraŭlino Jes ja, kaj vi pensas, ke mi restos kontenta kun tio? ĉu vi scias, kion viro ŝuldas al virino, kiun li malvirgigis? 
+La fraŭlino Jes ja, kaj vi pensas, ke mi restos kontenta kun tio? ĉu vi scias, kion viro ŝuldas al virino, kiun li malvirgigis?
 
 Jean
 
@@ -2710,13 +2600,11 @@ eltiras sian monujon kaj ĵetas sur la tablon arĝentan mo-
 
 neron
 
-Bonvolu\! Mi ne volas ion ŝuldi\! 
+Bonvolu! Mi ne volas ion ŝuldi!
 
-44
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino ŝajnigante ne rimarki la insulton
 
@@ -2726,41 +2614,41 @@ Jean
 
 Bedaŭrinde, la leĝo ne ordonas punon al virino, kiu
 
-delogas viron\! 
+delogas viron!
 
 La fraŭlino same kiel antaŭe
 
 ĉu vi vidas alian rimedon, ol ke ni forvojaĝu, geedzi-
 
-ĝu kaj eksedziĝu? 
+ĝu kaj eksedziĝu?
 
 Jean
 
-Sed se mi rifuzas fari la mezaliancon? 
+Sed se mi rifuzas fari la mezaliancon?
 
 La fraŭlino La mezaliancon …
 
 Jean
 
-Jes, mian\! Sciu: mi havas pli bonrangan devenon ol
+Jes, mian! Sciu: mi havas pli bonrangan devenon ol
 
-vi, ĉar mi ne havas en mia parencaro bruligistinon\! 
+vi, ĉar mi ne havas en mia parencaro bruligistinon!
 
-La fraŭlino ĉu vi povas certi, ke ne? 
+La fraŭlino ĉu vi povas certi, ke ne?
 
 Jean
 
 Vi ne povas certi pri la malo, ĉar ni ne starigas gene-
 
-alogian registron — krom ĉe la polico\! Sed pri via ge-
+alogian registron — krom ĉe la polico! Sed pri via ge-
 
 nealogio mi legis en libro sur la tablo de la salono. ĉu
 
 vi scias, kiu estis via fonda patro? Li estis muelisto, ĉe kies edzino la reĝo dormis unu nokton dum la dana
 
-milito. Tiajn praulojn mi ne havas\! Mi tute ne havas
+milito. Tiajn praulojn mi ne havas! Mi tute ne havas
 
-praulojn, sed mi mem povos fariĝi praulo\! 
+praulojn, sed mi mem povos fariĝi praulo!
 
 La fraŭlino Jen la rekompenco por tio, ke mi malfermis mian koron al malindulo, ke mi donis la honoron de mia fa-
 
@@ -2768,173 +2656,167 @@ milio …
 
 Jean
 
-La malhonoron\! — Jen ja, mi avertis vin\! Oni ne trin-
+La malhonoron! — Jen ja, mi avertis vin! Oni ne trin-
 
-ku, ĉar tiam oni babilas\! Kaj oni ne rajtas babili\! 
+ku, ĉar tiam oni babilas! Kaj oni ne rajtas babili!
 
-La fraŭlino Ve, kiom mi pentas\! — Kiom mi pentas\! — Kaj se vi almenaŭ amus min\! 
+La fraŭlino Ve, kiom mi pentas! — Kiom mi pentas! — Kaj se vi almenaŭ amus min!
 
 Jean
 
 Lastafoje — kion vi volas diri? ĉu mi devas plori, ĉu
 
-45
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-mi devas transsalti rajdvipon, ĉu mi devas kisi vin, 
+mi devas transsalti rajdvipon, ĉu mi devas kisi vin,
 
 logi vin kuniri al la lago de Komo por tri semajnoj kaj
 
 poste … kion mi devas? kion vi volas? tio ĉi komen-
 
-cas esti turmenta\! Sed tiel estas, kiam oni metas sian
+cas esti turmenta! Sed tiel estas, kiam oni metas sian
 
-nazon en virinajn aferojn\! Fraŭlino Julie\! Mi vidas, ke
+nazon en virinajn aferojn! Fraŭlino Julie! Mi vidas, ke
 
 vi estas malfeliĉa, mi scias, ke vi suferas, sed mi ne
 
-povas kompreni vin. Ni aliaj ne kondutas tiel strange; 
+povas kompreni vin. Ni aliaj ne kondutas tiel strange;
 
-ni ne havas malamon inter ni\! Ni amas kiel en ludo, 
+ni ne havas malamon inter ni! Ni amas kiel en ludo,
 
 kiam la laboro lasas al ni tempon; sed ni ne havas
 
 tempon por tio la tutan tagon kaj la tutan nokton kiel
 
-vi\! Mi konsideras vin malsana; certe vi estas malsana. 
+vi! Mi konsideras vin malsana; certe vi estas malsana.
 
-La fraŭlino Estu bona al mi; kaj nun vi parolas kiel homo. 
-
-Jean
-
-Jes, sed estu homo mem\! Vi kraĉis sur min kaj vi ne
-
-permesas, ke mi sekigu min — sur vin\! 
-
-La fraŭlino Helpu min, helpu min; diru nur, kion mi faru — kien mi rifuĝu? 
+La fraŭlino Estu bona al mi; kaj nun vi parolas kiel homo.
 
 Jean
 
-En la nomo de Jesuo, se mi scius mem\! 
+Jes, sed estu homo mem! Vi kraĉis sur min kaj vi ne
 
-La fraŭlino Mi estis furiozanta, mi estis freneza, sed ĉu ne ekzistas iaspeca savo\! 
+permesas, ke mi sekigu min — sur vin!
 
-Jean
-
-Restu kaj kvietiĝu\! Neniu scias ion. 
-
-La fraŭlino Neeble\! La bienanaro scias tion kaj Kristin scias tion\! 
+La fraŭlino Helpu min, helpu min; diru nur, kion mi faru — kien mi rifuĝu?
 
 Jean
 
-Ili ne scias, kaj ili neniel povus kredi ion similan\! 
+En la nomo de Jesuo, se mi scius mem!
+
+La fraŭlino Mi estis furiozanta, mi estis freneza, sed ĉu ne ekzistas iaspeca savo!
+
+Jean
+
+Restu kaj kvietiĝu! Neniu scias ion.
+
+La fraŭlino Neeble! La bienanaro scias tion kaj Kristin scias tion!
+
+Jean
+
+Ili ne scias, kaj ili neniel povus kredi ion similan!
 
 La fraŭlino malrapidiĝe
 
-Sed, — povos okazi aukoraŭ unu fojon\! 
+Sed, — povos okazi aukoraŭ unu fojon!
 
 Jean
 
-Tio estas vera\! 
+Tio estas vera!
 
-La fraŭlino Kaj la sekvoj? 
+La fraŭlino Kaj la sekvoj?
 
-46
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
 timigita
 
-La sekvoj\! — Kie mi havis mian kapon, ke mi ne pen-
+La sekvoj! — Kie mi havis mian kapon, ke mi ne pen-
 
 sis pri tio? Jes, tiakondiĉe ekzistas nur unu maniero
 
-— malaperi\! Tuj\! Mi ne akompanos vin, ĉar tiel ĉio
+— malaperi! Tuj! Mi ne akompanos vin, ĉar tiel ĉio
 
 estos perdita, sed vi devas forvojaĝi sola — for— kien
 
-ajn\! 
+ajn!
 
-La fraŭlino Sola? Kien? — Tion mi ne povas\! 
+La fraŭlino Sola? Kien? — Tion mi ne povas!
 
 Jean
 
-Vi nepre devas\! Kaj jam antaŭ ol la grafo revenos\! Se
+Vi nepre devas! Kaj jam antaŭ ol la grafo revenos! Se
 
-vi restos, vi scias, kiel fariĝos\! Se unu fojon oni pekis, oni volas daŭrigi, ĉar la misfaro jam estas farita —
+vi restos, vi scias, kiel fariĝos! Se unu fojon oni pekis, oni volas daŭrigi, ĉar la misfaro jam estas farita —
 
 Tiel oni prenas pli kaj pli da riskoj — kaj fine oni tro-
 
-viĝas malkovrita\! Sekve, forvojaĝu\! Skribu poste al la
+viĝas malkovrita! Sekve, forvojaĝu! Skribu poste al la
 
-grafo kaj ĉion konfesu, escepte ke estis mi\! Kaj tion li
+grafo kaj ĉion konfesu, escepte ke estis mi! Kaj tion li
 
-neniam povos diveni\! Kaj mi ne pensas, ke li ne estos
+neniam povos diveni! Kaj mi ne pensas, ke li ne estos
 
-tro fervora ekscii tion\! 
+tro fervora ekscii tion!
 
-La fraŭlino Mi forvajaĝos, se vi kuniros\! 
+La fraŭlino Mi forvajaĝos, se vi kuniros!
 
 Jean
 
 ĉu vi estas freneza, homo? Fraŭlino Julie forkurus
 
-kun sia lakeo\! Tion oni legus en la gazetoj postmor-
+kun sia lakeo! Tion oni legus en la gazetoj postmor-
 
-gaŭ kaj tion la grafo neniel postvivus\! 
+gaŭ kaj tion la grafo neniel postvivus!
 
-La fraŭlino Mi ne povas forvojaĝi\! Mi ne povas resti\! Helpu min\! 
+La fraŭlino Mi ne povas forvojaĝi! Mi ne povas resti! Helpu min!
 
-Mi estas laca, tiel senlime laca. Ordonu al mi\! Movi-
+Mi estas laca, tiel senlime laca. Ordonu al mi! Movi-
 
-gu min, ĉar mi ne povas pensi plu, ne povas agi plu\! 
+gu min, ĉar mi ne povas pensi plu, ne povas agi plu!
 
 Jean
 
-Jen vi vidas, kia malindulino vi estas\! Kial vi parolas
+Jen vi vidas, kia malindulino vi estas! Kial vi parolas
 
 fierajn vortojn kaj levas alte vian nazon, kvazaŭ vi es-
 
-tus la mastro de la kreitaĵaro\! Nu: mi ordonos al vi\! 
+tus la mastro de la kreitaĵaro! Nu: mi ordonos al vi!
 
 Iru supren en vian ĉambron kaj vestu vin; provizu vin
 
-per vojaĝmono kaj revenu ĉi tien\! 
+per vojaĝmono kaj revenu ĉi tien!
 
-47
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino duonlaŭte
 
-Akompanu min supren\! 
+Akompanu min supren!
 
 Jean
 
-En vian ĉambron? — Nun vi estas freneza denove\! —
+En vian ĉambron? — Nun vi estas freneza denove! —
 
 ŝanceliĝas dum momento
 
-Ne\! Iru tuj\! 
+Ne! Iru tuj!
 
-Kaptas ŝian manon kaj elkondukas ŝin. 
+Kaptas ŝian manon kaj elkondukas ŝin.
 
 La fraŭlino irante
 
-Parolu tamen afable al mi, Jean\! 
+Parolu tamen afable al mi, Jean!
 
 Jean
 
-Ordono ĉiam sonas malafabla; provu\! Provu\! 
+Ordono ĉiam sonas malafabla; provu! Provu!
 
 Jean
 
@@ -2942,99 +2824,97 @@ sola; elpuŝas ekĝemon de malembarasiĝo; sidiĝas apud la
 
 tablo; elprenas notkajeron kaj krajonon; kalkulas laŭte de tempo al tempo; senparola mienludado, ĝis kiam Kristin
 
-eniras vestita por iri al preĝejo, portante en la mano ĉe-mizbrustumon kaj blankan kravaton. 
+eniras vestita por iri al preĝejo, portante en la mano ĉe-mizbrustumon kaj blankan kravaton.
 
 Kristin
 
-Sinjoro Jesuo, kiel aspektas ĉi tie\! Kion vi entreprenis? 
+Sinjoro Jesuo, kiel aspektas ĉi tie! Kion vi entreprenis?
 
 Jean
 
 Ha, estas tiel, ke la fraŭlino entiris la bienanaron. ĉu
 
-vi dormis tiel profunde, ke vi nenion aŭdis? 
+vi dormis tiel profunde, ke vi nenion aŭdis?
 
 Kristin
 
-Mi dormis kvazaŭ trabo\! 
+Mi dormis kvazaŭ trabo!
 
 Jean
 
-Kaj jam vestita por iri al preĝejo? 
+Kaj jam vestita por iri al preĝejo?
 
 Kristin
 
-Je-es\! Vi ja promesis al mi, ke vi akompanos min ho-
+Je-es! Vi ja promesis al mi, ke vi akompanos min ho-
 
-diaŭ al komuniĝo\! 
+diaŭ al komuniĝo!
 
 Jean
 
-Ho jes, tio estas ja vera, mi forgesis\! — Kaj jen vi al-
+Ho jes, tio estas ja vera, mi forgesis! — Kaj jen vi al-
 
-portas la ceremonian vestornamaĵon\! Nu, venu do\! 
+portas la ceremonian vestornamaĵon! Nu, venu do!
 
-Sidiĝas; Kristin komencas survesti al li la brustumon
+Sidiĝas; Kristmencas survesti al li la brustumon
 
-kaj la blankan kravaton. Paŭzo. 
+kaj la blankan kravaton. Paŭzo.
 
-48
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
 dormeme
 
-Kiu evangelio estas hodiaŭ? 
+Kiu evangelio estas hodiaŭ?
 
 Kristin
 
-Estas pri Johano Baptisto senkapigata, mi pensas\! 
+Estas pri Johano Baptisto senkapigata, mi pensas!
 
 Jean
 
-Tio estos sendube terure longa\! — Aj, vi sufokas min\! 
+Tio estos sendube terure longa! — Aj, vi sufokas min!
 
-— Ho, mi estas tre dormema, tre dormema\! 
+— Ho, mi estas tre dormema, tre dormema!
 
 Kristin
 
 Jes, kion li faris maldormante la tutan nokton; vi es-
 
-tas ja tute verda en la vizaĝo\! 
+tas ja tute verda en la vizaĝo!
 
 Jean
 
-Mi sidis ĉi tie kaj babilis kun fraŭlino Julie. 
+Mi sidis ĉi tie kaj babilis kun fraŭlino Julie.
 
 Kristin
 
-ŝi ne scias, kio konvenas, tiu kreitaĵo\! 
+ŝi ne scias, kio konvenas, tiu kreitaĵo!
 
 Paŭzo
 
 Jean
 
-Aŭdu Kristin\! 
+Aŭdu Kristin!
 
 Kristin
 
-Nu-u? 
+Nu-u?
 
 Jean
 
-Estas ĉiuokaze strange, se oni pripensas. 
+Estas ĉiuokaze strange, se oni pripensas.
 
 Kristin
 
-Kio estas stranga? 
+Kio estas stranga?
 
 Jean
 
-ĉio kune\! 
+ĉio kune!
 
 Paŭzo
 
@@ -3042,145 +2922,142 @@ Kristin
 
 rigardas la glasojn kiuj staras duone malplenigitaj sur la tablo
 
-ĉu vi ankaŭ trinkis kune? 
+ĉu vi ankaŭ trinkis kune?
 
 Jean
 
-Jes\! 
+Jes!
 
 Kristin
 
-Fi\! — Rigardu en miajn okulojn\! 
+Fi! — Rigardu en miajn okulojn!
 
 Jean
 
-Jes\! 
+Jes!
 
 Kristin
 
-ĉu estas eble? ĉu estas eble? 
+ĉu estas eble? ĉu estas eble?
 
 Jean
 
 post pripenso
 
-Jes\! Estas\! 
+Jes! Estas!
 
-49
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
-Uŝ\! Tion tamen mi neniam povus kredi\! Ne, fi\! fi\! 
+Uŝ! Tion tamen mi neniam povus kredi! Ne, fi! fi!
 
 Jean
 
-Vi ne estas jaluza al ŝi, ĉu? 
+Vi ne estas jaluza al ŝi, ĉu?
 
 Kristin
 
-Ne, ne al ŝi\! Se estus Klara aŭ Sofi; tiam mi elŝiras
+Ne, ne al ŝi! Se estus Klara aŭ Sofi; tiam mi elŝiras
 
-viajn okulojn\! Jes, tiel estas kaj restas; la kaŭzon mi ne konas. Ne, tio estas abomeninda\! 
+viajn okulojn! Jes, tiel estas kaj restas; la kaŭzon mi ne konas. Ne, tio estas abomeninda!
 
 Jean
 
-ĉu vi estas kolera al ŝi, do? 
+ĉu vi estas kolera al ŝi, do?
 
 Kristin
 
-Ne, sed al vi\! Estis malbona faro\! Tre malbona\! La
+Ne, sed al vi! Estis malbona faro! Tre malbona! La
 
-kompatinda knabino\! — Ne\! vere mi diras\! mi neniel
+kompatinda knabino! — Ne! vere mi diras! mi neniel
 
 volas resti plu en tiu ĉi domo, kiam oni ne povas res-
 
-pekti siajn gemastrojn. 
+pekti siajn gemastrojn.
 
 Jean
 
-Kial oni devas ilin respekti? 
+Kial oni devas ilin respekti?
 
 Kristin
 
-Ho jes, klarigu tion, vi kiu estas tiel ruza\! Sed sendube vi ne volas servi al homoj, kiuj kondutas tiel malde-ce? ĉu ne vere? Oni malhonoras sin mem per tio, mi
+Ho jes, klarigu tion, vi kiu estas tiel ruza! Sed sendube vi ne volas servi al homoj, kiuj kondutas tiel malde-ce? ĉu ne vere? Oni malhonoras sin mem per tio, mi
 
-pensas. 
+pensas.
 
 Jean
 
 Jes, sed estas ja konsolo por ni, ke la aliaj tute ne es-
 
-tas pli bonaj ol ni\! 
+tas pli bonaj ol ni!
 
 Kristin
 
-Ne, tion mi ne opinias; ĉar se ili ne estas pli bonaj, 
+Ne, tion mi ne opinias; ĉar se ili ne estas pli bonaj,
 
 tiam ne estas ideo klopodi fariĝi pli bonaj homoj. —
 
-Kaj pensu pri la grafo\! Pensu pri li, kiu havis tiom da
+Kaj pensu pri la grafo! Pensu pri li, kiu havis tiom da
 
-ĉagreno en sia vivo\! Ne, mi ne volas resti plu en tiu
+ĉagreno en sia vivo! Ne, mi ne volas resti plu en tiu
 
-ĉi domo\! — Kaj kun tia kiel vi\! Se estus la regna vok-
+ĉi domo! — Kaj kun tia kiel vi! Se estus la regna vok-
 
 to; se estus ia plialtulo…
 
 Jean
 
-Kion? 
+Kion?
 
 Kristin
 
-Ja-ja\! Vi estas sendube bona, sed estas diferenco in-
+Ja-ja! Vi estas sendube bona, sed estas diferenco in-
 
 ter homoj kaj homoj, ĉiuokaze. — Ne, tion mi neni-
 
-am povos forgesi. — La fraŭlino, kiu estis tiel fiera, 
+am povos forgesi. — La fraŭlino, kiu estis tiel fiera,
 
 tiel akra al viroj, ke oni neniam volis kredi ke ŝi fordo-50
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-nos sin — kaj al tiaspeculo\! ŝi kiu preskaŭ pafmorti-
+nos sin — kaj al tiaspeculo! ŝi kiu preskaŭ pafmorti-
 
 gis Dianan, la kompatindan, ĉar ŝi kuris kun la mopso
 
-de la barilgardisto\! — Jes, mi diras\! — Sed ĉi tie mi ne
+de la barilgardisto! — Jes, mi diras! — Sed ĉi tie mi ne
 
 volas resti plu, kaj la dudek kvaran de oktobro mi for-
 
-iros. 
+iros.
 
 Jean
 
-Kaj poste? 
+Kaj poste?
 
 Kristin
 
 Jes, ĉar ni ektuŝis tiun temon: povus esti taŭga tem-
 
-po serĉi ion, ĉar ni ĉiukaze geedziĝos. 
+po serĉi ion, ĉar ni ĉiukaze geedziĝos.
 
 Jean
 
 Nu, kion mi serĉu? Tian oficon mi ne povos ricevi kiel
 
-edzo. 
+edzo.
 
 Kristin
 
-Ne, tio estas evidenta\! Vi ja povus akcepti oficon kiel
+Ne, tio estas evidenta! Vi ja povus akcepti oficon kiel
 
-pordisto, aŭ peni eniron kiel pedelo en iun oficejon. 
+pordisto, aŭ peni eniron kiel pedelo en iun oficejon.
 
-La regna pano estas apenaŭ sufiĉa, sed ĝi estas certa, 
+La regna pano estas apenaŭ sufiĉa, sed ĝi estas certa,
 
 kaj edzino kun infanoj ricevas pension …
 
@@ -3192,43 +3069,41 @@ Estas tre bone tio, sed ne estas laŭ mia prefero tuj
 
 pripensi morti por edzino kaj infanoj. Mi devas kon-
 
-fesi, ke mi tamen celis iom pli alten. 
+fesi, ke mi tamen celis iom pli alten.
 
 Kristin
 
-Nu, viaj celadoj\! Vi ankaŭ havas devojn. Pripensu ilin\! 
+Nu, viaj celadoj! Vi ankaŭ havas devojn. Pripensu ilin!
 
 Jean
 
 Ne incitu min per parolo pri devoj, mi sen tio bone
 
-scias, kio estas mia farotaĵo\! 
+scias, kio estas mia farotaĵo!
 
 Aŭskultas eksteren
 
 Pri tio ni tamen havas sufiĉan tempon mediti. Eniru
 
-nun kaj preparu vin por iri al la preĝejo. 
+nun kaj preparu vin por iri al la preĝejo.
 
 Kristin
 
-Kiu promenadas supre? 
+Kiu promenadas supre?
 
 Jean
 
-Mi ne scias. Eble estas Klara. 
+Mi ne scias. Eble estas Klara.
 
-51
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
 ĉu povas esti la grafo, kiu revenis hejmen, sen ke ni
 
-aŭdu lin? 
+aŭdu lin?
 
 Jean
 
@@ -3236,13 +3111,13 @@ timante
 
 La grafo? Ne, tion mi ne povas kredi, li tiam certe so-
 
-norigus. 
+norigus.
 
 Kristin
 
 eliras
 
-Nu, Dio nin helpu\! Neniam mi spertis ion similan. 
+Nu, Dio nin helpu! Neniam mi spertis ion similan.
 
 La suno ĵus leviĝis kaj brilas sur la suproj de la parkaj arboj; La lumo moviĝas iom post iom, ĝis ĝi eniras
 
@@ -3250,61 +3125,59 @@ malrekte tra la fenestroj
 
 Jean
 
-iras al la pordo kaj faras signon. 
+iras al la pordo kaj faras signon.
 
-La fraŭlino eniras vestita por vojaĝo kaj portas birdan kaĝon, kov-ritan per tuko, kiun ŝi metas sur seĝon. 
+La fraŭlino eniras vestita por vojaĝo kaj portas birdan kaĝon, kov-ritan per tuko, kiun ŝi metas sur seĝon.
 
-Jen mi estas preta. 
+Jen mi estas preta.
 
 Jean
 
-Silentu\! Kristin vekiĝis\! 
+Silentu! Kristin vekiĝis!
 
 La fraŭlino la sekvanton nervozege
 
-ĉu ŝi ion suspektas? 
+ĉu ŝi ion suspektas?
 
 Jean
 
-ŝi nenion scias\! Sed, Dio mia, kian aspekton vi havas\! 
+ŝi nenion scias! Sed, Dio mia, kian aspekton vi havas!
 
-La fraŭlino Kiel? Mia aspekto? 
+La fraŭlino Kiel? Mia aspekto?
 
 Jean
 
 Vi estas pala kiel mortinto kaj — pardonu, vi estas
 
-malpura sur la vizaĝo. 
+malpura sur la vizaĝo.
 
-La fraŭlino Lasu min do lavi min\! Tiel\! 
+La fraŭlino Lasu min do lavi min! Tiel!
 
-ŝi iras al la lavujo kaj lavas la vizaĝon kaj manojn. 
+ŝi iras al la lavujo kaj lavas la vizaĝon kaj manojn.
 
-Donu al mi viŝtukon\! — Ah, estas la suno, kiu leviĝas\! 
+Donu al mi viŝtukon! — Ah, estas la suno, kiu leviĝas!
 
 Jean
 
-Kaj tiam krevas la monstro. 
+Kaj tiam krevas la monstro.
 
-52
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Jes, estas la monstroj kiuj rajdis ĉi-nokte\! — Sed, Jean, aŭskultu min\! Akompanu min, ĉar nun mi havas ri-medojn\! 
+La fraŭlino Jes, estas la monstroj kiuj rajdis ĉi-nokte! — Sed, Jean, aŭskultu min! Akompanu min, ĉar nun mi havas ri-medojn!
 
 Jean
 
 dubante
 
-ĉu sufiĉe? 
+ĉu sufiĉe?
 
-La fraŭlino Sufiĉe por la komenco\! Akompanu min, ĉar hodiaŭ mi ne povas veturi sola. Pensu, la somermeza festo-tago, en malfreŝaera vagono, enpakita en homamaso, 
+La fraŭlino Sufiĉe por la komenco! Akompanu min, ĉar hodiaŭ mi ne povas veturi sola. Pensu, la somermeza festo-tago, en malfreŝaera vagono, enpakita en homamaso,
 
 kiu rigardados; halti ĉe la stacioj, kiam oni volas flu-
 
-gi. Ne, mi ne povas, mi ne povas\! Kaj poste venas la
+gi. Ne, mi ne povas, mi ne povas! Kaj poste venas la
 
 memoroj; la infanaĝaj memoroj de somermezaj tagoj
 
@@ -3312,87 +3185,85 @@ kun la preĝejo foliornamita — betulfoliaro kaj siring-
 
 oj; la tagmanĝo kun la tablo preparita, la parencoj, la
 
-amikoj; la posttagmezo en la parko, danco, muziko, 
+amikoj; la posttagmezo en la parko, danco, muziko,
 
-floroj kaj ludoj. Ho\! oni forkuras, forkuras, sed la me-
+floroj kaj ludoj. Ho! oni forkuras, forkuras, sed la me-
 
 moroj sekvas en la pakvagono, kaj la pento kaj la
 
-konsciencaj doloregoj\! 
+konsciencaj doloregoj!
 
 Jean
 
 Mi akompanos vin — sed tuj, antaŭ el estos tro mal-
 
-frue. Tuj en ĉi tiu momento\! 
+frue. Tuj en ĉi tiu momento!
 
-La fraŭlino Surmetu do la eksterajn vestaĵojn\! 
+La fraŭlino Surmetu do la eksterajn vestaĵojn!
 
 Prenas la birdokaĝon
 
 Jean
 
-Sed neniu pakaĵo\! Tiam ni estos trovitaj\! 
+Sed neniu pakaĵo! Tiam ni estos trovitaj!
 
-La fraŭlino Ne, neniu\! Nur tiom, kiom oni povas havi en la ku-peo. 
+La fraŭlino Ne, neniu! Nur tiom, kiom oni povas havi en la ku-peo.
 
 Jean
 
 prenis sian ĉapelon
 
-Kion vi havas tie? Kio estas? 
+Kion vi havas tie? Kio estas?
 
-La fraŭlino Estas nur mia fringelo. ¯in mi ne volas postlasi\! 
+La fraŭlino Estas nur mia fringelo. in mi ne volas postlasi!
 
-53
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Jean
 
-Jen ankoraŭ\! Ni eĉ kunportos birdokaĝon\! Vi ja estas
+Jen ankoraŭ! Ni eĉ kunportos birdokaĝon! Vi ja estas
 
-freneza\! Lasu la kaĝon\! 
+freneza! Lasu la kaĝon!
 
 La fraŭlino La sola propraĵo, kiun mi kunportas el la hejmo; la sola vivanta estaĵo, kiu min amas, post kiam Diana
 
-fariĝis al mi malfidela\! Ne estu kruela\! Permesu al mi
+fariĝis al mi malfidela! Ne estu kruela! Permesu al mi
 
-ĝin kunporti\! 
+ĝin kunporti!
 
 Jean
 
 Lasu la kaĝon, mi diras, — kaj ne parolu tiel laŭte —
 
-Kristin povus nin aŭdi. 
+Kristin povus nin aŭdi.
 
-La fraŭlino Ne, mi ne lasas ĝin en fremdaj manoj\! Mortigu ĝin prefere\! 
-
-Jean
-
-Donu al mi la bestetaĉon, mi ĝin senkapigos\! 
-
-La fraŭlino Jes, sed ne dolorigu ĝin\! Ne — ne, mi ne povas\! 
+La fraŭlino Ne, mi ne lasas ĝin en fremdaj manoj! Mortigu ĝin prefere!
 
 Jean
 
-Donu; mi povas\! 
+Donu al mi la bestetaĉon, mi ĝin senkapigos!
 
-La fraŭlino Prenas la birdon el la kaĝo kaj kisas ĝin. 
+La fraŭlino Jes, sed ne dolorigu ĝin! Ne — ne, mi ne povas!
+
+Jean
+
+Donu; mi povas!
+
+La fraŭlino Prenas la birdon el la kaĝo kaj kisas ĝin.
 
 Ho, mia eta Serine, ĉu vi mortos nun pro via mastri-
 
-no? 
+no?
 
 Jean
 
-Bonvolu ne aranĝi scenojn; ja koncernas vian vivon, 
+Bonvolu ne aranĝi scenojn; ja koncernas vian vivon,
 
-vian bonstaton\! Jen, rapidu\! 
+vian bonstaton! Jen, rapidu!
 
-Tiras la birdon el ŝiaj manoj, portas ĝin al la ligna ŝti-po kaj prenas la kuirejan hakilon. 
+Tiras la birdon el ŝiaj manoj, portas ĝin al la ligna ŝti-po kaj prenas la kuirejan hakilon.
 
 La fraŭlino sin turnas for
 
@@ -3404,51 +3275,49 @@ revolvero —
 
 ekhakas
 
-— tiam vi ne svenus pro guto de sango\! 
+— tiam vi ne svenus pro guto de sango!
 
 La fraŭlino krias
 
-Mortigu ankaŭ min\! Mortigti min\! Vi kiu povas buĉi
+Mortigu ankaŭ min! Mortigti min! Vi kiu povas buĉi
 
-54
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 senkulpan beston sen mantremo. Ho, mi malamas
 
-kaj abomenas vin; inter ni estas sango\! Mi malbenas
+kaj abomenas vin; inter ni estas sango! Mi malbenas
 
 la momenton, kiam mi vin vidis, mi malbenas la mo-
 
-menton, kiam mi ricevis vivon en mia patrino\! 
+menton, kiam mi ricevis vivon en mia patrino!
 
 Jean
 
-Nu, por kio estas utila malbeno\! Iru\! 
+Nu, por kio estas utila malbeno! Iru!
 
 La fraŭlino alproksimiĝas al la ŝtipo kvazaŭ altirita kontraŭ sia volo Ne, mi ankoraŭ ne volas iri; mi ne povas — mi devas
 
-vidi — silenton\! veturilo venas ekstere —
+vidi — silenton! veturilo venas ekstere —
 
 aŭskultas eksteren, dum ŝi fiksas la okulojn sur la lake-
 
 on kaj la hakilon
 
-Vi kredas, ke mi ne povas rigardi sangon\! ĉu vi supo-
+Vi kredas, ke mi ne povas rigardi sangon! ĉu vi supo-
 
 zas, ke mi estas tiel malforta … Ho — mi volus vidi
 
 vian sangon, vian cerbon sur hakŝtipo — mi volus vi-
 
-di tutan vian sekson naĝi en lago kiel tiu — mi kredas, 
+di tutan vian sekson naĝi en lago kiel tiu — mi kredas,
 
 ke mi povus trinki el via kranio, mi volus bani miajn
 
 piedojn en via brusta kavo, kaj mi povus manĝi vian
 
-koron rostitan\! — Vi kredas, ke mi estas malforta; vi
+koron rostitan! — Vi kredas, ke mi estas malforta; vi
 
 kredas, ke mi vin amas, ĉar mia ovo sopiregis vian
 
@@ -3456,11 +3325,11 @@ semon; vi kredas, ke mi volas porti vian idon sub mia
 
 koro kaj nutri ĝin per mia sango — naski vian infanon
 
-kaj akcepti vian nomon\! Jen, kio estas via nomo? mi
+kaj akcepti vian nomon! Jen, kio estas via nomo? mi
 
 neniam aŭdis vian familian nomon — supozeble vi
 
-nenian havas. Mi fariĝus sinjorino ”Pordistdomaĉo” 
+nenian havas. Mi fariĝus sinjorino ”Pordistdomaĉo”
 
 aŭ madamo ”Balaaĵejo” — vi, hundo, kiu portas mian
 
@@ -3468,87 +3337,83 @@ kolĉenon, vi lakeo, kiu portas mian familian insignon
 
 sur viaj butonoj — mi dividus vin kune kun mia kui-
 
-ristino, konkurus kun mia servistino\! Ho, ho, ho — vi
+ristino, konkurus kun mia servistino! Ho, ho, ho — vi
 
-kredas, ke mi estas timema kaj volas forkuri\! Ne, nun
+kredas, ke mi estas timema kaj volas forkuri! Ne, nun
 
-mi restos — kaj poste tondru\! Mia patro venas — tro-
+mi restos — kaj poste tondru! Mia patro venas — tro-
 
-55
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-vos sian komodon rompita — ke sia mono estas for\! 
+vos sian komodon rompita — ke sia mono estas for!
 
 Jen li sonorigos per tiu sonorilo — dufoje por sia ser-
 
 visto kaj poste ordonos venigi la policestron — kaj
 
-tiam mi ĉion rakontos\! ĉion\! Ho estos agrable atingi
+tiam mi ĉion rakontos! ĉion! Ho estos agrable atingi
 
-finon — ke nur la fino venu\! — Kaj poste lin frapos
+finon — ke nur la fino venu! — Kaj poste lin frapos
 
-apopleksio kun morto\! — Tiel la fino nin trafos ĉiu-
+apopleksio kun morto! — Tiel la fino nin trafos ĉiu-
 
-jn — poste venos la trankvilo — la ripozo\! — la eter-
+jn — poste venos la trankvilo — la ripozo! — la eter-
 
-na ripozo\! — Tiel la blazono frakasiĝos sur la ĉerko —
+na ripozo! — Tiel la blazono frakasiĝos sur la ĉerko —
 
 la grafa gento estingiĝos kaj la lakea gento daŭrigos
 
 en domo por sennomaj infanoj — ricevos laŭran kro-
 
-non en strata defluilo kaj finos en malliberejo\! 
+non en strata defluilo kaj finos en malliberejo!
 
 Jean
 
-Jen parolas la reĝa sango\! Brave, fraŭlino Julie\! Enŝ-
+Jen parolas la reĝa sango! Brave, fraŭlino Julie! Enŝ-
 
-topu nun ankaŭ la mueliston en la sakon\! 
+topu nun ankaŭ la mueliston en la sakon!
 
 Kristin
 
 eniras preĝejvestita kun psalmolibro en la mano
 
-La fraŭlino rapide iras renkonte al ŝi kaj falas en ŝiajn brakojn kvazaŭ por serĉi ŝirmon. 
+La fraŭlino rapide iras renkonte al ŝi kaj falas en ŝiajn brakojn kvazaŭ por serĉi ŝirmon.
 
-Helpu min, Kristin\! Helpu min kontraŭ tiu viro\! 
+Helpu min, Kristin! Helpu mntraŭ tiu viro!
 
 Kristin
 
 senmova kaj malvarma
 
-Kia spektaklo nun estas en la festotaga mateno\! 
+Kia spektaklo nun estas en la festotaga mateno!
 
 rigardas la ŝtipon
 
-Kiel vi malpurigis tie ĉi\! — Kion signifas tio ĉi? Kaj
+Kiel vi malpurigis tie ĉi! — Kion signifas tio ĉi? Kaj
 
-kiel vi krias kaj bruegas\! 
+kiel vi krias kaj bruegas!
 
-La fraŭlino Kristin\! Vi estas virino kaj vi estas amika al mi\! Gardu vin kontraŭ tiu malnoblulo\! 
+La fraŭlino Kristin! Vi estas virino kaj vi estas amika al mi! Gardu vntraŭ tiu malnoblulo!
 
 Jean
 
 iom timema kaj embarasita
 
-Dum la fraŭlinoj rezonas mi foriros por min razi\! 
+Dum la fraŭlinoj rezonas mi foriros por min razi!
 
 Elglitas dekstren
 
-56
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Vi min komprenos; kaj vi devos min aŭskulti\! 
+La fraŭlino Vi mmprenos; kaj vi devos min aŭskulti!
 
 Kristin
 
-Ne, mi vere ne komprenas tiajn malĉastaĵojn\! Kien vi
+Ne, mi vere ne komprenas tiajn malĉastaĵojn! Kien vi
 
 pensas iri vestita por vojaĝo — kaj li staras kun la ĉa-
 
@@ -3570,19 +3435,19 @@ Pri kio temas? ĉu estas pri la malsaĝaĵoj kun Jean? Pri
 
 tio mi ne zorgas, ĉar ne estas mia afero. Sed se ŝi ce-
 
-las logi lin forkuri, mi metos punkton al tio\! 
+las logi lin forkuri, mi metos punkton al tio!
 
 La fraŭlino treege nervoze
 
-Penu nun esti trankvila kaj aŭskultu. min\! Mi ne po-
+Penu nun esti trankvila kaj aŭskultu. min! Mi ne po-
 
 vas resti ĉi tie kaj Jean ne povas resti ĉi tie — ni de-
 
-vas forveturi. 
+vas forveturi.
 
 Kristin
 
-Hm, hm\! 
+Hm, hm!
 
 La fraŭlino sereniĝas
 
@@ -3594,9 +3459,9 @@ havas monon, vi komprenas — Jean kaj mi estrus la
 
 tuton — kaj vi, mi pensas, prenus sur vin la kuirejon
 
-— ĉu ne estos bonege\! — Diru nun jes\! Kaj venu kun
+— ĉu ne estos bonege! — Diru nun jes! Kaj venu kun
 
-ni, por ke ĉio estu preta\! — — Diru do jes\! 
+ni, por ke ĉio estu preta! — — Diru do jes!
 
 ĉirkaŭprenas Kristinon kaj karesas ŝin
 
@@ -3604,19 +3469,17 @@ Kristin
 
 malvarma kaj pensema
 
-Hm, hm\! 
+Hm, hm!
 
-57
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino presto tempo
 
 Vi neniam estis eksterlande en vojaĝo, Kristin — vi
 
-foriros por vidi la mondon. Vi tute ne povas supozi, 
+foriros por vidi la mondon. Vi tute ne povas supozi,
 
 kiel plezure estas vojaĝi per vagonaro — senĉese no-
 
@@ -3630,7 +3493,7 @@ atron por aŭdi operon — kaj kiam ni venos al Mun-
 
 keno estos tie la muzeoj, kaj tie estas Rubens kaj Raf-
 
-faelo, la grandaj pentristoj. Vi ja aŭdis pri Munkeno, 
+faelo, la grandaj pentristoj. Vi ja aŭdis pri Munkeno,
 
 kie la reĝo Ludoviko loĝis — la reĝo, vi scias, kiu fre-
 
@@ -3652,7 +3515,7 @@ lon per rimeno, kiun li tenas inter la dentoj kaj la mal-
 
 dekstra mano; aŭskultas kontenta la interparoladon
 
-kaj kapobalancetas konsente iom post iom. 
+kaj kapobalancetas konsente iom post iom.
 
 La fraŭlino tempo prestissimo
 
@@ -3662,7 +3525,7 @@ kontoro, dum Jean akceptas la vojaĝantojn — eliras
 
 por aĉeti — skribas leterojn — jen estas vivo, vi vidos
 
-— jen signalas la vagonaro, jen venas la omnibuso, 
+— jen signalas la vagonaro, jen venas la omnibuso,
 
 jen sonoriĝas en la ĉambraro, jen sonoriĝas en la res-
 
@@ -3670,13 +3533,11 @@ toracio — kaj mi skribos la kalkulojn — kaj ni povos
 
 ilin salumi. — Vi tute ne povas imagi, kiel timemaj
 
-58
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-estas la vojaĝantoj, kiam ili pagas la kalkulon\! — Kaj
+estas la vojaĝantoj, kiam ili pagas la kalkulon! — Kaj
 
 vi — vi sidos kiel mastrino en la kuirejo. — Kompre-
 
@@ -3686,7 +3547,7 @@ belete kaj delikate vestita, kiam vi aperos antaŭ la
 
 gastoj — kaj vi kun via eksteraĵo — jes mi ne flatas vin
 
-— vi certe povas kapti viron ĉe okazo\! riĉan anglon, 
+— vi certe povas kapti viron ĉe okazo! riĉan anglon,
 
 vi komprenas — tiajn homojn oni facile
 
@@ -3712,53 +3573,51 @@ paŭzo
 
 Kristin
 
-Nu\! ĉu vi fraŭlino mem kredas ĉion tion? 
+Nu! ĉu vi fraŭlino mem kredas ĉion tion?
 
 La fraŭlino neniigita
 
-ĉu mi mem kredas? 
+ĉu mi mem kredas?
 
 Kristin
 
-Jes\! 
+Jes!
 
 La fraŭlino laca
 
-Mi ne scias; mi ne plu kredas je io. 
+Mi ne scias; mi ne plu kredas je io.
 
 ŝi falas sur la benkon; metas la kapon inter la brakoj
 
 sur la tablo
 
-Nenio\! Tute nenio\! 
+Nenio! Tute nenio!
 
-59
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
-sin turnas dekstren, kie estas Jean. 
+sin turnas dekstren, kie estas Jean.
 
-Tiamaniere\! Vi pensis forkuri\! 
+Tiamaniere! Vi pensis forkuri!
 
 Jean
 
 honteta, metas la razilon sur la tablon
 
-Forkuri? Estas iom tro aserti tion\! Vi ja aŭdis la pro-
+Forkuri? Estas iom tro aserti tion! Vi ja aŭdis la pro-
 
 jekton de la fraŭlino, kaj kvankam ŝi nun estas laca
 
 post la nokta maldormo, tiu projekto tre bone povas
 
-efektiviĝi\! 
+efektiviĝi!
 
 Kristin
 
-Atentu\! ĉu vi intencis, ke mi fariĝu kuiristino ĉe tiu
+Atentu! ĉu vi intencis, ke mi fariĝu kuiristino ĉe tiu
 
 individuo …
 
@@ -3768,29 +3627,29 @@ akre
 
 Volu uzi edukitan esprimon, kiam vi parolas al via
 
-mastrino\! ĉu komprenita\! 
+mastrino! ĉu komprenita!
 
 Kristin
 
-Mastrino\! 
+Mastrino!
 
 Jean
 
-Certe\! 
+Certe!
 
 Kristin
 
-Aŭdu tamen\! Aŭskultu lin\! 
+Aŭdu tamen! Aŭskultu lin!
 
 Jean
 
 Jes, aŭskultu, tion vi certe bezonas, kaj babilu iom
 
-malpli\! Fraŭlino Julie estas via mastrino kaj la sama
+malpli! Fraŭlino Julie estas via mastrino kaj la sama
 
 afero, kiu igas vin malestimi ŝin, devus igi vin males-
 
-timi vin mem\! 
+timi vin mem!
 
 Kristin
 
@@ -3798,7 +3657,7 @@ Mi ĉiam havis tiom da estimo por mi mem —
 
 Jean
 
-— ke vi povis aliajn malestimi\! —
+— ke vi povis aliajn malestimi! —
 
 Kristin
 
@@ -3806,19 +3665,17 @@ Kristin
 
 ru, ke la grafa kuiristino havis ian interligon kun la
 
-ĉevala purigisto aŭ la porkisto\! Diru tion\! 
+ĉevala purigisto aŭ la porkisto! Diru tion!
 
 Jean
 
 Ja, vi havis aferon kun noblamaniera viro, vi havis
 
-bonŝancon\! 
+bonŝancon!
 
-60
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 Kristin
 
@@ -3830,43 +3687,43 @@ Jean
 
 Pri tio vi parolu, vi kiu akceptas procenton de la spi-
 
-cisto kaj kiu lasas vin subaĉeti de la buĉisto\! 
+cisto kaj kiu lasas vin subaĉeti de la buĉisto!
 
 Kristin
 
-Kio? 
+Kio?
 
 Jean
 
-Kaj vi ne povas plu havi respekton por viaj gemastroj\! 
+Kaj vi ne povas plu havi respekton por viaj gemastroj!
 
-vi, vi, vi\! 
+vi, vi, vi!
 
 Kristin
 
 ĉu vi nun kuniros al la preĝejo? Vi bezonas bonan
 
-predikon post via heroaĵo. 
+predikon post via heroaĵo.
 
 Jean
 
 Ne, mi ne iros al la preĝejo hodiaŭ; vi iru sola por
 
-konfesi viajn agojn\! 
+konfesi viajn agojn!
 
 Kristin
 
 Jes, tion mi faros, kaj mi revenos kun pardono, tiom
 
-ke sufiĉos ankaŭ por vi\! Nia Savinto suferis kaj mor-
+ke sufiĉos ankaŭ por vi! Nia Savinto suferis kaj mor-
 
 tis sur la kruco por ĉiuj niaj pekoj, kaj se ni venas al
 
 li kun kredo kaj kun animo pentanta, li prenas sur sin
 
-nian tutan ŝuldon. 
+nian tutan ŝuldon.
 
-La fraŭlino ĉu vi tion kredas, Kristin? 
+La fraŭlino ĉu vi tion kredas, Kristin?
 
 Kristin
 
@@ -3876,33 +3733,31 @@ kredo, kiun mi konservis el mia juneco, fraŭlino Ju-
 
 lie. Kaj tie kie la peko superfluas, tie ankaŭ superflu-
 
-os la pardono\! 
+os la pardono!
 
-La fraŭlino Ho, se mi havus vian kredon\! Ho, se —
+La fraŭlino Ho, se mi havus vian kredon! Ho, se —
 
 Kristin
 
 Jes, sed tion oni ne povas ricevi sen aparta favoro de
 
-Dio, kaj ne al ĉiuj ĝi estas donita. 
+Dio, kaj ne al ĉiuj ĝi estas donita.
 
-La fraŭlino Kiuj do ĝin ricevas? 
+La fraŭlino Kiuj do ĝin ricevas?
 
 Kristin
 
 Tio estas la granda sekreto de la pardona ago, kaj Dio
 
-61
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 ne donas preferon al tiu aŭ alia persono, sed la plej
 
 malgrandaj fariĝos altranguloj —
 
-La fraŭlino Jes, sed tiam li donas preferon al la plej malgrandaj? 
+La fraŭlino Jes, sed tiam li donas preferon al la plej malgrandaj?
 
 Kristin
 
@@ -3910,107 +3765,103 @@ daŭrigas
 
 — kaj estas pli facile por kamelo trairi la trueton de
 
-kudrilo ol veni en la regnon de Dio\! Tiel estas, fraŭ-
+kudrilo ol veni en la regnon de Dio! Tiel estas, fraŭ-
 
-lino Julie\! 
+lino Julie!
 
 Nun mi tamen iras — sola, kaj preterpasante mi
 
 ordonos al la ĉevalisto, ke li ne ellasu ĉevalojn, se iu
 
-volus veturi antaŭ la reveno de la grafo\! — Adiaŭ\! 
+volus veturi antaŭ la reveno de la grafo! — Adiaŭ!
 
 foriras
 
 Jean
 
-Kia diablo\! — Kaj ĉio tio pro fringelo\! —
+Kia diablo! — Kaj ĉio tio pro fringelo! —
 
 La fraŭlino malvigla
 
-Lasu la fringelon\! ĉu vi vidas eliron el ĉi tio, finon de
+Lasu la fringelon! ĉu vi vidas eliron el ĉi tio, finon de
 
-ĝi? 
+ĝi?
 
 Jean
 
 meditas
 
-Ne\! 
+Ne!
 
-La fraŭlino Kion vi farus en mia situacio? 
+La fraŭlino Kion vi farus en mia situacio?
 
 Jean
 
 En via? Atendu? — Kiel nobela, kiel virino, kiel —
 
-malvirta. Mi ne scias — Jes\! Nun mi scias\! 
+malvirta. Mi ne scias — Jes! Nun mi scias!
 
 La fraŭlino prenas la razilon kaj faras geston
 
-ĉu tiel? 
+ĉu tiel?
 
 Jean
 
-Jes\! — Sed mi ne farus tion — rimarku\! ĉar estas di-
+Jes! — Sed mi ne farus tion — rimarku! ĉar estas di-
 
-ferenco inter ni\! 
+ferenco inter ni!
 
-La fraŭlino ĉar vi estas viro kaj mi virino? Kia diferenco do estas? 
+La fraŭlino ĉar vi estas viro kaj mi virino? Kia diferenco do estas?
 
 Jean
 
-La sama diferenco — kiel — inter viro kaj virino\! 
+La sama diferenco — kiel — inter viro kaj virino!
 
-62
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino Mi volas\! Sed mi ne povas\! — Mia patro ankaŭ ne povis je tiu okazo, kiam li devus tion fari. 
-
-Jean
-
-Ne, li ne devis tion fari\! Li devis unue venki\! 
-
-La fraŭlino Kaj nun mia patrino denove venĝas, pere de mi. 
+La fraŭlino Mi volas! Sed mi ne povas! — Mia patro ankaŭ ne povis je tiu okazo, kiam li devus tion fari.
 
 Jean
 
-ĉu vi ne amas vian patron, fraŭlino Julie? 
+Ne, li ne devis tion fari! Li devis unue venki!
 
-La fraŭlino Jes, senlime, sed mi eble lin ankaŭ malamis\! Mi supozeble tion faris nerimarkite\! Sed estas li, kiu min edu-
+La fraŭlino Kaj nun mia patrino denove venĝas, pere de mi.
+
+Jean
+
+ĉu vi ne amas vian patron, fraŭlino Julie?
+
+La fraŭlino Jes, senlime, sed mi eble lin ankaŭ malamis! Mi supozeble tion faris nerimarkite! Sed estas li, kiu min edu-
 
 kis al malestimo de mia propra sekso, al duonvirino
 
-kaj duonviro\! Kies estas la kulpo pri tio, kio fariĝis? 
+kaj duonviro! Kies estas la kulpo pri tio, kio fariĝis?
 
-De mia patro, de mia patrino, de mi mem\! De mi
+De mia patro, de mia patrino, de mi mem! De mi
 
 mem? Mi ja nenion propran havas? Mi ne hasas iun
 
-penson, kiun mi ne ricevis de mia patro, iun pasion, 
+penson, kiun mi ne ricevis de mia patro, iun pasion,
 
 kiun mi ne ricevis de mia patrino, kaj la lasta — ke
 
 ĉiuj homoj estas samaj — tion mi ricevis de li, mia
 
-fianĉo — kiun mi tial nomas mizerulo\! Kiel tio povas
+fianĉo — kiun mi tial nomas mizerulo! Kiel tio povas
 
 esti mia propra kulpo? Transmeti la ŝuldon sur Jesu-
 
 on, kiel Kristin faris — ne, por tio mi estas tro fiera kaj tro saĝa —dank’al la instruoj de mia patro — kaj ke
 
-riĉulo ne povas eniri en la ĉielon tio estas malvero, 
+riĉulo ne povas eniri en la ĉielon tio estas malvero,
 
 kaj Kristin, kiu posedas monon en la ŝparbanko, al-
 
-menaŭ ne envenos tien\! Kies estas la ŝuldo? ĉu nin
+menaŭ ne envenos tien! Kies estas la ŝuldo? ĉu nncernas, kies estas la ŝuldo! Tamen estas mi, kiu
 
-koncernas, kies estas la ŝuldo\! Tamen estas mi, kiu
-
-portos la ŝuldon, portos la sekvojn\! 
+portos la ŝuldon, portos la sekvojn!
 
 Jean
 
@@ -4022,59 +3873,57 @@ saltas; Jean ŝanĝas surtuton
 
 Jean
 
-La grafo estas hejme\! Imagu, se Kristin —
+La grafo estas hejme! Imagu, se Kristin —
 
 iras al la paroltubo; frapetas kaj aŭkskultas
 
-63
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-La fraŭlino ĉu li estis ĉe la komodo? 
+La fraŭlino ĉu li estis ĉe la komodo?
 
 Jean
 
-Estas Jean, sinjoro grafo\! 
+Estas Jean, sinjoro grafo!
 
 aŭskultas: Atentu: la rigardanto ne aŭdas, kion diras
 
 la grafo
 
-Jes, sinjoro grafo\! 
+Jes, sinjoro grafo!
 
 aŭskultas
 
-Jes, sinjoro grafo\! Tuj\! 
+Jes, sinjoro grafo! Tuj!
 
 aŭskultas
 
-Tuj, sinjoro grafo\! 
+Tuj, sinjoro grafo!
 
 aŭskultas
 
-Jes\! Post duona horo\! 
+Jes! Post duona horo!
 
 La fraŭlino timegigita
 
-Kion li diris? Pro Jesuo, kion li diris? 
+Kion li diris? Pro Jesuo, kion li diris?
 
 Jean
 
-Li ordonis siajn botojn kaj sian kafon post duonhoro. 
+Li ordonis siajn botojn kaj sian kafon post duonhoro.
 
-La fraŭlino Sekve post duona horo\! Ho, mi estas tiel laca; mi nenion povas, ne povas penti, ne forkuri, ne resti, ne
+La fraŭlino Sekve post duona horo! Ho, mi estas tiel laca; mi nenion povas, ne povas penti, ne forkuri, ne resti, ne
 
-vivi — ne morti\! Helpu nun al mi\! Ordonu al mi, kaj
+vivi — ne morti! Helpu nun al mi! Ordonu al mi, kaj
 
-mi obeos kiel hundo\! Faru por mi la lastan servon, 
+mi obeos kiel hundo! Faru por mi la lastan servon,
 
-savu mian honoron, savu lian nomon\! Vi scias, kion
+savu mian honoron, savu lian nomon! Vi scias, kion
 
 mi volus, sed ne volas. Volu tion, vi, kaj ordonu al mi
 
-tion fari\! 
+tion fari!
 
 Jean
 
@@ -4088,17 +3937,15 @@ parolis al mi — mi ne ĝuste povas klarigi tion, sed —
 
 oh, estas la diabla servisto, kiu troviĝas en mia dor-
 
-64
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-so\! — mi kredas, ke se la grafo nun venus — kaj ord-
+so! — mi kredas, ke se la grafo nun venus — kaj ord-
 
-onus al mi tranĉi mian kolon, mi tion tuj farus\! 
+onus al mi tranĉi mian kolon, mi tion tuj farus!
 
-La fraŭlino ŝajnigu do, ke vi estas li kaj ke mi estas vi\! — Vi ja povis antaŭ momento ludi tiel bone, kiam vi genu-fleksis — tiam vi estis la nobelulo — aŭ — ĉu vi neni-
+La fraŭlino ŝajnigu do, ke vi estas li kaj ke mi estas vi! — Vi ja povis antaŭ momento ludi tiel bone, kiam vi genu-fleksis — tiam vi estis la nobelulo — aŭ — ĉu vi neni-
 
 am estis en la teatro kaj vidis la magnetiziston? —
 
@@ -4110,7 +3957,7 @@ nas; li diras: balau, kaj ĝi balaas —
 
 Jean
 
-Tiam do la alia devas dormi\! 
+Tiam do la alia devas dormi!
 
 La fraŭlino ekstaze
 
@@ -4130,65 +3977,63 @@ La sunlunto envenis sur la plankon kaj lumas sur Jean
 
 ro
 
-— kaj tiel lume kaj tiel kviete\! 
+— kaj tiel lume kaj tiel kviete!
 
 Jean
 
 prenas la razilon kaj metas en ŝian manon
 
-Jen la balailo\! Iru nun dum estas lume — for en la foj-
+Jen la balailo! Iru nun dum estas lume — for en la foj-
 
 nejon — kaj …
 
 murmuretas en ŝian orelon
 
-65
 
 FRAŭLINO JULIE
 
-eLIBRO
 
 La fraŭlino vekigita
 
-Dankon\! nun mi iras al la ripozo\! Sed diru nur, ke la
+Dankon! nun mi iras al la ripozo! Sed diru nur, ke la
 
 superuloj ankaŭ povas ricevi la donacon de la dia
 
-pardono. Diru tion, ankaŭ se vi ne kredas. 
+pardono. Diru tion, ankaŭ se vi ne kredas.
 
 Jean
 
-La superuloj? Ne, tion mi ne povas\! Sed atendu —
+La superuloj? Ne, tion mi ne povas! Sed atendu —
 
-fraŭlino Julie — nun mi scias\! Vi ja ne estas jam inter
+fraŭlino Julie — nun mi scias! Vi ja ne estas jam inter
 
-la superuloj — kiam vi estas inter — la lastaj\! 
+la superuloj — kiam vi estas inter — la lastaj!
 
-La fraŭlino Estas vere. — Mi estas inter la plej lastaj; mi estas la lasta el ĉiuj\! Ho\! — Sed nun mi ne povas iri — Diru
+La fraŭlino Estas vere. — Mi estas inter la plej lastaj; mi estas la lasta el ĉiuj! Ho! — Sed nun mi ne povas iri — Diru
 
-ankoraŭ unu fojon, ke mi iru\! 
-
-Jean
-
-Ne, nun ankaŭ mi ne povas\! Mi ne povas\! 
-
-La fraŭlino Kaj la superuloj fariĝos la plej malsupraj\! 
+ankoraŭ unu fojon, ke mi iru!
 
 Jean
 
-Ne pensu, ne pensu\! Vi ja prenas ĉiun mian povon
+Ne, nun ankaŭ mi ne povas! Mi ne povas!
 
-ankaŭ de mi, tiel ke mi fariĝas malkuraĝa — Kio\! ŝaj-
+La fraŭlino Kaj la superuloj fariĝos la plej malsupraj!
 
-nis al mi, ke la sonorilo moviĝas\! — Ne\! ĉu ni metu
+Jean
 
-paperon en ĝin\! — Tiel timi sonorilon\! — Jes, sed ne
+Ne pensu, ne pensu! Vi ja prenas ĉiun mian povon
+
+ankaŭ de mi, tiel ke mi fariĝas malkuraĝa — Kio! ŝaj-
+
+nis al mi, ke la sonorilo moviĝas! — Ne! ĉu ni metu
+
+paperon en ĝin! — Tiel timi sonorilon! — Jes, sed ne
 
 estas nur sonorilo — iu sidas malantaŭ ĝi — mano
 
 movigas ĝin — kaj io alia movigas la manon, sed ŝir-
 
-mu la orelojn per la manoj — ŝirmu ilin\! Ja, tiam li
+mu la orelojn per la manoj — ŝirmu ilin! Ja, tiam li
 
 sonorigas ankoraŭ pli forte, sonorigos ĝis oni respon-
 
@@ -4202,21 +4047,14 @@ Jean
 
 subenfalas; poste li sin rektigas
 
-Estas terure\! Sed alia fino ne ekzistas\! Iru\! 
+Estas terure! Sed alia fino ne ekzistas! Iru!
 
 La fraŭlino iras decide for tra la pordo
 
 Kurteno
 
-66
 
 FRAŭLINO JULIE
 
-eLIBRO
 
-www.omnibus.se/inko
-
-ISBN 91-7303-081-3
-
-67
-
+www.omnibus.se/

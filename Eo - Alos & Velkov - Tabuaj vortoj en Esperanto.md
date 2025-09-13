@@ -1,32 +1,29 @@
-% Eo - Alos & Velkov
-% Tabuaj vortoj en Esperanto
-
 **Hektor Alos, Kiril Velkov: Tabuaj vortoj en Esperanto** **Vortaro kun ekzemploj pri praktika uzado**
 
 
 *Vraca, 1991 *
 
-*Redaktoro: Ljubomir Trifonĉovski; \(c\) ĉe la aŭtoroj, 1991*
+*Redaktoro: Ljubomir Trifonĉovski; (c) ĉe la aŭtoroj, 1991*
 
-*Enkomputiligis Igor Fedorov, 1999* 
+*Enkomputiligis Igor Fedorov, 1999*
 
 **Naŭ enkondukaj frazoj**
 
-Nek Zamenhof nek la aliaj pioniroj de lingvo Internacia en siaj verkoj uzis obscenajn vortojn, kvankam ĉiuj ili klopodis fari el Esperanto realan lingvon. 
+Nek Zamenhof nek la aliaj pioniroj de lingvo Internacia en siaj verkoj uzis obscenajn vortojn, kvankam ĉiuj ili klopodis fari el Esperanto realan lingvon.
 
-Unue la tabuaj vortoj publike aperis en "Sekretaj Sonetoj" de Peter Peneter en 1931\(?\). Post kvardekkvinjara ekzistado Esperanto fariĝis plenrajta lingvo samkiel la naciaj. 
+Unue la tabuaj vortoj publike aperis en "Sekretaj Sonetoj" de Peter Peneter en 1931(?). Post kvardekkvinjara ekzistado Esperanto fariĝis plenrajta lingvo samkiel la naciaj.
 
-Sed la vortaroj, kie i.a. estas tabuaj vortoj, ne multenombras. Ankoraŭ la esperantistaro hontas... 
+Sed la vortaroj, kie i.a. estas tabuaj vortoj, ne multenombras. Ankoraŭ la esperantistaro hontas...
 
-Ĝis nun la plej seriozan kontribuon por la sistemigo de la obscenaj vortoj kaj esprimoj faris Renato Corsetti per "Knedu min, sinjorino" kaj "Propono por kromvortaro". 
+Ĝis nun la plej seriozan kontribuon por la sistemigo de la obscenaj vortoj kaj esprimoj faris Renato Corsetti per "Knedu min, sinjorino" kaj "Propono por kromvortaro".
 
-La vortaro, kiu nun estas en viaj manoj, daŭrigas la esploradon kaj pliriĉigas la tabuajn vortojn en Esperanto. La ekzemploj pruvas, ke la lingvo povas esprimi ĉion, eĉ la plej intiman. Ili montras, ke la obscenaĵoj troveblas en la literaturo, sur la strato aŭ en la lito... 
+La vortaro, kiu nun estas en viaj manoj, daŭrigas la esploradon kaj pliriĉigas la tabuajn vortojn en Esperanto. La ekzemploj pruvas, ke la lingvo povas esprimi ĉion, eĉ la plej intiman. Ili montras, ke la obscenaĵoj troveblas en la literaturo, sur la strato aŭ en la lito...
 
-Ljubomir Trifonĉovski 
+Ljubomir Trifonĉovski
 
 **Mallongigoj**
 
-GV 
+GV
 
 ĝenerala vortaro - normala vorto
 
@@ -40,19 +37,18 @@ mitologio
 
 Sci
 
-scienca - faka \(ofte medicina\) vorto
+scienca - faka (ofte medicina) vorto
 
-\*
 
 verbo netransitiva
 
-=> 
+=>
 
 verbo transitiva
 
--> 
+->
 
-vidu \(en la okazo, ke la vorto estas lingve malrekomendata\) Kp
+vidu (en la okazo, ke la vorto estas lingve malrekomendata) Kp
 
 komparu
 
@@ -62,9 +58,9 @@ parolante pri
 
 **Vortaro**
 
-adulti \(GV, \*\)
+adulti (GV, *)
 
-sekse malfideli, trompi \(Kp: kokri\)
+sekse malfideli, trompi (Kp: kokri)
 
 sangadulto
 
@@ -74,11 +70,11 @@ viradulto
 
 1. sodomio. 2. pederastio
 
-afodio \(Sci\)
+afodio (Sci)
 
 skarabo, kiu vivas en fekaĵoj
 
-afrodizio \(Sci\)
+afrodizio (Sci)
 
 eksciteco de la seksorganoj
 
@@ -90,73 +86,73 @@ malafrodizio
 
 pli-malpli kompleta manko de seksa ekscitiĝo
 
-agapo \(Neo\)
+agapo (Neo)
 
 amfesteno, komunia festo
 
-ajdeso -> 
+ajdeso ->
 
 ajdoso
 
-ajdoso \(GV\)
+ajdoso (GV)
 
 moderna venusa plago
 
-ajdosoo -> 
+ajdosoo ->
 
 ajdoso
 
-amori \(GV, \*\)
+amori (GV, *)
 
 sekse ami
 
-anafrodizio \(Neo\) malafrodizio
+anafrodizio (Neo) malafrodizio
 
-androgino \(Sci\)
+androgino (Sci)
 
-duseksulo \(ankaŭ: hermafrodito\)
+duseksulo (ankaŭ: hermafrodito)
 
-anuso \(GV\)
+anuso (GV)
 
 trafekejo
 
-ascendi \(Jar, =>\)
+ascendi (Jar, =>)
 
-supreniri \(ankaŭ iun\)
+supreniri (ankaŭ iun)
 
-bakanalo \(GV\)
+bakanalo (GV)
 
 bakĥanalio, orgio
 
-bakĥanalio \(Mit\)
+bakĥanalio (Mit)
 
 orgia festo de Bakĥo en Romo; tumulta orgio
 
-bakĥantino \(Mit\)
+bakĥantino (Mit)
 
 adorantino posedata de Bakĥo en ties orgia kulto
 
-balano \(Sci\)
+balano (Sci)
 
 glano
 
-bibio \(Sci\)
+bibio (Sci)
 
 muŝo, kiu infestas ekskrementon
 
-biseksa \(Neo\)
+biseksa (Neo)
 
 ambaŭseksa
 
-blenoragio \(Sci\)
+blenoragio (Sci)
 
 inflamo de viraj aŭ inaj generiloj
 
-blenoreo \(Sci\)
+blenoreo (Sci)
 
-kronika blenoragio \(= vezika kataro\)
+kronika blenoragio (= vezika kataro)
 
-bordelo \(GV\)
+bordelo (GV)
 
 amordomo
 
@@ -164,91 +160,91 @@ bordelisto
 
 posedanto de bordelo
 
-bugri \(Jar, =>\)
+bugri (Jar, =>)
 
-anuskoiti \(ankaŭ: sodomii\)
+anuskoiti (ankaŭ: sodomii)
 
-buĥto \(Jar\)
-
-virina vulvo
-
-buŝino \(Neo\)
+buĥto (Jar)
 
 virina vulvo
 
-cico \(GV\)
+buŝino (Neo)
+
+virina vulvo
+
+cico (GV)
 
 mampinto
 
-cirkumcidi \(Sci, 
+cirkumcidi (Sci,
 
 detranĉe liberigi la glanon
 
-=>\)
+=>)
 
-ĉasta \(GV\)
+ĉasta (GV)
 
 detenanta sin de seksrilatoj, evitanta volupton
 
-ĉiĉo \(Neo\)
+ĉiĉo (Neo)
 
 1. virino. 2. virina vulvo
 
-ĉjo-knabino \(Jar\)
+ĉjo-knabino (Jar)
 
 vireca samseksemulino
 
-ĉuro \(Jar\)
+ĉuro (Jar)
 
 spermo
 
-ĉuri \(Jar, \*\)
+ĉuri (Jar, *)
 
-orgasmi \(ĉe la viro\)
+orgasmi (ĉe la viro)
 
-defeki \(Sci, \*\)
+defeki (Sci, *)
 
 -> feki
 
-deflori \(Jar, =>\)
+deflori (Jar, =>)
 
 senvirgigi
 
-diareo \(Sci\)
+diareo (Sci)
 
-oftaj kaj likvaj fekoj \(Kp: lakso\)
+oftaj kaj likvaj fekoj (Kp: lakso)
 
-ejakuli \(Sci, \*\)
+ejakuli (Sci, *)
 
 spermĵeti
 
-ejakulacii -> 
+ejakulacii ->
 
 ejakuli
 
-eksciti \(GV, =>\)
+eksciti (GV, =>)
 
-fari tre intensa la funkcion de korpa organo aŭ senso ekscizi \(Sci, =>\)
+fari tre intensa la funkcion de korpa organo aŭ senso ekscizi (Sci, =>)
 
 forigi per tranĉa instrumento
 
-ekshibicio \(Sci\)
+ekshibicio (Sci)
 
 obsedo senpudore elmontri seksorganojn
 
-ekzibi \(Jar, \*\)
+ekzibi (Jar, *)
 
 ekshibicii
 
-ekskremento \(Sci\) substanco forkondukita de la organismo \(urino, ŝvito kaj ĉefe fekaĵo\) erekti \(Sci, =>\)
+ekskremento (Sci) substanco forkondukita de la organismo (urino, ŝvito kaj ĉefe fekaĵo) erekti (Sci, =>)
 
 pligrandigi kaj rigidigi
 
-eretismo \(Sci\)
+eretismo (Sci)
 
 eksciteco de organo
 
-eroto \(GV\)
+eroto (GV)
 
 seksa impulso
 
@@ -262,13 +258,12 @@ ekscesa aŭ patologia emo al seksaj aferoj
 
 erotologio
 
-scienca studo pri la eroto aŭ perversioj
 
 erotomanio
 
 erota obsedo
 
-erotika \(GV\)
+erotika (GV)
 
 esprimanta aŭ alvokanta seksan volupton
 
@@ -276,59 +271,59 @@ erotiko
 
 la amora arto
 
-eŭnuko \(GV\)
+eŭnuko (GV)
 
 kastrita viro
 
-faluso \(Jar\)
+faluso (Jar)
 
 servopreta kaco
 
-feki \(GV, \*\)
+feki (GV, *)
 
-ekskrementi \(ankaŭ: kaki, merdi\)
+ekskrementi (ankaŭ: kaki, merdi)
 
-ferdo \(Neo\)
+ferdo (Neo)
 
 vidu: ferdinando
 
-ferdinando \(Neo\)
+ferdinando (Neo)
 
-familiara nomo de la peniso \(ankaŭ: ferdo, francisko\) fetiĉismo \(Sci\)
+familiara nomo de la peniso (ankaŭ: ferdo, francisko) fetiĉismo (Sci)
 
-voluptodona altiriĝo al vestaĵoj aŭ aliaj objektoj fiki \(Jar, =>\)
+voluptodona altiriĝo al vestaĵoj aŭ aliaj objektoj fiki (Jar, =>)
 
-sekskuniĝi \(vidu la soneton XXXV\)
+sekskuniĝi (vidu la soneton XXXV)
 
-fimozo \(Sci\)
+fimozo (Sci)
 
 mallarĝeco de la prepucia ringo
 
-flatulenco \(Sci\)
+flatulenco (Sci)
 
-akumuliĝo de gasoj precipe en la stomako kaj intesto fluti \(Jar, =>\)
+akumuliĝo de gasoj precipe en la stomako kaj intesto fluti (Jar, =>)
 
 midzi
 
-forniki \(Neo, =>\) malĉaste ami, malĉaste seksumi fotri \(Neo, =>\)
+forniki (Neo, =>) malĉaste ami, malĉaste seksumi fotri (Neo, =>)
 
-koiti \(pp maskloj\)
+koiti (pp maskloj)
 
-francisko \(Neo\)
+francisko (Neo)
 
-familiara nomo de la vira peniso \(ankaŭ: ferdo, ferdinando\) frandzi
+familiara nomo de la vira peniso (ankaŭ: ferdo, ferdinando) frandzi
 
 -> franzi
 
-franzi \(Jar, =>\)
+franzi (Jar, =>)
 
-piĉleki \(Kp: midzi, sesdeknaŭi\)
+piĉleki (Kp: midzi, sesdeknaŭi)
 
-frigida \(Sci\)
+frigida (Sci)
 
-sekse inerta, malafrodizia \(Kp: impotenta\)
+sekse inerta, malafrodizia (Kp: impotenta)
 
-ftiro \(Sci\)
+ftiro (Sci)
 
 pubpediko
 
@@ -336,23 +331,23 @@ ftirio
 
 -> ftiro
 
-furzo \(GV\)
+furzo (GV)
 
 anusa eligo de haladzo
 
-gadmeso \(Neo\)
+gadmeso (Neo)
 
 artefarita peniso
 
-garzono \(Neo\)
+garzono (Neo)
 
 njo-knabo
 
-gejo \(Jar\)
+gejo (Jar)
 
 samseksemulo
 
-gejŝo \(GV\)
+gejŝo (GV)
 
 eleganta plezurodonantino en Japanio
 
@@ -360,41 +355,41 @@ geŝo
 
 -> gejŝo
 
-generi \(GV, =>\)
+generi (GV, =>)
 
 fiki, sed efike
 
-glano \(Jar\)
+glano (Jar)
 
 peniskapo
 
-gluteo \(GV\)
+gluteo (GV)
 
 sidvango
 
-gonokoko \(Sci\)
+gonokoko (Sci)
 
 mikrobo kaŭzanta blenoragion
 
-gruva \(Neo\)
+gruva (Neo)
 
 amor-veka
 
-ĝigolo \(Neo\)
+ĝigolo (Neo)
 
 juna amisto, vivtenata de pli maljuna virino
 
-havi \(Jar, =>\)
+havi (Jar, =>)
 
 fiki, koni, posedi
 
-hermafrodito \(Sci\) duseksulo \(ankaŭ: androgino\)
+hermafrodito (Sci) duseksulo (ankaŭ: androgino)
 
-hetajro \(Neo\)
+hetajro (Neo)
 
 helena kulturita kaj altsocieta prostituitino
 
-himeno \(Sci\)
+himeno (Sci)
 
 karnoprotektilo ĉe virgulinoj
 
@@ -402,33 +397,33 @@ homoseksuala
 
 -> samseksama
 
-impotenta \(Sci\)
+impotenta (Sci)
 
-sekse nekapabla \(Kp: frigida\)
+sekse nekapabla (Kp: frigida)
 
-incesto \(GV\)
+incesto (GV)
 
-seksrilatoj inter proksimaj samfamilianoj \(ankaŭ: sangadulto\) ingveno \(GV\)
+seksrilatoj inter proksimaj samfamilianoj (ankaŭ: sangadulto) ingveno (GV)
 
 korpoparto inter la subventro kaj la femuro
 
-inkubo \(Mit\)
+inkubo (Mit)
 
-diablo, kiu alprenis formon de viro por kuniĝi kun virino \(Kp: sukubo\) inocenta \(Neo\)
+diablo, kiu alprenis formon de viro por kuniĝi kun virino (Kp: sukubo) inocenta (Neo)
 
 puranima, nekonscia pri ekzisto de fimoralo
 
-insemi \(Neo, =>\)
+insemi (Neo, =>)
 
 fekundigi, ensemi
 
-insinui \(Neo, =>\) milde, preskaŭ nerimarkeble enŝovi intumeski \(Neo, \*\) ekŝveli
+insinui (Neo, =>) milde, preskaŭ nerimarkeble enŝovi intumeski (Neo, *) ekŝveli
 
-jonio \(Mit\)
+jonio (Mit)
 
 piĉo, kiel objekto de kulto ĉe la hinduoj
 
-kaco \(Jar\)
+kaco (Jar)
 
 peniso
 
@@ -440,73 +435,73 @@ kacujo
 
 pantalonfendo
 
-kaki \(Jar, \*\)
+kaki (Jar, *)
 
 feki
 
-kakaceto \(Neo\)
+kakaceto (Neo)
 
 infana kaco
 
-kastri \(GV, =>\)
+kastri (GV, =>)
 
 senigi je generivo
 
-klimakso \(GV\)
+klimakso (GV)
 
-plej supra punkto, apogeo \(Kp: orgasmo\)
+plej supra punkto, apogeo (Kp: orgasmo)
 
-klimaktero \(Sci\)
+klimaktero (Sci)
 
-malfacila periodo de la virina vivo, komenciĝanta post la menopaŭzo klistero \(Sci\)
+malfacila periodo de la virina vivo, komenciĝanta post la menopaŭzo klistero (Sci)
 
-enigo de likvaĵo tra la anuso por faciligi la defekon aŭ por nutri klirtoro \(Sci\)
+enigo de likvaĵo tra la anuso por faciligi la defekon aŭ por nutri klirtoro (Sci)
 
 ina erektiĝema organo ĉe la vulvo
 
-klozeto \(GV\)
+klozeto (GV)
 
-necesejo kun akvoŝpruco \(Kp: latrino\)
+necesejo kun akvoŝpruco (Kp: latrino)
 
-koiti \(GV, \*\)
+koiti (GV, *)
 
 sekskuniĝi
 
-kojono \(Jar\)
+kojono (Jar)
 
 ĉurovo, testiko
 
-kokri \(Jar, =>\)
+kokri (Jar, =>)
 
 adulti
 
-koni \(Jar, =>\)
+koni (Jar, =>)
 
 sekse koni
 
-koncepcii \(Neo, \*\) gravediĝi senmakule
+koncepcii (Neo, *) gravediĝi senmakule
 
-koncipi \(Neo, =>\) gravedigi \(Kp: generi\)
+koncipi (Neo, =>) gravedigi (Kp: generi)
 
-kondomo \(GV\)
+kondomo (GV)
 
-kontraŭgenera aŭ -kontaĝa kackapuĉo \(ankaŭ: kacingo, penisingo\) kondono
+kontraŭgenera aŭ -kontaĝa kackapuĉo (ankaŭ: kacingo, penisingo) kondono
 
 -> kondomo
 
-konkubi \(GV, \*\)
+konkubi (GV, *)
 
-vivi kune sed ne geedzigite \(pp viro kaj virino\)
+vivi kune sed ne geedzigite (pp viro kaj virino)
 
-konstipo \(GV\)
+konstipo (GV)
 
 mallakso
 
-kontracepcio \(Neo\) metodo celanta laŭvolan nefekundecon kontracipa \(Neo\)
+kontracepcio (Neo) metodo celanta laŭvolan nefekundecon kontracipa (Neo)
 
 malhelpanta la koncipiĝon
 
-kopuli \(Sci, \*\)
+kopuli (Sci, *)
 
 koiti
 
@@ -514,37 +509,37 @@ kopulacii
 
 -> kopuli
 
-kundo \(Neo\)
+kundo (Neo)
 
 vulvo
 
-kurtizano \(Neo\)
+kurtizano (Neo)
 
 virino malmorale kondutanta, sed klera kaj sprita
 
-kuŝi \(Neo, \*\)
+kuŝi (Neo, *)
 
 sekskuniĝi en horizontala pozicio
 
-lakso \(Sci\)
+lakso (Sci)
 
 laksiga malforteco de la intestoj
 
-laksi \(GV, \*\)
+laksi (GV, *)
 
-likve merdi \(Kp: diareo\)
+likve merdi (Kp: diareo)
 
-langumi \(Jar, =>\) leki ies seksorganojn
+langumi (Jar, =>) leki ies seksorganojn
 
-lasciva \(GV\)
+lasciva (GV)
 
 voluptama
 
-latrino \(GV\)
+latrino (GV)
 
-necesejo sen akvoŝpruco \(Kp: klozeto\)
+necesejo sen akvoŝpruco (Kp: klozeto)
 
-lesbo \(Jar\)
+lesbo (Jar)
 
 samseksemulino
 
@@ -552,191 +547,190 @@ lesbanino
 
 -> lesbo
 
-libido \(Sci\)
+libido (Sci)
 
 seksimpulso
 
-lingamo \(Mit\)
+lingamo (Mit)
 
 peniso, kiel objekto de kulto ĉe la hinduoj
 
-lipoj \(Jar\)
+lipoj (Jar)
 
 moveblaj karnorandoj de la piĉaperturo
 
-lubriki \(GV, =>\)
+lubriki (GV, =>)
 
 meti substancon speciale glitemigan sur frotanta surfaco por faciligi la glitadon
 
-lueso \(Neo\)
+lueso (Neo)
 
 sifiliso
 
-lupanaro \(Neo\)
+lupanaro (Neo)
 
 publikulinejo
 
-mamo \(GV\)
+mamo (GV)
 
 elstara parto de la brusto
 
-maritorno \(Neo\)
+maritorno (Neo)
 
 malbela, malpura virino
 
-masoĥismo \(Jar\)
+masoĥismo (Jar)
 
-volupto el kruelaĵoj trudataj de amat\(in\)o
+volupto el kruelaĵoj trudataj de amat(in)o
 
-masoĥisto \(Jar\)
+masoĥisto (Jar)
 
 masoĥismulo
 
-masturbi \(GV, =>\) seksvolupti sola
+masturbi (GV, =>) seksvolupti sola
 
-meleno \(Sci\)
+meleno (Sci)
 
 anusa eliro de nigra sango
 
-melki \(Jar, =>\)
+melki (Jar, =>)
 
 eltiri la lakton el viro
 
-menado \(Mit\)
+menado (Mit)
 
 freneziĝe ekscitita bakĥanino
 
-menopaŭzo \(Sci\)
+menopaŭzo (Sci)
 
 fino de la menstrua funkcio
 
-menstruo \(GV\)
+menstruo (GV)
 
-monata sangelfluo ĉe virinoj \(ankaŭ: monataĵo\)
+monata sangelfluo ĉe virinoj (ankaŭ: monataĵo)
 
-merdo \(Jar\)
+merdo (Jar)
 
 fekaĵo
 
-meretrico \(Neo\)
+meretrico (Neo)
 
 romia prostituitino
 
-merkino \(Neo\)
+merkino (Neo)
 
 artefarita piĉo
 
-midzi \(Jar, =>\)
+midzi (Jar, =>)
 
-penissuĉi, buŝkoiti, fluti \(Kp: franzi, sesdeknaŭi\) nano \(Neo\)
+penissuĉi, buŝkoiti, fluti (Kp: franzi, sesdeknaŭi) nano (Neo)
 
 vira organo
 
-nato \(Neo\)
+nato (Neo)
 
 gluteo, sidvango
 
-necesejo \(GV\)
+necesejo (GV)
 
 ejo por feki kaj urini
 
-necesabo \(Neo\)
+necesabo (Neo)
 
 tie, kie oni sidas por feki, fekpelvo
 
-nekrofilio \(Sci\)
+nekrofilio (Sci)
 
 perversa emo al sekskuniĝo kun kadavroj
 
-nimfo \(Sci\)
+nimfo (Sci)
 
 vulva lipeto
 
 nimfomanio
 
-virina afrodizio \(Kp: satiriazo\)
+virina afrodizio (Kp: satiriazo)
 
-njo-knabo \(Jar\)
+njo-knabo (Jar)
 
 ineca virsamseksemulo
 
-notora \(Neo\)
+notora (Neo)
 
-konata \(kun aĉa nuanco\)
+konata (kun aĉa nuanco)
 
-nupto \(Neo\)
+nupto (Neo)
 
 geedziĝo, seksa pariĝo
 
-oaristo \(Neo\)
+oaristo (Neo)
 
 poemo de ama interparolo
 
-obscena \(GV\)
+obscena (GV)
 
 krude ofendanta la pudoron
 
-onani \(Sci, =>\)
+onani (Sci, =>)
 
 masturbi
 
-onanismo \(Sci\)
+onanismo (Sci)
 
 memerotismo
 
-organo \(Jar\)
+organo (Jar)
 
 seksorgano
 
-orgasmo \(GV\)
+orgasmo (GV)
 
-amvolupt-kulmino \(Kp: ĉuri\)
+amvolupt-kulmino (Kp: ĉuri)
 
-orgio \(GV\)
+orgio (GV)
 
 manĝa, drinka aŭ seksa diboĉo
 
-orifico \(Neo\)
+orifico (Neo)
 
 enira aŭ elira aperturo
 
-oskuli \(Neo, \*\)
+oskuli (Neo, *)
 
-kun\(kisi\)
+kun(kisi)
 
-ovo \(Jar\)
+ovo (Jar)
 
 testiko, kojono
 
-ovoido \(Sci\)
+ovoido (Sci)
 
-globoforma medikamentaĵo, enmetota en la vaginon \(Kp: supozitorio\) palpi \(Jar, =>\)
+globoforma medikamentaĵo, enmetota en la vaginon (Kp: supozitorio) palpi (Jar, =>)
 
 karesi per manoj
 
-pandaro \(Neo\)
+pandaro (Neo)
 
 homo, kiu aranĝas por aliaj sekretajn amaferojn
 
-pederasto \(Jar\)
+pederasto (Jar)
 
 pederastiulo
 
-pederastio \(GV\)
+pederastio (GV)
 
-1. seksinklino al junaj knaboj. 2. samseksamo \(malŝate\) pejorativa \(Neo\)
+1. seksinklino al junaj knaboj. 2. samseksamo (malŝate) pejorativa (Neo)
 
-havanta tendencon fiigi \(aŭ -iĝi\), aĉigi \(aŭ -iĝi\) peniso \(GV\)
+havanta tendencon fiigi (aŭ -iĝi), aĉigi (aŭ -iĝi) peniso (GV)
 
 vira seksorgano
 
-perineo \(Sci\)
+perineo (Sci)
 
-korpoparto inter la anuso kaj la skroto aŭ la vulvo perversio \(Sci\)
 
 devio de la seksa instinkto
 
-piĉo \(Jar\)
+piĉo (Jar)
 
 vulvo
 
@@ -744,121 +738,121 @@ piĉjo
 
 -> piĉo
 
-pinupulino \(Neo\)
+pinupulino (Neo)
 
 spice alloga belulino
 
-pipiĉeto \(Neo\)
+pipiĉeto (Neo)
 
 infana piĉo
 
-pipinjo \(Neo\)
+pipinjo (Neo)
 
-piĉo \(karese\)
+piĉo (karese)
 
-pisi \(GV, \*\)
+pisi (GV, *)
 
 urini
 
-poluo \(Neo\)
+poluo (Neo)
 
 polucio
 
-porna \(Jar\)
+porna (Jar)
 
 pornografia
 
-pornografia \(GV\) pritraktanta malĉastajn temojn
+pornografia (GV) pritraktanta malĉastajn temojn
 
-posedi \(Jar, =>\)
+posedi (Jar, =>)
 
 fiki, havi, koni
 
-pranci \(Neo, \*\)
+pranci (Neo, *)
 
-stariĝi \(pp kaco\)
+stariĝi (pp kaco)
 
-prepucio \(Sci\)
+prepucio (Sci)
 
 haŭto, falde ĉirkaŭanta la glanon
 
-Priapo \(Mit\)
+Priapo (Mit)
 
-greka dio de la fekundeco, prezentita kun grandega peniso priapismo \(Sci\)
+greka dio de la fekundeco, prezentita kun grandega peniso priapismo (Sci)
 
 forta kaj dolora penis-erektiĝo
 
-prostitui \(GV, =>\) vendi sekson
+prostitui (GV, =>) vendi sekson
 
 prostitucio
 
 -> prostituado
 
-pruda \(GV\)
+pruda (GV)
 
 ĉasta
 
-puo \(Neo\)
+puo (Neo)
 
-furzo \(vidu la soneton XXXII\)
+furzo (vidu la soneton XXXII)
 
-pubo \(GV\)
+pubo (GV)
 
 harkovrita parto de la ingveno
 
-pucelo \(Neo\)
+pucelo (Neo)
 
-\(juna\) virgulino
+(juna) virgulino
 
-pudendo \(Sci\)
+pudendo (Sci)
 
 korpoparto inter la pubo kaj la anuso
 
-pudoro \(GV\)
+pudoro (GV)
 
 kaŝemo de seksaj aferoj
 
-pugo \(Jar\)
+pugo (Jar)
 
 postaĵo
 
-puto \(Jar\)
+puto (Jar)
 
 viro, kiu sin prostituas; vira putino
 
-putino \(Jar\)
+putino (Jar)
 
 prostituitino, ĉiesulino
 
-rakahuto \(Neo\)
+rakahuto (Neo)
 
 speco de nutra fekulo
 
-retikulo \(Neo\)
+retikulo (Neo)
 
 skroto
 
-rufiano \(Neo\)
+rufiano (Neo)
 
 diboĉulo
 
-sadismo \(Jar\)
+sadismo (Jar)
 
 volupto el vidado aŭ farado de kruelaĵoj
 
-sadisto \(Jar\)
+sadisto (Jar)
 
 sadismulo
 
 sadomasoĥismo
 
-\(Jar\)kuvoluptado
+(Jar)kuvoluptado
 
 de sadisto kaj
 
 masoĥisto
 
-safismo \(Sci\)
+safismo (Sci)
 
 virina seksimpulso al alia virino
 
@@ -866,155 +860,155 @@ safismulino
 
 lesbo
 
-satiro \(Neo\)
+satiro (Neo)
 
 satiruso
 
-satririo \(Neo\)
+satririo (Neo)
 
 satiruso
 
-satiriazo \(Sci\)
+satiriazo (Sci)
 
-vira afrodizio \(Kp: nimfomanio\)
+vira afrodizio (Kp: nimfomanio)
 
-satiriozo \(Neo\)
+satiriozo (Neo)
 
 satiriazo
 
-satiruso \(Neo\)
+satiruso (Neo)
 
 homo cinike voluptama
 
-sekso \(GV\)
+sekso (GV)
 
 1. seksorgano. 2. seksumo
 
-seksumi \(Jar, \*\)
+seksumi (Jar, *)
 
 amori
 
-semo \(GV\)
+semo (GV)
 
 ĉuro
 
-sesdeknaŭi \(Jar, \*\) buŝa interlekado aŭ seĉado de la seksorganoj \(Kp: franzi, midzi\) sifilo \(Neo\)
+sesdeknaŭi (Jar, *) buŝa interlekado aŭ seĉado de la seksorganoj (Kp: franzi, midzi) sifilo (Neo)
 
 sifiliso
 
-sifiliso \(Sci\)
+sifiliso (Sci)
 
 kontaĝa venusa malsano
 
-sino \(GV\)
+sino (GV)
 
 oportuna korpoparto por sursidi
 
-skopofilio \(Sci\)
+skopofilio (Sci)
 
-anstataŭigado de seksaj rilatoj per ilia rigardado \(Kp: vuajerismo\) skoptofilio
+anstataŭigado de seksaj rilatoj per ilia rigardado (Kp: vuajerismo) skoptofilio
 
 -> skopofilio
 
-skroto \(Sci\)
+skroto (Sci)
 
 kojonujo
 
-sodomismo \(GV\) sodomio
+sodomismo (GV) sodomio
 
-sodomio \(GV\)
+sodomio (GV)
 
 vira sekimpulso al alia viro
 
-sodomii \(GV, \*\)
+sodomii (GV, *)
 
 bugri
 
-spermo \(GV\)
+spermo (GV)
 
 virlakto, ĉuro
 
-spozo \(Neo\)
+spozo (Neo)
 
 viro edziĝonta aŭ ĵus edziĝinta
 
-sterko \(GV\)
+sterko (GV)
 
-brutaj ekskrementoj, miksitaj kun pajlo por plibonigi la grundon stimuli \(GV, =>\)
+brutaj ekskrementoj, miksitaj kun pajlo por plibonigi la grundon stimuli (GV, =>)
 
 plivigligi la funkciadon de korpa organo
 
-stupro \(Neo\)
+stupro (Neo)
 
-malvirgigo \(Kp: deflori\)
+malvirgigo (Kp: deflori)
 
-suĉi \(Jar, =>\)
+suĉi (Jar, =>)
 
-suĉi ies penison, midzi \(Kp: franzi\)
+suĉi ies penison, midzi (Kp: franzi)
 
-suĉumi \(=>\)
+suĉumi (=>)
 
 suĉi
 
-suko \(Jar\)
+suko (Jar)
 
 fluidaĵo el vagino
 
-sukubo \(Mit\)
+sukubo (Mit)
 
-diablo, kiu alprenis formon de virino por kuniĝi kun viro supozitorio \(Sci\)
+diablo, kiu alprenis formon de virino por kuniĝi kun viro supozitorio (Sci)
 
-medikamentaĵo, metata en la anuson por faciligi la defekon ŝaperono \(Neo\)
+medikamentaĵo, metata en la anuson por faciligi la defekon ŝaperono (Neo)
 
-akompananto de gejunuloj por certigi ĉastan konduton tabuo \(GV\)
+akompananto de gejunuloj por certigi ĉastan konduton tabuo (GV)
 
 moro, laŭ kiu iuj aferoj estas nefareblaj
 
-testiko \(Sci\)
+testiko (Sci)
 
 ĉurovo
 
-tremp\(ad\)i \(GV, 
+tremp(ad)i (GV,
 
-\(longatempe aŭ ripete\) malsekigi en likvaĵo
+(longatempe aŭ ripete) malsekigi en likvaĵo
 
-=>\)
+=>)
 
-trepidi \(GV, \*\)
+trepidi (GV, *)
 
 tremi laŭ etaj skuoj
 
-tohuvabohuo \(Neo\) ĥaosa malordo, kiel en la Esperanta vortaro tribadismo \(Sci\)
+tohuvabohuo (Neo) ĥaosa malordo, kiel en la Esperanta vortaro tribadismo (Sci)
 
 safismo
 
-uk \(Neo\)
+uk (Neo)
 
 sufikso por kastrita besto
 
-urino \(GV\)
+urino (GV)
 
 pisaĵo
 
-uroĉo \(Neo\)
+uroĉo (Neo)
 
 virina mamo konsiderata kiel bela objekto
 
-uŝi \(Neo, =>\)
+uŝi (Neo, =>)
 
 orelfiki
 
-vagino \(Sci\)
+vagino (Sci)
 
 kanalo inter la utero kaj la vulvo
 
-vampo \(Neo\)
+vampo (Neo)
 
 seksalloga virino, kiu ekspluatas la virojn
 
-venera \(Sci\)
+venera (Sci)
 
-venusa \(pri malsanoj\)
+venusa (pri malsanoj)
 
 venerea
 
@@ -1022,51 +1016,51 @@ venerea
 
 venusa malsano
 
-\(GV\)malsano sekse
+(GV)malsano sekse
 
 transdonebla
 
-violenti \(Neo, =>\) perforti, seksatenci
+violenti (Neo, =>) perforti, seksatenci
 
-virga \(GV\)
+virga (GV)
 
-ankoraŭ ne fiki\(n\)ta, ne stuprita
+ankoraŭ ne fiki(n)ta, ne stuprita
 
-volupto \(Sci\)
+volupto (Sci)
 
 seksardo
 
-vuajerismo \(Jar\)
+vuajerismo (Jar)
 
 skopofilio
 
-vukro \(Jar\)
+vukro (Jar)
 
 merdo
 
-vulvo \(Sci\)
+vulvo (Sci)
 
 virina seksorgano
 
-zigoto \(Sci\)
+zigoto (Sci)
 
 fekundigita ovocelo en la utero
 
-zizinjo \(Neo\)
+zizinjo (Neo)
 
-kaco \(karese\)
+kaco (karese)
 
-zoofilio \(Sci\)
+zoofilio (Sci)
 
 seksimpulso al bestoj
 
 **Sinonimoj kaj metaforoj**
 
-FIKI: altrui, ascendi, ĉur\(um\)i, geagadi, gedormi, gekuŝi, halebardi, kacumi, kopuli, \(fi-\) petoli, piĉumi, plugi, rajdi, ŝraŭbi, truŝtopi, umi, fiumi, geumi, gebani, geduŝi, gesidi, gestari, getabli ktp. 
+FIKI: altrui, ascendi, ĉur(um)i, geagadi, gedormi, gekuŝi, halebardi, kacumi, kopuli, (fi-) petoli, piĉumi, plugi, rajdi, ŝraŭbi, truŝtopi, umi, fiumi, geumi, gebani, geduŝi, gesidi, gestari, getabli ktp.
 
-KACO: amkompaso, amorilo, aspergilo, banano, bastono, borilo, bormaŝino, bubo, ĉjo-ilo, dusilabo, fadeno \(nerigida\), fikilo, firsto, fluto, fosto, fripono, generilo, glavo, gnomo, idigilo, ilo, infano mia, interkruraĵo, kapsiko, karna osto, karoto, kejlo, klabo, knabo mia, kojno, kolbaso, kolono, koro, kreskanto, kreskant-en-mano, kreskant-en-amo, kukumo, kukurbo, lanco, lingamo, lorno, maĉeto, malgranda frato mia, malpiĉo, masto, meĉo, meza genuo, midzumino, najlo, paliso, pendaĵo, periskopo, pipo, pisilo, pistolo, piŝto, pivoto, pord-fosto, priapo, puba histo, revolvero, sabro, sceptro, serpento, stalagmito \(rigida\), stalaktito \(nerigida\), stango, stulta kapo stumpo, suĉumino, ŝtipo, ŝtopilo, pranca ŝvelo, tenilo, timono, torpedo, trabo, tria kruro, tubo, vergo, vira plio, vira vosto, viraĵo, virilo, vosto, 11-a fingro 
+KACO: amkompaso, amorilo, aspergilo, banano, bastono, borilo, bormaŝino, bubo, ĉjo-ilo, dusilabo, fadeno (nerigida), fikilo, firsto, fluto, fosto, fripono, generilo, glavo, gnomo, idigilo, ilo, infano mia, interkruraĵo, kapsiko, karna osto, karoto, kejlo, klabo, knabo mia, kojno, kolbaso, kolono, koro, kreskanto, kreskant-en-mano, kreskant-en-amo, kukumo, kukurbo, lanco, lingamo, lorno, maĉeto, malgranda frato mia, malpiĉo, masto, meĉo, meza genuo, midzumino, najlo, paliso, pendaĵo, periskopo, pipo, pisilo, pistolo, piŝto, pivoto, pord-fosto, priapo, puba histo, revolvero, sabro, sceptro, serpento, stalagmito (rigida), stalaktito (nerigida), stango, stulta kapo stumpo, suĉumino, ŝtipo, ŝtopilo, pranca ŝvelo, tenilo, timono, torpedo, trabo, tria kruro, tubo, vergo, vira plio, vira vosto, viraĵo, virilo, vosto, 11-a fingro
 
-MASTURBI: fingrumi, kontentigi sin, permani, melki, tubsvingi PIĈO: amputo, buduaro, fendo, fendita bulko, groto, et-groto, inejo, ingo, interkruraĵo, malkaco, kanalo, karna valo, kaverno, nesto, ringo, amringeto, tiglo, truo, truino, ĉielvestiblo, plej sekreta Centro, malsupra pordo 
+MASTURBI: fingrumi, kontentigi sin, permani, melki, tubsvingi PIĈO: amputo, buduaro, fendo, fendita bulko, groto, et-groto, inejo, ingo, interkruraĵo, malkaco, kanalo, karna valo, kaverno, nesto, ringo, amringeto, tiglo, truo, truino, ĉielvestiblo, plej sekreta Centro, malsupra pordo
 
 PROSTITUITO: amdonisto, amorvendisto, malĉastulo, ĉiesulo, fikisto, plezursinjoro, plezurdonisto, publikulo, stratulo, sinvendisto
 
@@ -1084,7 +1078,7 @@ envagoniĝi / envaginiĝi
 
 faka / feka / fika
 
-ge- / gej- \(gesinjoroj / gejsinjoroj\)
+ge- / gej- (gesinjoroj / gejsinjoroj)
 
 giĉeto / piĉeto
 
@@ -1160,59 +1154,59 @@ menstruo / mens-truo
 
 perversa / per-versa
 
-trafiko / tra-fiko 
+trafiko / tra-fiko
 
 **Esprimoj kaj sakroj**
 
-Akvo pura - kaco dura. 
+Akvo pura - kaco dura.
 
-Aktoj de la Akademio\! 
+Aktoj de la Akademio!
 
-Ĉie paco, krom en la kaco. 
+Ĉie paco, krom en la kaco.
 
-Damnita sterko\! 
+Damnita sterko!
 
-Diofeka furzo\! 
+Diofeka furzo!
 
-Ek al fek\! 
+Ek al fek!
 
-Fak-delegito \(evite por fekaĵo\)
+Fak-delegito (evite por fekaĵo)
 
-Fikfek\! 
+Fikfek!
 
-Fundamenta Krestomatio\! 
+Fundamenta Krestomatio!
 
-Kacĵo \(stulta ago\)
+Kacĵo (stulta ago)
 
-Kace \(malbone\)
+Kace (malbone)
 
-Kojon-hava \(kuraĝa, lerta, kapabla\)
+Kojon-hava (kuraĝa, lerta, kapabla)
 
-Malligi la zonon de virgulino \(senvirgigi\)
+Malligi la zonon de virgulino (senvirgigi)
 
-Matene ludas tenison, vespere - penison. 
+Matene ludas tenison, vespere - penison.
 
-Merdo\! 
+Merdo!
 
-Navigi per vaporo aŭ velo \(esti biseksa\)
+Navigi per vaporo aŭ velo (esti biseksa)
 
-Putina madono\! 
+Putina madono!
 
-Sankta putinido\! 
+Sankta putinido!
 
-Senkacula mondo\! 
+Senkacula mondo!
 
-Sterkejo \(malbelaĉa loko\)
+Sterkejo (malbelaĉa loko)
 
-Triagrada \(insulta adjektivo pro malalta nivelo de io aŭ iu\) **Insultoj**
+Triagrada (insulta adjektivo pro malalta nivelo de io aŭ iu) **Insultoj**
 
-Azeno bugru vin\! 
+Azeno bugru vin!
 
 Animo de eluzita ĉiesulino
 
-Estu fikota\! 
+Estu fikota!
 
-Etingulino \(prudulino\)
+Etingulino (prudulino)
 
 Falokrato
 
@@ -1226,7 +1220,7 @@ Fekulo
 
 Fik-klaŭno
 
-Fridpisulo \(impotentulo, frigidulo\)
+Fridpisulo (impotentulo, frigidulo)
 
 Furzulo
 
@@ -1236,7 +1230,7 @@ Fuŝnaskito
 
 Kac-suĉulo
 
-Kojon-rompanto \(ĝeniulo\)
+Kojon-rompanto (ĝeniulo)
 
 Masturbemulo
 
@@ -1244,7 +1238,7 @@ Merdulo
 
 Midzanto
 
-Muŝ-bugrulo \(pedantulo aŭ prudulo\)
+Muŝ-bugrulo (pedantulo aŭ prudulo)
 
 Patrin-bugristo
 
@@ -1260,43 +1254,43 @@ Pug-fikita
 
 Pug-lekanto
 
-Pug-mieno \(malsimpatiulo\)
+Pug-mieno (malsimpatiulo)
 
 Putinido
 
-Senkojonulo \(malkapablulo\)
+Senkojonulo (malkapablulo)
 
-Senkaculo \(malkapablulo\)
+Senkaculo (malkapablulo)
 
 Sodomiisto
 
-Volapugisto 
+Volapugisto
 
 **Invitaĉoj foriri**
 
-Bugren\! 
+Bugren!
 
-Feken\! 
+Feken!
 
-Forfiku\! 
+Forfiku!
 
-Forfikiĝu\! 
+Forfikiĝu!
 
-Forfurzu\! 
+Forfurzu!
 
-Forpisu\! 
+Forpisu!
 
-Iru feki\! 
+Iru feki!
 
-Iru fiki\! 
+Iru fiki!
 
-Iru nombri viajn kojonojn\! 
+Iru nombri viajn kojonojn!
 
-Kacen\! 
+Kacen!
 
-Piĉen\! 
+Piĉen!
 
-Putru for\! 
+Putru for!
 
 **Mal-esprimoj**
 
@@ -1336,181 +1330,181 @@ pugo
 
 **XXXV**
 
-Por la unua dolĉa foj': deflori, 
+Por la unua dolĉa foĵ: deflori,
 
 kaj poste: nupti, karnon miksi, trui
 
-seksumi, kaj koiti, kaj geĝui, 
+seksumi, kaj koiti, kaj geĝui,
 
-kopuli, kohabiti kaj amori. 
+kopuli, kohabiti kaj amori.
 
-Enpafi, ŝtopi, vosti, grotesplori, 
+Enpafi, ŝtopi, vosti, grotesplori,
 
-palisi kaj bambui kaj geglui, 
+palisi kaj bambui kaj geglui,
 
-kunkuŝi, kaj interne intervjui, 
+kunkuŝi, kaj interne intervjui,
 
-bombardi sube, mini, lanci, bori. 
+bombardi sube, mini, lanci, bori.
 
-Kaj broson brosi, glavon karnan ingi, 
+Kaj broson brosi, glavon karnan ingi,
 
-buteron kirli, sondi, piŝti, piki, 
+buteron kirli, sondi, piŝti, piki,
 
-kamenbalai, inan ingon klingi, 
+kamenbalai, inan ingon klingi,
 
-surpingli, karnon planti, truon fliki, 
+surpingli, karnon planti, truon fliki,
 
-la brulon per la akvotru' estingi, 
+la brulon per la akvotrŭ estingi,
 
-tranajli, spili, ŝarĝi, farĉi, fiki. 
+tranajli, spili, ŝarĝi, farĉi, fiki.
 
-\(Peter Peneter, Sekretaj sonetoj\) 
+(Peter Peneter, Sekretaj sonetoj)
 
 **XXXII**
 
-Okazis foje al vi, mia Kara, 
+Okazis foje al vi, mia Kara,
 
-ke ĉe l'kulmina punkto de l' plezur' 
+ke ĉe l'kulmina punkto de l' plezur'
 
-eksplodo eta sonis kun murmur', 
+eksplodo eta sonis kun murmur',
 
-aŭdebla ankaŭ per la senso flara. 
+aŭdebla ankaŭ per la senso flara.
 
-Necesas por ĉi son' familiara, 
+Necesas por ĉi son' familiara,
 
-sonanta jen en molo, jen en dur', 
+sonanta jen en molo, jen en dur',
 
 agrabla vorto, ĉar ekzistas nur
 
-la "furzo", sed ĝi estas tro vulgara. 
+la "furzo", sed ĝi estas tro vulgara.
 
-Eĉ se koleros la Akademi', 
+Eĉ se koleros la Akademi',
 
-mi kreos novan vorton por ĉi-bruo, 
+mi kreos novan vorton por ĉi-bruo,
 
-kaj, ĉar ne estas ĝi soprana kri', 
+kaj, ĉar ne estas ĝi soprana kri',
 
-sed bariton', aŭ bas', laŭ la menuo, 
+sed bariton', aŭ baŝ, laŭ la menuo,
 
 mi onomatopee baptos ĝin
 
-facile, lude kaj petole: puo. 
+facile, lude kaj petole: puo.
 
-\(Peter Peneter, Sekretaj sonetoj\) 
+(Peter Peneter, Sekretaj sonetoj)
 
 **Tradicia skolta kanto**
 
-En Kerimjur' okazis bal' 
+En Kerimjur' okazis bal'
 
-La bal' de Kerimjur', 
+La bal' de Kerimjur',
 
 Kaj venis el la tuta lando
 
-Damoj de plezur'. 
+Damoj de plezur'.
 
-Ho, kiu faros tuje. 
+Ho, kiu faros tuje.
 
-Kiu faris jam? 
+Kiu faris jam?
 
-Kaj se vi jam ĝin faris, 
+Kaj se vi jam ĝin faris,
 
-Logas vin la sam'. 
+Logas vin la sam'.
 
 Dudek virgulinoj
 
-Alvenis laŭ konven' 
+Alvenis laŭ konven'
 
 Kaj post la balfiniĝo jam
 
-Foriris sen himen'. 
+Foriris sen himen'.
 
-Ĉeestis pastredzino, 
+Ĉeestis pastredzino,
 
-Kaj multaj laŭ bontrov' 
+Kaj multaj laŭ bontrov'
 
 Fikadis ŝin deposte laŭ
 
-Kutimo de virbov'. 
+Kutimo de virbov'.
 
-La ĉeestanta bienul' 
+La ĉeestanta bienul'
 
-Ekploris pro ĉagren', 
+Ekploris pro ĉagren',
 
-Ĉar en la kampoj pro l' fikad' 
+Ĉar en la kampoj pro l' fikad'
 
-Platiĝis lia gren'. 
+Platiĝis lia gren'.
 
-Fikado en la fojno, 
+Fikado en la fojno,
 
-Fikado sur matrac' - 
+Fikado sur matraĉ -
 
-Muziko ne aŭdeblis pro l' 
+Muziko ne aŭdeblis pro l'
 
-Siblado de la kac'. 
+Siblado de la kaĉ.
 
-Fikado per la lango, 
+Fikado per la lango,
 
-Fikado per la naz' - 
+Fikado per la naz' -
 
 Muziko ne aŭdeblis pro
 
-La ĝemoj de l' ekstaz'. 
+La ĝemoj de l' ekstaz'.
 
-Timante sifilison, 
+Timante sifilison,
 
-Poŝtist' por sia ĝu' 
+Poŝtist' por sia ĝŭ
 
 Preferis sin masturbi per
 
-La porda letertru'. 
+La porda letertrŭ.
 
 Kojonojn el latuno
 
-Akiris la eŭnuk'. 
+Akiris la eŭnuk'.
 
 Sed kiam ajn li furzis, li
 
-Fajreris ĉe la pug'. 
+Fajreris ĉe la puĝ.
 
-Gimnastino venis, 
+Gimnastino venis,
 
-Salutis ŝin aklam' 
+Salutis ŝin aklam'
 
 Ŝi supren-suben saltis sur
 
-Risorto de la mam'. 
+Risorto de la mam'.
 
 La instruistedzino
 
-Sidas en feliĉ' 
+Sidas en feliĉ'
 
-Kun rozgirlando sur la kap', 
+Kun rozgirlando sur la kap',
 
-Karoto en la piĉ'. 
+Karoto en la piĉ'.
 
-Lamul' ne povas fiki, 
+Lamul' ne povas fiki,
 
-Sed lerte la fripon' 
+Sed lerte la fripon'
 
-Servadis al la knabinar' 
+Servadis al la knabinar'
 
-Per pinto de l' baston'. 
+Per pinto de l' baston'.
 
 Edzino al la edzo
 
-Klarigis ĵus kaj plus, 
+Klarigis ĵus kaj plus,
 
 Ke al l' uter' kondukas la
 
-Vagino, ne l' anus'. 
+Vagino, ne l' anuŝ.
 
 Plej malĝentilis Toĉjo:
 
-Post kvardekfoja fik' 
+Post kvardekfoja fik'
 
 Dam' hejmeniris sola, dum
 
-Li iris kun amik'. 
+Li iris kun amik'.
 
 Kaj post la balfiniĝo
 
@@ -1518,45 +1512,42 @@ Jen laŭdoj en kaskad':
 
 Bonegis la muziko, sed
 
-Plibonis la fikad'\! 
+Plibonis la fikad'!
 
-\(tradukis W. Auld, La Kancerkliniko\) 
+(tradukis W. Auld, La Kancerkliniko)
 
-**\*\*\***
 
 Ĉu ci ĉurumi celas
 
-kun mi, la mildul'? 
+kun mi, la mildul'?
 
 Ĉu ci pensas:
 
-"ludilul' li estas?" 
+"ludilul' li estas?"
 
-Ĉu? - iru fikfeki aliul' 
+Ĉu? - iru fikfeki aliul'
 
-Fi\!\(A.T., Kata Luno\) 
+Fi!(A.T., Kata Luno)
 
-**\*\*\***
 
-Ho mia kac', stariĝu maltrankvile, 
+Ho mia kaĉ, stariĝu maltrankvile,
 
-el pantalono vi eliru for\! 
+el pantalono vi eliru for!
 
-Jam teni vin ne povas mi facile - 
+Jam teni vin ne povas mi facile -
 
-ekscitas vin la kor'\! 
+ekscitas vin la kor'!
 
-Ho mia kac'\! Post longa koitado
+Ho mia kaĉ! Post longa koitado
 
-ne lasu min en la decida hor'\! 
+ne lasu min en la decida hor'!
 
-Ne ĉesu\! Daŭrigu ĝojigadon
+Ne ĉesu! Daŭrigu ĝojigadon
 
-de la virina kor'\! 
+de la virina kor'!
 
-\(K.V., Kata Luno\) 
+(K.V., Kata Luno)
 
-**\*\*\***
 
 Mi ĉiam rigardas kaj miras
 
@@ -1566,7 +1557,7 @@ La serĉ' de l' plezuro
 
 Ne estas teruro
 
-De mi ĉiu sens' vin deziras 
+De mi ĉiu senŝ vin deziras
 
 Novparo fikadu sen laco
 
@@ -1576,17 +1567,17 @@ Signalas feliĉon
 
 Deziru li piĉon
 
-Ne miru virino ĉe l' kaco 
+Ne miru virino ĉe l' kaco
 
 Ne revu vi edz' pri fidelo
 
-Ne drinku sen ĉes' el botelo
+Ne drinku sen ĉeŝ el botelo
 
 Nur ĉastas malbelo
 
 Ŝin gardu en ĉelo
 
-Aŭ plu ebriiĝu en kelo 
+Aŭ plu ebriiĝu en kelo
 
 Pasadis semajn' sen amoro
 
@@ -1596,7 +1587,7 @@ Ne plu via koro
 
 Ne plu bela floro
 
-Plenigu vin mia likvoro 
+Plenigu vin mia likvoro
 
 Kokin' edziniĝas al koko
 
@@ -1606,7 +1597,7 @@ Aperas tuj ido
 
 Subskrib' de l' perfido
 
-Edz' kokru, ne iru kun froko 
+Edz' kokru, ne iru kun froko
 
 Bebeto manĝadas de l' mamo
 
@@ -1618,5 +1609,4 @@ Plu patro ne legas
 
 Li ankaŭ suĉemas de l' damo
 
-\(H.A.F., Kata Luno\)
-
+(H.A.F., Kata Luno)

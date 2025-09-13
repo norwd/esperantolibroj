@@ -1,13 +1,3 @@
-% Esperanta proverbaro
-% L. L. Zamenhof
-
-ESPERANTA PROVERBARO
-
-
-eLIBRO
-
-eLIBRO
-
 L. L. Zamenhof
 
 Esperanta
@@ -15,6092 +5,5808 @@ Esperanta
 proverbaro
 
 
-
-## I N K O
-
 ### 1
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
 L. L. Zamenhof
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Aranĝis: Franko Luin
+@omnibus.se
 
-ISBN 91-7303-131-3
-
-inko@omnibus.se
-
-http://www.omnibus.se/inko
-
-OKTOBRO 2001
-
-2
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
 a
 
-Abelujon ne incitu, amason ne spitu. 
+Abelujon ne incitu, amason ne spitu.
 
-Afabla vorto pli atingas ol forto. 
+Afabla vorto pli atingas ol forto.
 
-Agrabla estas gasto, se ne longe li restas. 
+Agrabla estas gasto, se ne longe li restas.
 
-Aĝo maljuna ne estas oportuna. 
+Aĝo maljuna ne estas oportuna.
 
-Aĝo tro matura ne estas plezura. 
+Aĝo tro matura ne estas plezura.
 
-Akiro kaj perdo rajdas duope. 
+Akiro kaj perdo rajdas duope.
 
-Akvo bolas, murmuras, sed fine ĝi kuras. 
+Akvo bolas, murmuras, sed fine ĝi kuras.
 
-Akvo kaj pano servas al sano. 
+Akvo kaj pano servas al sano.
 
-Akvo kura — akvo pura. 
+Akvo kura — akvo pura.
 
-Akvo silenta subfosas la bordon. 
+Akvo silenta subfosas la bordon.
 
-Akvo trankvila estas akvo danĝera. 
+Akvo trankvila estas akvo danĝera.
 
-Akvon senmovan kovras putraĵo. 
+Akvon senmovan kovras putraĵo.
 
-Al amiko nova ne fidu sen provo. 
+Al amiko nova ne fidu sen provo.
 
-Al bona ĉasisto iras mem la besto. 
+Al bona ĉasisto iras mem la besto.
 
-Al ĉevalo donacita oni buŝon ne esploras. 
+Al ĉevalo donacita oni buŝon ne esploras.
 
-Al ĉiu besto plaĉas ĝia nesto. 
+Al ĉiu besto plaĉas ĝia nesto.
 
-Al ĉiu frato lian parton. 
+Al ĉiu frato lian parton.
 
-Al ĉiu konvenas, kio al li apartenas. 
+Al ĉiu konvenas, kio al li apartenas.
 
-Al ĉiu sanktulo apartan kandelon. 
+Al ĉiu sanktulo apartan kandelon.
 
-3
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Al ĉiu sia propra estas ĉarma kaj kara. 
-
-Al ĉiu sinjoro estu lia honoro. 
-
-Al Dio plaĉu, sed sur diablon ne kraĉu. 
-
-Al Dio servu, diablon rezervu. 
-
-Al du sinjoroj samtempe oni servi ne povas. 
-
-Al farun’ malbonspeca ne helpos la spico. 
-
-Al feliĉulo eĉ koko donas ovojn. 
-
-Al fiŝ’ kuirita jam akvo ne helpos. 
-
-Al glacio printempa kaj al amiko tro nova ne fidu. 
-
-Al grandaj sinjoroj grandaj honoroj. 
-
-Al hundo bastono — al hom’ leciono. 
-
-Al kavo senfunda ŝtopado ne helpas. 
-
-Al kokino la ovo lecionojn ne donu. 
-
-Al koro penetro per okula fenestro. 
-
-Al kuko kaj kaso ĉiam venas amaso. 
-
-Al la afero\! 
-
-Al la buŝo de ”oni” neniu povas ordoni. 
-
-Al la fiŝo ne instruu naĝarton. 
-
-Al la malamik’ en kuro faru ponton kun plezuro. 
-
-Al la papero ne mankas tolero. 
-
-Al li ne mankas defendo kontraŭ ofendo. 
-
-Al loko dolora ni manon etendas — al loko ĉarma okulojn ni sendas. 
-
-4
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Al malriĉulo infanoj ne mankas. 
+Al ĉiu sia propra estas ĉarma kaj kara.
 
-Al malriĉulo ovo kiel al riĉulo bovo. 
+Al ĉiu sinjoro estu lia honoro.
 
-Al malsaĝulo ne helpas admono, nur bastono. 
+Al Dio plaĉu, sed sur diablon ne kraĉu.
 
-Al mono kaj forto humiliĝas la sorto. 
+Al Dio servu, diablon rezervu.
 
-Al peĉ pecon algluas, kiu neston konstruas. 
+Al du sinjoroj samtempe oni servi ne povas.
 
-Al porko Dio kornojn ne donas. 
+Al farun’ malbonspeca ne helpos la spico.
 
-Al posedanto de metio mankas nenio. 
+Al feliĉulo eĉ koko donas ovojn.
 
-Al promeso oni ne kredas — kredu, kiu posedas. 
+Al fiŝ’ kuirita jam akvo ne helpos.
 
-Al protekto kaj forto helpas la sorto. 
+Al glacio printempa kaj al amiko tro nova ne fidu.
 
-Al sklavo mon’ ne estas savo, li ĉiam restas sklavo. 
+Al grandaj sinjoroj grandaj honoroj.
 
-Al tiu ĉio cedas, kiu monon posedas. 
+Al hundo bastono — al hom’ leciono.
 
-Al venko rajto venas, se ĝin forto subtenas. 
+Al kavo senfunda ŝtopado ne helpas.
 
-Al vi ne plaĉis sitelo, laboru per martelo. 
+Al kokino la ovo lecionojn ne donu.
 
-Al vi oni predikas kaj nin oni pikas. 
+Al koro penetro per okula fenestro.
 
-Alia tempo, aliaj moroj. 
+Al kuko kaj kaso ĉiam venas amaso.
 
-Alia urbo, alia moro. 
+Al la afero!
 
-Aliaj tempoj, aliaj moroj. 
+Al la buŝo de ”oni” neniu povas ordoni.
 
-Aliajn gvidas kaj mem ne vidas. 
+Al la fiŝo ne instruu naĝarton.
 
-Alian ne mallaŭdu, vin mem ne aplaŭdu. 
+Al la malamik’ en kuro faru ponton kun plezuro.
 
-Aliloka ĉielo estas sama ĉielo. 
+Al la papero ne mankas tolero.
 
-Almozoj ne malriĉigas. 
+Al li ne mankas defendo kontraŭ ofendo.
 
-Almozpetanto sinĝena restas kun sako malplena. 
+Al loko dolora ni manon etendas — al loko ĉarma okulojn ni sendas.
 
-Alpremi iun al la muro. 
-
-5
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Altan arbon batas la fulmo. 
+Al malriĉulo infanoj ne mankas.
 
-Amaso da fianĉoj, sed la ĝusta ne venas. 
+Al malriĉulo ovo kiel al riĉulo bovo.
 
-Amaso da mono kaj titolo de barono. 
+Al malsaĝulo ne helpas admono, nur bastono.
 
-Ambaŭ floroj de samaj valoroj. 
+Al mono kaj forto humiliĝas la sorto.
 
-Ameno diablon ne forpelas. 
+Al peĉ pecon algluas, kiu neston konstruas.
 
-Amikeco aparte, ofico aparte. 
+Al porko Dio kornojn ne donas.
 
-Amiko de amiko estas ankaŭ amiko. 
+Al posedanto de metio mankas nenio.
 
-Amiko en ĝojo kaj malĝojo. 
+Al promeso oni ne kredas — kredu, kiu posedas.
 
-Amiko en ĝojo kaj ploro. 
+Al protekto kaj forto helpas la sorto.
 
-Amiko estas kara, sed mi mem estas pli kara. 
+Al sklavo mon’ ne estas savo, li ĉiam restas sklavo.
 
-Amiko estas kara, sed vero pli kara. 
+Al tiu ĉio cedas, kiu monon posedas.
 
-Amiko fidela estas trezoro plej bela. 
+Al venko rajto venas, se ĝin forto subtenas.
 
-Amiko — intimulo. 
+Al vi ne plaĉis sitelo, laboru per martelo.
 
-Amikon karesu, sed kalkuli ne forgesu. 
+Al vi oni predikas kaj nin oni pikas.
 
-Amikon montras malfeliĉo. 
+Alia tempo, aliaj moroj.
 
-Amikon ŝatu, malamikon ne batu. 
+Alia urbo, alia moro.
 
-Amo estas forta, sed mono pli forta. 
+Aliaj tempoj, aliaj moroj.
 
-Amo faras ion, mono ĉion. 
+Aliajn gvidas kaj mem ne vidas.
 
-Amo kaj ĵaluzo estas gefratoj. 
+Alian ne mallaŭdu, vin mem ne aplaŭdu.
 
-Amo kaj puno loĝas komune. 
+Aliloka ĉielo estas sama ĉielo.
 
-Amo pli kora, disiĝo pli dolora. 
+Almozoj ne malriĉigas.
 
-Amo supermezura ne estas plezura. 
+Almozpetanto sinĝena restas kun sako malplena.
 
-Amu Antonon, sed gardu vian monon. 
+Alpremi iun al la muro.
 
-6
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Amu domon novan kaj amikon malnovan. 
+Altan arbon batas la fulmo.
 
-Amu edzinon plej kore, sed tenu ĝin bonmore. 
+Amaso da fianĉoj, sed la ĝusta ne venas.
 
-Animo al paradizo deziras, sed pekoj retiras. 
+Amaso da mono kaj titolo de barono.
 
-Ankaŭ al ni la suno eklumos. 
+Ambaŭ floroj de samaj valoroj.
 
-Ankaŭ al nia nesto venos iam la festo. 
+Ameno diablon ne forpelas.
 
-Ankaŭ diablo tondron suferos. 
+Amikeco aparte, ofico aparte.
 
-Ankaŭ la lupon atingos la sorto. 
+Amiko de amiko estas ankaŭ amiko.
 
-Ankaŭ por diablo tondro ekzistas. 
+Amiko en ĝojo kaj malĝojo.
 
-Ankoraŭ Dio ne dormas. 
+Amiko en ĝojo kaj ploro.
 
-Ankoraŭ la ezoko ne estas sur la hoko. 
+Amiko estas kara, sed mi mem estas pli kara.
 
-Ankoraŭ la gajno ne estas en la mano. 
+Amiko estas kara, sed vero pli kara.
 
-Ankoraŭ multe vi kuros, ĝis vi alkuros. 
+Amiko fidela estas trezoro plej bela.
 
-Ankoraŭ neniu evitis la sorton. 
+Amiko — intimulo.
 
-Ankoraŭ neniu plaĉis al ĉiu. 
+Amikon karesu, sed kalkuli ne forgesu.
 
-Antaŭ ĉio zorgu oficon — plezuro atendos sian vicon. 
+Amikon montras malfeliĉo.
 
-Antaŭe intencu kaj poste komencu. 
+Amikon ŝatu, malamikon ne batu.
 
-Antaŭe kion vi devas, poste kion vi volas. 
+Amo estas forta, sed mono pli forta.
 
-Antaŭ la lango laboru la cerbo. 
+Amo faras ion, mono ĉion.
 
-Antaŭ mortigo de urso ne vendu ĝian felon. 
+Amo kaj ĵaluzo estas gefratoj.
 
-Antaŭ okuloj ne staras, doloron ne faras. 
+Amo kaj puno loĝas komune.
 
-Antaŭparolo liberigas de postparolo. 
+Amo pli kora, disiĝo pli dolora.
 
-Antaŭ tima okulo potenciĝas eĉ kulo. 
+Amo supermezura ne estas plezura.
 
-Antaŭ vespero ne estu fiera. 
+Amu Antonon, sed gardu vian monon.
 
-7
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Aperas prudento, kiam pasis la momento. 
+Amu domon novan kaj amikon malnovan.
 
-Aprila vetero — trompa aero. 
+Amu edzinon plej kore, sed tenu ĝin bonmore.
 
-Apud plena manĝotablo ĉiu estas tre afabla. 
+Animo al paradizo deziras, sed pekoj retiras.
 
-Apud propra domo ŝtelisto ne ŝtelas. 
+Ankaŭ al ni la suno eklumos.
 
-Aranĝite, ordigite. 
+Ankaŭ al nia nesto venos iam la festo.
 
-Arbaro aŭdas, kampo vidas. 
+Ankaŭ diablo tondron suferos.
 
-Arbo krakanta venton ne timas. 
+Ankaŭ la lupon atingos la sorto.
 
-Atakis lin horo malsaĝa. 
+Ankaŭ por diablo tondro ekzistas.
 
-Atakis teruro, ektremis la kruro. 
+Ankoraŭ Dio ne dormas.
 
-Atendi bonan veteron kaj laman kurieron. 
+Ankoraŭ la ezoko ne estas sur la hoko.
 
-Atendi sur tero, ĝis sekiĝos la rivero. 
+Ankoraŭ la gajno ne estas en la mano.
 
-Atendis, atendis, ĝis lin ĉerko etendis. 
+Ankoraŭ multe vi kuros, ĝis vi alkuros.
 
-Atendis, meditis, ĝis en tombon englitis. 
+Ankoraŭ neniu evitis la sorton.
 
-Atendu min antaŭ la domo de mia pranepo. 
+Ankoraŭ neniu plaĉis al ĉiu.
 
-Atesto de matureco. 
+Antaŭ ĉio zorgu oficon — plezuro atendos sian vicon.
 
-Atingi la vesperon de sia vivo. 
+Antaŭe intencu kaj poste komencu.
 
-Aŭ ĉio, aŭ nenio. 
+Antaŭe kion vi devas, poste kion vi volas.
 
-Aŭ festene, aŭ malplene. 
+Antaŭ la lango laboru la cerbo.
 
-Aŭ festo, aŭ fasto. 
+Antaŭ mortigo de urso ne vendu ĝian felon.
 
-Aŭ kuseno sub ripo, aŭ bato per vipo. 
+Antaŭ okuloj ne staras, doloron ne faras.
 
-Aŭ ministran postenon, aŭ pundoman katenon. 
+Antaŭparolo liberigas de postparolo.
 
-Aŭ plej riĉa stato, aŭ plena malsato. 
+Antaŭ tima okulo potenciĝas eĉ kulo.
 
-Aŭskultas prudente, kiu aŭskultas atente. 
+Antaŭ vespero ne estu fiera.
 
-8
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Aŭskulti kiel ĉinan predikon. 
+Aperas prudento, kiam pasis la momento.
 
-Avarulo avaras, heredantoj malŝparas. 
+Aprila vetero — trompa aero.
 
-Avarulo pagas duoble. 
+Apud plena manĝotablo ĉiu estas tre afabla.
 
-Azen’ al azeno riproĉas malsaĝon. 
+Apud propra domo ŝtelisto ne ŝtelas.
 
-Azenon komunan oni batas plej multe. 
+Aranĝite, ordigite.
 
-9
+Arbaro aŭdas, kampo vidas.
+
+Arbo krakanta venton ne timas.
+
+Atakis lin horo malsaĝa.
+
+Atakis teruro, ektremis la kruro.
+
+Atendi bonan veteron kaj laman kurieron.
+
+Atendi sur tero, ĝis sekiĝos la rivero.
+
+Atendis, atendis, ĝis lin ĉerko etendis.
+
+Atendis, meditis, ĝis en tombon englitis.
+
+Atendu min antaŭ la domo de mia pranepo.
+
+Atesto de matureco.
+
+Atingi la vesperon de sia vivo.
+
+Aŭ ĉio, aŭ nenio.
+
+Aŭ festene, aŭ malplene.
+
+Aŭ festo, aŭ fasto.
+
+Aŭ kuseno sub ripo, aŭ bato per vipo.
+
+Aŭ ministran postenon, aŭ pundoman katenon.
+
+Aŭ plej riĉa stato, aŭ plena malsato.
+
+Aŭskultas prudente, kiu aŭskultas atente.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Aŭskulti kiel ĉinan predikon.
+
+Avarulo avaras, heredantoj malŝparas.
+
+Avarulo pagas duoble.
+
+Azen’ al azeno riproĉas malsaĝon.
+
+Azenon komunan oni batas plej multe.
+
+
+ESPERANTA PROVERBARO
+
 
 b
 
-Babilas, muelas, kion lango elpelas. 
+Babilas, muelas, kion lango elpelas.
 
-Balaaĵon el korto eksteren ne elportu. 
+Balaaĵon el korto eksteren ne elportu.
 
-Barakti kiel fiŝo ekster la akvo. 
+Barakti kiel fiŝo ekster la akvo.
 
-Barbo elkreskis, sed saĝon ne naskis. 
+Barbo elkreskis, sed saĝon ne naskis.
 
-Barbo potenca, sed kapo sensenca. 
+Barbo potenca, sed kapo sensenca.
 
-Barelo malplena sonas plej laŭte. 
+Barelo malplena sonas plej laŭte.
 
-Bastono batas, bastono resaltas. 
+Bastono batas, bastono resaltas.
 
-Batadi kiel fiŝo kontraŭ glacio. 
+Batadi kiel fiŝo kontraŭ glacio.
 
-Batadi la venton. 
+Batadi la venton.
 
-Bataladi kontraŭ la sorto. 
+Bataladi kontraŭ la sorto.
 
-Batanto povas argumenti, batato devas silenti. 
+Batanto povas argumenti, batato devas silenti.
 
-Batita komprenas aludon. 
+Batita komprenas aludon.
 
-Bato de frato estas bato sen kompato. 
+Bato de frato estas bato sen kompato.
 
-Bato de patrino ne longe doloras. 
+Bato de patrino ne longe doloras.
 
-Batu malbonulon, li vin flatos — kisu, li vin batos. 
+Batu malbonulon, li vin flatos — kisu, li vin batos.
 
-Bedaŭro kaj ĉagreno ŝuldon ne kovras. 
+Bedaŭro kaj ĉagreno ŝuldon ne kovras.
 
-Bela birdo\! 
+Bela birdo!
 
-Bela celo por fabelo. 
+Bela celo por fabelo.
 
-Bela paro por altaro. 
+Bela paro por altaro.
 
-10
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Bela per vizaĝo, sed ne bela per saĝo. 
-
-Bela vizaĝo estas duono da dono. 
-
-Bela vizaĝo, sed ne bela la saĝo. 
-
-Belaj rakontoj el trans la montoj. 
-
-Beleco hodiaŭ estas, morgaŭ ne restas. 
-
-Beleco logas, virto apogas. 
-
-Belecon taksas ne okulo sed koro. 
-
-Bezono estas plej forta ordono. 
-
-Birdo kantas laŭ sia beko. 
-
-Birdo petolas, kiom ĝi volas. 
-
-Blindulo kartojn ludi ne devas. 
-
-Bojas hundido, ĉar tiel faras la hundo. 
-
-Bojas hundido, kiel ĝi aŭdas de hundoj. 
-
-Bojas hundo sen puno eĉ kontraŭ la suno. 
-
-Bona estas domo nova kaj amiko malnova. 
-
-Bona estas fremdlando, sed aliaj tie loĝu. 
-
-Bona estas Romo, sed tro malproksima de nia domo. 
-
-Bona famo sin trenas testude, malbona kuras rapide. 
-
-Bona gloro pli valoras ol oro. 
-
-Bona ideo venas post la pereo. 
-
-Bona kaporalo revas esti generalo. 
-
-Bona puno por malbona peno. 
-
-Bona stato saĝigas, malbona malsaĝigas. 
-
-11
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Bona vino al la fino. 
+Bela per vizaĝo, sed ne bela per saĝo.
 
-Bonaj infanoj gepatrojn feliĉigas, malbonaj ilin entombigas. 
+Bela vizaĝo estas duono da dono.
 
-Bonaj kalkuloj, bonaj kunuloj. 
+Bela vizaĝo, sed ne bela la saĝo.
 
-Bone kreskas la herbo, sed ĉevalo jam mortis. 
+Belaj rakontoj el trans la montoj.
 
-Bone sukcesu, sed ankaŭ nin ne forgesu. 
+Beleco hodiaŭ estas, morgaŭ ne restas.
 
-Bone tiu sidas, al kiu la sorto ridas. 
+Beleco logas, virto apogas.
 
-Bonfaron oni facile forgesas. 
+Belecon taksas ne okulo sed koro.
 
-Bongusta peco longe ne atendas. 
+Bezono estas plej forta ordono.
 
-Bono farita ne estas perdita. 
+Birdo kantas laŭ sia beko.
 
-Bono posedata ne estas ŝatata. 
+Birdo petolas, kiom ĝi volas.
 
-Bovidon mi atendis, infanon Dio sendis. 
+Blindulo kartojn ludi ne devas.
 
-Bovo prenita, koko donita kaj — kvita. 
+Bojas hundido, ĉar tiel faras la hundo.
 
-Brava batalanto kontraŭ plado bolanta. 
+Bojas hundido, kiel ĝi aŭdas de hundoj.
 
-Brava homo en sia domo. 
+Bojas hundo sen puno eĉ kontraŭ la suno.
 
-Bravulo kontraŭ muŝo, sed muŝo kontraŭ bravulo. 
+Bona estas domo nova kaj amiko malnova.
 
-Brogita eĉ sur akvon blovas. 
+Bona estas fremdlando, sed aliaj tie loĝu.
 
-Bruligi al si la lipharojn. 
+Bona estas Romo, sed tro malproksima de nia domo.
 
-Bruo potenca, nula esenco. 
+Bona famo sin trenas testude, malbona kuras rapide.
 
-Buĉas la lupo, oni ankaŭ ĝin buĉos. 
+Bona gloro pli valoras ol oro.
 
-Butonumi iun malvaste. 
+Bona ideo venas post la pereo.
 
-12
+Bona kaporalo revas esti generalo.
+
+Bona puno por malbona peno.
+
+Bona stato saĝigas, malbona malsaĝigas.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Bona vino al la fino.
+
+Bonaj infanoj gepatrojn feliĉigas, malbonaj ilin entombigas.
+
+Bonaj kalkuloj, bonaj kunuloj.
+
+Bone kreskas la herbo, sed ĉevalo jam mortis.
+
+Bone sukcesu, sed ankaŭ nin ne forgesu.
+
+Bone tiu sidas, al kiu la sorto ridas.
+
+Bonfaron oni facile forgesas.
+
+Bongusta peco longe ne atendas.
+
+Bono farita ne estas perdita.
+
+Bono posedata ne estas ŝatata.
+
+Bovidon mi atendis, infanon Dio sendis.
+
+Bovo prenita, koko donita kaj — kvita.
+
+Brava batalanto kontraŭ plado bolanta.
+
+Brava homo en sia domo.
+
+Bravulo kontraŭ muŝo, sed muŝo kontraŭ bravulo.
+
+Brogita eĉ sur akvon blovas.
+
+Bruligi al si la lipharojn.
+
+Bruo potenca, nula esenco.
+
+Buĉas la lupo, oni ankaŭ ĝin buĉos.
+
+Butonumi iun malvaste.
+
+
+ESPERANTA PROVERBARO
+
 
 c
 
-Celi anseron, trafi aeron. 
+Celi anseron, trafi aeron.
 
-Celis paseron, trafis anseron. 
+Celis paseron, trafis anseron.
 
-Cent jarojn silentis kaj subite sin prezentis. 
+Cent jarojn silentis kaj subite sin prezentis.
 
-Certaĵo kaj leĝo, kiel amen en preĝo. 
+Certaĵo kaj leĝo, kiel amen en preĝo.
 
-Certe, kiel duoble du kvar. 
+Certe, kiel duoble du kvar.
 
-13
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
 ĉ
 
-ĉasaĵo ĉasanton ne atendas. 
+ĉasaĵo ĉasanton ne atendas.
 
-ĉe botisto la ŝuo estas ĉiam kun truo. 
+ĉe botisto la ŝuo estas ĉiam kun truo.
 
-ĉe l’freŝa faro. 
+ĉe l’freŝa faro.
 
-ĉe la tagiĝo. 
+ĉe la tagiĝo.
 
-ĉe mastro ŝtelista la servantoj ne ŝtelas. 
+ĉe mastro ŝtelista la servantoj ne ŝtelas.
 
-ĉe plej granda fido memoru pri perfido. 
+ĉe plej granda fido memoru pri perfido.
 
-ĉe stomako malsata ne kapricas palato. 
+ĉe stomako malsata ne kapricas palato.
 
-ĉe tablo malplena babilo ne fluas. 
+ĉe tablo malplena babilo ne fluas.
 
-ĉe tro ĝentila ekstero mankas sincero. 
+ĉe tro ĝentila ekstero mankas sincero.
 
-ĉe vesto velura suferas stomako. 
+ĉe vesto velura suferas stomako.
 
-ĉe vulpoj ĉiam naskiĝas nur vulpoj. 
+ĉe vulpoj ĉiam naskiĝas nur vulpoj.
 
-ĉerpi akvon per kribrilo. 
+ĉerpi akvon per kribrilo.
 
-ĉesis esti vino, sed vinagro ne fariĝis. 
+ĉesis esti vino, sed vinagro ne fariĝis.
 
-ĉia dono estas bono. 
+ĉia dono estas bono.
 
-ĉie estas varme, sed hejme plej ĉarme. 
+ĉie estas varme, sed hejme plej ĉarme.
 
-ĉio dependas de ”se” kaj ”kiam”. 
+ĉio dependas de ”se” kaj ”kiam”.
 
-ĉio estas por li kiel polvero sur la tero. 
+ĉio estas por li kiel polvero sur la tero.
 
-ĉio havas finon. 
+ĉio havas finon.
 
-ĉio havas sian ”sed” kaj ”se.” 
+ĉio havas sian ”sed” kaj ”se.”
 
-14
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-ĉio sia estas plej ĉarma. 
-
-ĉio supermezura estas terura. 
-
-ĉio taŭgas, kio venas. 
-
-ĉio transmara estas ĉarma kaj kara. 
-
-ĉion novan oni ŝatas, malnovan oni forbatas. 
-
-ĉion rigardi tra sia persona vitro. 
-
-ĉirkaŭflatadi kaj ĉirkaŭflirtadi iun. 
-
-ĉirkaŭ sanktuloj diabloj vagas. 
-
-ĉirkaŭ sanktuloj diabloj vagas. 
-
-ĉiu abomenaĵo trovas sian adoranton. 
-
-ĉiu angulo kun sia sanktulo. 
-
-ĉiu barono havas sian kapricon. 
-
-ĉiu besto zorgas pri sia nesto. 
-
-ĉiu eraro estas kulpo. 
-
-ĉiu estis junulo, ĉiu estis pekulo. 
-
-ĉiu familio havas sian kriplulon. 
-
-ĉiu havas sian guston. 
-
-ĉiu havas sian kaŝitan mizeron. 
-
-ĉiu havas sian ŝarĝon. 
-
-ĉiu havas sian vermon. 
-
-ĉiu iras, kiel saĝ’ al li diras. 
-
-ĉiu klopodu nur en sia metio, tiam al la urbo mankos nenio. 
-
-15
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-ĉiu komenco estas malfacila. 
+ĉio sia estas plej ĉarma.
 
-ĉiu kreas sian forton, ĉiu forĝas sian sorton. 
+ĉio supermezura estas terura.
 
-ĉiu ”li” havas sian ”ŝi”. 
+ĉio taŭgas, kio venas.
 
-ĉiu manĝas, kiel li aranĝas. 
+ĉio transmara estas ĉarma kaj kara.
 
-ĉiu mano al si altiras. 
+ĉion novan oni ŝatas, malnovan oni forbatas.
 
-ĉiu medalo du flankojn posedas. 
+ĉion rigardi tra sia persona vitro.
 
-ĉiu mezuras aliajn laŭ sia mezurilo. 
+ĉirkaŭflatadi kaj ĉirkaŭflirtadi iun.
 
-ĉiu morgaŭ havas sian zorgon. 
+ĉirkaŭ sanktuloj diabloj vagas.
 
-ĉiu persono kun sia bezono. 
+ĉirkaŭ sanktuloj diabloj vagas.
 
-ĉiu por si mem estas la plej kara. 
+ĉiu abomenaĵo trovas sian adoranton.
 
-ĉiu por si — por ĉiuj Di’. 
+ĉiu angulo kun sia sanktulo.
 
-ĉiu propran saĝon posedas. 
+ĉiu barono havas sian kapricon.
 
-ĉiu provas, kion li povas. 
+ĉiu besto zorgas pri sia nesto.
 
-ĉiu sezono kun sia bono. 
+ĉiu eraro estas kulpo.
 
-ĉiu sin direktas, kiel la kap’ al li diktas. 
+ĉiu estis junulo, ĉiu estis pekulo.
 
-ĉiu sin gvidas, kiel li vidas. 
+ĉiu familio havas sian kriplulon.
 
-ĉiu tajloro havas sian tranĉmanieron. 
+ĉiu havas sian guston.
 
-ĉiu ”tial” havas sian ”kial.” 
+ĉiu havas sian kaŝitan mizeron.
 
-ĉiu vivas laŭ sia prudento kaj sento. 
+ĉiu havas sian ŝarĝon.
 
-ĉiu vulpo sian voston laŭdas. 
+ĉiu havas sian vermon.
 
-ĉiuj enterigitoj estas plenaj de meritoj. 
+ĉiu iras, kiel saĝ’ al li diras.
 
-ĉiuj milionoj konsistas el milonoj. 
+ĉiu klopodu nur en sia metio, tiam al la urbo mankos nenio.
 
-ĉiun demandu, sed mem al vi komandu. 
-
-16
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Danĝera estas bovo antaŭe, ĉevalo malantaŭe, kaj malsaĝulo de ĉiuj flankoj. 
+ĉiu komenco estas malfacila.
+
+ĉiu kreas sian forton, ĉiu forĝas sian sorton.
+
+ĉiu ”li” havas sian ”ŝi”.
+
+ĉiu manĝas, kiel li aranĝas.
+
+ĉiu mano al si altiras.
+
+ĉiu medalo du flankojn posedas.
+
+ĉiu mezuras aliajn laŭ sia mezurilo.
+
+ĉiu morgaŭ havas sian zorgon.
+
+ĉiu persono kun sia bezono.
+
+ĉiu por si mem estas la plej kara.
+
+ĉiu por si — por ĉiuj Di’.
+
+ĉiu propran saĝon posedas.
+
+ĉiu provas, kion li povas.
+
+ĉiu sezono kun sia bono.
+
+ĉiu sin direktas, kiel la kap’ al li diktas.
+
+ĉiu sin gvidas, kiel li vidas.
+
+ĉiu tajloro havas sian tranĉmanieron.
+
+ĉiu ”tial” havas sian ”kial.”
+
+ĉiu vivas laŭ sia prudento kaj sento.
+
+ĉiu vulpo sian voston laŭdas.
+
+ĉiuj enterigitoj estas plenaj de meritoj.
+
+ĉiuj milionoj konsistas el milonoj.
+
+ĉiun demandu, sed mem al vi komandu.
+
+
+ESPERANTA PROVERBARO
+
+
+Danĝera estas bovo antaŭe, ĉevalo malantaŭe, kaj malsaĝulo de ĉiuj flankoj.
 
 d
 
-Danĝero sieĝas, al Dio ni preĝas; danĝero ĉesas, ni Dion forgesas. 
+Danĝero sieĝas, al Dio ni preĝas; danĝero ĉesas, ni Dion forgesas.
 
-Danci antaŭ iu sur piedoj kaj manoj. 
+Danci antaŭ iu sur piedoj kaj manoj.
 
-Danci kiel kato ĉirkaŭ poto. 
+Danci kiel kato ĉirkaŭ poto.
 
-Danci laŭ ies fajfilo. 
+Danci laŭ ies fajfilo.
 
-Dancu diabloj, sed ne en mia arbaro. 
+Dancu diabloj, sed ne en mia arbaro.
 
-Dando el reĝa hundejo. 
+Dando el reĝa hundejo.
 
-De atendo kaj espero pereis multaj sur la tero. 
+De atendo kaj espero pereis multaj sur la tero.
 
-De bona vorto lango ne doloras. 
+De bona vorto lango ne doloras.
 
-De edziĝo tro malfrua orfoj naskiĝas. 
+De edziĝo tro malfrua orfoj naskiĝas.
 
-De elekto tro multa plej malbona rezulto. 
+De elekto tro multa plej malbona rezulto.
 
-De fremda dento ni doloron ne sentas. 
+De fremda dento ni doloron ne sentas.
 
-De fremda groŝo ŝiriĝas la poŝo. 
+De fremda groŝo ŝiriĝas la poŝo.
 
-De guto post guto disfalas granito. 
+De guto post guto disfalas granito.
 
-De kantado senpaga doloras la gorĝo. 
+De kantado senpaga doloras la gorĝo.
 
-De kiu la kulpo, por tiu la puno. 
+De kiu la kulpo, por tiu la puno.
 
-De l’koro spegulo estas la okulo. 
+De l’koro spegulo estas la okulo.
 
-17
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-De la buŝo ĝis la manoj estas granda interspaco. 
-
-De la manoj ĝis lipoj la sup’ elverŝiĝis. 
-
-De la volo la ordono pli efikas ol bastono. 
-
-De legado sen atento ne riĉiĝas la prudento. 
-
-De lia vivo aranĝo estas trinko kaj manĝo. 
-
-De majesta ĝis ridinda estas nur unu paŝo. 
-
-De malbona ŝafo estas bona eĉ tufo. 
-
-De malgranda kandelo forbrulis granda kastelo. 
-
-De manĝo malriĉula ni guston ne scias. 
-
-De nehavanto eĉ reĝo nenion ricevos. 
-
-De parolo ĝis faro estas tre malproksime. 
-
-De peko kaj mizero estas plena la tero. 
-
-De plendo kaj ploro ne foriĝas doloro. 
-
-De pli da suko ne malboniĝas la kuko. 
-
-De rigardo tro alta malsaniĝas okulo. 
-
-De ŝafo senlana eĉ lanero taŭgas. 
-
-De sama koloro, de sama valoro. 
-
-De semo putra venas frukto ne nutra. 
-
-De senpripensa rekomendo venas ploro kaj plendo. 
-
-De superfluo malboniĝas la ĝuo. 
-
-De tro da pano venas malsano. 
-
-De tro multa scio krevas la kranio. 
-
-De unu bovo oni du felojn ne deŝiras. 
-
-18
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-De vorto ĝentila ne doloras la lango. 
+De la buŝo ĝis la manoj estas granda interspaco.
 
-De zorgoj, ne de jaroj, blankiĝas la haroj. 
+De la manoj ĝis lipoj la sup’ elverŝiĝis.
 
-Dek fojojn mezuru, unu fojon detranĉu. 
+De la volo la ordono pli efikas ol bastono.
 
-Deko da pekoj, unu la puno. 
+De legado sen atento ne riĉiĝas la prudento.
 
-Demando ne kostas, demando ne devigas. 
+De lia vivo aranĝo estas tr kaj manĝo.
 
-Demeti de si la antikvan Adamon. 
+De majesta ĝis ridinda estas nur unu paŝo.
 
-Dentoj mordas la langon, tamen ambaŭ sin amas. 
+De malbona ŝafo estas bona eĉ tufo.
 
-Depost tempo nememorebla. 
+De malgranda kandelo forbrulis granda kastelo.
 
-Detruita ĝis la fundo de l’fundamento. 
+De manĝo malriĉula ni guston ne scias.
 
-Deziri al iu amason da mono kaj titolon de barono. 
+De nehavanto eĉ reĝo nenion ricevos.
 
-Deziri al iu ĉion bonan. 
+De parolo ĝis faro estas tre malproksime.
 
-Deziro kaj inklino ordonon ne obeas. 
+De peko kaj mizero estas plena la tero.
 
-Deziro tre granda, sed mankas la forto. 
+De plendo kaj ploro ne foriĝas doloro.
 
-Deziru, ne deziru — ordon’ estas, iru\! 
+De pli da suko ne malboniĝas la kuko.
 
-Deziru sincere, vi atingos libere. 
+De rigardo tro alta malsaniĝas okulo.
 
-Diablo ne ĉiam unu pordon sieĝas. 
+De ŝafo senlana eĉ lanero taŭgas.
 
-Diablo ŝercon ne komprenas, vokite li venas. 
+De sama koloro, de sama valoro.
 
-Difekton de naturo ne kovros veluro. 
+De semo putra venas frukto ne nutra.
 
-Dio al vi donis, por ke vi povu doni. 
+De senpripensa rekomendo venas ploro kaj plendo.
 
-Dio batas, Dio kompatas. 
+De superfluo malboniĝas la ĝuo.
 
-Dio donis buŝon, Dio donos manĝon. 
+De tro da pano venas malsano.
 
-Dio donis, Dio prenis. 
+De tro multa scio krevas la kranio.
 
-Dio donis infanon, Dio donos por ĝi panon. 
+De unu bovo oni du felojn ne deŝiras.
 
-19
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Dio donis kaj benis, sed diablo forprenis. 
+De vorto ĝentila ne doloras la lango.
 
-Dio donis oficon, Dio donas kapablon. 
+De zorgoj, ne de jaroj, blankiĝas la haroj.
 
-Dio donis oficon, Dio donas prudenton. 
+Dek fojojn mezuru, unu fojon detranĉu.
 
-Dio donis tagon, Dio donos manĝon. 
+Deko da pekoj, unu la puno.
 
-Dio kompatu\! 
+Demando ne kostas, demando ne devigas.
 
-Dio longe paciencas, sed severe rekompencas. 
+Demeti de si la antikvan Adamon.
 
-Dio manĝon donacis, sed la dentoj agacas. 
+Dentoj mordas la langon, tamen ambaŭ sin amas.
 
-Dio ne perfidas, se homo lin fidas. 
+Depost tempo nememorebla.
 
-Dio ne ricevis, diablo forlevis. 
+Detruita ĝis la fundo de l’fundamento.
 
-Dio orfojn ne forgesas. 
+Deziri al iu amason da mono kaj titolon de barono.
 
-Dio punas laŭ la fortoj. 
+Deziri al iu ĉion bonan.
 
-Dio puni deziras, li la saĝon fortiras. 
+Deziro kaj inklino ordonon ne obeas.
 
-Dio scias bone pri niaj bezonoj. 
+Deziro tre granda, sed mankas la forto.
 
-Dio ĝuste faras, neniam eraras. 
+Deziru, ne deziru — ordon’ estas, iru!
 
-Dion fidu, sed senfare ne sidu. 
+Deziru sincere, vi atingos libere.
 
-Dion kolerigis, homojn ridigis. 
+Diablo ne ĉiam unu pordon sieĝas.
 
-Dion laŭdu kaj diablon aplaŭdu. 
+Diablo ŝercon ne komprenas, vokite li venas.
 
-Diri al iu nudan veron. 
+Difekton de naturo ne kovros veluro.
 
-Diri la puran veron. 
+Dio al vi donis, por ke vi povu doni.
 
-Diris kaj foriris. 
+Dio batas, Dio kompatas.
 
-Dirite, farite. 
+Dio donis buŝon, Dio donos manĝon.
 
-Diron oni neas, skribo ne pereas. 
+Dio donis, Dio prenis.
 
-Disputo kredigas, sed ne certigas. 
+Dio donis infanon, Dio donos por ĝi panon.
 
-20
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Disputoj kondukas al malpaco. 
+Dio donis kaj benis, sed diablo forprenis.
 
-Disputu komence — vi ne malpacos en fino. 
+Dio donis oficon, Dio donas kapablon.
 
-Disputu pri ĉio, sed sen garantio. 
+Dio donis oficon, Dio donas prudenton.
 
-Dolĉe ŝmiri al iu la lipojn. 
+Dio donis tagon, Dio donos manĝon.
 
-Donacetoj subtenas amikecon. 
+Dio kompatu!
 
-Donaco nesincera estas donaco infera. 
+Dio longe paciencas, sed severe rekompencas.
 
-Donacon reprenu kaj mian vivon ne venenu. 
+Dio manĝon donacis, sed la dentoj agacas.
 
-Donado de almozoj neniam malriĉigas. 
+Dio ne perfidas, se homo lin fidas.
 
-Doni al iu la baton de morto. 
+Dio ne ricevis, diablo forlevis.
 
-Doni la finofaran baton. 
+Dio orfojn ne forgesas.
 
-Doni la tonon. 
+Dio punas laŭ la fortoj.
 
-Doni lecionon de moroj. 
+Dio puni deziras, li la saĝon fortiras.
 
-Doni ovon, por ricevi bovon. 
+Dio scias bone pri niaj bezonoj.
 
-Donu al krudulo plezuron, li ne scios mezuron. 
+Dio ĝuste faras, neniam eraras.
 
-Donu fingron al avidulo, li tutan manon postulas. 
+Dion fidu, sed senfare ne sidu.
 
-Dorloti serpenton sur sia brusto. 
+Dion kolerigis, homojn ridigis.
 
-Dormus leporo, se ĝi ĉason ne timus. 
+Dion laŭdu kaj diablon aplaŭdu.
 
-Doto koron ne varmigas. 
+Diri al iu nudan veron.
 
-Draŝi fojnon. 
+Diri la puran veron.
 
-Drinku tutajn tagojn, sed kontrolu viajn agojn. 
+Diris kaj foriris.
 
-Dronanto domon proponas, savito eĉ brikon ne donas. 
+Dirite, farite.
 
-Dronanto eĉ herbeton kaptas avide. 
+Diron oni neas, skribo ne pereas.
 
-Droni en detaloj. 
+Disputo kredigas, sed ne certigas.
 
-21
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Du botoj faras paron. 
+Disputoj kondukas al malpaco.
 
-Du kontraŭ unu prezentas armeon. 
+Disputu komence — vi ne malpacos en fino.
 
-Du manoj faras ĉion, sed unu nenion. 
+Disputu pri ĉio, sed sen garantio.
 
-Du militas — tria profitas. 
+Dolĉe ŝmiri al iu la lipojn.
 
-Du mortojn vi ne havos, de unu vi vin ne savos. 
+Donacetoj subtenas amikecon.
+
+Donaco nesincera estas donaco infera.
+
+Donacon reprenu kaj mian vivon ne venenu.
+
+Donado de almozoj neniam malriĉigas.
+
+Doni al iu la baton de morto.
+
+Doni la finofaran baton.
+
+Doni la tonon.
+
+Doni lecionon de moroj.
+
+Doni ovon, por ricevi bovon.
+
+Donu al krudulo plezuron, li ne scios mezuron.
+
+Donu fingron al avidulo, li tutan manon postulas.
+
+Dorloti serpenton sur sia brusto.
+
+Dormus leporo, se ĝi ĉason ne timus.
+
+Doto koron ne varmigas.
+
+Draŝi fojnon.
+
+Drinku tutajn tagojn, sed kontrolu viajn agojn.
+
+Dronanto domon proponas, savito eĉ brikon ne donas.
+
+Dronanto eĉ herbeton kaptas avide.
+
+Droni en detaloj.
+
+
+ESPERANTA PROVERBARO
+
+
+Du botoj faras paron.
+
+Du kontraŭ unu prezentas armeon.
+
+Du manoj faras ĉion, sed unu nenion.
+
+Du militas — tria profitas.
+
+Du mortojn vi ne havos, de unu vi vin ne savos.
 
 Du sinjoroj en unu bieno, du mastrinoj ĉe unu kameno —
 
-neniam vivas sen reciproka malbeno. 
+neniam vivas sen reciproka malbeno.
 
-Dubo gardas kontraŭ risko. 
+Dubo gardas kontraŭ risko.
 
-Dum la manĝado venas apetito. 
+Dum la manĝado venas apetito.
 
-22
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
 e
 
-Ebrieco pasas post dormo, malsaĝeco neniam. 
+Ebrieco pasas post dormo, malsaĝeco neniam.
 
-Ebriulon kaj malsaĝulon oni ne juĝas. 
+Ebriulon kaj malsaĝulon oni ne juĝas.
 
-Eĉ bagatelo povas servi al celo. 
+Eĉ bagatelo povas servi al celo.
 
-Eĉ blinda kokino povas trovi grajnon. 
+Eĉ blinda kokino povas trovi grajnon.
 
-Eĉ ĉe kokino troviĝas propra inklino. 
+Eĉ ĉe kokino troviĝas propra inklino.
 
-Eĉ el sub la tero aperas la vero. 
+Eĉ el sub la tero aperas la vero.
 
-Eĉ en Parizo herbo ne fariĝas cerbo. 
+Eĉ en Parizo herbo ne fariĝas cerbo.
 
-Eĉ guto malgranda, konstante frapante, traboras la monton granitan. 
+Eĉ guto malgranda, konstante frapante, traboras la monton granitan.
 
-Eĉ inter piuloj ne mankas pekuloj. 
+Eĉ inter piuloj ne mankas pekuloj.
 
-Eĉ kaprino plaĉas, se la doto sufiĉas. 
+Eĉ kaprino plaĉas, se la doto sufiĉas.
 
-Eĉ kiu plej bone pafas, tamen iam maltrafas. 
+Eĉ kiu plej bone pafas, tamen iam maltrafas.
 
-Eĉ kontraŭ pastra prediko troviĝas kritiko. 
+Eĉ kontraŭ pastra prediko troviĝas kritiko.
 
-Eĉ kvar piedoj de ĉevalo ĝin ne savas de falo. 
+Eĉ kvar piedoj de ĉevalo ĝin ne savas de falo.
 
-Eĉ malgranda muŝo ne estas sen buŝo. 
+Eĉ malgranda muŝo ne estas sen buŝo.
 
-Eĉ malsaĝulon sperto instruos. 
+Eĉ malsaĝulon sperto instruos.
 
-Eĉ monstron admiras, kiu ame deliras. 
+Eĉ monstron admiras, kiu ame deliras.
 
-Eĉ muŝo sentas, kiam vi ĝin turmentas. 
+Eĉ muŝo sentas, kiam vi ĝin turmentas.
 
-Eĉ najtingalo ne estas sen galo. 
+Eĉ najtingalo ne estas sen galo.
 
-23
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Eĉ najtingalo ne estas sen galo. 
-
-Eĉ per dolĉa kuko vi min ne allogos. 
-
-Eĉ pinglo povas koron trapiki. 
-
-Eĉ plej bonan ŝipon malbonigas la ventoj. 
-
-Eĉ plej granda malbono al bono kondukas. 
-
-Eĉ plej nigra bovino donas lakton nur blankan. 
-
-Eĉ plej ruza vulpo en kaptilon falas. 
-
-Eĉ por plej terura tago venas vespero. 
-
-Eĉ por pomo putranta troviĝas amanto. 
-
-Eĉ signo ne restis, kie urbo estis. 
-
-Eĉ ŝtipo estos bela, se vi ĝin ornamos. 
-
-Eĉ ŝtono verdiĝas, se ĝi longe ne moviĝas. 
-
-Eĉ sur la suno troviĝas makuloj. 
-
-Eĉ vulpo plej ruza fine estas kaptata. 
-
-Edziĝo laŭ koro, laŭ la kvanto da oro. 
-
-Edziĝo najbara garantias de eraro. 
-
-Edziĝo pro amo flamanta al la sako sonanta. 
-
-Edziĝo tro momenta estas longapenta. 
-
-Edzigu filon, kiam vi volas — edzinigu filinon, kiam vi povas. 
-
-Edzin’ admirata — edzo malsata. 
-
-Edzino pli elverŝas per funelo, ol edzo enverŝas per sitelo. 
-
-Edzo edzinon laŭdas, edzino edzon aplaŭdas. 
-
-24
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Edzo kaj edzino — ĉiela difino. 
+Eĉ najtingalo ne estas sen galo.
 
-Edzo kaj edzino estas nur unu. 
+Eĉ per dolĉa kuko vi min ne allogos.
 
-Eksalte senhalte. 
+Eĉ pinglo povas koron trapiki.
 
-Eksplodema kiel pulvo. 
+Eĉ plej bonan ŝipon malbonigas la ventoj.
 
-Eksplodis kiel pulvo. 
+Eĉ plej granda malbono al bono kondukas.
 
-Ekster via ofico estas ekster via vico. 
+Eĉ plej nigra bovino donas lakton nur blankan.
 
-Ekstere honoro, interne doloro. 
+Eĉ plej ruza vulpo en kaptilon falas.
 
-Ekzameni ne devigas preni. 
+Eĉ por plej terura tago venas vespero.
 
-Ekzemplo proponas, sed ne ordonas. 
+Eĉ por pomo putranta troviĝas amanto.
 
-Ekzistas ezoko, por ke fiŝetoj ne dormu. 
+Eĉ signo ne restis, kie urbo estis.
 
-El aero al tero. 
+Eĉ ŝtipo estos bela, se vi ĝin ornamos.
 
-El du malbonoj pli malgrandan elektu. 
+Eĉ ŝtono verdiĝas, se ĝi longe ne moviĝas.
 
-El flamo sin eltiris, en fajron eniris. 
+Eĉ sur la suno troviĝas makuloj.
 
-El fremda ledo oni tranĉas larĝe. 
+Eĉ vulpo plej ruza fine estas kaptata.
 
-El fremda poŝo oni pagas facile. 
+Edziĝo laŭ koro, laŭ la kvanto da oro.
 
-El kanto oni vortojn ne elĵetas. 
+Edziĝo najbara garantias de eraro.
 
-El klara ĉielo tondro ekbatis. 
+Edziĝo pro amo flamanta al la sako sonanta.
 
-El la buŝ’ multaj vortoj eliras, sed ne ĉiuj ion diras. 
+Edziĝo tro momenta estas longapenta.
 
-El la faraĉo fariĝis kaĉo. 
+Edzigu filon, kiam vi volas — edzinigu filinon, kiam vi povas.
 
-El la mizero oni devas fari virton. 
+Edzin’ admirata — edzo malsata.
 
-El la neceseco oni devas fari virton. 
+Edzino pli elverŝas per funelo, ol edzo enverŝas per sitelo.
 
-El la poŝo al la buŝo. 
+Edzo edzinon laŭdas, edzino edzon aplaŭdas.
 
-El la sama buŝo li blovas varmon kaj malvarmon. 
-
-25
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-El lia mano ĉiu monero elglitas. 
+Edzo kaj edzino — ĉiela difino.
 
-El malgrandaj akveroj fariĝas grandaj riveroj. 
+Edzo kaj edzino estas nur unu.
 
-El malplena telero vane ĉerpas kulero. 
+Eksalte senhalte.
 
-El multaj milonoj fariĝas milionoj. 
+Eksplodema kiel pulvo.
 
-El post la arbo li estas bravulo. 
+Eksplodis kiel pulvo.
 
-El sama tero devenas, saman sukon entenas. 
+Ekster via ofico estas ekster via vico.
 
-Elbatadi ies sojlon. 
+Ekstere honoro, interne doloro.
 
-Elektadis sen fino, edziĝis kun porkino. 
+Ekzameni ne devigas preni.
 
-Elektu edzinon laŭ deveno kaj ne laŭ mieno. 
+Ekzemplo proponas, sed ne ordonas.
 
-Eliri sen frakaso el granda embaraso. 
+Ekzistas ezoko, por ke fiŝetoj ne dormu.
 
-Elmeti la okulon kaj vidi nulon. 
+El aero al tero.
 
-Elmetu mielon, muŝoj alflugos. 
+El du malbonoj pli malgrandan elektu.
 
-Elpeli iun el la mondo de la vivuloj. 
+El flamo sin eltiris, en fajron eniris.
 
-Eltrinki per unu tiro. 
+El fremda ledo oni tranĉas larĝe.
 
-Elverŝi sur iun sian koleron. 
+El fremda poŝo oni pagas facile.
 
-Eminenta ŝuldanto, malbona paganto. 
+El kanto oni vortojn ne elĵetas.
 
-En abelujon ne blovu. 
+El klara ĉielo tondro ekbatis.
 
-En akvo malklara oni fiŝkaptas facile. 
+El la buŝ’ multaj vortoj eliras, sed ne ĉiuj ion diras.
 
-En amaso eĉ morto estas pli gaja. 
+El la faraĉo fariĝis kaĉo.
 
-En arbaro sidas kaj arbojn ne vidas. 
+El la mizero oni devas fari virton.
 
-En bona horo\! 
+El la neceseco oni devas fari virton.
 
-En bona ordo tra la pordo\! 
+El la poŝo al la buŝo.
 
-En buŝo Biblio, en koro malpio. 
+El la sama buŝo li blovas varmon kaj malvarmon.
 
-26
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-En ĉeesto amata, en forest’ insultata. 
+El lia mano ĉiu monero elglitas.
 
-En ĉiu aĝo devas kreski la saĝo. 
+El malgrandaj akveroj fariĝas grandaj riveroj.
 
-En ĉiu angulo alia postulo. 
+El malplena telero vane ĉerpas kulero.
 
-En ĉiu brusto estas sia gusto. 
+El multaj milonoj fariĝas milionoj.
 
-En ĉiu kranio regas aparta opinio. 
+El post la arbo li estas bravulo.
 
-En ĉiu malbono estas iom da bono. 
+El sama tero devenas, saman sukon entenas.
 
-En ĉiu objekto troviĝas difekto. 
+Elbatadi ies sojlon.
 
-En ĉiu transloĝiĝo estas parto de ruiniĝo. 
+Elektadis sen fino, edziĝis kun porkino.
 
-En dom’ de pendigito pri ŝnuro ne parolu. 
+Elektu edzinon laŭ deveno kaj ne laŭ mieno.
 
-En feliĉo ne fieru, en malfeliĉo esperu. 
+Eliri sen frakaso el granda embaraso.
 
-En fremda okulo ni vidas ligneron, en nia ni trabon ne vidas. 
+Elmeti la okulon kaj vidi nulon.
 
-En fremda tegmento li flikas truon kaj en propra ne vidas la fluon. 
+Elmetu mielon, muŝoj alflugos.
 
-En fremdan vazon ne ŝovu la nazon. 
+Elpeli iun el la mondo de la vivuloj.
 
-En infano vidiĝas, kia homo fariĝos. 
+Eltrinki per unu tiro.
 
-En infero loĝante, kun diabloj ne disputu. 
+Elverŝi sur iun sian koleron.
 
-En juneco logas, en maljuneco tedas. 
+Eminenta ŝuldanto, malbona paganto.
 
-En juneco ne petas, en maljuneco forĵetas. 
+En abelujon ne blovu.
 
-En kompanio eĉ morto faciliĝas. 
+En akvo malklara oni fiŝkaptas facile.
 
-En la bona malnova tempo. 
+En amaso eĉ morto estas pli gaja.
 
-En la propra sia domo ĉiu estas granda homo. 
+En arbaro sidas kaj arbojn ne vidas.
 
-En la tago de la sankta Neniamo. 
+En bona horo!
 
-27
+En bona ordo tra la pordo!
 
-ESPERANTA PROVERBARO
+En buŝo Biblio, en koro malpio.
 
-eLIBRO
-
-En la triĵaŭda semajno. 
-
-En landoj transmaraj estas oraj arbaroj. 
-
-En luma tago. 
-
-En malfacila horo eĉ groŝ’ estas valoro. 
-
-En malsata familio mankas harmonio. 
-
-En mizero eĉ saĝulo estas malsaĝa. 
-
-En nomo de l’ĉielo, sed pro bono de l’felo. 
-
-En plej alta mizero al Dio esperu. 
-
-En propra angulo ĉiu estas fortulo. 
-
-En puton ne kraĉu, ĉar vi trinki bezonos. 
-
-En ŝerco kaj ludo ofte sidas aludo. 
-
-En sia afero ĉiu juĝu libere. 
-
-En sia angulo li estas bravulo. 
-
-En sia dometo li estas atleto. 
-
-En sia korto ĉiu kok’ estas forta. 
-
-En trankvila vetero ĉiu remas sen danĝero. 
-
-En unu sako du katoj, ĉiam mordoj kaj gratoj. 
-
-En via malica regalo vin atendas ankaŭ pokalo. 
-
-Enbati al si en la kapon. 
-
-Enpakiĝu kaj foriĝu. 
-
-Enpremi en la teron. 
-
-Enpremi iun en funelon. 
-
-Enskribu en vian memoron. 
-
-28
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Enspezo postulas elspezon. 
+En ĉeesto amata, en forest’ insultata.
 
-Envia moko sukceson ne detruas. 
+En ĉiu aĝo devas kreski la saĝo.
 
-Esperis flaton — ricevis baton. 
+En ĉiu angulo alia postulo.
 
-Espero kaj pacienco kondukas al potenco. 
+En ĉiu brusto estas sia gusto.
 
-Espero logas, espero mensogas. 
+En ĉiu kranio regas aparta opinio.
 
-Espero panon ne donas. 
+En ĉiu malbono estas iom da bono.
 
-Espero postulas oferon. 
+En ĉiu objekto troviĝas difekto.
 
-Estas ŝafoj, estos lano. 
+En ĉiu transloĝiĝo estas parto de ruiniĝo.
 
-Estas tubero en la afero. 
+En dom’ de pendigito pri ŝnuro ne parolu.
 
-Esti anĝelo inter homoj, sed satano en la domo. 
+En feliĉo ne fieru, en malfeliĉo esperu.
 
-Esti bone enskribita ĉe iu. 
+En fremda okulo ni vidas ligneron, en nia ni trabon ne vidas.
 
-Esti en granda embaraso. 
+En fremda tegmento li flikas truon kaj en propra ne vidas la fluon.
 
-Esti en Romo kaj ne vidi la Papon. 
+En fremdan vazon ne ŝovu la nazon.
 
-Esti en sia elemento. 
+En infano vidiĝas, kia homo fariĝos.
 
-Esti en situacio sen eliro. 
+En infero loĝante, kun diabloj ne disputu.
 
-Esti inter martelo kaj amboso. 
+En juneco logas, en maljuneco tedas.
 
-Esti sub la ŝuo \(de sia edzino\). 
+En juneco ne petas, en maljuneco forĵetas.
 
-Estinta amiko estas plej danĝera malamiko. 
+En kompanio eĉ morto faciliĝas.
 
-Estintaj amikoj plej kruele malpacas. 
+En la bona malnova tempo.
 
-Estis la tempo, ni ne komprenis — pasis la tempo, la saĝ’ al ni venis. 
+En la propra sia domo ĉiu estas granda homo.
 
-Estro ne malsatas. 
+En la tago de la sankta Neniamo.
 
-Estu ĉapo laŭ la kapo. 
-
-29
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Estu saĝa homo en via propra domo. 
+En la triĵaŭda semajno.
 
-Estu sinjoro de via vorto. 
+En landoj transmaraj estas oraj arbaroj.
 
-30
+En luma tago.
+
+En malfacila horo eĉ groŝ’ estas valoro.
+
+En malsata familio mankas harmonio.
+
+En mizero eĉ saĝulo estas malsaĝa.
+
+En nomo de l’ĉielo, sed pro bono de l’felo.
+
+En plej alta mizero al Dio esperu.
+
+En propra angulo ĉiu estas fortulo.
+
+En puton ne kraĉu, ĉar vi trinki bezonos.
+
+En ŝerco kaj ludo ofte sidas aludo.
+
+En sia afero ĉiu juĝu libere.
+
+En sia angulo li estas bravulo.
+
+En sia dometo li estas atleto.
+
+En sia korto ĉiu kok’ estas forta.
+
+En trankvila vetero ĉiu remas sen danĝero.
+
+En unu sako du katoj, ĉiam mordoj kaj gratoj.
+
+En via malica regalo vin atendas ankaŭ pokalo.
+
+Enbati al si en la kapon.
+
+Enpakiĝu kaj foriĝu.
+
+Enpremi en la teron.
+
+Enpremi iun en funelon.
+
+Enskribu en vian memoron.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Enspezo postulas elspezon.
+
+Envia moko sukceson ne detruas.
+
+Esperis flaton — ricevis baton.
+
+Espero kaj pacienco kondukas al potenco.
+
+Espero logas, espero mensogas.
+
+Espero panon ne donas.
+
+Espero postulas oferon.
+
+Estas ŝafoj, estos lano.
+
+Estas tubero en la afero.
+
+Esti anĝelo inter homoj, sed satano en la domo.
+
+Esti bone enskribita ĉe iu.
+
+Esti en granda embaraso.
+
+Esti en Romo kaj ne vidi la Papon.
+
+Esti en sia elemento.
+
+Esti en situacio sen eliro.
+
+Esti inter martelo kaj amboso.
+
+Esti sub la ŝuo (de sia edzino).
+
+Estinta amiko estas plej danĝera malamiko.
+
+Estintaj amikoj plej kruele malpacas.
+
+Estis la tempo, ni ne komprenis — pasis la tempo, la saĝ’ al ni venis.
+
+Estro ne malsatas.
+
+Estu ĉapo laŭ la kapo.
+
+
+ESPERANTA PROVERBARO
+
+
+Estu saĝa homo en via propra domo.
+
+Estu sinjoro de via vorto.
+
+
+ESPERANTA PROVERBARO
+
 
 f
 
-Fabeloj por infanoj. 
+Fabeloj por infanoj.
 
-Facile estas danci, se la feliĉo kantas. 
+Facile estas danci, se la feliĉo kantas.
 
-Fadeno iras, kien kudrilo ĝin tiras. 
+Fadeno iras, kien kudrilo ĝin tiras.
 
-Fajro provas la oron, mizero la koron. 
+Fajro provas la oron, mizero la koron.
 
-Fajron estingas akvo, pekon pardono. 
+Fajron estingas akvo, pekon pardono.
 
-Falinton ĉiu atakas. 
+Falinton ĉiu atakas.
 
-Falis el mano, prenu satano. 
+Falis el mano, prenu satano.
 
-Famo kredon allogas, sed tre ofte mensogas. 
+Famo kredon allogas, sed tre ofte mensogas.
 
-Famo laŭte krias, ĉiuj ekscias. 
+Famo laŭte krias, ĉiuj ekscias.
 
-Famo ne flugas, se kaŭzo ne estas. 
+Famo ne flugas, se kaŭzo ne estas.
 
-Faras rabon kaj ŝtelon, por oferi al Dio kandelon. 
+Faras rabon kaj ŝtelon, por oferi al Dio kandelon.
 
-Fari al iu bonan lavon. 
+Fari al iu bonan lavon.
 
-Fari al iu predikon pri moroj. 
+Fari al iu predikon pri moroj.
 
-Fari al iu ursan kareson. 
+Fari al iu ursan kareson.
 
-Fari aplaŭdon sur la vangon. 
+Fari aplaŭdon sur la vangon.
 
-Fari el iu arkon. 
+Fari el iu arkon.
 
-Fari el muŝo elefanton. 
+Fari el muŝo elefanton.
 
-Farita — elstrekita. 
+Farita — elstrekita.
 
-Farita ne refariĝos. 
+Farita ne refariĝos.
 
-31
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Farita via faro, nun adiaŭ, mia kara\! 
-
-Faro farinton rekomendas. 
-
-Faru hodiaŭ, kion vi povas — morgaŭ vi eble okazon ne trovos. 
-
-Faru vian aferon, Dio zorgos ceteron. 
-
-Fasto kaj preĝo riĉecon ne donas. 
-
-Feliĉo fierigas, malfeliĉo saĝigas. 
-
-Feliĉo hodiaŭ karesas, morgaŭ forgesas. 
-
-Feliĉo kaj riĉo envion elvokas. 
-
-Feliĉo leĝon ne konas. 
-
-Feliĉo leĝon ne obeas, subite naskiĝas, subite pereas. 
-
-Feliĉo venas gute, malfeliĉo venas flue. 
-
-Feliĉo vezike sin levas, sed baldaŭ falas kaj krevas. 
-
-Feliĉon oni ne heredas nek cedas. 
-
-Fendita ligno facile ekbrulas. 
-
-Festeno kaj ĉaso kaj da ŝuldoj amaso. 
-
-Festotaga laboro estas sen valoro. 
-
-Fianĉiĝis — por ĉiam ligiĝis. 
-
-Fianĉiĝo ne estas edziĝo. 
-
-Fianĉon de l’sorto difinitan forpelos nenia malhelpo. 
-
-Fidanta al vorto atendas ĝis morto. 
-
-Fiera mieno — kapo malplena. 
-
-Fiereco venas antaŭ la falo. 
-
-32
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Filo konfesis, patro forgesis. 
+Farita via faro, nun adiaŭ, mia kara!
 
-Finita kaj glatigita. 
+Faro farinton rekomendas.
 
-Fino bona, ĉio bona. 
+Faru hodiaŭ, kion vi povas — morgaŭ vi eble okazon ne trovos.
 
-Fino bona — ĉio bona; finiĝis malbone — des pli bone. 
+Faru vian aferon, Dio zorgos ceteron.
 
-Fiŝo granda naĝas profunde. 
+Fasto kaj preĝo riĉecon ne donas.
 
-Fiŝo ne iras, sed hoko ĝin tiras. 
+Feliĉo fierigas, malfeliĉo saĝigas.
 
-Fiŝo pli granda malgrandan englutas. 
+Feliĉo hodiaŭ karesas, morgaŭ forgesas.
 
-Fiŝo scias pri naĝo ankaŭ sen via saĝo. 
+Feliĉo kaj riĉo envion elvokas.
 
-Fiŝo sen vino estas veneno. 
+Feliĉo leĝon ne konas.
 
-Fiŝo serĉas dronon, homo serĉas bonon. 
+Feliĉo leĝon ne obeas, subite naskiĝas, subite pereas.
 
-Fiŝo serĉas profundon, homo serĉas abundon. 
+Feliĉo venas gute, malfeliĉo venas flue.
 
-Fiŝo volas naĝi. 
+Feliĉo vezike sin levas, sed baldaŭ falas kaj krevas.
 
-Flamiĝema kiel ligno rezina. 
+Feliĉon oni ne heredas nek cedas.
 
-Fleksu arbon dum ĝia juneco. 
+Fendita ligno facile ekbrulas.
 
-Flugema kiel vento. 
+Festeno kaj ĉaso kaj da ŝuldoj amaso.
 
-Fluidaĵo sen difino, nek vinagro nek vino. 
+Festotaga laboro estas sen valoro.
 
-Fluis sur lipoj, sed en buŝon ne trafis. 
+Fianĉiĝis — por ĉiam ligiĝis.
 
-For de l’okuloj, for de la koro. 
+Fianĉiĝo ne estas edziĝo.
 
-For el la manoj, for el kalkulo. 
+Fianĉon de l’sorto difinitan forpelos nenia malhelpo.
 
-For konscienco, venos potenco. 
+Fidanta al vorto atendas ĝis morto.
 
-Forĝu feron dum ĝi estas varmega. 
+Fiera mieno — kapo malplena.
 
-Fordoni anseron, por ricevi paseron. 
+Fiereco venas antaŭ la falo.
 
-Fordormi la okazon. 
-
-33
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Foresto de ofendo estas plej bona defendo. 
+Filo konfesis, patro forgesis.
 
-Forfluu infano kune kun la bano. 
+Finita kaj glatigita.
 
-Foriris bovido, revenis bovo. 
+Fino bona, ĉio bona.
 
-Formanĝis en merkredo, ne serĉu en vendredo. 
+Fino bona — ĉio bona; finiĝis malbone — des pli bone.
 
-Formeti en ar˛ivon. 
+Fiŝo granda naĝas profunde.
 
-Formeti ĝis la grekaj kalendoj. 
+Fiŝo ne iras, sed hoko ĝin tiras.
 
-Formeti la aferon en la keston de forgeso. 
+Fiŝo pli granda malgrandan englutas.
 
-Forportu vian pakaĵon kaj havaĵon\! 
+Fiŝo scias pri naĝo ankaŭ sen via saĝo.
 
-Forsavis sian korpon kaj animon. 
+Fiŝo sen vino estas veneno.
 
-Forte sidas, kiu Dion fidas. 
+Fiŝo serĉas dronon, homo serĉas bonon.
 
-Fortoj leporaj, kaj kapricoj sinjoraj. 
+Fiŝo serĉas profundon, homo serĉas abundon.
 
-Forveturis azenido kaj revenis azeno. 
+Fiŝo volas naĝi.
 
-Forveturis malsaĝa, revenis nur pli aĝa. 
+Flamiĝema kiel ligno rezina.
 
-France saĝa, angle sovaĝa. 
+Fleksu arbon dum ĝia juneco.
 
-Fremda animo estas abismo sen limo. 
+Flugema kiel vento.
 
-Fremda doloro ne kondukas al ploro. 
+Fluidaĵo sen difino, nek vinagro nek vino.
 
-Fremda korpo ne doloras. 
+Fluis sur lipoj, sed en buŝon ne trafis.
 
-Fremda malfeliĉo instruas. 
+For de l’okuloj, for de la koro.
 
-Fremda manĝo havas bonan guston. 
+For el la manoj, for el kalkulo.
 
-Fremda medito estas kaŝita. 
+For konscienco, venos potenco.
 
-Fremda mizero ne estas sufero. 
+Forĝu feron dum ĝi estas varmega.
 
-Fremda mizero — ridinda afero. 
+Fordoni anseron, por ricevi paseron.
 
-Fremda spesmilo estas sen utilo. 
+Fordormi la okazon.
 
-34
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Fremdan dorson bastoni — ankaŭ sian doni. 
+Foresto de ofendo estas plej bona defendo.
 
-Fremdan vundon kaŝas vesto. 
+Forfluu infano kune kun la bano.
 
-Fremdlando objekton por speso donas, sed por ĝin venigi, oni spesmilon bezonas. 
+Foriris bovido, revenis bovo.
 
-Frosto lin atakis. 
+Formanĝis en merkredo, ne serĉu en vendredo.
 
-Frue leviĝu kaj frue edziĝu. 
+Formeti en ar˛ivon.
 
-Frukto malpermesita estas plej bongusta. 
+Formeti ĝis la grekaj kalendoj.
 
-Fungon englutis\! 
+Formeti la aferon en la keston de forgeso.
 
-35
+Forportu vian pakaĵon kaj havaĵon!
+
+Forsavis sian korpon kaj animon.
+
+Forte sidas, kiu Dion fidas.
+
+Fortoj leporaj, kaj kapricoj sinjoraj.
+
+Forveturis azenido kaj revenis azeno.
+
+Forveturis malsaĝa, revenis nur pli aĝa.
+
+France saĝa, angle sovaĝa.
+
+Fremda animo estas abismo sen limo.
+
+Fremda doloro ne kondukas al ploro.
+
+Fremda korpo ne doloras.
+
+Fremda malfeliĉo instruas.
+
+Fremda manĝo havas bonan guston.
+
+Fremda medito estas kaŝita.
+
+Fremda mizero ne estas sufero.
+
+Fremda mizero — ridinda afero.
+
+Fremda spesmilo estas sen utilo.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Gardatan ŝafon eĉ lupo timas. 
+Fremdan dorson bastoni — ankaŭ sian doni.
 
-Gardu kandelon por la nokto. 
+Fremdan vundon kaŝas vesto.
+
+Fremdlando objekton por speso donas, sed por ĝin venigi, oni spesmilon bezonas.
+
+Frosto lin atakis.
+
+Frue leviĝu kaj frue edziĝu.
+
+Frukto malpermesita estas plej bongusta.
+
+Fungon englutis!
+
+
+ESPERANTA PROVERBARO
+
+
+Gardatan ŝafon eĉ lupo timas.
+
+Gardu kandelon por la nokto.
 
 g
 
-Gardu min Dio kontraŭ amikoj, kontraŭ malamikoj mi gardos min mem. 
+Gardu min Dio kontraŭ amikoj, kontraŭ malamikoj mi gardos min mem.
 
-Gardu vin du baroj: lipoj kaj dentaroj. 
+Gardu vin du baroj: lipoj kaj dentaroj.
 
-Gast’ en tempo malĝusta estas ŝtono sur brusto. 
+Gast’ en tempo malĝusta estas ŝtono sur brusto.
 
-Gasto havas akrajn okulojn. 
+Gasto havas akrajn okulojn.
 
-Gasto kiel fiŝo baldaŭ fariĝas malfreŝa. 
+Gasto kiel fiŝo baldaŭ fariĝas malfreŝa.
 
-Gasto sen avizo estas agrabla surprizo. 
+Gasto sen avizo estas agrabla surprizo.
 
-Gasto tro petata foriras malsata. 
+Gasto tro petata foriras malsata.
 
-Geamantoj sin pikas. 
+Geamantoj sin pikas.
 
-Geedzoj en paco vivas en reĝa palaco. 
+Geedzoj en paco vivas en reĝa palaco.
 
-Granda doto kaj oro, sed mankas la koro. 
+Granda doto kaj oro, sed mankas la koro.
 
-Granda estas la mondo, sed rifuĝon ne donas. 
+Granda estas la mondo, sed rifuĝon ne donas.
 
-Granda frakaso en malgranda glaso. 
+Granda frakaso en malgranda glaso.
 
-Granda kranio, sed interne nenio. 
+Granda kranio, sed interne nenio.
 
-Granda nubo, eta pluvo. 
+Granda nubo, eta pluvo.
 
-Granda nubo, malgranda pluvo. 
+Granda nubo, malgranda pluvo.
 
-Granda ofico, grandaj zorgoj. 
+Granda ofico, grandaj zorgoj.
 
-36
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Granda parolisto estas duba faristo. 
-
-Granda parolo, sed malgranda volo. 
-
-Granda ŝipo bezonas profundon. 
-
-Granda telero, malplena kulero. 
-
-Grandaj malbonoj — grandaj rimedoj. 
-
-Griza barbo saĝon ne atestas. 
-
-Groŝo ŝparita neniam perdiĝas. 
-
-Groŝon ŝtelis — ho, ŝtelisto\! Milojn ŝtelis — financisto. 
-
-Guto malgranda, sed ŝtonon ĝi boras. 
-
-37
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Granda parolisto estas duba faristo.
+
+Granda parolo, sed malgranda volo.
+
+Granda ŝipo bezonas profundon.
+
+Granda telero, malplena kulero.
+
+Grandaj malbonoj — grandaj rimedoj.
+
+Griza barbo saĝon ne atestas.
+
+Groŝo ŝparita neniam perdiĝas.
+
+Groŝon ŝtelis — ho, ŝtelisto! Milojn ŝtelis — financisto.
+
+Guto malgranda, sed ŝtonon ĝi boras.
+
+
+ESPERANTA PROVERBARO
+
 
 ĝ
 
-¯emu kaj ploru, sed ĝis fino laboru. 
+emu kaj ploru, sed ĝis fino laboru.
 
-¯entila kaj trankvila, kun koro el oro. 
+entila kaj trankvila, kun koro el oro.
 
-¯i eĉ ne tuŝas lian orelon. 
+i eĉ ne tuŝas lian orelon.
 
-¯i estas akvo al lia muelilo. 
+i estas akvo al lia muelilo.
 
-¯i estas al li tre bonvena. 
+i estas al li tre bonvena.
 
-¯i estas ankoraŭ birdo sur la tegmento. 
+i estas ankoraŭ birdo sur la tegmento.
 
-¯i estas ankoraŭ malproksime en la kampo. 
+i estas ankoraŭ malproksime en la kampo.
 
-¯i estas ankoraŭ pasero en aero. 
+i estas ankoraŭ pasero en aero.
 
-¯i estas ankoraŭ vortoj de orakolo. 
+i estas ankoraŭ vortoj de orakolo.
 
-¯i estas kiel mustardo post la manĝo. 
+i estas kiel mustardo post la manĝo.
 
-¯i estas malpaco pri la reĝa palaco. 
+i estas malpaco pri la reĝa palaco.
 
-¯i estas nek lakto, nek selakto. 
+i estas nek lakto, nek selakto.
 
-¯i estas nek viando, nek fiŝo. 
+i estas nek viando, nek fiŝo.
 
-¯i estas por mi ĉina scienco. 
+i estas por mi ĉina scienco.
 
-¯i estas por mi makulo en la okulo. 
+i estas por mi makulo en la okulo.
 
-¯i estas por mi volapukaĵo. 
+i estas por mi volapukaĵo.
 
-¯i estu por vi al sano\! 
+i estu por vi al sano!
 
-¯i fariĝis por mi osto en la gorĝo. 
+i fariĝis por mi osto en la gorĝo.
 
-¯i glitas de li kiel pizo de muro. 
+i glitas de li kiel pizo de muro.
 
-38
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-¯i havas ankoraŭ signon de demando. 
-
-¯i helpos kiel hirud’ al mortinto. 
-
-¯i iris al li preter la buŝon. 
-
-¯i jam staras al mi en la gorĝo. 
-
-¯i ne eliris ankoraŭ el malproksima nebulo. 
-
-¯i ne estas tiel facila, kiel laboro argila. 
-
-¯i staras ankoraŭ malproksime en la kampo. 
-
-¯i tuŝas lin, kiel akvo anseron. 
-
-¯ibulo ĝis morto restos ĝibulo. 
-
-¯is la edziĝo ĝi resaniĝos. 
-
-¯is la edziĝo venos resaniĝo. 
-
-¯oju kaj festenu, sed malriĉulojn subtenu. 
-
-¯ustatempa vorto estas granda forto. 
-
-39
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+i havas ankoraŭ signon de demando.
+
+i helpos kiel hirud’ al mortinto.
+
+i iris al li preter la buŝon.
+
+i jam staras al mi en la gorĝo.
+
+i ne eliris ankoraŭ el malproksima nebulo.
+
+i ne estas tiel facila, kiel laboro argila.
+
+i staras ankoraŭ malproksime en la kampo.
+
+i tuŝas lin, kiel akvo anseron.
+
+ibulo ĝis morto restos ĝibulo.
+
+is la edziĝo ĝi resaniĝos.
+
+is la edziĝo venos resaniĝo.
+
+oju kaj festenu, sed malriĉulojn subtenu.
+
+ustatempa vorto estas granda forto.
+
+
+ESPERANTA PROVERBARO
+
 
 h
 
-Hakado de ligno donas lignerojn. 
+Hakado de ligno donas lignerojn.
 
-Hakilo estas tranĉa, sed ne cedas la branĉo. 
+Hakilo estas tranĉa, sed ne cedas la branĉo.
 
-Hako post hako estas la plej efika atako. 
+Hako post hako estas la plej efika atako.
 
-Havi ĉe iu krediton kaj meriton. 
+Havi ĉe iu krediton kaj meriton.
 
-Havi iom da vaporo en la kapo. 
+Havi iom da vaporo en la kapo.
 
-Havi la ĉefan voĉon. 
+Havi la ĉefan voĉon.
 
-Havi la orelojn sur ĝusta loko. 
+Havi la orelojn sur ĝusta loko.
 
-Havi larĝan konsciencon. 
+Havi larĝan konsciencon.
 
-Havi malprofiton. 
+Havi malprofiton.
 
-Havi orelojn sur ĝusta loko. 
+Havi orelojn sur ĝusta loko.
 
-Havi varman lokon. 
+Havi varman lokon.
 
-Havi vinagron en la mieno. 
+Havi vinagron en la mieno.
 
-Havu poton malgrandan, sed mem estu granda. 
+Havu poton malgrandan, sed mem estu granda.
 
-Hazardo estas malbona gardo. 
+Hazardo estas malbona gardo.
 
-Hejma dometo estas kiel patrineto. 
+Hejma dometo estas kiel patrineto.
 
-Helpas krako kontraŭ atako. 
+Helpas krako kontraŭ atako.
 
-Hodiaŭ al mi, morgaŭ al vi. 
+Hodiaŭ al mi, morgaŭ al vi.
 
-Hodiaŭ festene, morgaŭ malplene. 
+Hodiaŭ festene, morgaŭ malplene.
 
-Hodiaŭ festene, morgaŭ malplene. 
+Hodiaŭ festene, morgaŭ malplene.
 
-40
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Hodiaŭ forto, morgaŭ morto. 
-
-Hodiaŭ pagi vi devas, morgaŭ kredite ricevos. 
-
-Hodiaŭ supre, morgaŭ malsupre. 
-
-Hoko elsaltis, afero haltis. 
-
-Hom’ malesperas, Dio aperas. 
-
-Homo bagatelema. 
-
-Homo esperas, morto aperas. 
-
-Homo fidas, feliĉo decidas. 
-
-Homo lernas la tutan vivon. 
-
-Homo pafas, Dio trafas. 
-
-Homo proponas, Dio disponas. 
-
-Homo senpeka neniam ekzistis. 
-
-Honoro ne donas, kion stomako bezonas. 
-
-Horo matena estas horo bena. 
-
-Hunda vivo. 
-
-Hundo bojas, homo vojas. 
-
-Hundo bojas la vojon, vento portas la bojon. 
-
-Hundo bojas, pasanto vojas. 
-
-Hundo bonrasa estas bona por ĉaso. 
-
-Hundo povas boji eĉ kontraŭ la reĝo. 
-
-41
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Hodiaŭ forto, morgaŭ morto.
+
+Hodiaŭ pagi vi devas, morgaŭ kredite ricevos.
+
+Hodiaŭ supre, morgaŭ malsupre.
+
+Hoko elsaltis, afero haltis.
+
+Hom’ malesperas, Dio aperas.
+
+Homo bagatelema.
+
+Homo esperas, morto aperas.
+
+Homo fidas, feliĉo decidas.
+
+Homo lernas la tutan vivon.
+
+Homo pafas, Dio trafas.
+
+Homo proponas, Dio disponas.
+
+Homo senpeka neniam ekzistis.
+
+Honoro ne donas, kion stomako bezonas.
+
+Horo matena estas horo bena.
+
+Hunda vivo.
+
+Hundo bojas, homo vojas.
+
+Hundo bojas la vojon, vento portas la bojon.
+
+Hundo bojas, pasanto vojas.
+
+Hundo bonrasa estas bona por ĉaso.
+
+Hundo povas boji eĉ kontraŭ la reĝo.
+
+
+ESPERANTA PROVERBARO
+
 
 i
 
-Iafoje oni devas okulon fermeti. 
+Iafoje oni devas okulon fermeti.
 
-Iele, iome, duone malbone. 
+Iele, iome, duone malbone.
 
-Ili estas en akordo, kiel peto kaj mordo. 
+Ili estas en akordo, kiel peto kaj mordo.
 
-Ili vivas per unu animo en du korpoj. 
+Ili vivas per unu animo en du korpoj.
 
-Ilo el oro taŭgas por ĉiu laboro. 
+Ilo el oro taŭgas por ĉiu laboro.
 
-Imiti grandsinjoron, perdi baldaŭ la oron. 
+Imiti grandsinjoron, perdi baldaŭ la oron.
 
-Infana inklino restas ĝis la fino. 
+Infana inklino restas ĝis la fino.
 
-Infano ne krias, patrino ne scias. 
+Infano ne krias, patrino ne scias.
 
-Infano ŝtelas ovon, grandaĝulo ŝtelas bovon. 
+Infano ŝtelas ovon, grandaĝulo ŝtelas bovon.
 
-Infanoj kaj fiŝoj voĉon ne havas. 
+Infanoj kaj fiŝoj voĉon ne havas.
 
-Infanon malbonigas ne petolado, sed malbona kamarado. 
+Infanon malbonigas ne petolado, sed malbona kamarado.
 
-Instruas mizero manĝi panon sen butero. 
+Instruas mizero manĝi panon sen butero.
 
-Insulto ne algluiĝas. 
+Insulto ne algluiĝas.
 
-Inter faro kaj rakonto staras meze granda monto. 
+Inter faro kaj rakonto staras meze granda monto.
 
-Inter fremdaj ŝi estas edzino anĝela, kun la edzo ŝi estas demono kruela. 
+Inter fremdaj ŝi estas edzino anĝela, kun la edzo ŝi estas demono kruela.
 
-Inter generaloj parolu pri bataloj. 
+Inter generaloj parolu pri bataloj.
 
-Inter kornikoj ne konvenas predikoj. 
+Inter kornikoj ne konvenas predikoj.
 
-Inter la blinduloj reĝas la strabuloj. 
+Inter la blinduloj reĝas la strabuloj.
 
-42
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Inter la mano ĝis la buŝo ofte disverŝiĝas la supo. 
-
-Inter lupoj kriu lupe. 
-
-Inter miaj muroj estu miaj plezuroj. 
-
-Inter pokalo kaj lipoj povas multe okazi. 
-
-Interkonsento estas pli bona ol mono. 
-
-Iom da malvero ne estas danĝero. 
-
-Iras ĉiu kruro laŭ sia plezuro. 
-
-Iri for en bona hor’. 
-
-43
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Inter la mano ĝis la buŝo ofte disverŝiĝas la supo.
+
+Inter lupoj kriu lupe.
+
+Inter miaj muroj estu miaj plezuroj.
+
+Inter pokalo kaj lipoj povas multe okazi.
+
+Interkonsento estas pli bona ol mono.
+
+Iom da malvero ne estas danĝero.
+
+Iras ĉiu kruro laŭ sia plezuro.
+
+Iri for en bona hor’.
+
+
+ESPERANTA PROVERBARO
+
 
 j
 
-Jen kiaj ni estas\! 
+Jen kiaj ni estas!
 
-Jen staras la bovoj antaŭ la monto\! 
+Jen staras la bovoj antaŭ la monto!
 
-Ju cerbo pli prudenta, des lango pli silenta. 
+Ju cerbo pli prudenta, des lango pli silenta.
 
-Ju disputo pli forta, des pli multaj la vortoj. 
+Ju disputo pli forta, des pli multaj la vortoj.
 
-Ju homo pli fiera, des puno pli severa. 
+Ju homo pli fiera, des puno pli severa.
 
-Ju laboro pli publika, des pli granda la kritiko. 
+Ju laboro pli publika, des pli granda la kritiko.
 
-Ju pli da aĉetantoj, des pli alta la prezo. 
+Ju pli da aĉetantoj, des pli alta la prezo.
 
-Ju pli da babilado, des pli da pekado. 
+Ju pli da babilado, des pli da pekado.
 
-Ju pli da bruo, des malpli da ĝuo. 
+Ju pli da bruo, des malpli da ĝuo.
 
-Ju pli da donoj, des pli da amikoj. 
+Ju pli da donoj, des pli da amikoj.
 
-Ju pli da havo, des pli da pravo. 
+Ju pli da havo, des pli da pravo.
 
-Ju pli da honoro, des pli da laboro. 
+Ju pli da honoro, des pli da laboro.
 
-Ju pli da ĵuroj, des pli da suspekto. 
+Ju pli da ĵuroj, des pli da suspekto.
 
-Ju pli frue, des pli certe — ju pli volonte, des pli lerte. 
+Ju pli frue, des pli certe — ju pli volonte, des pli lerte.
 
-Ju pli granda bezono, des pli granda la prezo. 
+Ju pli granda bezono, des pli granda la prezo.
 
-Ju pli granda la deziro, des pli kara la akiro. 
+Ju pli granda la deziro, des pli kara la akiro.
 
-Ju pli la infanoj bezonas, des pli Dio al vi donas. 
+Ju pli la infanoj bezonas, des pli Dio al vi donas.
 
-Ju pli malproksimen la vojo, des pli da larmoj. 
+Ju pli malproksimen la vojo, des pli da larmoj.
 
-Ju pli oni babilas, des pli oni al si malutilas. 
+Ju pli oni babilas, des pli oni al si malutilas.
 
-44
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Ju pli oni posedas, des pli oni avidas. 
-
-Ju pli precizaj la kalkuloj, des pli fortika la amikeco. 
-
-Jugo propravola ne estas malmola. 
-
-Juĝanto decidas, kiel li vidas. 
-
-Juĝanto devas havi du orelojn. 
-
-Juĝo komencita paciĝon ne malhelpas. 
-
-Juku la haŭto, sed ne sur mia korpo. 
-
-Juneco ne scias, maljuneco ne povas. 
-
-Juneco petolis, maljuneco malsatos. 
-
-45
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Ju pli oni posedas, des pli oni avidas.
+
+Ju pli precizaj la kalkuloj, des pli fortika la amikeco.
+
+Jugo propravola ne estas malmola.
+
+Juĝanto decidas, kiel li vidas.
+
+Juĝanto devas havi du orelojn.
+
+Juĝo komencita paciĝon ne malhelpas.
+
+Juku la haŭto, sed ne sur mia korpo.
+
+Juneco ne scias, maljuneco ne povas.
+
+Juneco petolis, maljuneco malsatos.
+
+
+ESPERANTA PROVERBARO
+
 
 ĵ
 
-ĵeti bastonon en la radon. 
+ĵeti bastonon en la radon.
 
-ĵeti perlojn antaŭ la porkojn. 
+ĵeti perlojn antaŭ la porkojn.
 
-ĵeti polvon en la okulojn. 
+ĵeti polvon en la okulojn.
 
-ĵuri kaj reĵuri. 
+ĵuri kaj reĵuri.
 
-ĵuri per la barbo de l’profeto. 
+ĵuri per la barbo de l’profeto.
 
-46
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
 k
 
-Kaldrono ridas pri poto kaj mem estas kota. 
+Kaldrono ridas pri poto kaj mem estas kota.
 
-Kalkuli muŝojn. 
+Kalkuli muŝojn.
 
-Kalumniante konstante, oni eĉ anĝelon nigrigas. 
+Kalumniante konstante, oni eĉ anĝelon nigrigas.
 
-Kapo estas por tio, ke ĝi zorgu pri ĉio. 
+Kapo estas por tio, ke ĝi zorgu pri ĉio.
 
-Kapo kun herbo, sen guto da cerbo. 
+Kapo kun herbo, sen guto da cerbo.
 
-Kapo majesta, sed cerbo modesta. 
+Kapo majesta, sed cerbo modesta.
 
-Kapo malsaĝa ne griziĝas nek kalviĝas. 
+Kapo malsaĝa ne griziĝas nek kalviĝas.
 
-Kapo pekas, piedoj suferas. 
+Kapo pekas, piedoj suferas.
 
-Kapoj diferencas, kranioj egalas. 
+Kapoj diferencas, kranioj egalas.
 
-Kaprica fianĉino restos eterne fraŭlino. 
+Kaprica fianĉino restos eterne fraŭlino.
 
-Kapricoj de grandsinjoroj kaj multego da kreditoroj. 
+Kapricoj de grandsinjoroj kaj multego da kreditoroj.
 
-Kaptu lin kiel forflugintan venton. 
+Kaptu lin kiel forflugintan venton.
 
-Kapuĉo mona˛on ne faras. 
+Kapuĉo mona˛on ne faras.
 
-Kara estas dono en minuto de bezono. 
+Kara estas dono en minuto de bezono.
 
-Kara estas ovo, kiam venas la Pasko. 
+Kara estas ovo, kiam venas la Pasko.
 
-Karaktero olea. 
+Karaktero olea.
 
-Karakteron al kanto donas la tono. 
+Karakteron al kanto donas la tono.
 
-Karesi al iu la barbon. 
+Karesi al iu la barbon.
 
-Karesi kontraŭ la haroj. 
+Karesi kontraŭ la haroj.
 
-47
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Kastel’ en aero — malsato sur tero. 
-
-Kaŝu kiom vi povos, mensogo sin elŝovos. 
-
-Kaŝu malbenon kaj faru bonan mienon. 
-
-Ke la lup’ estu sata, kaj la ŝaf’ ne tuŝata. 
-
-Kelktempa ĉeso ne estas forgeso. 
-
-Kia ago, tia pago. 
-
-Kia demando, tia respondo. 
-
-Kia domaĝo\! 
-
-Kia drapo, tia vesto. 
-
-Kia estas la homo, tia estas lia nomo. 
-
-Kia estas via laboro, tia estas via valoro. 
-
-Kia fripono, tia bastono. 
-
-Kia greno, tia pano. 
-
-Kia la birdo, tia la kaĝo. 
-
-Kia la homo, tia la nomo. 
-
-Kia la kapo, tia la ĉapo. 
-
-Kia la poto, tia la kovrilo. 
-
-Kia la semo, tia la rikolto. 
-
-Kia naskiĝis, tia grandiĝis. 
-
-Kia naskinto, tiaj naskitoj. 
-
-Kia oni vin vidas, tia oni vin taksas. 
-
-Kia pago, tia ago. 
-
-Kia paroęstro, tia paro˛o. 
-
-48
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kia patrino, tia filino. 
+Kastel’ en aero — malsato sur tero.
 
-Kia regalato, tia regalado. 
+Kaŝu kiom vi povos, mensogo sin elŝovos.
 
-Kia reganto, tia servanto. 
+Kaŝu malbenon kaj faru bonan mienon.
 
-Kia sono, tia resono. 
+Ke la lup’ estu sata, kaj la ŝaf’ ne tuŝata.
 
-Kia sufloro, tia aktoro. 
+Kelktempa ĉeso ne estas forgeso.
 
-Kia vivo, tia morto. 
+Kia ago, tia pago.
 
-Kiaj kolegoj, tiaj kutimoj. 
+Kia demando, tia respondo.
 
-Kiam filino edziniĝis, multaj fianĉoj troviĝis. 
+Kia domaĝo!
 
-Kiam forto ordonas, leĝo pardonas. 
+Kia drapo, tia vesto.
 
-Kiam fratoj batalas, fremdulo ne eniĝu. 
+Kia estas la homo, tia estas lia nomo.
 
-Kiam havo malaperis, saĝo aperis. 
+Kia estas via laboro, tia estas via valoro.
 
-Kiam kato jam formanĝis, forpelado ne helpos. 
+Kia fripono, tia bastono.
 
-Kiam kato promenas, la musoj festenas. 
+Kia greno, tia pano.
 
-Kiam kreskas honoro, kreskas humoro. 
+Kia la birdo, tia la kaĝo.
 
-Kiam nokto vualas, ĉiuj koloroj egalas. 
+Kia la homo, tia la nomo.
 
-Kiam pasanto jam trinkis, li la puton insultas. 
+Kia la kapo, tia la ĉapo.
 
-Kiam pasis la aĝo, aperis la saĝo. 
+Kia la poto, tia la kovrilo.
 
-Kiam sako mizeras, amo malaperas. 
+Kia la semo, tia la rikolto.
 
-Kiam vorto eliris, vi ĝin jam ne retiros. 
+Kia naskiĝis, tia grandiĝis.
 
-Kie ajn rano iras, ĝi ĉiam marĉon sopiras. 
+Kia naskinto, tiaj naskitoj.
 
-Kie dento doloras, tien iras la lango. 
+Kia oni vin vidas, tia oni vin taksas.
 
-Kie diablo ne povas, tien virinon li ŝovas. 
+Kia pago, tia ago.
 
-Kie estas harmonio, estas beno de Dio. 
+Kia paroęstro, tia paro˛o.
 
-49
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kie estas mielo, tie muŝoj ne mankas. 
+Kia patrino, tia filino.
 
-Kie estas pano, ne mankas panpecetoj. 
+Kia regalato, tia regalado.
 
-Kie estas sufero, estas ankaŭ espero. 
+Kia reganto, tia servanto.
 
-Kie fumo leviĝas, tie fajro troviĝas. 
+Kia sono, tia resono.
 
-Kie jukas, tie ni gratas. 
+Kia sufloro, tia aktoro.
 
-Kie lumo ekzistas, ankaŭ ombro troviĝas. 
+Kia vivo, tia morto.
 
-Kie maldike, tie rompiĝas. 
+Kiaj kolegoj, tiaj kutimoj.
 
-Kie mi disponas, tie mi ordonas. 
+Kiam filino edziniĝis, multaj fianĉoj troviĝis.
 
-Kie minaco, tie malpaco. 
+Kiam forto ordonas, leĝo pardonas.
 
-Kie ne estas konsileble, tie ne estas helpeble. 
+Kiam fratoj batalas, fremdulo ne eniĝu.
 
-Kie pano estas, tie musoj ne mankas. 
+Kiam havo malaperis, saĝo aperis.
 
-Kie regas konkordo, regas ordo. 
+Kiam kato jam formanĝis, forpelado ne helpos.
 
-Kie regas la forto, tie rajto silentas. 
+Kiam kato promenas, la musoj festenas.
 
-Kie regas virino, malbona estas la fino. 
+Kiam kreskas honoro, kreskas humoro.
 
-Kie sklav’ regadon havas, tie mastro baldaŭ sklavas. 
+Kiam nokto vualas, ĉiuj koloroj egalas.
 
-Kie timo, tie honto. 
+Kiam pasanto jam trinkis, li la puton insultas.
 
-Kie ĵuron vi aŭdas, malbonon suspektu. 
+Kiam pasis la aĝo, aperis la saĝo.
 
-Kiel akirite, tiel perdite. 
+Kiam sako mizeras, amo malaperas.
 
-Kiel li meritis, tiel li profitis. 
+Kiam vorto eliris, vi ĝin jam ne retiros.
 
-Kiel oni sternas, tiel oni dormas. 
+Kie ajn rano iras, ĝi ĉiam marĉon sopiras.
 
-Kiel oni, tiel ĉe ni. 
+Kie dento doloras, tien iras la lango.
 
-Kiel oni vin taksas, tiel oni vin regalas. 
+Kie diablo ne povas, tien virinon li ŝovas.
 
-Kiel oni vin vidas, tiel oni vin taksas. 
+Kie estas harmonio, estas beno de Dio.
 
-50
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kien ajn mi pafas, ĉio maltrafas. 
+Kie estas mielo, tie muŝoj ne mankas.
 
-Kien kudrilo iras, tien fadenon ĝi tiras. 
+Kie estas pano, ne mankas panpecetoj.
 
-Kien vi vin turnos, ĉie malbone. 
+Kie estas sufero, estas ankaŭ espero.
 
-Kies gasto mi estas, ties feston mi festas. 
+Kie fumo leviĝas, tie fajro troviĝas.
 
-Kio akorde ne sonas, tio rimon ne donas. 
+Kie jukas, tie ni gratas.
 
-Kio al mi sonis, tion mi resonas. 
+Kie lumo ekzistas, ankaŭ ombro troviĝas.
 
-Kio al unu donas forton, al alia donas morton. 
+Kie maldike, tie rompiĝas.
 
-Kio aliloke promenos, al ni ankaŭ ĝi venos. 
+Kie mi disponas, tie mi ordonas.
 
-Kio bone aspektas, tion ĉiu elektas. 
+Kie minaco, tie malpaco.
 
-Kio doloras, pri tio ni ploras. 
+Kie ne estas konsileble, tie ne estas helpeble.
 
-Kio el la dentoj elsaltas, en la lipoj ne haltas. 
+Kie pano estas, tie musoj ne mankas.
 
-Kio en koro sidas, la vizaĝo perfidas. 
+Kie regas konkordo, regas ordo.
 
-Kio en la kapo, tio sur la lango. 
+Kie regas la forto, tie rajto silentas.
 
-Kio estas bona por vi, estas bona por mi. 
+Kie regas virino, malbona estas la fino.
 
-Kio estas farita, estas sankciita. 
+Kie sklav’ regadon havas, tie mastro baldaŭ sklavas.
 
-Kio estas lernita, ne estas perdita. 
+Kie timo, tie honto.
 
-Kio estis kaj pasis, tion tempo frakasis. 
+Kie ĵuron vi aŭdas, malbonon suspektu.
 
-Kio fariĝis, jam ne refariĝos. 
+Kiel akirite, tiel perdite.
 
-Kio iras el koro, venas al koro. 
+Kiel li meritis, tiel li profitis.
 
-Kio komenciĝis, tio ankaŭ finiĝos. 
+Kiel oni sternas, tiel oni dormas.
 
-Kio konvenas al sciuro, ne konvenas al vulturo. 
+Kiel oni, tiel ĉe ni.
 
-Kio kostas malmulte, kostas plej kare. 
+Kiel oni vin taksas, tiel oni vin regalas.
 
-Kio mem ne venas, li per la dentoj ĝin prenas. 
+Kiel oni vin vidas, tiel oni vin taksas.
 
-51
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kio mia, tio bona. 
+Kien ajn mi pafas, ĉio maltrafas.
 
-Kio min ne tuŝas, kuŝu kiel kuŝas. 
+Kien kudrilo iras, tien fadenon ĝi tiras.
 
-Kio multe kostas, multe valoras. 
+Kien vi vin turnos, ĉie malbone.
 
-Kio pasis, ne revenos. 
+Kies gasto mi estas, ties feston mi festas.
 
-Kio pasis, nin forlasis. 
+Kio akorde ne sonas, tio rimon ne donas.
 
-Kio post la montoj kuŝas, tio nin neniom tuŝas. 
+Kio al mi sonis, tion mi resonas.
 
-Kio servas por ĉio, taŭgas por nenio. 
+Kio al unu donas forton, al alia donas morton.
 
-Kio taŭgas por somero, ne taŭgas por vintro. 
+Kio aliloke promenos, al ni ankaŭ ĝi venos.
 
-Kio tra l’dentoj travenis, tion la lipoj ne retenos. 
+Kio bone aspektas, tion ĉiu elektas.
 
-Kio vendiĝas kaŝite, vendiĝas plej profite. 
+Kio doloras, pri tio ni ploras.
 
-Kiom ajn oni penas, per forto plaĉo ne venas. 
+Kio el la dentoj elsaltas, en la lipoj ne haltas.
 
-Kiom ajn vi penos, nenio elvenos. 
+Kio en koro sidas, la vizaĝo perfidas.
 
-Kiom da homoj, tiom da gustoj. 
+Kio en la kapo, tio sur la lango.
 
-Kiom da juĝantoj, tiom da juĝoj. 
+Kio estas bona por vi, estas bona por mi.
 
-Kiom da kapoj, tiom da opinioj. 
+Kio estas farita, estas sankciita.
 
-Kiom da koroj, tiom da voloj. 
+Kio estas lernita, ne estas perdita.
 
-Kiom la koro deziras. 
+Kio estis kaj pasis, tion tempo frakasis.
 
-Kion Dio ne donis, perforte ne postulu. 
+Kio fariĝis, jam ne refariĝos.
 
-Kion Dio ne donis, tion perforte ne serĉu. 
+Kio iras el koro, venas al koro.
 
-Kion jaroj ne donis, ofte minuto alportas. 
+Kio komenciĝis, tio ankaŭ finiĝos.
 
-Kion koro portas, vizaĝo raportas. 
+Kio konvenas al sciuro, ne konvenas al vulturo.
 
-Kion koro sentas, lango prezentas. 
+Kio kostas malmulte, kostas plej kare.
 
-Kion leĝo malpermesas, tio plaĉi ne ĉesas. 
+Kio mem ne venas, li per la dentoj ĝin prenas.
 
-52
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kion mem mi faras, tion ĉie mi flaras. 
+Kio mia, tio bona.
 
-Kion mi ne scias, tion mi ne envias. 
+Kio min ne tuŝas, kuŝu kiel kuŝas.
 
-Kion mi ne sentas, pri tio mi silentas. 
+Kio multe kostas, multe valoras.
 
-Kion mi povas, tion mi elŝovas. 
+Kio pasis, ne revenos.
 
-Kion ni havas, por ni ne valoras — kiam ni ĝin perdis, ni ploras. 
+Kio pasis, nin forlasis.
 
-Kion ni vere bezonas, Dio ĝin donas. 
+Kio post la montoj kuŝas, tio nin neniom tuŝas.
 
-Kion oni volas, tion oni povas. 
+Kio servas por ĉio, taŭgas por nenio.
 
-Kion Parizo aplaŭdas, Berlino mallaŭdas. 
+Kio taŭgas por somero, ne taŭgas por vintro.
 
-Kion rajtas leono, ne rajtas azeno. 
+Kio tra l’dentoj travenis, tion la lipoj ne retenos.
 
-Kion saĝulo ne komprenas, ofte malsaĝa divenas. 
+Kio vendiĝas kaŝite, vendiĝas plej profite.
 
-Kion sobreco deziras, ebrieco ĝin diras. 
+Kiom ajn oni penas, per forto plaĉo ne venas.
 
-Kion vi ne perdis, tion ne serĉu. 
+Kiom ajn vi penos, nenio elvenos.
 
-Kion vi pripensas, tio al vi venas. 
+Kiom da homoj, tiom da gustoj.
 
-Kion vi semas, tion vi rikoltos. 
+Kiom da juĝantoj, tiom da juĝoj.
 
-Kiso antaŭ amaso estas kiso de Judaso. 
+Kiom da kapoj, tiom da opinioj.
 
-Kiso malsincera estas danĝera. 
+Kiom da koroj, tiom da voloj.
 
-Kiso publika estas kiso malamika. 
+Kiom la koro deziras.
 
-Kiu aŭdis unuan, ankaŭ aŭdu la duan. 
+Kion Dio ne donis, perforte ne postulu.
 
-Kiu aŭskultas, kie li ne devas, tiu aŭdas, kion li ne revas. 
+Kion Dio ne donis, tion perforte ne serĉu.
 
-Kiu agas afable, vivas agrable. 
+Kion jaroj ne donis, ofte minuto alportas.
 
-Kiu akceptas donacon, perdas la pacon. 
+Kion koro portas, vizaĝo raportas.
 
-Kiu akvon evitas, droni ne timas. 
+Kion koro sentas, lango prezentas.
 
-53
+Kion leĝo malpermesas, tio plaĉi ne ĉesas.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Kiu amas honoron, amu laboron. 
-
-Kiu amas la liton, ne akiros profiton. 
-
-Kiu amas okulaĉi, ne havas kion maĉi. 
-
-Kiu amas ĝuon, amu ankaŭ enuon. 
-
-Kiu avidas pli bonan, perdas plej bezonan. 
-
-Kiu batas edzinon, tiu vundas sin mem. 
-
-Kiu bati deziras, trovas bastonon. 
-
-Kiu bojas, ne mordas. 
-
-Kiu bone agas, timi ne bezonas. 
-
-Kiu bone sidas, tiu lokon ne ŝanĝu. 
-
-Kiu bone ŝmiras, bone veturas. 
-
-Kiu ĉasas du leporojn, kaptas neniun. 
-
-Kiu ĉe l’vojo konstruas, tiun ĉiu instruas. 
-
-Kiu cedas al infano, ĝin pereigas per propra mano. 
-
-Kiu ĉion formanĝis en tago, malsatos vespere. 
-
-Kiu ĉion senpripense parolas, aŭdos tion, kion li ne volas. 
-
-Kiu demandas, tiu ne eraras. 
-
-Kiu devas, tiu elekti ne povas. 
-
-Kiu devas, tiu povas. 
-
-Kiu diras la veron, havas suferon. 
-
-Kiu domaĝas groŝon, perdas la tutan poŝon. 
-
-Kiu donacon prenas, tiu sin katenas. 
-
-Kiu donas rapide, donas duoble. 
-
-54
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kiu donis garantion, tiu pagu la ŝuldon. 
+Kion mem mi faras, tion ĉie mi flaras.
 
-Kiu dormas longe, vivas mallonge. 
+Kion mi ne scias, tion mi ne envias.
 
-Kiu edziĝas, tiu ŝanĝiĝas. 
+Kion mi ne sentas, pri tio mi silentas.
 
-Kiu elektas tro multe, ricevas nenion. 
+Kion mi povas, tion mi elŝovas.
 
-Kiu entreprenis, tiu sin tenu. 
+Kion ni havas, por ni ne valoras — kiam ni ĝin perdis, ni ploras.
 
-Kiu entreprenis, tiu sin tenu. 
+Kion ni vere bezonas, Dio ĝin donas.
 
-Kiu flatas al ĉiu, plaĉas al neniu. 
+Kion oni volas, tion oni povas.
 
-Kiu forton ne havas, ĉiam malpravas. 
+Kion Parizo aplaŭdas, Berlino mallaŭdas.
 
-Kiu fosas sub alia, falos mem en la foson. 
+Kion rajtas leono, ne rajtas azeno.
 
-Kiu frapas, al tiu oni malfermas. 
+Kion saĝulo ne komprenas, ofte malsaĝa divenas.
 
-Kiu fremdan avidas, propran forperdas. 
+Kion sobreco deziras, ebrieco ĝin diras.
 
-Kiu frue leviĝas, facile riĉiĝas. 
+Kion vi ne perdis, tion ne serĉu.
 
-Kiu garantias, trankvilon ne scias. 
+Kion vi pripensas, tio al vi venas.
 
-Kiu glutis tro multe, tiu agas tro stulte. 
+Kion vi semas, tion vi rikoltos.
 
-Kiu groŝon ne hororas, eĉ duongroŝon ne valoras. 
+Kiso antaŭ amaso estas kiso de Judaso.
 
-Kiu groŝon ne respektas, riĉecon ne kolektas. 
+Kiso malsincera estas danĝera.
 
-Kiu havas abelojn, havas mielon. 
+Kiso publika estas kiso malamika.
 
-Kiu havas bonan najbaron, havas bonan tagon. 
+Kiu aŭdis unuan, ankaŭ aŭdu la duan.
 
-Kiu havas forton, havas rajton. 
+Kiu aŭskultas, kie li ne devas, tiu aŭdas, kion li ne revas.
 
-Kiu havas la forton, havas la rajton. 
+Kiu agas afable, vivas agrable.
 
-Kiu havas malican celon, ofte perdas sian propran felon. 
+Kiu akceptas donacon, perdas la pacon.
 
-Kiu havas nenion, estas nenio. 
+Kiu akvon evitas, droni ne timas.
 
-Kiu havas nenion, estas neniu. 
-
-55
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kiu havas oron, havas honoron. 
+Kiu amas honoron, amu laboron.
 
-Kiu hontas nenion, ne timas Dion. 
+Kiu amas la liton, ne akiros profiton.
 
-Kiu hundon mian batas, min mem ne tre ŝatas. 
+Kiu amas okulaĉi, ne havas kion maĉi.
 
-Kiu iras sperte, iras certe. 
+Kiu amas ĝuon, amu ankaŭ enuon.
 
-Kiu iras trankvile, iras facile. 
+Kiu avidas pli bonan, perdas plej bezonan.
 
-Kiu jam havas, tiu pravas. 
+Kiu batas edzinon, tiu vundas sin mem.
 
-Kiu kaĉon aranĝas, tiu ĝin manĝas. 
+Kiu bati deziras, trovas bastonon.
 
-Kiu kaĉon kuiris, tiu ĝin manĝu. 
+Kiu bojas, ne mordas.
 
-Kiu kapon posedas, kombilon jam trovos. 
+Kiu bone agas, timi ne bezonas.
 
-Kiu kaptas tro vaste, konservas malmulte. 
+Kiu bone sidas, tiu lokon ne ŝanĝu.
 
-Kiu koleras, tiu ne prosperas. 
+Kiu bone ŝmiras, bone veturas.
 
-Kiu koleras, tiu perdas. 
+Kiu ĉasas du leporojn, kaptas neniun.
 
-Kiu komencas juĝon, iras sub jugon. 
+Kiu ĉe l’vojo konstruas, tiun ĉiu instruas.
 
-Kiu komencas tro frue, finas malfrue. 
+Kiu cedas al infano, ĝin pereigas per propra mano.
 
-Kiu komencis kuiri, ne forkuru de l’fajro. 
+Kiu ĉion formanĝis en tago, malsatos vespere.
 
-Kiu konsilas kaj rezonas, tiu helpon ne donas. 
+Kiu ĉion senpripense parolas, aŭdos tion, kion li ne volas.
 
-Kiu konstante lokon ŝanĝas, neniam sin aranĝas. 
+Kiu demandas, tiu ne eraras.
 
-Kiu kritikas kuraĝe, mem agas malsaĝe. 
+Kiu devas, tiu elekti ne povas.
 
-Kiu kuraĝe aliras, facile akiras. 
+Kiu devas, tiu povas.
 
-Kiu kutimis ĉion juĝi, nenie povas rifuĝi. 
+Kiu diras la veron, havas suferon.
 
-Kiu laboras kaj deziras, tiu akiras — kiu mem ne penas, nenio al li venas. 
+Kiu domaĝas groŝon, perdas la tutan poŝon.
 
-Kiu laboron evitas, bonon ne vidas. 
+Kiu donacon prenas, tiu sin katenas.
 
-56
+Kiu donas rapide, donas duoble.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Kiu langon ne tenas, mem sin malbenas. 
-
-Kiu leviĝis fiere, baldaŭ falos al tero. 
-
-Kiu levis la piedon, devas ekpaĝi. 
-
-Kiu levis la piedon, devas ekpaŝi. 
-
-Kiu lin tuŝas, tiu lin sentas. 
-
-Kiu ludas kun koto, malpurigas la manojn. 
-
-Kiu lupo naskiĝis, vulpo ne fariĝos. 
-
-Kiu malmulte deziras, feliĉon akiras. 
-
-Kiu malmulton ne ŝatas, multon ne meritas. 
-
-Kiu manĝon al mi donas, tiu al mi ordonas. 
-
-Kiu mem sin adoras, nenion valoras. 
-
-Kiu mem sin gloras, malbone odoras. 
-
-Kiu mem sin laŭdas, tiun neniu aplaŭdas. 
-
-Kiu mensogas kutime, mensogas sentime. 
-
-Kiu mensogis per unu vorto, ne trovos kredon ĝis la morto. 
-
-Kiu metion disponas, mizeron ne konas. 
-
-Kiu minacas, tiu avertas. 
-
-Kiu mizeron ne havis, mizeron ne konas. 
-
-Kiu mordi ne povas, kisi ekprovas. 
-
-Kiu multe babilas, al si mem malutilas. 
-
-Kiu multe babilas, pensas malmulte. 
-
-Kiu multe minacas, ne estas danĝera. 
-
-Kiu multe parolas, malamikon konsolas. 
-
-57
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kiu multe parolas, ne multe faras. 
+Kiu donis garantion, tiu pagu la ŝuldon.
 
-Kiu multe profitas, ankaŭ perdon ne evitas. 
+Kiu dormas longe, vivas mallonge.
 
-Kiu multon deziras, nenion akiras. 
+Kiu edziĝas, tiu ŝanĝiĝas.
 
-Kiu naskiĝis sciuro, ne fariĝos vulturo. 
+Kiu elektas tro multe, ricevas nenion.
 
-Kiu ne akiras, kiam li povas, tiu poste deziras, sed jam ne retrovas. 
+Kiu entreprenis, tiu sin tenu.
 
-Kiu ne atentas la ”se”, tiu sentas la ”ve”. 
+Kiu entreprenis, tiu sin tenu.
 
-Kiu ne estis kaporalo, ne estos generalo. 
+Kiu flatas al ĉiu, plaĉas al neniu.
 
-Kiu ne konfidas, tiu ne bedaŭras. 
+Kiu forton ne havas, ĉiam malpravas.
 
-Kiu ne krimas, tiu ne timas. 
+Kiu fosas sub alia, falos mem en la foson.
 
-Kiu ne mensogas, tiu ne vendas. 
+Kiu frapas, al tiu oni malfermas.
 
-Kiu ne pekis, kiu ne eraris? 
+Kiu fremdan avidas, propran forperdas.
 
-Kiu ne petas, tiu ne ricevas. 
+Kiu frue leviĝas, facile riĉiĝas.
 
-Kiu ne riskas, tiu ne gajnas. 
+Kiu garantias, trankvilon ne scias.
 
-Kiu ne riskas, tiu ne havas. 
+Kiu glutis tro multe, tiu agas tro stulte.
 
-Kiu nenion valoras, plej multe sin gloras. 
+Kiu groŝon ne hororas, eĉ duongroŝon ne valoras.
 
-Kiu neniun savis, malamikon ne havas. 
+Kiu groŝon ne respektas, riĉecon ne kolektas.
 
-Kiu okazon forŝovas, ĝin jam ne retrovas. 
+Kiu havas abelojn, havas mielon.
 
-Kiu panon donas, malsaton ne konas. 
+Kiu havas bonan najbaron, havas bonan tagon.
 
-Kiu pekis, tiu pagas. 
+Kiu havas forton, havas rajton.
 
-Kiu perdis la kapon, ne bezonas jam ĉapon. 
+Kiu havas la forton, havas la rajton.
 
-Kiu pli frue venas, pli bonan lokon prenas. 
+Kiu havas malican celon, ofte perdas sian propran felon.
 
-Kiu pli frue venas, pli frue muelas. 
+Kiu havas nenion, estas nenio.
 
-58
+Kiu havas nenion, estas neniu.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Kiu por ĉiuj laboras, por si mem ne memoras. 
-
-Kiu povas antaŭvidi\! 
-
-Kiu pri ŝtelo silentas, tiu ŝtelon konsentas. 
-
-Kiu promesojn faras, tiu ne avaras. 
-
-Kiu prudenton ne havas, tiun saĝo ne savas. 
-
-Kiu rabi eliras, ofte nuda revenas. 
-
-Kiu regalas per ŝtonoj, tiun oni dankas per bastonoj. 
-
-Kiu resonis, tiu sin donis. 
-
-Kiu riĉiĝas, tiu fieriĝas. 
-
-Kiu rigardas ĉielon, maltrafas sian celon. 
-
-Kiu ripetas abunde, lernas plej funde. 
-
-Kiu rompis la glason, ordigu la kason. 
-
-Kiu rompis, tiu pagu. 
-
-Kiu saĝon ne havas, Dio lin savas. 
-
-Kiu semas venton, rikoltos fulmotondron. 
-
-Kiu sentas — ploras, kiu vidas — nur ridas. 
-
-Kiu serĉas marcipanon, perdas sian panon. 
-
-Kiu servas al ĉiu, al si mem malutilas. 
-
-Kiu sian langon katenas, Dio lin benas. 
-
-Kiu sin enjungis, devas tiri. 
-
-Kiu sin gardas, tiu sin savas. 
-
-Kiu speson ne tenas, tiu al spesmilo ne venas. 
-
-Kiu ŝteliston regalas, mem ŝteliston egalas. 
-
-59
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kiu ŝuldojn estingas, riĉecon atingas. 
+Kiu havas oron, havas honoron.
 
-Kiu supren kraĉon ĵetas, sian barbon al ĝi submetas. 
+Kiu hontas nenion, ne timas Dion.
 
-Kiu ŝvitas, tiu profitas. 
+Kiu hundon mian batas, min mem ne tre ŝatas.
 
-Kiu timas bestaron, ne iru arbaron. 
+Kiu iras sperte, iras certe.
 
-Kiu trans muro aŭskultas, tiun la muro insultas. 
+Kiu iras trankvile, iras facile.
 
-Kiu tro alte svingas, nenion atingas. 
+Kiu jam havas, tiu pravas.
 
-Kiu tro alten rigardon direktas, tiu tre baldaŭ okulojn difektas. 
+Kiu kaĉon aranĝas, tiu ĝin manĝas.
 
-Kiu tro bezonas, tiu leĝon ne konas. 
+Kiu kaĉon kuiris, tiu ĝin manĝu.
 
-Kiu tro forte la manon svingas, nenion atingas. 
+Kiu kapon posedas, kombilon jam trovos.
 
-Kiu tro multe deziras, nenion akiras. 
+Kiu kaptas tro vaste, konservas malmulte.
 
-Kiu tro pelas, nur malakcelas. 
+Kiu koleras, tiu ne prosperas.
 
-Kiu tro rapide saltas, tiu baldaŭ haltas. 
+Kiu koleras, tiu perdas.
 
-Kiu tro ripozas, baldaŭ almozas. 
+Kiu komencas juĝon, iras sub jugon.
 
-Kiu tro sin pravigas, tiu mem sin kulpigas. 
+Kiu komencas tro frue, finas malfrue.
 
-Kiu venas plej frue, sidas plej ĝue. 
+Kiu komencis kuiri, ne forkuru de l’fajro.
 
-Kiu venis post la manĝo, restas sen manĝo. 
+Kiu konsilas kaj rezonas, tiu helpon ne donas.
 
-Kiu venis unue, muelas pli frue. 
+Kiu konstante lokon ŝanĝas, neniam sin aranĝas.
 
-Kiu vivas sen kalkulo, baldaŭ estos almozulo. 
+Kiu kritikas kuraĝe, mem agas malsaĝe.
 
-Kiu vivas trankvile, vivas facile. 
+Kiu kuraĝe aliras, facile akiras.
 
-Kiu vivos, tiu vidos. 
+Kiu kutimis ĉion juĝi, nenie povas rifuĝi.
 
-Kiu volas komerci, tiu saĝon bezonas. 
+Kiu laboras kaj deziras, tiu akiras — kiu mem ne penas, nenio al li venas.
 
-Kiu volas mensogi, devas bone memori. 
+Kiu laboron evitas, bonon ne vidas.
 
-60
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kiu volas panon, ne dorlotu la manon. 
+Kiu langon ne tenas, mem sin malbenas.
 
-Kiun favoras la sorto, por tiu eĉ koko estas ovoporta. 
+Kiu leviĝis fiere, baldaŭ falos al tero.
 
-Kiun feliĉo subtenas, al tiu mem ĉio venas. 
+Kiu levis la piedon, devas ekpaĝi.
 
-Kiun la sorto karesas, al tiu ĉio sukcesas. 
+Kiu levis la piedon, devas ekpaŝi.
 
-Kiun malĝojo ne turmentis, tiu ĝojon ne sentas. 
+Kiu lin tuŝas, tiu lin sentas.
 
-Kiun reĝo protektas, tiun ministro elektas. 
+Kiu ludas kun koto, malpurigas la manojn.
 
-Kiun vesto ornamas, tiun homoj ekamas. 
+Kiu lupo naskiĝis, vulpo ne fariĝos.
 
-Klopodi pri ĉies favoro estas pleje malsaĝa laboro. 
+Kiu malmulte deziras, feliĉon akiras.
 
-Klopodi sen limo per korpo kaj animo. 
+Kiu malmulton ne ŝatas, multon ne meritas.
 
-Klopodo estas kun mono, sed sen ĝi pli malbone. 
+Kiu manĝon al mi donas, tiu al mi ordonas.
 
-Knaba gusto kun forto daŭras ĝis la morto. 
+Kiu mem sin adoras, nenion valoras.
 
-Knabon senfortan ĉiuj batoj atingas. 
+Kiu mem sin gloras, malbone odoras.
 
-Koko krias fiere, sed ne danĝere. 
+Kiu mem sin laŭdas, tiun neniu aplaŭdas.
 
-Kolera kiel cento da diabloj. 
+Kiu mensogas kutime, mensogas sentime.
 
-Kolera kiel rabia hundo. 
+Kiu mensogis per unu vorto, ne trovos kredon ĝis la morto.
 
-Kolero montras malsaĝulon. 
+Kiu metion disponas, mizeron ne konas.
 
-Kolero pravecon ne donas. 
+Kiu minacas, tiu avertas.
 
-Komenca inklino daŭras ĝis la fino. 
+Kiu mizeron ne havis, mizeron ne konas.
 
-Komenci de Adamo. 
+Kiu mordi ne povas, kisi ekprovas.
 
-Komenciĝis mizero, ĝi venas per pordo kaj fenestroj. 
+Kiu multe babilas, al si mem malutilas.
 
-Komenciĝis proceso, mono fluas sen ĉeso. 
+Kiu multe babilas, pensas malmulte.
 
-Komenci per Dio kaj fini per diablo. 
+Kiu multe minacas, ne estas danĝera.
 
-Komenci per flato kaj fini per bato. 
+Kiu multe parolas, malamikon konsolas.
 
-61
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Komenco aprila — trompo facila. 
+Kiu multe parolas, ne multe faras.
 
-Komenco bona — laboro duona. 
+Kiu multe profitas, ankaŭ perdon ne evitas.
 
-Komercisto estas ĉasisto, li rigardas, kiu sin ne gardas. 
+Kiu multon deziras, nenion akiras.
 
-Komparo ne estas pruvo. 
+Kiu naskiĝis sciuro, ne fariĝos vulturo.
 
-Komplezema malsaĝulo estas pli danĝera ol malamiko. 
+Kiu ne akiras, kiam li povas, tiu poste deziras, sed jam ne retrovas.
 
-Konateco ne estas hereda. 
+Kiu ne atentas la ”se”, tiu sentas la ”ve”.
 
-Konduki la dancojn. 
+Kiu ne estis kaporalo, ne estos generalo.
 
-Konfido naskas konfidon. 
+Kiu ne konfidas, tiu ne bedaŭras.
 
-Konfidu, sed vidu. 
+Kiu ne krimas, tiu ne timas.
 
-Koniĝas birdo laŭ flugo kaj homo laŭ ago. 
+Kiu ne mensogas, tiu ne vendas.
 
-Koniĝas majstro laŭ sia verko. 
+Kiu ne pekis, kiu ne eraris?
 
-Konkordo malgrandaĵon kreskigas, malkonkordo grandaĵon ruinigas. 
+Kiu ne petas, tiu ne ricevas.
 
-Konscienco senmakula estas kuseno plej mola. 
+Kiu ne riskas, tiu ne gajnas.
 
-Konscienco trankvila estas bona dormilo. 
+Kiu ne riskas, tiu ne havas.
 
-Konsento konstruas, malpaco detruas. 
+Kiu nenion valoras, plej multe sin gloras.
 
-Konservas eĉ karbo la strukturon de l’arbo. 
+Kiu neniun savis, malamikon ne havas.
 
-Konsilojn ĉiu donas, sed ne kiam oni bezonas. 
+Kiu okazon forŝovas, ĝin jam ne retrovas.
 
-Konsilu, kiu povas. 
+Kiu panon donas, malsaton ne konas.
 
-Konsoliĝas mizerulo, se li estas ne sola. 
+Kiu pekis, tiu pagas.
 
-Konstrui kastelojn en aero. 
+Kiu perdis la kapon, ne bezonas jam ĉapon.
 
-Konstrui kastelon sur glacio. 
+Kiu pli frue venas, pli bonan lokon prenas.
 
-Konsumi sian antaŭan grason. 
+Kiu pli frue venas, pli frue muelas.
 
-62
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Konsumi sian grenon antaŭ ĝia maturiĝo. 
+Kiu por ĉiuj laboras, por si mem ne memoras.
 
-Kontenteco estas pli bona ol riĉeco. 
+Kiu povas antaŭvidi!
 
-Kontentigi ĉiujn eĉ anĝelo ne povas. 
+Kiu pri ŝtelo silentas, tiu ŝtelon konsentas.
 
-Kontentigi la katon kaj kune la raton. 
+Kiu promesojn faras, tiu ne avaras.
 
-Kontentulo estas pli feliĉa, ol homo plej riĉa. 
+Kiu prudenton ne havas, tiun saĝo ne savas.
 
-Kontraŭ bato senatenda ekzistas nenia defendo. 
+Kiu rabi eliras, ofte nuda revenas.
 
-Kontraŭ ĉiu malfacilo ekzistas konsilo. 
+Kiu regalas per ŝtonoj, tiun oni dankas per bastonoj.
 
-Kontraŭ ĉiu rimedo ekzistas rimedo. 
+Kiu resonis, tiu sin donis.
 
-Kontraŭ ĉiu tedo ekzistas rimedo. 
+Kiu riĉiĝas, tiu fieriĝas.
 
-Kontraŭ doloro helpas bona humoro. 
+Kiu rigardas ĉielon, maltrafas sian celon.
 
-Kontraŭ faro farita ne helpas medito. 
+Kiu ripetas abunde, lernas plej funde.
 
-Kontraŭ forta mano la leĝo estas vana. 
+Kiu rompis la glason, ordigu la kason.
 
-Kontraŭ homo fiero Dio estas severa. 
+Kiu rompis, tiu pagu.
 
-Kontraŭ kalumnio helpas nenio. 
+Kiu saĝon ne havas, Dio lin savas.
 
-Kontraŭ kalumnio ne povas batali eĉ Dio. 
+Kiu semas venton, rikoltos fulmotondron.
 
-Kontraŭ lupo ne helpas kalkulo. 
+Kiu sentas — ploras, kiu vidas — nur ridas.
 
-Kontraŭ malfeliĉo ne defendas eĉ riĉo. 
+Kiu serĉas marcipanon, perdas sian panon.
 
-Kontraŭ malfeliĉoj baro ne ekzistas. 
+Kiu servas al ĉiu, al si mem malutilas.
 
-Kontraŭ muŝoj bravulo, kontraŭ homoj timulo. 
+Kiu sian langon katenas, Dio lin benas.
 
-Kontraŭ neesto ne helpas protesto. 
+Kiu sin enjungis, devas tiri.
 
-Kontraŭ nehavo eĉ juĝo silentas. 
+Kiu sin gardas, tiu sin savas.
 
-Kontraŭ peko batalu, sed pekanton ne tuŝu. 
+Kiu speson ne tenas, tiu al spesmilo ne venas.
 
-Kontraŭ peko prediku, sed pekinton pardonu. 
+Kiu ŝteliston regalas, mem ŝteliston egalas.
 
-63
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kontraŭstari per ĉiuj fortoj. 
+Kiu ŝuldojn estingas, riĉecon atingas.
 
-Kontraŭ tuta kohorto eĉ Herkulo estas malforta. 
+Kiu supren kraĉon ĵetas, sian barbon al ĝi submetas.
 
-Kontraŭ vesto malbona konspiras ĉiu ŝtono. 
+Kiu ŝvitas, tiu profitas.
 
-Kontraŭ volo de Dio helpos nenio. 
+Kiu timas bestaron, ne iru arbaron.
 
-Konu nin, ŝatu nin\! 
+Kiu trans muro aŭskultas, tiun la muro insultas.
 
-Korniko vundita propran voston timas. 
+Kiu tro alte svingas, nenion atingas.
 
-Koro pleniĝas — lango moviĝas. 
+Kiu tro alten rigardon direktas, tiu tre baldaŭ okulojn difektas.
 
-Koro tro plena — buŝo parolas. 
+Kiu tro bezonas, tiu leĝon ne konas.
 
-Korvo al korvo okulon ne pikas. 
+Kiu tro forte la manon svingas, nenion atingas.
 
-Kovri la buŝon de sia konscienco. 
+Kiu tro multe deziras, nenion akiras.
 
-Kresko mamuta, sed saĝo liliputa. 
+Kiu tro pelas, nur malakcelas.
 
-Krevis la vazo antaŭ la nazo. 
+Kiu tro rapide saltas, tiu baldaŭ haltas.
 
-Krii el la tuta gorĝo. 
+Kiu tro ripozas, baldaŭ almozas.
 
-Kritiki estas facile, fari malfacile. 
+Kiu tro sin pravigas, tiu mem sin kulpigas.
 
-Kritiki estas facile, fari malfacile. 
+Kiu venas plej frue, sidas plej ĝue.
 
-Kriu eĉ raŭke, sed kanti ne ĉesu. 
+Kiu venis post la manĝo, restas sen manĝo.
 
-Kudri per fluganta kudrilo. 
+Kiu venis unue, muelas pli frue.
 
-Kuiriston vaporo satigas. 
+Kiu vivas sen kalkulo, baldaŭ estos almozulo.
 
-Kulo nenion valoras, sed ĝia piko doloras. 
+Kiu vivas trankvile, vivas facile.
 
-Kun Dio vi iros ĉien, sen Dio nenien. 
+Kiu vivos, tiu vidos.
 
-Kun edzo plej malmola estas pli bone ol sola. 
+Kiu volas komerci, tiu saĝon bezonas.
 
-Kun kiu vi festas, tia vi estas. 
+Kiu volas mensogi, devas bone memori.
 
-Kun kiu vi kuniĝas, tia vi fariĝas. 
-
-64
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Kun konfido neniam rapidu. 
+Kiu volas panon, ne dorlotu la manon.
 
-Kun la peko en mano. 
+Kiun favoras la sorto, por tiu eĉ koko estas ovoporta.
 
-Kun sia tuta domo kaj havo. 
+Kiun feliĉo subtenas, al tiu mem ĉio venas.
 
-Kun sia tuta posedo kaj heredo. 
+Kiun la sorto karesas, al tiu ĉio sukcesas.
 
-Kun urso promenu, sed pafilon prete tenu. 
+Kiun malĝojo ne turmentis, tiu ĝojon ne sentas.
 
-Kun vero severa komercaĵo forvelkas. 
+Kiun reĝo protektas, tiun ministro elektas.
 
-Kune kaptite, kune punite. 
+Kiun vesto ornamas, tiun homoj ekamas.
 
-Kuraĝa homo en sia domo. 
+Klopodi pri ĉies favoro estas pleje malsaĝa laboro.
 
-Kuraĝa mieno antaŭ propra kameno. 
+Klopodi sen limo per korpo kaj animo.
 
-Kuraĝe li staras, kiam muro lin baras. 
+Klopodo estas kun mono, sed sen ĝi pli malbone.
 
-Kuraĝo ĉion atingas. 
+Knaba gusto kun forto daŭras ĝis la morto.
 
-Kuradi kiel venenita muso. 
+Knabon senfortan ĉiuj batoj atingas.
 
-Kurba estas la ligno, sed rekte ĝi brulas. 
+Koko krias fiere, sed ne danĝere.
 
-Kurbiĝadi kiel diablo en akvo benita. 
+Kolera kiel cento da diabloj.
 
-Kurbiĝu hoko laŭ postuloj de l’loko. 
+Kolera kiel rabia hundo.
 
-Kuri de sia propra korpo. 
+Kolero montras malsaĝulon.
 
-Kutimo estas dua naturo. 
+Kolero pravecon ne donas.
 
-Kvalito bona ne bezonas admonon. 
+Komenca inklino daŭras ĝis la fino.
 
-Kvina rado ĉe veturado. 
+Komenci de Adamo.
 
-Kvitiĝas servo per reservo. 
+Komenciĝis mizero, ĝi venas per pordo kaj fenestroj.
 
-65
+Komenciĝis proceso, mono fluas sen ĉeso.
+
+Komenci per Dio kaj fini per diablo.
+
+Komenci per flato kaj fini per bato.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Komenco aprila — trompo facila.
+
+Komenco bona — laboro duona.
+
+Komercisto estas ĉasisto, li rigardas, kiu sin ne gardas.
+
+Komparo ne estas pruvo.
+
+Komplezema malsaĝulo estas pli danĝera ol malamiko.
+
+Konateco ne estas hereda.
+
+Konduki la dancojn.
+
+Konfido naskas konfidon.
+
+Konfidu, sed vidu.
+
+Koniĝas birdo laŭ flugo kaj homo laŭ ago.
+
+Koniĝas majstro laŭ sia verko.
+
+Konkordo malgrandaĵon kreskigas, malkonkordo grandaĵon ruinigas.
+
+Konscienco senmakula estas kuseno plej mola.
+
+Konscienco trankvila estas bona dormilo.
+
+Konsento konstruas, malpaco detruas.
+
+Konservas eĉ karbo la strukturon de l’arbo.
+
+Konsilojn ĉiu donas, sed ne kiam oni bezonas.
+
+Konsilu, kiu povas.
+
+Konsoliĝas mizerulo, se li estas ne sola.
+
+Konstrui kastelojn en aero.
+
+Konstrui kastelon sur glacio.
+
+Konsumi sian antaŭan grason.
+
+
+ESPERANTA PROVERBARO
+
+
+Konsumi sian grenon antaŭ ĝia maturiĝo.
+
+Kontenteco estas pli bona ol riĉeco.
+
+Kontentigi ĉiujn eĉ anĝelo ne povas.
+
+Kontentigi la katon kaj kune la raton.
+
+Kontentulo estas pli feliĉa, ol homo plej riĉa.
+
+Kontraŭ bato senatenda ekzistas nenia defendo.
+
+Kontraŭ ĉiu malfacilo ekzistas konsilo.
+
+Kontraŭ ĉiu rimedo ekzistas rimedo.
+
+Kontraŭ ĉiu tedo ekzistas rimedo.
+
+Kontraŭ doloro helpas bona humoro.
+
+Kontraŭ faro farita ne helpas medito.
+
+Kontraŭ forta mano la leĝo estas vana.
+
+Kontraŭ homo fiero Dio estas severa.
+
+Kontraŭ kalumnio helpas nenio.
+
+Kontraŭ kalumnio ne povas batali eĉ Dio.
+
+Kontraŭ lupo ne helpas kalkulo.
+
+Kontraŭ malfeliĉo ne defendas eĉ riĉo.
+
+Kontraŭ malfeliĉoj baro ne ekzistas.
+
+Kontraŭ muŝoj bravulo, kontraŭ homoj timulo.
+
+Kontraŭ neesto ne helpas protesto.
+
+Kontraŭ nehavo eĉ juĝo silentas.
+
+Kontraŭ peko batalu, sed pekanton ne tuŝu.
+
+Kontraŭ peko prediku, sed pekinton pardonu.
+
+
+ESPERANTA PROVERBARO
+
+
+Kontraŭstari per ĉiuj fortoj.
+
+Kontraŭ tuta kohorto eĉ Herkulo estas malforta.
+
+Kontraŭ vesto malbona konspiras ĉiu ŝtono.
+
+Kontraŭ volo de Dio helpos nenio.
+
+Konu nin, ŝatu nin!
+
+Korniko vundita propran voston timas.
+
+Koro pleniĝas — lango moviĝas.
+
+Koro tro plena — buŝo parolas.
+
+Korvo al korvo okulon ne pikas.
+
+Kovri la buŝon de sia konscienco.
+
+Kresko mamuta, sed saĝo liliputa.
+
+Krevis la vazo antaŭ la nazo.
+
+Krii el la tuta gorĝo.
+
+Kritiki estas facile, fari malfacile.
+
+Kritiki estas facile, fari malfacile.
+
+Kriu eĉ raŭke, sed kanti ne ĉesu.
+
+Kudri per fluganta kudrilo.
+
+Kuiriston vaporo satigas.
+
+Kulo nenion valoras, sed ĝia piko doloras.
+
+Kun Dio vi iros ĉien, sen Dio nenien.
+
+Kun edzo plej malmola estas pli bone ol sola.
+
+Kun kiu vi festas, tia vi estas.
+
+Kun kiu vi kuniĝas, tia vi fariĝas.
+
+
+ESPERANTA PROVERBARO
+
+
+Kun konfido neniam rapidu.
+
+Kun la peko en mano.
+
+Kun sia tuta domo kaj havo.
+
+Kun sia tuta posedo kaj heredo.
+
+Kun urso promenu, sed pafilon prete tenu.
+
+Kun vero severa komercaĵo forvelkas.
+
+Kune kaptite, kune punite.
+
+Kuraĝa homo en sia domo.
+
+Kuraĝa mieno antaŭ propra kameno.
+
+Kuraĝe li staras, kiam muro lin baras.
+
+Kuraĝo ĉion atingas.
+
+Kuradi kiel venenita muso.
+
+Kurba estas la ligno, sed rekte ĝi brulas.
+
+Kurbiĝadi kiel diablo en akvo benita.
+
+Kurbiĝu hoko laŭ postuloj de l’loko.
+
+Kuri de sia propra korpo.
+
+Kutimo estas dua naturo.
+
+Kvalito bona ne bezonas admonon.
+
+Kvina rado ĉe veturado.
+
+Kvitiĝas servo per reservo.
+
+
+ESPERANTA PROVERBARO
+
 
 l
 
-La afero estas plenumita. 
+La afero estas plenumita.
 
-La afero havas tempon. 
+La afero havas tempon.
 
-La afero malsukcesis. 
+La afero malsukcesis.
 
-La afero ne brulas. 
+La afero ne brulas.
 
-La afero ne iras glate. 
+La afero ne iras glate.
 
-La afero ne staras sur pinto de ponto. 
+La afero ne staras sur pinto de ponto.
 
-La afero ne urĝas. 
+La afero ne urĝas.
 
-La dorm’ estas bona, se mankas la mono. 
+La dorm’ estas bona, se mankas la mono.
 
-La dorm’ estas bona, se mankas la mono. 
+La dorm’ estas bona, se mankas la mono.
 
-La enigmo simple solviĝas. 
+La enigmo simple solviĝas.
 
-La felo tanadon ne valoras. 
+La felo tanadon ne valoras.
 
-La fino kronas la verkon. 
+La fino kronas la verkon.
 
-La forestanto ĉiam estas malprava. 
+La forestanto ĉiam estas malprava.
 
-La haroj disstariĝas. 
+La haroj disstariĝas.
 
-La haroj streĉiĝas. 
+La haroj streĉiĝas.
 
-La ĵeto estas farita. 
+La ĵeto estas farita.
 
-La konscienco lin ne turmentas. 
+La konscienco lin ne turmentas.
 
-La lango de virino estas ĝia glavo. 
+La lango de virino estas ĝia glavo.
 
-La lastan el amaso atakas la hundo. 
+La lastan el amaso atakas la hundo.
 
-66
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-La lipoj ne montru, kion manĝis la buŝo. 
-
-La loto estas tirita. 
-
-La ludo kandelon ne valoras. 
-
-La lumo por vero ofte estas danĝero. 
-
-La luno ne aŭskultas, kiam hundo ĝin insultas. 
-
-La manĝota fiŝo estas ankoraŭ en la rivero. 
-
-La mano lin jukas. 
-
-La morto ne distingas, ĉiujn egale atingas. 
-
-La morto ŝercon ne komprenas: oni ĝin vokas, ĝi venas. 
-
-La muro havas orelojn. 
-
-La parto plej vasta venos la lasta. 
-
-La plej danĝera homo — malbona in’ en domo. 
-
-La ”por” kaj la ”kontraŭ”. 
-
-La sama afero, sed kun la kapo al tero. 
-
-La sigelo ankoraŭ ne estas metita. 
-
-La tempo ĉiam malkaŝas la veron. 
-
-La tempo venos, ni ĉion komprenos. 
-
-La ”tuj” de sinjoroj estas multe da horoj. 
-
-La tuta ludo ne valoras kandelon. 
-
-La unua trovita. 
-
-La vivo staras sur la karto. 
-
-Laboro donas bonstaton, mallaboro malsaton. 
-
-Laboro finita — ripozo merita. 
-
-67
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Laboro fortigas, ripozo putrigas. 
+La lipoj ne montru, kion manĝis la buŝo.
 
-Laboro homon nutras, sen laboro li putras. 
+La loto estas tirita.
 
-Laboro kaj pacienco kondukas al potenco. 
+La ludo kandelon ne valoras.
 
-Laboro kondukas al honoro kaj oro. 
+La lumo por vero ofte estas danĝero.
 
-Laboro lacigas, sed akiro ĝojigas. 
+La luno ne aŭskultas, kiam hundo ĝin insultas.
 
-Laboro ne estas leporo — ĝi haltos, ne forsaltos. 
+La manĝota fiŝo estas ankoraŭ en la rivero.
 
-Lang’ estas mola kaj laŭvole petola. 
+La mano lin jukas.
 
-Langa vundo plej profunda. 
+La morto ne distingas, ĉiujn egale atingas.
 
-Lango miela, sed koro kruela. 
+La morto ŝercon ne komprenas: oni ĝin vokas, ĝi venas.
 
-Lango nenion atingas, se ĝin saĝo ne svingas. 
+La muro havas orelojn.
 
-Larmo virina baldaŭ sekiĝas. 
+La parto plej vasta venos la lasta.
 
-Larmoj pravecon ne pruvas. 
+La plej danĝera homo — malbona in’ en domo.
 
-Larmoj ŝuldon ne pagas. 
+La ”por” kaj la ”kontraŭ”.
 
-Lasi fali la manojn. 
+La sama afero, sed kun la kapo al tero.
 
-Laŭ ĉiuj leĝoj de la arto. 
+La sigelo ankoraŭ ne estas metita.
 
-Laŭdu belecon de l’maro, sed ĉe rando de arbaro. 
+La tempo ĉiam malkaŝas la veron.
 
-Laŭdu la maron, sed restu sur tero. 
+La tempo venos, ni ĉion komprenos.
 
-Laŭdu tagon nur vespere. 
+La ”tuj” de sinjoroj estas multe da horoj.
 
-Laŭ la agoj de l’homo estas lia nomo. 
+La tuta ludo ne valoras kandelon.
 
-Laŭ la frukto oni arbon ekkonas. 
+La unua trovita.
 
-Lavu tutan jaron, negro ne blankiĝos. 
+La vivo staras sur la karto.
 
-Leĝe kaj rajte. 
+Laboro donas bonstaton, mallaboro malsaton.
 
-Leĝo estas bona, se advokato ĝin helpas. 
+Laboro finita — ripozo merita.
 
-68
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Leĝo estas cedema: kien vi deziras, ĝi iras. 
+Laboro fortigas, ripozo putrigas.
 
-Leĝo malaperas, moro daŭras. 
+Laboro homon nutras, sen laboro li putras.
 
-Leĝo mallertulon ligas, lertulon fortigas. 
+Laboro kaj pacienco kondukas al potenco.
 
-Leĝo pasintaĵon ne tuŝas. 
+Laboro kondukas al honoro kaj oro.
 
-Leĝo valoras por poste, sed ne por antaŭe. 
+Laboro lacigas, sed akiro ĝojigas.
 
-Lecionoj al profesoro estas vana laboro. 
+Laboro ne estas leporo — ĝi haltos, ne forsaltos.
 
-Lernado havas maldolĉan radikon, sed bonan efikon. 
+Lang’ estas mola kaj laŭvole petola.
 
-Lernado sen fruktoj ne restas. 
+Langa vundo plej profunda.
 
-Lerneja sekreto ne iru al gazeto. 
+Lango miela, sed koro kruela.
 
-Lernu juna, por esti saĝa maljuna. 
+Lango nenion atingas, se ĝin saĝo ne svingas.
 
-Lernu juna — vi scios maljuna. 
+Larmo virina baldaŭ sekiĝas.
 
-Lerteco sorĉon ne bezonas. 
+Larmoj pravecon ne pruvas.
 
-Leviĝu kun la suno, edziĝu dum juna. 
+Larmoj ŝuldon ne pagas.
 
-Li atendas kaj plendas kaj denove atendas. 
+Lasi fali la manojn.
 
-Li atendas, ke la okazo venu al lia nazo. 
+Laŭ ĉiuj leĝoj de la arto.
 
-Li bruligis al si la lipharojn. 
+Laŭdu belecon de l’maro, sed ĉe rando de arbaro.
 
-Li dentojn prunti ne bezonas. 
+Laŭdu la maron, sed restu sur tero.
 
-Li diris adiaŭ al la mondo surtera. 
+Laŭdu tagon nur vespere.
 
-Li donas peceton da pano kaj bategon per mano. 
+Laŭ la agoj de l’homo estas lia nomo.
 
-Li eĉ el sablo vipojn tordas. 
+Laŭ la frukto oni arbon ekkonas.
 
-Li ekscitiĝas kiel bolanta lakto. 
+Lavu tutan jaron, negro ne blankiĝos.
 
-Li esploris iom la fundon de la glaso. 
+Leĝe kaj rajte.
 
-Li estas bravulo en sia angulo. 
+Leĝo estas bona, se advokato ĝin helpas.
 
-69
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Li estas en acida humoro. 
+Leĝo estas cedema: kien vi deziras, ĝi iras.
 
-Li estas en klopodoj de l’kapo ĝis piedoj. 
+Leĝo malaperas, moro daŭras.
 
-Li estas flamiĝema kiel rezina ligno. 
+Leĝo mallertulon ligas, lertulon fortigas.
 
-Li estas frotita kaj polurita. 
+Leĝo pasintaĵon ne tuŝas.
 
-Li estas homo sperta kaj lerta. 
+Leĝo valoras por poste, sed ne por antaŭe.
 
-Li estas kompetenta, kiel besto pri arĝento. 
+Lecionoj al profesoro estas vana laboro.
 
-Li estas portreto de sia patro. 
+Lernado havas maldolĉan radikon, sed bonan efikon.
 
-Li estas preskaŭ mia frato: nepo de kuzo de onklo de konato. 
+Lernado sen fruktoj ne restas.
 
-Li estas sia propra mastrino. 
+Lerneja sekreto ne iru al gazeto.
 
-Li estas vera hidrargo. 
+Lernu juna, por esti saĝa maljuna.
 
-Li faras princan promeson, sed ne havas eĉ speson. 
+Lernu juna — vi scios maljuna.
 
-Li faris sian lastan translokiĝon. 
+Lerteco sorĉon ne bezonas.
 
-Li foriris kun longa nazo. 
+Leviĝu kun la suno, edziĝu dum juna.
 
-Li forpelis siajn piedojn. 
+Li atendas kaj plendas kaj denove atendas.
 
-Li havas ankoraŭ la lakton sur la lipoj. 
+Li atendas, ke la okazo venu al lia nazo.
 
-Li havas ankoraŭ printempon en kapo. 
+Li bruligis al si la lipharojn.
 
-Li havas cerbon ne tro potencan. 
+Li dentojn prunti ne bezonas.
 
-Li havas ĉiun horon alian moron. 
+Li diris adiaŭ al la mondo surtera.
 
-Li havas dentojn ne por parado. 
+Li donas peceton da pano kaj bategon per mano.
 
-Li havas en la cerbo tro multe da herbo. 
+Li eĉ el sablo vipojn tordas.
 
-Li havas la kapon fortike sur la kolo. 
+Li ekscitiĝas kiel bolanta lakto.
 
-Li havas la kapon sur la ĝusta loko. 
+Li esploris iom la fundon de la glaso.
 
-70
+Li estas bravulo en sia angulo.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Li havas la kapon sur ĝusta loko. 
-
-Li havas muŝon en la kapo. 
-
-Li havas nek ĉelon, nek kelon. 
-
-Li havas pli da mono ol da bezono. 
-
-Li havas pli da mono, ol li povas kalkuli. 
-
-Li havas pli da ŝuldoj en la urbo, ol da haroj en la barbo. 
-
-Li havas siajn kapricojn. 
-
-Li havas truon en la manplato. 
-
-Li havis viandon, mi havis nur oston — li havis la ĝuon, mi pagis la koston. 
-
-Li jam estas trans montoj kaj maro. 
-
-Li jam faras la lastan spiron. 
-
-Li ĵus elrampis el la ova ŝelo. 
-
-Li komprenas predikon, kiel bovo muzikon. 
-
-Li kuraĝon kolekti ne bezonas. 
-
-Li loĝas tie, kien eĉ birdo ne flugas. 
-
-Li mem estas patrono por sia persono. 
-
-Li mensogas maŝine. 
-
-Li mensogas tiel, ke la muroj krakas. 
-
-Li minacas per fingro en la poŝo. 
-
-Li ne elpensis la filozofian ŝtonon. 
-
-Li ne elrampis ankoraŭ el la vindoj. 
-
-Li ne enlasas puŝon en sian buŝon. 
-
-71
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Li ne estas el la grandaj saĝuloj. 
+Li estas en acida humoro.
 
-Li ne estas el la regimento de timuloj. 
+Li estas en klopodoj de l’kapo ĝis piedoj.
 
-Li ne frapis al si ankoraŭ la kornojn. 
+Li estas flamiĝema kiel rezina ligno.
 
-Li ne havas kapon de ministro. 
+Li estas frotita kaj polurita.
 
-Li ne toleras eĉ muŝon sur la muro. 
+Li estas homo sperta kaj lerta.
 
-Li neniam venkis la alfabeton. 
+Li estas kompetenta, kiel besto pri arĝento.
 
-Li pafis sin for. 
+Li estas portreto de sia patro.
 
-Li parolas sen senco kaj sen interligo. 
+Li estas preskaŭ mia frato: nepo de kuzo de onklo de konato.
 
-Li pasis akvon kaj fajron kaj marĉojn kaj marojn. 
+Li estas sia propra mastrino.
 
-Li prenos kaj benos. 
+Li estas vera hidrargo.
 
-Li pulvon ne elpensis. 
+Li faras princan promeson, sed ne havas eĉ speson.
 
-Li ripozu trankvile\! 
+Li faris sian lastan translokiĝon.
 
-Li saltas gracie, kiel urso ebria. 
+Li foriris kun longa nazo.
 
-Li salutas profunde kaj mordas hunde. 
+Li forpelis siajn piedojn.
 
-Li scias, kie la kankroj pasigas la vintron. 
+Li havas ankoraŭ la lakton sur la lipoj.
 
-Li serĉas la venton sur la kampo. 
+Li havas ankoraŭ printempon en kapo.
 
-Li sidas en ŝuldoj ĝis super la ŝultroj. 
+Li havas cerbon ne tro potencan.
 
-Li ŝtelas de najbaro, por doni al altaro. 
+Li havas ĉiun horon alian moron.
 
-Li ŝvitas ankoraŭ super la alfabeto. 
+Li havas dentojn ne por parado.
 
-Li taŭgas nek por studo, nek por ludo. 
+Li havas en la cerbo tro multe da herbo.
 
-Li tenas la nazon supren. 
+Li havas la kapon fortike sur la kolo.
 
-Li trafis el sub pluvo en riveron. 
+Li havas la kapon sur la ĝusta loko.
 
-Li tremas kiel aŭtuna folio. 
-
-72
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Li vidas nur ĝis la pinto de sia nazo. 
+Li havas la kapon sur ĝusta loko.
 
-Li vivas en ĝuo kaj bruo. 
+Li havas muŝon en la kapo.
 
-Li vivas sur la tero kiel en infero. 
+Li havas nek ĉelon, nek kelon.
 
-Li vorton en la poŝo ne serĉas. 
+Li havas pli da mono ol da bezono.
 
-Li zorgas pri ĝi kiel pri neĝo pasintjara. 
+Li havas pli da mono, ol li povas kalkuli.
 
-Lia animo forkuris en la pinton de la piedo. 
+Li havas pli da ŝuldoj en la urbo, ol da haroj en la barbo.
 
-Lia cerbo iris promeni. 
+Li havas siajn kapricojn.
 
-Liaj dentoj povas festi sabaton. 
+Li havas truon en la manplato.
 
-Liaj dentoj povas forgesi sian metion. 
+Li havis viandon, mi havis nur oston — li havis la ĝuon, mi pagis la koston.
 
-Liaj flugiloj paraliziĝis. 
+Li jam estas trans montoj kaj maro.
 
-Liberulo iras, kien li deziras. 
+Li jam faras la lastan spiron.
 
-Ligno fendita facile flamiĝas. 
+Li ĵus elrampis el la ova ŝelo.
 
-Lin tuŝas nek admono, nek ordono. 
+Li komprenas predikon, kiel bovo muzikon.
 
-Lipharo de grandsinjoro, sed koro de leporo. 
+Li kuraĝon kolekti ne bezonas.
 
-Liveru nur panon, manĝontoj sin trovos. 
+Li loĝas tie, kien eĉ birdo ne flugas.
 
-Loĝi en la fino de la mondo. 
+Li mem estas patrono por sia persono.
 
-Longa dormado ŝuldojn kreskigas. 
+Li mensogas maŝine.
 
-Longa konsidero savas de sufero. 
+Li mensogas tiel, ke la muroj krakas.
 
-Longe ĉerpas la kruĉo, ĝis ĝi fine rompiĝas. 
+Li minacas per fingro en la poŝo.
 
-Longe ŝtelas ŝtelisto, tamen fine li pendos. 
+Li ne elpensis la filozofian ŝtonon.
 
-Ludi kun iu ludon de pugnoj. 
+Li ne elrampis ankoraŭ el la vindoj.
 
-Ludi ventobatadon. 
+Li ne enlasas puŝon en sian buŝon.
 
-Ludo aparte, kaj afero aparte. 
-
-73
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Luksa la vesto, sed malplena la poŝo. 
+Li ne estas el la grandaj saĝuloj.
 
-Lumo fariĝos, kulpulo troviĝos. 
+Li ne estas el la regimento de timuloj.
 
-Lupo dormanta ŝafon ne kaptas. 
+Li ne frapis al si ankoraŭ la kornojn.
 
-Lupo kaptas, sed li ankaŭ enfalas. 
+Li ne havas kapon de ministro.
 
-Lupo lupon ne manĝas. 
+Li ne toleras eĉ muŝon sur la muro.
 
-Lupo ŝanĝas la harojn, sed ne la farojn. 
+Li neniam venkis la alfabeton.
 
-Lupo sopiras, al arbaro sin tiras. 
+Li pafis sin for.
 
-74
+Li parolas sen senco kaj sen interligo.
+
+Li pasis akvon kaj fajron kaj marĉojn kaj marojn.
+
+Li prenos kaj benos.
+
+Li pulvon ne elpensis.
+
+Li ripozu trankvile!
+
+Li saltas gracie, kiel urso ebria.
+
+Li salutas profunde kaj mordas hunde.
+
+Li scias, kie la kankroj pasigas la vintron.
+
+Li serĉas la venton sur la kampo.
+
+Li sidas en ŝuldoj ĝis super la ŝultroj.
+
+Li ŝtelas de najbaro, por doni al altaro.
+
+Li ŝvitas ankoraŭ super la alfabeto.
+
+Li taŭgas nek por studo, nek por ludo.
+
+Li tenas la nazon supren.
+
+Li trafis el sub pluvo en riveron.
+
+Li tremas kiel aŭtuna folio.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Li vidas nur ĝis la pinto de sia nazo.
+
+Li vivas en ĝuo kaj bruo.
+
+Li vivas sur la tero kiel en infero.
+
+Li vorton en la poŝo ne serĉas.
+
+Li zorgas pri ĝi kiel pri neĝo pasintjara.
+
+Lia animo forkuris en la pinton de la piedo.
+
+Lia cerbo iris promeni.
+
+Liaj dentoj povas festi sabaton.
+
+Liaj dentoj povas forgesi sian metion.
+
+Liaj flugiloj paraliziĝis.
+
+Liberulo iras, kien li deziras.
+
+Ligno fendita facile flamiĝas.
+
+Lin tuŝas nek admono, nek ordono.
+
+Lipharo de grandsinjoro, sed koro de leporo.
+
+Liveru nur panon, manĝontoj sin trovos.
+
+Loĝi en la fino de la mondo.
+
+Longa dormado ŝuldojn kreskigas.
+
+Longa konsidero savas de sufero.
+
+Longe ĉerpas la kruĉo, ĝis ĝi fine rompiĝas.
+
+Longe ŝtelas ŝtelisto, tamen fine li pendos.
+
+Ludi kun iu ludon de pugnoj.
+
+Ludi ventobatadon.
+
+Ludo aparte, kaj afero aparte.
+
+
+ESPERANTA PROVERBARO
+
+
+Luksa la vesto, sed malplena la poŝo.
+
+Lumo fariĝos, kulpulo troviĝos.
+
+Lupo dormanta ŝafon ne kaptas.
+
+Lupo kaptas, sed li ankaŭ enfalas.
+
+Lupo lupon ne manĝas.
+
+Lupo ŝanĝas la harojn, sed ne la farojn.
+
+Lupo sopiras, al arbaro sin tiras.
+
+
+ESPERANTA PROVERBARO
+
 
 m
 
-Maĉi kaj remaĉi. 
+Maĉi kaj remaĉi.
 
-Malamanto de faro estas amanto de kalendaro. 
+Malamanto de faro estas amanto de kalendaro.
 
-Malantaŭ barilo kuraĝo estas facila. 
+Malantaŭ barilo kuraĝo estas facila.
 
-Malantaŭe mizero, antaŭe malespero. 
+Malantaŭe mizero, antaŭe malespero.
 
-Malaperis kiel ŝtono en maron. 
+Malaperis kiel ŝtono en maron.
 
-Malaperis kiel vaporo. 
+Malaperis kiel vaporo.
 
-Malavarulo kaj porko estas bonaj post la morto. 
+Malavarulo kaj porko estas bonaj post la morto.
 
-Malbona herbo froston ne timas. 
+Malbona herbo froston ne timas.
 
-Malbona virino diablon superas. 
+Malbona virino diablon superas.
 
-Malbone kaŝita ŝteliston incitas. 
+Malbone kaŝita ŝteliston incitas.
 
-Malbonon oni memori ne ĉesas, bonon oni baldaŭ forgesas. 
+Malbonon oni memori ne ĉesas, bonon oni baldaŭ forgesas.
 
-Malbonulon diablo ne prenas. 
+Malbonulon diablo ne prenas.
 
-Maldolĉa por la lango, sed sanigas por la sango. 
+Maldolĉa por la lango, sed sanigas por la sango.
 
-Malfeliĉo inviton ne atendas. 
+Malfeliĉo inviton ne atendas.
 
-Malfeliĉo kaj peko leviĝas sen veko. 
+Malfeliĉo kaj peko leviĝas sen veko.
 
-Malfeliĉo komuna estas malpli premanta. 
+Malfeliĉo komuna estas malpli premanta.
 
-Malfeliĉo malofte venas sole. 
+Malfeliĉo malofte venas sole.
 
-Malfeliĉo sin ne ĝenas, faru geston — ĝi tuj venas. 
+Malfeliĉo sin ne ĝenas, faru geston — ĝi tuj venas.
 
-75
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Malfeliĉo venas, malfeliĉon kuntrenas. 
-
-Malfeliĉo venas rajde, foriras piede. 
-
-Malfeliĉo venas sen alvoko. 
-
-Malfeliĉoj kaj batoj venas ĉiam kun fratoj. 
-
-Malfermita kelo tentas al ŝtelo. 
-
-Malfermita kelo tentas al ŝtelo. 
-
-Malgranda aspekte, sed granda intelekte. 
-
-Malgranda birdeto, sed akra ungeto. 
-
-Malgranda estas la flamo, tamen ne mankas la fumo. 
-
-Malgranda pezo, sed granda prezo. 
-
-Malgrandaj infanoj kaŭzas laboron, grandaj — doloron. 
-
-Malhumileco estas kara plezuro. 
-
-Maljunaj jaroj, sed ne saĝaj faroj. 
-
-Malkovri antaŭ iu sian koron. 
-
-Malnova afero en nova livero. 
-
-Malpaco pro limo fariĝas kutimo, malpaco pro kredo fariĝas heredo. 
-
-Malpaculon ĉiu batas. 
-
-Malplaĉas nenio, se taksas pasio. 
-
-Malplena sako puŝas al peko. 
-
-Malplena sako tentas al peko. 
-
-Malpli da havo, malpli da zorgoj. 
-
-Malpli da posedo, malpli da tedo. 
-
-76
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Malpli esperu, pli konsideru. 
+Malfeliĉo venas, malfeliĉon kuntrenas.
 
-Malproksime vidas, antaŭ la nazo ne vidas. 
+Malfeliĉo venas rajde, foriras piede.
 
-Malriĉa kiel muso preĝeja. 
+Malfeliĉo venas sen alvoko.
 
-Malriĉeco ne estas krimo, tamen kondukas al malestimo. 
+Malfeliĉoj kaj batoj venas ĉiam kun fratoj.
 
-Malriĉeco ne estas malvirto. 
+Malfermita kelo tentas al ŝtelo.
 
-Malriĉigas ne nehavado, sed trogranda dezirado. 
+Malfermita kelo tentas al ŝtelo.
 
-Malriĉulo parencojn ne havas. 
+Malgranda aspekte, sed granda intelekte.
 
-Malriĉulo rabiston ne timas. 
+Malgranda birdeto, sed akra ungeto.
 
-Malsaĝa kiel ŝtipo. 
+Malgranda estas la flamo, tamen ne mankas la fumo.
 
-Malsaĝo estas najbaro de mizero. 
+Malgranda pezo, sed granda prezo.
 
-Malsaĝulo ĉie sian nomon skribas. 
+Malgrandaj infanoj kaŭzas laboron, grandaj — doloron.
 
-Malsaĝulo de ĉiuj flankoj. 
+Malhumileco estas kara plezuro.
 
-Malsaĝulo diris vorteron, saĝulo komprenas la tutan aferon. 
+Maljunaj jaroj, sed ne saĝaj faroj.
 
-Malsaĝulo en foiro estas bona akiro. 
+Malkovri antaŭ iu sian koron.
 
-Malsaĝulo kaj infano parolas la veron. 
+Malnova afero en nova livero.
 
-Malsaĝulo kiel tamburo — kiu pasas, lin batas. 
+Malpaco pro limo fariĝas kutimo, malpaco pro kredo fariĝas heredo.
 
-Malsaĝulo malpacigis kaj dek saĝuloj repacigi ne povas. 
+Malpaculon ĉiu batas.
 
-Malsaĝulo ne griziĝas nek senhariĝas. 
+Malplaĉas nenio, se taksas pasio.
 
-Malsaĝulo ofte estas profeto. 
+Malplena sako puŝas al peko.
 
-Malsaĝulo ŝtonon ĵetis, dek saĝuloj ĝin ne atingos. 
+Malplena sako tentas al peko.
 
-Malsaĝulo venas, komercisto festenas. 
+Malpli da havo, malpli da zorgoj.
 
-Malsaĝuloj kreskas mem, sen plugo kaj sem’. 
+Malpli da posedo, malpli da tedo.
 
-77
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Malsaĝulon favoras feliĉo. 
+Malpli esperu, pli konsideru.
 
-Malsaĝulon oni batas eĉ en la preĝejo. 
+Malproksime vidas, antaŭ la nazo ne vidas.
 
-Malsanan demandu, al sana donu. 
+Malriĉa kiel muso preĝeja.
 
-Malsano venas rapide, foriras rigide. 
+Malriĉeco ne estas krimo, tamen kondukas al malestimo.
 
-Malsata stomako orelon ne havas. 
+Malriĉeco ne estas malvirto.
 
-Malsata stomako orelon ne havas. 
+Malriĉigas ne nehavado, sed trogranda dezirado.
 
-Malsato donas spriton. 
+Malriĉulo parencojn ne havas.
 
-Malsato malfortigas, ŝuldo suferigas. 
+Malriĉulo rabiston ne timas.
 
-Malsato ne estas frato. 
+Malsaĝa kiel ŝtipo.
 
-Malsato plej bone gustigas la manĝon. 
+Malsaĝo estas najbaro de mizero.
 
-Malsatulon la fabloj ne nutros. 
+Malsaĝulo ĉie sian nomon skribas.
 
-Malŝparulo ĝuas nelonge, avarulo neniam. 
+Malsaĝulo de ĉiuj flankoj.
 
-Mankas klapo en lia kapo. 
+Malsaĝulo diris vorteron, saĝulo komprenas la tutan aferon.
 
-Mankas klapo en lia kapo. 
+Malsaĝulo en foiro estas bona akiro.
 
-Mankas klapo en lia kapo. 
+Malsaĝulo kaj infano parolas la veron.
 
-Mankis al Petro klopodoj, li aĉetis al si domon. 
+Malsaĝulo kiel tamburo — kiu pasas, lin batas.
 
-Manko de oro ne estas malhonoro. 
+Malsaĝulo malpacigis kaj dek saĝuloj repacigi ne povas.
 
-Mano dekstra ne sciu, kion faras la maldekstra. 
+Malsaĝulo ne griziĝas nek senhariĝas.
 
-Mano manon lavas. 
+Malsaĝulo ofte estas profeto.
 
-Mano pekis, dorso pagas. 
+Malsaĝulo ŝtonon ĵetis, dek saĝuloj ĝin ne atingos.
 
-Manon malkvietan ĉiu muro atakas. 
+Malsaĝulo venas, komercisto festenas.
 
-Marĉandado aĉeti ne devigas. 
+Malsaĝuloj kreskas mem, sen plugo kaj sem’.
 
-Marĉando aĉeti ne devigas. 
-
-78
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Maro ĉiujn riverojn ricevas kaj tamen ne krevas. 
+Malsaĝulon favoras feliĉo.
 
-Maro da mizeroj. 
+Malsaĝulon oni batas eĉ en la preĝejo.
 
-Mastro ekbabilis, gastoj ne silentos. 
+Malsanan demandu, al sana donu.
 
-Mastro en vojo — servantoj en ĝojo. 
+Malsano venas rapide, foriras rigide.
 
-Matena horo estas plena de oro. 
+Malsata stomako orelon ne havas.
 
-Matenas, vesperas — kaj tago malaperas. 
+Malsata stomako orelon ne havas.
 
-Matura aĝo. 
+Malsato donas spriton.
 
-Melki kaproviron. 
+Malsato malfortigas, ŝuldo suferigas.
 
-Melku bovon senfine, li lakton ne donos. 
+Malsato ne estas frato.
 
-Memori pri mezuro en laboro kaj plezuro. 
+Malsato plej bone gustigas la manĝon.
 
-Mensoganto devas havi bonan memoron. 
+Malsatulon la fabloj ne nutros.
 
-Mensogas kiel kalendaro; kiel gazeto; kiel funebra parolo. 
+Malŝparulo ĝuas nelonge, avarulo neniam.
 
-Mensogo kaj ŝtelo estas du fratoj. 
+Mankas klapo en lia kapo.
 
-Mensogo malproksimen ne kondukas. 
+Mankas klapo en lia kapo.
 
-Mensogu kiom vi volas, sed memoru kion vi parolas. 
+Mankas klapo en lia kapo.
 
-Meti trabojn sur la vojon. 
+Mankis al Petro klopodoj, li aĉetis al si domon.
 
-Metio lacigas, metio vivigas. 
+Manko de oro ne estas malhonoro.
 
-Metio manĝon ne bezonas kaj manĝon tamen donas. 
+Mano dekstra ne sciu, kion faras la maldekstra.
 
-Mezuri laŭ sia metro. 
+Mano manon lavas.
 
-Mi ankaŭ lokon sur la tero okupas. 
+Mano pekis, dorso pagas.
 
-Mi blinde pafos, eble trafos. 
+Manon malkvietan ĉiu muro atakas.
 
-Mi flanke sidis, mi ne aŭdis nek vidis. 
+Marĉandado aĉeti ne devigas.
 
-Mi havas pri tio nek scion nek supozon. 
+Marĉando aĉeti ne devigas.
 
-79
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Mi hejme sidis, nenion vidis. 
+Maro ĉiujn riverojn ricevas kaj tamen ne krevas.
 
-Mi konas miajn homojn. 
+Maro da mizeroj.
 
-Mi lavas al mi la manojn. 
+Mastro ekbabilis, gastoj ne silentos.
 
-Mi lin liberigis, li min saĝigis. 
+Mastro en vojo — servantoj en ĝojo.
 
-Mi ne povas kapti en ĝi la sencon. 
+Matena horo estas plena de oro.
 
-Mi ne volas baton, mi ne volas kompaton. 
+Matenas, vesperas — kaj tago malaperas.
 
-Mi ne volas tion ĉi scii. 
+Matura aĝo.
 
-Mi panon ne esperis, subite kuko aperis. 
+Melki kaproviron.
 
-Mia lango — mia malamiko. 
+Melku bovon senfine, li lakton ne donos.
 
-Mia loĝejo estas mia reĝejo. 
+Memori pri mezuro en laboro kaj plezuro.
 
-Mia loĝejo — mia reĝejo. 
+Mensoganto devas havi bonan memoron.
 
-Mielo sur lango, kaj glacio en koro. 
+Mensogas kiel kalendaro; kiel gazeto; kiel funebra parolo.
 
-Mieno fiera al ludo mizera. 
+Mensogo kaj ŝtelo estas du fratoj.
 
-Miljaroj ne povis — minuto elŝovis. 
+Mensogo malproksimen ne kondukas.
 
-Min ne tuŝas la afero, mi staras ekstere. 
+Mensogu kiom vi volas, sed memoru kion vi parolas.
 
-Minacas dento al la vento. 
+Meti trabojn sur la vojon.
 
-Minaci per pugno en la poŝo. 
+Metio lacigas, metio vivigas.
 
-Minacoj ne mortigas. 
+Metio manĝon ne bezonas kaj manĝon tamen donas.
 
-Miraklo inter mirakloj. 
+Mezuri laŭ sia metro.
 
-Mizero faras lerta, mizero faras sperta. 
+Mi ankaŭ lokon sur la tero okupas.
 
-Mizero faras viziton, ne atendante inviton. 
+Mi blinde pafos, eble trafos.
 
-Mizero havas talentan kapon. 
+Mi flanke sidis, mi ne aŭdis nek vidis.
 
-Mizero instruas. 
+Mi havas pri tio nek scion nek supozon.
 
-80
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Mizero piedojn sanigas, kolon elastigas. 
+Mi hejme sidis, nenion vidis.
 
-Mizero plej ekstreme, Dio plej proksime. 
+Mi konas miajn homojn.
 
-Mizero saltas, mizero haltas. 
+Mi lavas al mi la manojn.
 
-Mizero sur mizero. 
+Mi lin liberigis, li min saĝigis.
 
-Mola kiel vakso. 
+Mi ne povas kapti en ĝi la sencon.
 
-Mono amas kalkulon. 
+Mi ne volas baton, mi ne volas kompaton.
 
-Mono estas reĝo, mono estas leĝo. 
+Mi ne volas tion ĉi scii.
 
-Mono fluas al riĉulo, batoj al malriĉulo. 
+Mi panon ne esperis, subite kuko aperis.
 
-Mono kuras al mono. 
+Mia lango — mia malamiko.
 
-Mono mondon regas. 
+Mia loĝejo estas mia reĝejo.
 
-Mono monon naskas. 
+Mia loĝejo — mia reĝejo.
 
-Mono odoron ne havas, sian devenon ne diras. 
+Mielo sur lango, kaj glacio en koro.
 
-Mono perdita, nenio perdita; honoro perdita, ĉio perdita. 
+Mieno fiera al ludo mizera.
 
-Mono plenumas ĉiujn oficojn. 
+Miljaroj ne povis — minuto elŝovis.
 
-Mono publika estas fortika. 
+Min ne tuŝas la afero, mi staras ekstere.
 
-Monto gravediĝis, muso naskiĝis. 
+Minacas dento al la vento.
 
-Montradi al si reciproke la dentojn. 
+Minaci per pugno en la poŝo.
 
-Montras parolo, kion cerbo valoras. 
+Minacoj ne mortigas.
 
-Montroj kaj konsiloj estas facilaj. 
+Miraklo inter mirakloj.
 
-Montru moneron, ĉio fariĝos. 
+Mizero faras lerta, mizero faras sperta.
 
-Mordantaj hundoj kuras ĉiam kun vundoj. 
+Mizero faras viziton, ne atendante inviton.
 
-Morgaŭ estas la amata tago de mallaboruloj. 
+Mizero havas talentan kapon.
 
-Morgaŭ frue venos plue. 
+Mizero instruas.
 
-81
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Mortinta serĉu ĉielon, vivanta iun celon. 
+Mizero piedojn sanigas, kolon elastigas.
 
-Muele sencele. 
+Mizero plej ekstreme, Dio plej proksime.
 
-Muelilo haltas, muelisto eksaltas. 
+Mizero saltas, mizero haltas.
 
-Multaj kompatantoj, sed neniu helpanto. 
+Mizero sur mizero.
 
-Multaj svatiĝas, feliĉulo edziĝas. 
+Mola kiel vakso.
 
-Multaj vokitoj, sed ne multaj elektitoj. 
+Mono amas kalkulon.
 
-Multe da fianĉoj, sed la ĝusta ne venas. 
+Mono estas reĝo, mono estas leĝo.
 
-Multe da peno, neniom da pano. 
+Mono fluas al riĉulo, batoj al malriĉulo.
 
-Multe da sprito, sed neniom da profito. 
+Mono kuras al mono.
 
-Multe en kapo, sed nenio en poŝo. 
+Mono mondon regas.
 
-Multe entreprenis, sed ne multe eltenis. 
+Mono monon naskas.
 
-Multe komencite, malmulte plenumite. 
+Mono odoron ne havas, sian devenon ne diras.
 
-Murmuregas la urso, sed danci ĝi devas. 
+Mono perdita, nenio perdita; honoro perdita, ĉio perdita.
 
-Murmuri tra la dentoj. 
+Mono plenumas ĉiujn oficojn.
 
-Muso la katon ĉiam ofendis. 
+Mono publika estas fortika.
 
-Muso satiĝis, faruno malboniĝis. 
+Monto gravediĝis, muso naskiĝis.
 
-82
+Montradi al si reciproke la dentojn.
+
+Montras parolo, kion cerbo valoras.
+
+Montroj kaj konsiloj estas facilaj.
+
+Montru moneron, ĉio fariĝos.
+
+Mordantaj hundoj kuras ĉiam kun vundoj.
+
+Morgaŭ estas la amata tago de mallaboruloj.
+
+Morgaŭ frue venos plue.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Mortinta serĉu ĉielon, vivanta iun celon.
+
+Muele sencele.
+
+Muelilo haltas, muelisto eksaltas.
+
+Multaj kompatantoj, sed neniu helpanto.
+
+Multaj svatiĝas, feliĉulo edziĝas.
+
+Multaj vokitoj, sed ne multaj elektitoj.
+
+Multe da fianĉoj, sed la ĝusta ne venas.
+
+Multe da peno, neniom da pano.
+
+Multe da sprito, sed neniom da profito.
+
+Multe en kapo, sed nenio en poŝo.
+
+Multe entreprenis, sed ne multe eltenis.
+
+Multe komencite, malmulte plenumite.
+
+Murmuregas la urso, sed danci ĝi devas.
+
+Murmuri tra la dentoj.
+
+Muso la katon ĉiam ofendis.
+
+Muso satiĝis, faruno malboniĝis.
+
+
+ESPERANTA PROVERBARO
+
 
 n
 
-Naivuloj jam ne ekzistas. 
+Naivuloj jam ne ekzistas.
 
-Najbaro ne ĝemas, kiam boto nin premas. 
+Najbaro ne ĝemas, kiam boto nin premas.
 
-Naskiĝas fianĉino por sia fianĉo. 
+Naskiĝas fianĉino por sia fianĉo.
 
-Naskiĝu, edziĝu kaj mortu — ĉiam monon alportu. 
+Naskiĝu, edziĝu kaj mortu — ĉiam monon alportu.
 
-Nazo supren, vento antaŭen. 
+Nazo supren, vento antaŭen.
 
-Ne aŭskultinte, ne kondamnu. 
+Ne aŭskultinte, ne kondamnu.
 
-Ne atendis, ne esperis — malfeliĉo aperis. 
+Ne atendis, ne esperis — malfeliĉo aperis.
 
-Ne atendita, ne esperita ofte venas subite. 
+Ne atendita, ne esperita ofte venas subite.
 
-Ne atingos krio ĝis la trono de Dio. 
+Ne atingos krio ĝis la trono de Dio.
 
-Ne batalu pot’ el tero kontraŭ kaldrono el fero. 
+Ne batalu pot’ el tero kontraŭ kaldrono el fero.
 
-Ne batas bastono sen persono. 
+Ne batas bastono sen persono.
 
-Ne bedaŭru hieraŭan, ne atendu morgaŭan, ne forlasu hodiaŭan. 
+Ne bedaŭru hieraŭan, ne atendu morgaŭan, ne forlasu hodiaŭan.
 
-Ne bela estas amata, sed amata estas bela. 
+Ne bela estas amata, sed amata estas bela.
 
-Ne bela estas kara, sed kara estas bela. 
+Ne bela estas kara, sed kara estas bela.
 
-Ne beligas loko homon, sed homo la lokon. 
+Ne beligas loko homon, sed homo la lokon.
 
-Ne bezonas la kapo konsilon de kruroj. 
+Ne bezonas la kapo konsilon de kruroj.
 
-Ne ĉiam daŭras malbona vetero, ne ĉiam daŭras homa sufero. 
+Ne ĉiam daŭras malbona vetero, ne ĉiam daŭras homa sufero.
 
-83
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Ne ĉiam estas festo, venos ankaŭ fasto. 
-
-Ne ĉiam estas sankta Johano. 
-
-Ne ĉiam per aĝo mezuriĝas la saĝo. 
-
-Ne ĉio batas, kio tondras. 
-
-Ne ĉio brilanta estas diamanto. 
-
-Ne ĉio griza estas lupo. 
-
-Ne ĉio utilas, kio brilas. 
-
-Ne ĉion oni devas severe ekzameni. 
-
-Ne ĉiu aspiranto devas esti prenanto. 
-
-Ne ĉiu bojato estas ŝtelisto. 
-
-Ne ĉiu fianĉiĝas, kiu svatiĝas. 
-
-Ne ĉiu havas egalan feliĉon. 
-
-Ne ĉiu hundo bojanta estas hundo mordanta. 
-
-Ne ĉiu ĝibulo estas sanktulo. 
-
-Ne ĉiu papereto estas banka bileto. 
-
-Ne ĉiu raporto estas vera vorto. 
-
-Ne ĉiuj havas egalan feliĉon. 
-
-Ne defendas oro kontraŭ doloro. 
-
-Ne demandu scienculon, demandu spertulon. 
-
-Ne diru ”hop” antaŭ la salto. 
-
-Ne doloras frapo sur fremda kapo. 
-
-Ne donu kaj ne boju. 
-
-Ne ekzistas en la komerco amikeco nek ŝerco. 
-
-84
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Ne ekzistas forto kontraŭ la morto. 
+Ne ĉiam estas festo, venos ankaŭ fasto.
 
-Ne ekzistas fumo sen brulo. 
+Ne ĉiam estas sankta Johano.
 
-Ne ekzistas fumo sen fajro. 
+Ne ĉiam per aĝo mezuriĝas la saĝo.
 
-Ne ekzistas honoro sen laboro. 
+Ne ĉio batas, kio tondras.
 
-Ne ekzistas juneco sen kapricoj, nek maljuneco sen malicoj. 
+Ne ĉio brilanta estas diamanto.
 
-Ne ekzistas kareso sen intereso. 
+Ne ĉio griza estas lupo.
 
-Ne ekzistas mono, ne ekzistas dono. 
+Ne ĉio utilas, kio brilas.
 
-Ne ekzistas naiva vulpo, ne ekzistas homo sen kulpo. 
+Ne ĉion oni devas severe ekzameni.
 
-Ne ekzistas ofico sen benefico. 
+Ne ĉiu aspiranto devas esti prenanto.
 
-Ne ekzistas regulo sen escepto. 
+Ne ĉiu bojato estas ŝtelisto.
 
-Ne ekzistas savo kontraŭ malbona virino. 
+Ne ĉiu fianĉiĝas, kiu svatiĝas.
 
-Ne ekzistas terno sen nazo nek fakto sen bazo. 
+Ne ĉiu havas egalan feliĉon.
 
-Ne el ĉiu ligno oni faras violonon. 
+Ne ĉiu hundo bojanta estas hundo mordanta.
 
-Ne el unu forno li manĝis jam panon. 
+Ne ĉiu ĝibulo estas sanktulo.
 
-Ne elverŝu la malpuran, antaŭ ol vi havas la puran. 
+Ne ĉiu papereto estas banka bileto.
 
-Ne elvoku lupon el la arbaro. 
+Ne ĉiu raporto estas vera vorto.
 
-Ne elvoku lupon el la arbaro. 
+Ne ĉiuj havas egalan feliĉon.
 
-Ne en ĉiu afero estu severa. 
+Ne defendas oro kontraŭ doloro.
 
-Ne en unu tago elkreskis Kartago. 
+Ne demandu scienculon, demandu spertulon.
 
-Ne esperite, ne sonĝite. 
+Ne diru ”hop” antaŭ la salto.
 
-Ne estas piediranto kolego al rajdanto. 
+Ne doloras frapo sur fremda kapo.
 
-Ne estingu la fajron, kiu vin ne bruligas. 
+Ne donu kaj ne boju.
 
-85
+Ne ekzistas en la komerco amikeco nek ŝerco.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Ne falas frukto malproksime de l’arbo. 
-
-Ne fanfaronu irante, fanfaronu revenante. 
-
-Ne faru kalkulon sen la mastro. 
-
-Ne fidu amikon, kiu havas jam flikon. 
-
-Ne fidu fidelulon, fidu propran okulon. 
-
-Ne fidu heredon, fidu posedon. 
-
-Ne gutas mielo el la ĉielo. 
-
-Ne gutas mielo el la ĉielo. 
-
-Ne havante, oni petas; ricevinte, forĵetas. 
-
-Ne helpas glorkrono al malplena kaldrono. 
-
-Ne helpas plendo nek ploro kontraŭ kreditoro. 
-
-Ne helpas ploro al doloro. 
-
-Ne helpas spegulo al malbelulo. 
-
-Ne hontu penti pri faro, hontu persisti en eraro. 
-
-Ne insultu mizeran, ne moku malliberan. 
-
-Ne iras hakilo al kolo humila. 
-
-Ne iru al fremda anaro kun via regularo. 
-
-Ne iru fadeno antaŭ kudrilo. 
-
-Ne iru okuloj super la frunton. 
-
-Ne juĝo kondamnas, sed juĝanto. 
-
-Ne juĝu afero laŭ ĝia ekstero. 
-
-Ne juĝu pri afero laŭ ĝia ekstero. 
-
-Ne kaptita — ne punita. 
-
-86
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Ne karesu per mano, sed karesu per pano. 
+Ne ekzistas forto kontraŭ la morto.
 
-Ne kaŝiĝas lia lango malantaŭ la vango. 
+Ne ekzistas fumo sen brulo.
 
-Ne konante la profundecon, ne iru en riveron. 
+Ne ekzistas fumo sen fajro.
 
-Ne kondamnu alian, oni vin ne kondamnos. 
+Ne ekzistas honoro sen laboro.
 
-Ne kotas besto en sia nesto. 
+Ne ekzistas juneco sen kapricoj, nek maljuneco sen malicoj.
 
-Ne kraĉu en puton, ĉar vi trinki bezonos. 
+Ne ekzistas kareso sen intereso.
 
-Ne kredas ŝtelisto, ke honestaj ekzistas. 
+Ne ekzistas mono, ne ekzistas dono.
 
-Ne kredu al orelo, kredu al okulo. 
+Ne ekzistas naiva vulpo, ne ekzistas homo sen kulpo.
 
-Ne kredu al parolo sen propra kontrolo. 
+Ne ekzistas ofico sen benefico.
 
-Ne kvanto, sed kvalito decidas pri merito. 
+Ne ekzistas regulo sen escepto.
 
-Ne laŭdu la tagon antaŭ vespero. 
+Ne ekzistas savo kontraŭ malbona virino.
 
-Ne laciĝos mano, ne fariĝos pano. 
+Ne ekzistas terno sen nazo nek fakto sen bazo.
 
-Ne laciĝu viaj manoj pri fremdaj infanoj. 
+Ne el ĉiu ligno oni faras violonon.
 
-Ne longe sinjora daŭras favoro. 
+Ne el unu forno li manĝis jam panon.
 
-Ne mankas tombo por mortinto nek pano por vivanto. 
+Ne elverŝu la malpuran, antaŭ ol vi havas la puran.
 
-Ne maro dronigas ŝipon, sed la ventoj. 
+Ne elvoku lupon el la arbaro.
 
-Ne mia estas la ĉevalo, min ne tuŝas ĝia falo. 
+Ne elvoku lupon el la arbaro.
 
-Ne moku mizeron de alia, ĉar baldaŭ venos via. 
+Ne en ĉiu afero estu severa.
 
-Ne moku riveron, ne atinginte la teron. 
+Ne en unu tago elkreskis Kartago.
 
-Ne naskas porko leonidon, nek korniko aglidon. 
+Ne esperite, ne sonĝite.
 
-Ne naskiĝu riĉa, naskiĝu feliĉa. 
+Ne estas piediranto kolego al rajdanto.
 
-Ne pekas drinkulo, pekas ebriulo. 
+Ne estingu la fajron, kiu vin ne bruligas.
 
-Ne pelu tiun, kiu mem forkuras. 
-
-87
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Ne pentru diablon sur la muro. 
+Ne falas frukto malproksime de l’arbo.
 
-Ne por lupo estas supo. 
+Ne fanfaronu irante, fanfaronu revenante.
 
-Ne povas ĉiu homo esti pap’ en Romo. 
+Ne faru kalkulon sen la mastro.
 
-Ne prediku knabino al via patrino. 
+Ne fidu amikon, kiu havas jam flikon.
 
-Ne prenis pastro la donon — rekaŝu sako la monon. 
+Ne fidu fidelulon, fidu propran okulon.
 
-Ne prokrastu ĝis morgaŭ, kion vi povas fari hodiaŭ. 
+Ne fidu heredon, fidu posedon.
 
-Ne punu edzinon antaŭ infanaj okuloj, ne punu infanojn antaŭ fremduloj. 
+Ne gutas mielo el la ĉielo.
 
-Ne puŝu vian regularon en fremdan anaron. 
+Ne gutas mielo el la ĉielo.
 
-Ne rapidu insulti, volu aŭskulti. 
+Ne havante, oni petas; ricevinte, forĵetas.
 
-Ne rapidu kun fido antaŭ longa kunesido. 
+Ne helpas glorkrono al malplena kaldrono.
 
-Ne rapidu kun vortoj, rapidu kun faroj. 
+Ne helpas plendo nek ploro kontraŭ kreditoro.
 
-Ne rapidu, trankvile decidu. 
+Ne helpas ploro al doloro.
 
-Ne rezonu pri tio, kio estas ekster via metio. 
+Ne helpas spegulo al malbelulo.
 
-Ne sama la vento blovas konstante. 
+Ne hontu penti pri faro, hontu persisti en eraro.
 
-Ne sanktuloj potojn faras. 
+Ne insultu mizeran, ne moku malliberan.
 
-Ne serĉu bonan arbaron, serĉu bonan najbaron. 
+Ne iras hakilo al kolo humila.
 
-Ne servas larmo anstataŭ armo. 
+Ne iru al fremda anaro kun via regularo.
 
-Ne ŝovu la nazon en fremdan vazon. 
+Ne iru fadeno antaŭ kudrilo.
 
-Ne ŝpari monon nek penon. 
+Ne iru okuloj super la frunton.
 
-Ne spiciĝas manĝo de mastrina beleco. 
+Ne juĝo kondamnas, sed juĝanto.
 
-Ne ŝtelus ŝtelistoj, se ne ekzistus kaŝistoj. 
+Ne juĝu afero laŭ ĝia ekstero.
 
-Ne sufiĉas ploro al kreditoro. 
+Ne juĝu pri afero laŭ ĝia ekstero.
 
-88
+Ne kaptita — ne punita.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Ne taŭgas du ursoj por unu nesto. 
-
-Ne taŭgas la vero por komerca afero. 
-
-Ne timu hundon bojantan, timu hundon silentan. 
-
-Ne timu tranĉilon, timu babilon. 
-
-Ne transnaĝeble, nek transireble. 
-
-Ne trovante bovinon, oni ŝtelas kokinon. 
-
-Ne unu fajron li pasis, ne unu hundo lin ĉasis. 
-
-Ne unu hundo lin mordis, ne unu vento lin tordis. 
-
-Ne valoranto plaĉas, sed plaĉanto valoras. 
-
-Ne valoras bofilo, kiam mortis filino. 
-
-Ne valoras la akiro eĉ la penon de l’deziro. 
-
-Ne valoras la faro la koston de l’preparo. 
-
-Ne veku malfeliĉon, kiam ĝi dormas. 
-
-Ne venas honoro sen laboro. 
-
-Ne venas mont’ al monto, sed homo homon renkontas. 
-
-Ne venos rato mem al kato. 
-
-Ne vivu kiel vi volas, vivu kiel vi povas. 
-
-Ne voku diablon, ĉar li povas aperi. 
-
-Ne volas kokin’ al festeno, sed oni ĝin trenas perforte. 
-
-Ne volis rajdi sur ĉevalo, ekrajdis sur azeno. 
-
-Ne zorgu pri tio, kio estas ekster via scio. 
-
-Nebuligi al iu la okulojn. 
-
-Neceseco kontraŭvola estas leĝo malmola. 
-
-89
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Neceso ne estas kareso. 
+Ne karesu per mano, sed karesu per pano.
 
-Neevitebla malbono. 
+Ne kaŝiĝas lia lango malantaŭ la vango.
 
-Negocaj aferoj estas severaj. 
+Ne konante la profundecon, ne iru en riveron.
 
-Neĝo kaŝas nur ĝis printempo. 
+Ne kondamnu alian, oni vin ne kondamnos.
 
-Nek al teksto, nek al preteksto. 
+Ne kotas besto en sia nesto.
 
-Nek al temo, nek al celo. 
+Ne kraĉu en puton, ĉar vi trinki bezonos.
 
-Nek eniro, nek eliro. 
+Ne kredas ŝtelisto, ke honestaj ekzistas.
 
-Nek helpeble, nek konsileble. 
+Ne kredu al orelo, kredu al okulo.
 
-Nek io, nek alio. 
+Ne kredu al parolo sen propra kontrolo.
 
-Nek ĝojo, nek malĝojo daŭras eterne. 
+Ne kvanto, sed kvalito decidas pri merito.
 
-Nek pikite, nek hakite. 
+Ne laŭdu la tagon antaŭ vespero.
 
-Nek pio por Dio, nek kapablo por diablo. 
+Ne laciĝos mano, ne fariĝos pano.
 
-Nek por baki, nek por haki. 
+Ne laciĝu viaj manoj pri fremdaj infanoj.
 
-Nekonscie vi agis — konscie vi pagos. 
+Ne longe sinjora daŭras favoro.
 
-Neleĝe akirita ne estas profita. 
+Ne mankas tombo por mortinto nek pano por vivanto.
 
-Nenia ago fariĝas sen pago. 
+Ne maro dronigas ŝipon, sed la ventoj.
 
-Nenia konstruo povas esti sen bruo. 
+Ne mia estas la ĉevalo, min ne tuŝas ĝia falo.
 
-Nenia peketo restas longe sekreto. 
+Ne moku mizeron de alia, ĉar baldaŭ venos via.
 
-Nenia peno nek provo donos lakton de bovo. 
+Ne moku riveron, ne atinginte la teron.
 
-Neniam atendita ofte venas subite. 
+Ne naskas porko leonidon, nek korniko aglidon.
 
-Nenie semata, ĉie trovata. 
+Ne naskiĝu riĉa, naskiĝu feliĉa.
 
-Nenio pli grandan mizeron prezentas, ol se sano mankas kaj ŝuldoj turmentas. 
+Ne pekas drinkulo, pekas ebriulo.
 
-90
+Ne pelu tiun, kiu mem forkuras.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Neniom da oro, sed bona gloro. 
-
-Neniu estas profeto en sia urbeto. 
-
-Neniu sanktulo estas sen makulo. 
-
-Neniu scias, kio morgaŭ lin trafos. 
-
-Neniu vidas, kio lin insidas. 
-
-Nesciado de leĝo neniun pravigas. 
-
-Nevo de papo facile fariĝas kardinalo. 
-
-Ni amu nin frate, sed ni kalkulu akurate. 
-
-Ni facile forgesas, kio nin ne interesas. 
-
-Ni forgesas averton, ni memoras la sperton. 
-
-Ni laboru kaj esperu. 
-
-Ni reciproke nin konas, klarigon ne bezonas. 
-
-Ni vidas, kiu ridas — kiu ploras, ni ne vidas. 
-
-Nigran kornikon sapo ne blankigos. 
-
-Nigro sur blanko pruvas sen manko. 
-
-Nin ĉiam ravas, kion ni ne havas. 
-
-Nin instruas eraro, kiun faras najbaro. 
-
-Nobelo promesojn disdonas, kampulo promesojn plenumas. 
-
-Nokte eĉ monstro estas belulo. 
-
-Nomo egala, sed esenco mala. 
-
-Notu en la kamentubo. 
-
-Nova balailo bone balaas. 
-
-91
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Nova stato — nova vivo. 
+Ne pentru diablon sur la muro.
 
-Novaj sinjoroj — novaj moroj. 
+Ne por lupo estas supo.
 
-Nuda kaj kruda, sen groŝo en poŝo. 
+Ne povas ĉiu homo esti pap’ en Romo.
 
-Nuksoj venis, kiam dentoj elfalis. 
+Ne prediku knabino al via patrino.
 
-Nun finiĝas mia klereco. 
+Ne prenis pastro la donon — rekaŝu sako la monon.
 
-Nur pano kun fromaĝo, sed afabla vizaĝo. 
+Ne prokrastu ĝis morgaŭ, kion vi povas fari hodiaŭ.
 
-Nur suferinto ŝatas feliĉon. 
+Ne punu edzinon antaŭ infanaj okuloj, ne punu infanojn antaŭ fremduloj.
 
-Nur tiu ne eraras, kiu neniam ion faras. 
+Ne puŝu vian regularon en fremdan anaron.
 
-Nutri per promesoj.Promesi orajn montojn. 
+Ne rapidu insulti, volu aŭskulti.
 
-Nutru lupon plej sate, li ĉiam serĉas arbaron. 
+Ne rapidu kun fido antaŭ longa kunesido.
 
-92
+Ne rapidu kun vortoj, rapidu kun faroj.
+
+Ne rapidu, trankvile decidu.
+
+Ne rezonu pri tio, kio estas ekster via metio.
+
+Ne sama la vento blovas konstante.
+
+Ne sanktuloj potojn faras.
+
+Ne serĉu bonan arbaron, serĉu bonan najbaron.
+
+Ne servas larmo anstataŭ armo.
+
+Ne ŝovu la nazon en fremdan vazon.
+
+Ne ŝpari monon nek penon.
+
+Ne spiciĝas manĝo de mastrina beleco.
+
+Ne ŝtelus ŝtelistoj, se ne ekzistus kaŝistoj.
+
+Ne sufiĉas ploro al kreditoro.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Ne taŭgas du ursoj por unu nesto.
+
+Ne taŭgas la vero por komerca afero.
+
+Ne timu hundon bojantan, timu hundon silentan.
+
+Ne timu tranĉilon, timu babilon.
+
+Ne transnaĝeble, nek transireble.
+
+Ne trovante bovinon, oni ŝtelas kokinon.
+
+Ne unu fajron li pasis, ne unu hundo lin ĉasis.
+
+Ne unu hundo lin mordis, ne unu vento lin tordis.
+
+Ne valoranto plaĉas, sed plaĉanto valoras.
+
+Ne valoras bofilo, kiam mortis filino.
+
+Ne valoras la akiro eĉ la penon de l’deziro.
+
+Ne valoras la faro la koston de l’preparo.
+
+Ne veku malfeliĉon, kiam ĝi dormas.
+
+Ne venas honoro sen laboro.
+
+Ne venas mont’ al monto, sed homo homon renkontas.
+
+Ne venos rato mem al kato.
+
+Ne vivu kiel vi volas, vivu kiel vi povas.
+
+Ne voku diablon, ĉar li povas aperi.
+
+Ne volas kokin’ al festeno, sed oni ĝin trenas perforte.
+
+Ne volis rajdi sur ĉevalo, ekrajdis sur azeno.
+
+Ne zorgu pri tio, kio estas ekster via scio.
+
+Nebuligi al iu la okulojn.
+
+Neceseco kontraŭvola estas leĝo malmola.
+
+
+ESPERANTA PROVERBARO
+
+
+Neceso ne estas kareso.
+
+Neevitebla malbono.
+
+Negocaj aferoj estas severaj.
+
+Neĝo kaŝas nur ĝis printempo.
+
+Nek al teksto, nek al preteksto.
+
+Nek al temo, nek al celo.
+
+Nek eniro, nek eliro.
+
+Nek helpeble, nek konsileble.
+
+Nek io, nek alio.
+
+Nek ĝojo, nek malĝojo daŭras eterne.
+
+Nek pikite, nek hakite.
+
+Nek pio por Dio, nek kapablo por diablo.
+
+Nek por baki, nek por haki.
+
+Nekonscie vi agis — konscie vi pagos.
+
+Neleĝe akirita ne estas profita.
+
+Nenia ago fariĝas sen pago.
+
+Nenia konstruo povas esti sen bruo.
+
+Nenia peketo restas longe sekreto.
+
+Nenia peno nek provo donos lakton de bovo.
+
+Neniam atendita ofte venas subite.
+
+Nenie semata, ĉie trovata.
+
+Nenio pli grandan mizeron prezentas, ol se sano mankas kaj ŝuldoj turmentas.
+
+
+ESPERANTA PROVERBARO
+
+
+Neniom da oro, sed bona gloro.
+
+Neniu estas profeto en sia urbeto.
+
+Neniu sanktulo estas sen makulo.
+
+Neniu scias, kio morgaŭ lin trafos.
+
+Neniu vidas, kio lin insidas.
+
+Nesciado de leĝo neniun pravigas.
+
+Nevo de papo facile fariĝas kardinalo.
+
+Ni amu nin frate, sed ni kalkulu akurate.
+
+Ni facile forgesas, kio nin ne interesas.
+
+Ni forgesas averton, ni memoras la sperton.
+
+Ni laboru kaj esperu.
+
+Ni reciproke nnas, klarigon ne bezonas.
+
+Ni vidas, kiu ridas — kiu ploras, ni ne vidas.
+
+Nigran kornikon sapo ne blankigos.
+
+Nigro sur blanko pruvas sen manko.
+
+Nin ĉiam ravas, kion ni ne havas.
+
+Nin instruas eraro, kiun faras najbaro.
+
+Nobelo promesojn disdonas, kampulo promesojn plenumas.
+
+Nokte eĉ monstro estas belulo.
+
+Nomo egala, sed esenco mala.
+
+Notu en la kamentubo.
+
+Nova balailo bone balaas.
+
+
+ESPERANTA PROVERBARO
+
+
+Nova stato — nova vivo.
+
+Novaj sinjoroj — novaj moroj.
+
+Nuda kaj kruda, sen groŝo en poŝo.
+
+Nuksoj venis, kiam dentoj elfalis.
+
+Nun finiĝas mia klereco.
+
+Nur pano kun fromaĝo, sed afabla vizaĝo.
+
+Nur suferinto ŝatas feliĉon.
+
+Nur tiu ne eraras, kiu neniam ion faras.
+
+Nutri per promesoj.Promesi orajn montojn.
+
+Nutru lupon plej sate, li ĉiam serĉas arbaron.
+
+
+ESPERANTA PROVERBARO
+
 
 o
 
-Obstina kiel kapro. 
+Obstina kiel kapro.
 
-Ofta festo, malplena kesto. 
+Ofta festo, malplena kesto.
 
-Ofte ĉapo de kampulo kovras kapon de saĝulo. 
+Ofte ĉapo de kampulo kovras kapon de saĝulo.
 
-Ofte de kaŭzo senenhava venas efiko plej grava. 
+Ofte de kaŭzo senenhava venas efiko plej grava.
 
-Ofte kantas la buŝo, kiam ploras la koro. 
+Ofte kantas la buŝo, kiam ploras la koro.
 
-Ofte ligis malsaĝulo kaj dek saĝuloj malligi ne povas. 
+Ofte ligis malsaĝulo kaj dek saĝuloj malligi ne povas.
 
-Ofte mano forgesas, kion buŝo promesas. 
+Ofte mano forgesas, kion buŝo promesas.
 
-Ofte saĝulo vivas malriĉe kaj malsaĝulo feliĉe. 
+Ofte saĝulo vivas malriĉe kaj malsaĝulo feliĉe.
 
-Okaza komplimento ne iras al testamento. 
+Okaza komplimento ne iras al testamento.
 
-Okazo kreas ŝteliston. 
+Okazo kreas ŝteliston.
 
-Okazon kaptu ĉe l’kapo, ĉar la vosto estas glita. 
+Okazon kaptu ĉe l’kapo, ĉar la vosto estas glita.
 
-Okulo avidas ĉion kion vidas. 
+Okulo avidas ĉion kion vidas.
 
-Okulo de mastro pli ol beno de pastro. 
+Okulo de mastro pli ol beno de pastro.
 
-Okulo ne atentas, dorso eksentas. 
+Okulo ne atentas, dorso eksentas.
 
-Okulo ne vidis — pagu la sako. 
+Okulo ne vidis — pagu la sako.
 
-Okuloj estas pli grandaj ol la ventro. 
+Okuloj estas pli grandaj ol la ventro.
 
-Okupi sen celo lokon sub ĉielo. 
+Okupi sen celo lokon sub ĉielo.
 
-Oni akceptas laŭ vizaĝo, oni forlasas laŭ saĝo. 
+Oni akceptas laŭ vizaĝo, oni forlasas laŭ saĝo.
 
-Oni batas la oron, por provi ĝian valoron. 
+Oni batas la oron, por provi ĝian valoron.
 
-93
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Oni batas, malkaresas, kaj eĉ plori ne permesas. 
-
-Oni batas ne la aĝon, sed la vizaĝon. 
-
-Oni batas per vipo, por ke sentu la ripo. 
-
-Oni bonon forgesos, malbonon memoras. 
-
-Oni donacas por speso kaj laborigas por spesmilo. 
-
-Oni ekkonas bovon per la vido kaj malsaĝulon per lia rido. 
-
-Oni elbatas kojnon per kojno. 
-
-Oni estas riĉa neniam sufiĉe. 
-
-Oni faris, oni ĉesis, kaj ni ĉion forgesis. 
-
-Oni invitas — venu, oni donacas — prenu. 
-
-Oni komencas per ŝteletoj kaj finas per ŝtelegoj. 
-
-Oni konsilas kaj konsolas, sed helpi ne volas. 
-
-Oni lekas la manon, sed celas la panon. 
-
-Oni lin konas, kiel blankan lupon; kiel makulharan hundon; kiel malbonan moneron. 
-
-Oni maron admiras, se oni maron ne iras. 
-
-Oni metis makulon en mian kalkulon. 
-
-Oni ne pagas per gloro al sia tajloro. 
-
-Oni ne povas sin movi laŭ ĉiu vento aparte. 
-
-Oni perfidon prenas, sed perfidulon abomenas. 
-
-Oni prenas avide, oni redonas malrapide. 
-
-Oni prenas per manoj, redonas per piedoj. 
-
-Oni priŝtelas ne riĉulon, sed sengardulon. 
-
-94
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Oni tondas ŝafinojn, tremas la ŝafoj. 
+Oni batas, malkaresas, kaj eĉ plori ne permesas.
 
-Oni vivas ne kun mono, sed kun persono. 
+Oni batas ne la aĝon, sed la vizaĝon.
 
-Oni vokas la bovon ne festeni, sed treni. 
+Oni batas per vipo, por ke sentu la ripo.
 
-Ora ŝlosilo ĉion malfermas. 
+Oni bonon forgesos, malbonon memoras.
 
-Ora ŝlosilo ĉiun pordon malfermas. 
+Oni donacas por speso kaj laborigas por spesmilo.
 
-Ordigi al iu la kapon. 
+Oni ekkonas bovon per la vido kaj malsaĝulon per lia rido.
 
-Ordo estas beno por ĉiu entrepreno. 
+Oni elbatas kojnon per kojno.
 
-Ordonita kiso havas guston maldolĉan. 
+Oni estas riĉa neniam sufiĉe.
 
-Oro estas pli peza ol fero, pli malpeza ol aero. 
+Oni faris, oni ĉesis, kaj ni ĉion forgesis.
 
-Oro nur fingron eksvingas kaj ĉion atingas. 
+Oni invitas — venu, oni donacas — prenu.
 
-Ovo kokinon ne instruas. 
+Oni komencas per ŝteletoj kaj finas per ŝtelegoj.
 
-95
+Oni konsilas kaj konsolas, sed helpi ne volas.
+
+Oni lekas la manon, sed celas la panon.
+
+Oni lnas, kiel blankan lupon; kiel makulharan hundon; kiel malbonan moneron.
+
+Oni maron admiras, se oni maron ne iras.
+
+Oni metis makulon en mian kalkulon.
+
+Oni ne pagas per gloro al sia tajloro.
+
+Oni ne povas sin movi laŭ ĉiu vento aparte.
+
+Oni perfidon prenas, sed perfidulon abomenas.
+
+Oni prenas avide, oni redonas malrapide.
+
+Oni prenas per manoj, redonas per piedoj.
+
+Oni priŝtelas ne riĉulon, sed sengardulon.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Oni tondas ŝafinojn, tremas la ŝafoj.
+
+Oni vivas ne kun mono, sed kun persono.
+
+Oni vokas la bovon ne festeni, sed treni.
+
+Ora ŝlosilo ĉion malfermas.
+
+Ora ŝlosilo ĉiun pordon malfermas.
+
+Ordigi al iu la kapon.
+
+Ordo estas beno por ĉiu entrepreno.
+
+Ordonita kiso havas guston maldolĉan.
+
+Oro estas pli peza ol fero, pli malpeza ol aero.
+
+Oro nur fingron eksvingas kaj ĉion atingas.
+
+Ovo kokinon ne instruas.
+
+
+ESPERANTA PROVERBARO
+
 
 p
 
-Paca silento, ke ne blovas eĉ vento. 
+Paca silento, ke ne blovas eĉ vento.
 
-Paco al lia cindro\! 
+Paco al lia cindro!
 
-Pafi — maltrafi. 
+Pafi — maltrafi.
 
-Pagas maljunaj jaroj por junaj eraroj. 
+Pagas maljunaj jaroj por junaj eraroj.
 
-Pagas ne riĉulo, pagas kulpulo. 
+Pagas ne riĉulo, pagas kulpulo.
 
-Pagi por fremda festeno. 
+Pagi por fremda festeno.
 
-Pagi sen partopreno por fremda festeno. 
+Pagi sen partopreno por fremda festeno.
 
-Pago de ŝuldanto estas bona en ĉiu kvanto. 
+Pago de ŝuldanto estas bona en ĉiu kvanto.
 
-Pagos lupo por la ŝafo. 
+Pagos lupo por la ŝafo.
 
-Palpi al iu la pulson. 
+Palpi al iu la pulson.
 
-Pano buŝon ne serĉas. 
+Pano buŝon ne serĉas.
 
-Pano estas alportita, korbo estu forĵetita. 
+Pano estas alportita, korbo estu forĵetita.
 
-Pardonemeco superas justecon. 
+Pardonemeco superas justecon.
 
-Parenĉ al parenco ne malhelpas intence. 
+Parenĉ al parenco ne malhelpas intence.
 
-Parenco per Adamo. 
+Parenco per Adamo.
 
-Parolanto semas, aŭdanto rikoltas. 
+Parolanto semas, aŭdanto rikoltas.
 
-Paroli dolĉe en la orelon. 
+Paroli dolĉe en la orelon.
 
-Paroli per vortoj kovritaj. 
+Paroli per vortoj kovritaj.
 
-Paroli sensencaĵon. 
+Paroli sensencaĵon.
 
-96
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Parolo anĝela, sed penso pri ŝtelo. 
-
-Parolo estas arĝento, oron similas silento. 
-
-Paroloj kaj faroj estas malsamaj aferoj. 
-
-Pasero sperta estas lerta. 
-
-Pasero sperta ne bezonas averton. 
-
-Pasinta doloro for el memoro. 
-
-Pastro ŝafon ne prenas, ĝi hejmen revenas. 
-
-Pastro vivas de preĝoj, advokato de leĝoj. 
-
-Pastron nutras preĝejo. 
-
-Patroj avaras, infanoj malŝparas. 
-
-Pecon detranĉitan al la pano ne regluu. 
-
-Pekas junuloj kaj pekas maljunuloj. 
-
-Peke akirita ne estas profita. 
-
-Pekinto pentas, kolero silentas. 
-
-Peko kaj eraro estas ecoj de l’homaro. 
-
-Peko malnova perdas pekecon. 
-
-Pekon serĉi oni ne bezonas. 
-
-Peli tagojn sen afero de mateno al vespero. 
-
-Pelis pavon, falis kavon. 
-
-Pelu mizeron tra l’pordo, ĝi revenos tra l’fenestro. 
-
-Pendonto ne dronos. 
-
-Pensoj iras trans limo sen pago kaj timo. 
-
-Per bezono venas mono. 
-
-97
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Per eraro ne praviĝas la faro. 
+Parolo anĝela, sed penso pri ŝtelo.
 
-Per insulto kaj kolero ne klariĝas afero. 
+Parolo estas arĝento, oron similas silento.
 
-Per kio la veto? 
+Paroloj kaj faroj estas malsamaj aferoj.
 
-Per la kapo malsupren. 
+Pasero sperta estas lerta.
 
-Per lango ni flatas, per mano batas. 
+Pasero sperta ne bezonas averton.
 
-Per lerta admono alfluas la mono. 
+Pasinta doloro for el memoro.
 
-Per mezuro kaj peso akiriĝas sukceso. 
+Pastro ŝafon ne prenas, ĝi hejmen revenas.
 
-Per mono eĉ silento fariĝas elokvento. 
+Pastro vivas de preĝoj, advokato de leĝoj.
 
-Per mono, ne per mano punu vilaĝanon. 
+Pastron nutras preĝejo.
 
-Per oreloj, ne per okuloj, edzinon elektu. 
+Patroj avaras, infanoj malŝparas.
 
-Per pacienco kaj fervoro sukcesas ĉiu laboro. 
+Pecon detranĉitan al la pano ne regluu.
 
-Per pacienco venas scienco. 
+Pekas junuloj kaj pekas maljunuloj.
 
-Per paroloj li bruas, tutan urbon detruas. 
+Peke akirita ne estas profita.
 
-Per promesoj estas pavimita la infero. 
+Pekinto pentas, kolero silentas.
 
-Per tro multa varto malboniĝas la farto. 
+Peko kaj eraro estas ecoj de l’homaro.
 
-Per unu ŝtono oni du ĵetojn ne faras. 
+Peko malnova perdas pekecon.
 
-Per vorto ĝentila ĉio estas facila. 
+Pekon serĉi oni ne bezonas.
 
-Perdiĝas per pruntedono amiko kaj mono. 
+Peli tagojn sen afero de mateno al vespero.
 
-Perdi la kandelon el la kapo. 
+Pelis pavon, falis kavon.
 
-Perdi la kuraĝon. 
+Pelu mizeron tra l’pordo, ĝi revenos tra l’fenestro.
 
-Perdi la saĝon. 
+Pendonto ne dronos.
 
-Perdinta la kapon pri haroj ne ploras. 
+Pensoj iras trans limo sen pago kaj timo.
 
-Pereis ŝafino, pereu ankaŭ la ŝafido. 
+Per bezono venas mono.
 
-98
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Perforta amo estas plej forta malamo. 
+Per eraro ne praviĝas la faro.
 
-Peto de barono estas ordono. 
+Per insulto kaj kolero ne klariĝas afero.
 
-Peto kaj demando kondukas tra l’tuta lando. 
+Per kio la veto?
 
-Petolado sen mezuro ne kondukas al plezuro. 
+Per la kapo malsupren.
 
-Petolu, diboĉu, sed poste sorton ne riproĉu. 
+Per lango ni flatas, per mano batas.
 
-Petro kornojn tenas, Paŭlo lakton prenas. 
+Per lerta admono alfluas la mono.
 
-Petro parolas sen direkto, sed Paŭlo konjektu. 
+Per mezuro kaj peso akiriĝas sukceso.
 
-Petro rifuzas, Paŭlo ekuzas. 
+Per mono eĉ silento fariĝas elokvento.
 
-Petron kruro doloras, Karolo ne lamas. 
+Per mono, ne per mano punu vilaĝanon.
 
-Piaj deziroj. 
+Per oreloj, ne per okuloj, edzinon elektu.
 
-Piedo ne atentis, kapo eksentis. 
+Per pacienco kaj fervoro sukcesas ĉiu laboro.
 
-Piki al iu la vundan lokon. 
+Per pacienco venas scienco.
 
-Plej bona gvidilo estas la lango. 
+Per paroloj li bruas, tutan urbon detruas.
 
-Plej bona kuracisto estas la tempo. 
+Per promesoj estas pavimita la infero.
 
-Plej bone ridas, kiu laste ridas. 
+Per tro multa varto malboniĝas la farto.
 
-Plej certa laboro — laboro per oro. 
+Per unu ŝtono oni du ĵetojn ne faras.
 
-Plej danĝera malsano estas manko de saĝo. 
+Per vorto ĝentila ĉio estas facila.
 
-Plej facile promeso rimiĝas kun forgeso. 
+Perdiĝas per pruntedono amiko kaj mono.
 
-Plej granda potenco kuŝas en la komenco. 
+Perdi la kandelon el la kapo.
 
-Plej juna katido musojn jam pelas. 
+Perdi la kuraĝon.
 
-Plej kruela estas redono por farita bono. 
+Perdi la saĝon.
 
-Plej kuirita kampulo ĉiam restos krudulo. 
+Perdinta la kapon pri haroj ne ploras.
 
-Plej saĝa maljunulo ne estas tro saĝa. 
+Pereis ŝafino, pereu ankaŭ la ŝafido.
 
-99
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Plena estas la infero de promesitaj aferoj. 
+Perforta amo estas plej forta malamo.
 
-Plena glaso da vino, sed kun guto da veneno. 
+Peto de barono estas ordono.
 
-Plena kaso ŝteliston altiras. 
+Peto kaj demando kondukas tra l’tuta lando.
 
-Plena sako ĉiun mastron al vi klinos. 
+Petolado sen mezuro ne kondukas al plezuro.
 
-Plena stomako laŭdas la faston. 
+Petolu, diboĉu, sed poste sorton ne riproĉu.
 
-Plenblovi la lipojn. 
+Petro kornojn tenas, Paŭlo lakton prenas.
 
-Plendoj stomakon ne plenigas. 
+Petro parolas sen direkto, sed Paŭlo konjektu.
 
-Plenumiĝis la tasko per granda fiasko. 
+Petro rifuzas, Paŭlo ekuzas.
 
-Plenumita via ofico, nun pasis via vico\! 
+Petron kruro doloras, Karolo ne lamas.
 
-Pli allogas kulero da mielo, ol da vinagro barelo. 
+Piaj deziroj.
 
-Pli bona amiko intima, ol parenco malproksima. 
+Piedo ne atentis, kapo eksentis.
 
-Pli bona apude najbaro, ol frato post arbaro. 
+Piki al iu la vundan lokon.
 
-Pli bona branĉo sennuksa, ol kaĝo plej luksa. 
+Plej bona gvidilo estas la lango.
 
-Pli bona ĉifona vesto, ol riĉeco kaj malhonesto. 
+Plej bona kuracisto estas la tempo.
 
-Pli bona estas gajno malgranda, ol granda malgajno. 
+Plej bone ridas, kiu laste ridas.
 
-Pli bona estas io, ol nenio. 
+Plej certa laboro — laboro per oro.
 
-Pli bona — estas malamiko de bona. 
+Plej danĝera malsano estas manko de saĝo.
 
-Pli bona estas malgranda ”jen prenu” ol granda ”morgaŭ venu”. 
+Plej facile promeso rimiĝas kun forgeso.
 
-Pli bona estas paco feliĉa ol havo plej riĉa. 
+Plej granda potenco kuŝas en la komenco.
 
-Pli bona estas saĝa malamiko, ol malsaĝa amiko. 
+Plej juna katido musojn jam pelas.
 
-Pli bona estas virto sen oro, ol oro sen honoro. 
+Plej kruela estas redono por farita bono.
 
-Pli bona estas vorto afabla, ol kuko agrabla. 
+Plej kuirita kampulo ĉiam restos krudulo.
 
-100
+Plej saĝa maljunulo ne estas tro saĝa.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Pli bona homo sen mono, ol mono sen homo. 
-
-Pli bona io, ol nenio. 
-
-Pli bona pano sen butero, ol dolĉa kuko sen libero. 
-
-Pli bona pura konscienco, ol malpura potenco. 
-
-Pli bona sprito estas silento. 
-
-Pli bona virto sen oro, ol oro sen honoro. 
-
-Pli bone estas enviigi, ol kompatigi. 
-
-Pli bone estas havon fordoni, ol kun homoj malpaci. 
-
-Pli bone estas reiri, ol perdi la vojon. 
-
-Pli bone estas sensale, ol tro sale. 
-
-Pli bone estas ŝviti, ol tremi. 
-
-Pli bone fleksiĝi, ol rompiĝi. 
-
-Pli bone malfrue, ol neniam. 
-
-Pli bone malmulte gajni, ol multe perdi. 
-
-Pli bone ne fari, ol erari. 
-
-Pli bone ne sali, ol sali tro multe. 
-
-Pli da bruo, ol da faro. 
-
-Pli da havo, pli da klopodoj. 
-
-Pli da infanoj, pli da beno. 
-
-Pli da infanoj, pli da manoj. 
-
-Pli da mono, pli da zorgo. 
-
-Pli da okuloj, pli da certeco. 
-
-Pli efike ol bato pelas malsato. 
-
-101
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Pli facile estas eviti ol spiti. 
+Plena estas la infero de promesitaj aferoj.
 
-Pli facile estas malbonon eviti, ol korekti. 
+Plena glaso da vino, sed kun guto da veneno.
 
-Pli facile estas multon elspezi, ol malmulton enspezi. 
+Plena kaso ŝteliston altiras.
 
-Pli facile estas ne iri, ol tro malfrue reiri. 
+Plena sako ĉiun mastron al vi klinos.
 
-Pli facile estas perdi vilaĝon, ol akiri domon. 
+Plena stomako laŭdas la faston.
 
-Pli facile estas regi ol agi. 
+Plenblovi la lipojn.
 
-Pli facile estas vilaĝon perdi, ol domon akiri. 
+Plendoj stomakon ne plenigas.
 
-Pli feliĉa estas donanto ol prenanto. 
+Plenumiĝis la tasko per granda fiasko.
 
-Pli feliĉa estas martelo insultata, ol amboso kompatata. 
+Plenumita via ofico, nun pasis via vico!
 
-Pli feliĉa sinjoro sen havo, ol riĉulo sed sklavo. 
+Pli allogas kulero da mielo, ol da vinagro barelo.
 
-Pli helpas guto da feliĉo, ol barelo da saĝo. 
+Pli bona amiko intima, ol parenco malproksima.
 
-Pli kara estas kapo ol ĉapo. 
+Pli bona apude najbaro, ol frato post arbaro.
 
-Pli kara kapo ol ĉapo. 
+Pli bona branĉo sennuksa, ol kaĝo plej luksa.
 
-Pli kostas la sako, ol la tuta pako. 
+Pli bona ĉifona vesto, ol riĉeco kaj malhonesto.
 
-Pli tiras virina haro, ol ĉevala paro. 
+Pli bona estas gajno malgranda, ol granda malgajno.
 
-Pli valoras faro nenia, ol faro malbona. 
+Pli bona estas io, ol nenio.
 
-Pli valoras interkonsento, ol juĝa dokumento. 
+Pli bona — estas malamiko de bona.
 
-Pli valoras konkorda ovo, ol malkonkorda bovo. 
+Pli bona estas malgranda ”jen prenu” ol granda ”morgaŭ venu”.
 
-Pli valoras kontenta spirito, ol granda profito. 
+Pli bona estas paco feliĉa ol havo plej riĉa.
 
-Pli valoras malgranda reganto, ol granda servanto. 
+Pli bona estas saĝa malamiko, ol malsaĝa amiko.
 
-Pli valoras paco malbona, ol malpaco plej bona. 
+Pli bona estas virto sen oro, ol oro sen honoro.
 
-Pli valoras propra ĉemizo ol fremda plena valizo. 
+Pli bona estas vorto afabla, ol kuko agrabla.
 
-Pli valoras senlaboreco, ol sensenca laboremeco. 
-
-102
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Pli valoras tuj ovo, ol poste bovo. 
+Pli bona homo sen mono, ol mono sen homo.
 
-Pli valoras vinagro donacita, ol vino aĉetita. 
+Pli bona io, ol nenio.
 
-Pli zorgas unu patrino pri dek infanoj, ol dek infanoj pri unu patrino. 
+Pli bona pano sen butero, ol dolĉa kuko sen libero.
 
-Plibono estas malamiko de bono. 
+Pli bona pura konscienco, ol malpura potenco.
 
-Ploranton ni evitas, ridanton ni imitas. 
+Pli bona sprito estas silento.
 
-Plumo ne sentas, papero silentas. 
+Pli bona virto sen oro, ol oro sen honoro.
 
-Pluvo en aprilo — por la tero utilo. 
+Pli bone estas enviigi, ol kompatigi.
 
-Popola kutimo havas valoron de leĝo. 
+Pli bone estas havon fordoni, ol kun homoj malpaci.
 
-Popolo diras, Dio diras. 
+Pli bone estas reiri, ol perdi la vojon.
 
-Por amiko intima ne ekzistas vojo malproksima. 
+Pli bone estas sensale, ol tro sale.
 
-Por amiko komplezo neniam estas tro peza. 
+Pli bone estas ŝviti, ol tremi.
 
-Por ĉiu afero estas horo. 
+Pli bone fleksiĝi, ol rompiĝi.
 
-Por ĉiu ago venos la tempo de pago. 
+Pli bone malfrue, ol neniam.
 
-Por ĉiu plezuro devas esti mezuro. 
+Pli bone malmulte gajni, ol multe perdi.
 
-Por ebriulo ne ekzistas danĝero. 
+Pli bone ne fari, ol erari.
 
-Por fremda koro ne ekzistas esploro. 
+Pli bone ne sali, ol sali tro multe.
 
-Por gasto ne petita mankas kulero. 
+Pli da bruo, ol da faro.
 
-Por glate mensogi, oni spriton bezonas. 
+Pli da havo, pli da klopodoj.
 
-Por honoro ni dankas, se manĝ’ al ni mankas. 
+Pli da infanoj, pli da beno.
 
-Por hundon dronigi, oni nomas ĝin rabia. 
+Pli da infanoj, pli da manoj.
 
-Por kapti ezokon, bongustigu la hokon. 
+Pli da mono, pli da zorgo.
 
-Por la mono pastra preĝo, por la mono romp’ de leĝo. 
+Pli da okuloj, pli da certeco.
 
-103
+Pli efike ol bato pelas malsato.
 
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Por li eĉ la muĝo ne estas sen felo. 
-
-Por longa malsano kuraĉ estas vana. 
-
-Por malfrua gasto restas nur osto. 
-
-Por malsaĝulo bastono — por saĝulo leciono. 
-
-Por malsanulo forto, por kokido la morto. 
-
-Por mia mono mi ankaŭ estas barono. 
-
-Por muŝon mortigi, oni pafilegon ne uzas. 
-
-Por nenio oni faras nenion. 
-
-Por Paŭlo sperto — por Petro averto. 
-
-Por paro amanta ĉiu loketo sufiĉas. 
-
-Por parolo delira ne ekzistas rediro. 
-
-Por patrino ne ekzistas infano malbela. 
-
-Por peko senkonscia puno nenia. 
-
-Por pendigi ŝteliston, antaŭe lin kaptu. 
-
-Por pot’ argila poto fera estas najbaro danĝera. 
-
-Por regna speso ne ekzistas forgeso. 
-
-Por riĉulo fasto — por malriĉulo festo. 
-
-Por saĝulo sufiĉas aludo. 
-
-Por ŝafo tondita Dio venton moderigas. 
-
-Por ŝafon formanĝi, lupo trovos pretekston. 
-
-Por sia oro ĉiu estas sinjoro. 
-
-Por sperto kaj lerno ne sufiĉas eterno. 
-
-Por unu — festeno, por alia — ĉagreno. 
-
-104
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Por vendisto mensogo estas necesa apogo. 
+Pli facile estas eviti ol spiti.
 
-Por via bono vin regalas bastono. 
+Pli facile estas malbonon eviti, ol korekti.
 
-Por virta orelo ne danĝeras vorto malbela. 
+Pli facile estas multon elspezi, ol malmulton enspezi.
 
-Post alkutimiĝo doloras disiĝo. 
+Pli facile estas ne iri, ol tro malfrue reiri.
 
-Post brua vento subita silento. 
+Pli facile estas perdi vilaĝon, ol akiri domon.
 
-Post dolĉa vino restas acida vinagro. 
+Pli facile estas regi ol agi.
 
-Post domaĝo venas saĝo. 
+Pli facile estas vilaĝon perdi, ol domon akiri.
 
-Post dorma trankvilo venas bona konsilo. 
+Pli feliĉa estas donanto ol prenanto.
 
-Post kolero venas favoro. 
+Pli feliĉa estas martelo insultata, ol amboso kompatata.
 
-Post konfeso venas forgeso. 
+Pli feliĉa sinjoro sen havo, ol riĉulo sed sklavo.
 
-Post la batalo preĝo ne helpas. 
+Pli helpas guto da feliĉo, ol barelo da saĝo.
 
-Post la falo oni fariĝas singarda. 
+Pli kara estas kapo ol ĉapo.
 
-Post la fasto venas festo. 
+Pli kara kapo ol ĉapo.
 
-Post la fino de l’batalo estas multe da kuraĝuloj. 
+Pli kostas la sako, ol la tuta pako.
 
-Post mia malapero renversiĝu la tero. 
+Pli tiras virina haro, ol ĉevala paro.
 
-Post morto kuracilo jam estas sen utilo. 
+Pli valoras faro nenia, ol faro malbona.
 
-Post nokta ripozo helpas la muzo. 
+Pli valoras interkonsento, ol juĝa dokumento.
 
-Post sufero venas prospero. 
+Pli valoras konkorda ovo, ol malkonkorda bovo.
 
-Post vetero malbela lumas suno plej hela. 
+Pli valoras kontenta spirito, ol granda profito.
 
-Postulo ne pretendas, rifuzo ne ofendas. 
+Pli valoras malgranda reganto, ol granda servanto.
 
-Poton taksu laŭ sono, sinjoron laŭ tono. 
+Pli valoras paco malbona, ol malpaco plej bona.
 
-Prave li ricevas. 
+Pli valoras propra ĉemizo ol fremda plena valizo.
 
-Prave punite laŭmerite. 
+Pli valoras senlaboreco, ol sensenca laboremeco.
 
-105
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Preĝejo proksima, sed Dio malproksima. 
+Pli valoras tuj ovo, ol poste bovo.
 
-Prediki al surduloj. 
+Pli valoras vinagro donacita, ol vino aĉetita.
 
-Preĝon faru, sed farunon preparu. 
+Pli zorgas unu patrino pri dek infanoj, ol dek infanoj pri unu patrino.
 
-Preĝu al la Eternulo, ne al Lia sanktulo. 
+Plibono estas malamiko de bono.
 
-Preĝu kore kaj laboru fervore. 
+Ploranton ni evitas, ridanton ni imitas.
 
-Preni iun sur la dentojn. 
+Plumo ne sentas, papero silentas.
 
-Prenu kiel vi volas, la poto ĉiam bolas. 
+Pluvo en aprilo — por la tero utilo.
 
-Pri dolĉa vorto ne fieru, maldolĉan ne koleru. 
+Popola kutimo havas valoron de leĝo.
 
-Pri gustoj oni disputi ne devas. 
+Popolo diras, Dio diras.
 
-Pri havo najbara oni estas malavara. 
+Por amiko intima ne ekzistas vojo malproksima.
 
-Pri kio amikoj sekretas, ili vian juĝon ne petas. 
+Por amiko komplezo neniam estas tro peza.
 
-Pri kio estas la afero? 
+Por ĉiu afero estas horo.
 
-Pri la lupo rakonte, kaj la lupo renkonte. 
+Por ĉiu ago venos la tempo de pago.
 
-Pri la ŝtrumpa truo scias nur la ŝuo. 
+Por ĉiu plezuro devas esti mezuro.
 
-Pri laboroj maldiligenta, pri festoj plej kompetenta. 
+Por ebriulo ne ekzistas danĝero.
 
-Pri lando malproksima estas bone mensogi. 
+Por fremda koro ne ekzistas esploro.
 
-Pri nenio oni povas ĵuri. 
+Por gasto ne petita mankas kulero.
 
-Pri propra afero neniu juĝas libere. 
+Por glate mensogi, oni spriton bezonas.
 
-Pri tio jam ĉiuj paseroj babilas. 
+Por honoro ni dankas, se manĝ’ al ni mankas.
 
-Printempo semas, aŭtuno rikoltas. 
+Por hundon dronigi, oni nomas ĝin rabia.
 
-Pripensu malrapide kaj agu decide. 
+Por kapti ezokon, bongustigu la hokon.
 
-Pro amo al la kandelo kato lekas la kandelingon. 
+Por la mono pastra preĝo, por la mono romp’ de leĝo.
 
-Pro eraro ne praviĝas la faro. 
-
-106
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Pro homo fiera ĝojas infero. 
+Por li eĉ la muĝo ne estas sen felo.
 
-Pro kapo malsaĝa suferas la kruroj. 
+Por longa malsano kuraĉ estas vana.
 
-Pro karta preno perdiĝis bieno. 
+Por malfrua gasto restas nur osto.
 
-Pro limoj kaj baroj malpacas najbaroj. 
+Por malsaĝulo bastono — por saĝulo leciono.
 
-Pro multo da arboj li arbaron ne vidas. 
+Por malsanulo forto, por kokido la morto.
 
-Pro najleto bagatela pereis ĉevalo plej bela. 
+Por mia mono mi ankaŭ estas barono.
 
-Pro vorta ludo li eĉ patron ne domaĝas. 
+Por muŝon mortigi, oni pafilegon ne uzas.
 
-Pro vorta piko ofte perdiĝas amiko. 
+Por nenio oni faras nenion.
 
-Profiton celu, sed aliajn ne pelu. 
+Por Paŭlo sperto — por Petro averto.
 
-Prokrastita ne estas perdita. 
+Por paro amanta ĉiu loketo sufiĉas.
 
-Proksima kubuto, sed ne por la buŝo. 
+Por parolo delira ne ekzistas rediro.
 
-Promesi orajn montojn. 
+Por patrino ne ekzistas infano malbela.
 
-Promesita trezoro estas sen valoro. 
+Por peko senkonscia puno nenia.
 
-Promeso estas larĝa, plenumo estas ŝarĝa. 
+Por pendigi ŝteliston, antaŭe lin kaptu.
 
-Promeso ne satigas. 
+Por pot’ argila poto fera estas najbaro danĝera.
 
-Pronomoj ”mia” ”min” kaj ”mi” en mondo reĝas ĉiam tri. 
+Por regna speso ne ekzistas forgeso.
 
-Propeka kapro. 
+Por riĉulo fasto — por malriĉulo festo.
 
-Propra opinio ne estas leĝo por alia. 
+Por saĝulo sufiĉas aludo.
 
-Propra sufero — plej granda sur tero. 
+Por ŝafo tondita Dio venton moderigas.
 
-Propra supo brogas, fremda allogas. 
+Por ŝafon formanĝi, lupo trovos pretekston.
 
-Propra volo ordonon superas. 
+Por sia oro ĉiu estas sinjoro.
 
-Propran ĝibon neniu vidas. 
+Por sperto kaj lerno ne sufiĉas eterno.
 
-Propran vangon neniu batas. 
+Por unu — festeno, por alia — ĉagreno.
 
-107
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Proverbo estas sperto, proverbo estas averto. 
+Por vendisto mensogo estas necesa apogo.
 
-Prunto amikon forpelas. 
+Por via bono vin regalas bastono.
 
-Puno pekon svingas, favorkoreco ĝin estingas. 
+Por virta orelo ne danĝeras vorto malbela.
 
-Pura ĉielo fulmon ne timas. 
+Post alkutimiĝo doloras disiĝo.
 
-Pura konscienco estas plej granda potenco. 
+Post brua vento subita silento.
 
-Putrado de fiŝo komenciĝas de l’kapo. 
+Post dolĉa vino restas acida vinagro.
 
-108
+Post domaĝo venas saĝo.
+
+Post dorma trankvilo venas bona konsilo.
+
+Post kolero venas favoro.
+
+Post konfeso venas forgeso.
+
+Post la batalo preĝo ne helpas.
+
+Post la falo oni fariĝas singarda.
+
+Post la fasto venas festo.
+
+Post la fino de l’batalo estas multe da kuraĝuloj.
+
+Post mia malapero renversiĝu la tero.
+
+Post morto kuracilo jam estas sen utilo.
+
+Post nokta ripozo helpas la muzo.
+
+Post sufero venas prospero.
+
+Post vetero malbela lumas suno plej hela.
+
+Postulo ne pretendas, rifuzo ne ofendas.
+
+Poton taksu laŭ sono, sinjoron laŭ tono.
+
+Prave li ricevas.
+
+Prave punite laŭmerite.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Preĝejo proksima, sed Dio malproksima.
+
+Prediki al surduloj.
+
+Preĝon faru, sed farunon preparu.
+
+Preĝu al la Eternulo, ne al Lia sanktulo.
+
+Preĝu kore kaj laboru fervore.
+
+Preni iun sur la dentojn.
+
+Prenu kiel vi volas, la poto ĉiam bolas.
+
+Pri dolĉa vorto ne fieru, maldolĉan ne koleru.
+
+Pri gustoj oni disputi ne devas.
+
+Pri havo najbara oni estas malavara.
+
+Pri kio amikoj sekretas, ili vian juĝon ne petas.
+
+Pri kio estas la afero?
+
+Pri la lupo rakonte, kaj la lupo renkonte.
+
+Pri la ŝtrumpa truo scias nur la ŝuo.
+
+Pri laboroj maldiligenta, pri festoj plej kompetenta.
+
+Pri lando malproksima estas bone mensogi.
+
+Pri nenio oni povas ĵuri.
+
+Pri propra afero neniu juĝas libere.
+
+Pri tio jam ĉiuj paseroj babilas.
+
+Printempo semas, aŭtuno rikoltas.
+
+Pripensu malrapide kaj agu decide.
+
+Pro amo al la kandelo kato lekas la kandelingon.
+
+Pro eraro ne praviĝas la faro.
+
+
+ESPERANTA PROVERBARO
+
+
+Pro homo fiera ĝojas infero.
+
+Pro kapo malsaĝa suferas la kruroj.
+
+Pro karta preno perdiĝis bieno.
+
+Pro limoj kaj baroj malpacas najbaroj.
+
+Pro multo da arboj li arbaron ne vidas.
+
+Pro najleto bagatela pereis ĉevalo plej bela.
+
+Pro vorta ludo li eĉ patron ne domaĝas.
+
+Pro vorta piko ofte perdiĝas amiko.
+
+Profiton celu, sed aliajn ne pelu.
+
+Prokrastita ne estas perdita.
+
+Proksima kubuto, sed ne por la buŝo.
+
+Promesi orajn montojn.
+
+Promesita trezoro estas sen valoro.
+
+Promeso estas larĝa, plenumo estas ŝarĝa.
+
+Promeso ne satigas.
+
+Pronomoj ”mia” ”min” kaj ”mi” en mondo reĝas ĉiam tri.
+
+Propeka kapro.
+
+Propra opinio ne estas leĝo por alia.
+
+Propra sufero — plej granda sur tero.
+
+Propra supo brogas, fremda allogas.
+
+Propra volo ordonon superas.
+
+Propran ĝibon neniu vidas.
+
+Propran vangon neniu batas.
+
+
+ESPERANTA PROVERBARO
+
+
+Proverbo estas sperto, proverbo estas averto.
+
+Prunto amikon forpelas.
+
+Puno pekon svingas, favorkoreco ĝin estingas.
+
+Pura ĉielo fulmon ne timas.
+
+Pura konscienco estas plej granda potenco.
+
+Putrado de fiŝo komenciĝas de l’kapo.
+
+
+ESPERANTA PROVERBARO
+
 
 r
 
-Rado malbona knaras plej multe. 
+Rado malbona knaras plej multe.
 
-Rajdi sur ĉevalo oni ne lernas sen falo. 
+Rajdi sur ĉevalo oni ne lernas sen falo.
 
-Rakonti ĉion faritan kaj kaŝitan. 
+Rakonti ĉion faritan kaj kaŝitan.
 
-Rangeto rangon respektu, modestan lokon elektu. 
+Rangeto rangon respektu, modestan lokon elektu.
 
-Rano eĉ en palaco sopiras pri marĉo. 
+Rano eĉ en palaco sopiras pri marĉo.
 
-Rapide iras la vortoj, sed ne rapide la faroj. 
+Rapide iras la vortoj, sed ne rapide la faroj.
 
-Rapide — senvide. 
+Rapide — senvide.
 
-Rapidu malrapide. 
+Rapidu malrapide.
 
-Raporti pri ĉiuj cirkonstancoj kaj nuancoj. 
+Raporti pri ĉiuj cirkonstancoj kaj nuancoj.
 
-Razisto raziston razas. 
+Razisto raziston razas.
 
-Reĝo donacis, sed polico minacas. 
+Reĝo donacis, sed polico minacas.
 
-Regna kaso — bona ĉaso. 
+Regna kaso — bona ĉaso.
 
-Rekomendo kondukas al plendo. 
+Rekomendo kondukas al plendo.
 
-Renkontiĝis la kato kun sentima rato. 
+Renkontiĝis la kato kun sentima rato.
 
-Respektu Dion kaj reĝon kaj obeu la leĝon. 
+Respektu Dion kaj reĝon kaj obeu la leĝon.
 
-Restas nek konsilo, nek konsolo. 
+Restas nek konsilo, nek konsolo.
 
-Resti maljuna knabino. 
+Resti maljuna knabino.
 
-Restis nenio absolute, nek por mordi, nek por gluti. 
+Restis nenio absolute, nek por mordi, nek por gluti.
 
-Restu tajloro ĉe via laboro. 
+Restu tajloro ĉe via laboro.
 
-109
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Rezonado kaj filozofado panon ne donas. 
-
-Ricevi grizan haron, ne vidinte altaron. 
-
-Ricevi muŝon en la cerbon. 
-
-Ricevis bandito laŭ sia merito. 
-
-Ricevos vulpo por sia kulpo. 
-
-Riĉa estas tiu, kiu ŝuldas al neniu. 
-
-Riĉa preparo, sed povo avara. 
-
-Riĉa zorgas pri ĉampano, malriĉa pri pano. 
-
-Riĉeco estas frato de fiereco. 
-
-Riĉeco sen gvido kiel ĉevalo sen brido. 
-
-Riĉigas ne enspezo, sed prudenta elspezo. 
-
-Riĉulo havas grandan parencaron. 
-
-Riĉulo havas kornojn, malriĉulo dornojn. 
-
-Riĉulo kiel fajro proksime bruligas, malproksime ne varmigas. 
-
-Riĉulo veturas, malriĉulo kuras. 
-
-Ridas blindulo pri lamulo. 
-
-Rido matene — ploro vespere. 
-
-Rigardaĉi kiel bovido. 
-
-Rigardi kaj aspiri ne devigas akiri. 
-
-Rigardi malafable. 
-
-Rigardi per ambaŭ okuloj. 
-
-Ripetado estas plej bona lernado. 
-
-110
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Ripetata parolo pri la sama titolo. 
+Rezonado kaj filozofado panon ne donas.
 
-Riveretoj fluas al riveroj. 
+Ricevi grizan haron, ne vidinte altaron.
 
-Rol’ de virino — bona mastrino. 
+Ricevi muŝon en la cerbon.
 
-Romo estas tie, kie estas la papo. 
+Ricevis bandito laŭ sia merito.
 
-Rostita kolombeto ne flugas al buŝeto. 
+Ricevos vulpo por sia kulpo.
 
-Rusto manĝas feron, ĉagreno la koron. 
+Riĉa estas tiu, kiu ŝuldas al neniu.
 
-Rusto manĝas la feron, kaj zorgo la homon. 
+Riĉa preparo, sed povo avara.
 
-111
+Riĉa zorgas pri ĉampano, malriĉa pri pano.
+
+Riĉeco estas frato de fiereco.
+
+Riĉeco sen gvido kiel ĉevalo sen brido.
+
+Riĉigas ne enspezo, sed prudenta elspezo.
+
+Riĉulo havas grandan parencaron.
+
+Riĉulo havas kornojn, malriĉulo dornojn.
+
+Riĉulo kiel fajro proksime bruligas, malproksime ne varmigas.
+
+Riĉulo veturas, malriĉulo kuras.
+
+Ridas blindulo pri lamulo.
+
+Rido matene — ploro vespere.
+
+Rigardaĉi kiel bovido.
+
+Rigardi kaj aspiri ne devigas akiri.
+
+Rigardi malafable.
+
+Rigardi per ambaŭ okuloj.
+
+Ripetado estas plej bona lernado.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Ripetata parolo pri la sama titolo.
+
+Riveretoj fluas al riveroj.
+
+Rol’ de virino — bona mastrino.
+
+Romo estas tie, kie estas la papo.
+
+Rostita kolombeto ne flugas al buŝeto.
+
+Rusto manĝas feron, ĉagreno la koron.
+
+Rusto manĝas la feron, kaj zorgo la homon.
+
+
+ESPERANTA PROVERBARO
+
 
 s
 
-Saĝa estas la frato post ricevo de l’bato. 
+Saĝa estas la frato post ricevo de l’bato.
 
-Saĝa estas la hundo post ricevo de l’vundo. 
+Saĝa estas la hundo post ricevo de l’vundo.
 
-Saĝa kapo duonvorton komprenas. 
+Saĝa kapo duonvorton komprenas.
 
-Saĝa scias, kion li diras — malsaĝa diras, kion li scias. 
+Saĝa scias, kion li diras — malsaĝa diras, kion li scias.
 
-Saĝa tenas aferon, malsaĝa esperon. 
+Saĝa tenas aferon, malsaĝa esperon.
 
-Saĝo abunda, sed ne profunda. 
+Saĝo abunda, sed ne profunda.
 
-Saĝo barbon ne atendas. 
+Saĝo barbon ne atendas.
 
-Saĝulo scias ion, sed neniu scias ĉion. 
+Saĝulo scias ion, sed neniu scias ĉion.
 
-Sako alenon ne tenas, ĝi baldaŭ elvenas. 
+Sako alenon ne tenas, ĝi baldaŭ elvenas.
 
-Sako malplena sin rekte ne tenas. 
+Sako malplena sin rekte ne tenas.
 
-Sako ne sonas — amiko ne konas. 
+Sako ne sonas — amiko ne konas.
 
-Sakon kun truo vi neniam plenigos. 
+Sakon kun truo vi neniam plenigos.
 
-Saltadi ĉirkaŭ afero, kiel blovata neĝero. 
+Saltadi ĉirkaŭ afero, kiel blovata neĝero.
 
-Saltadi el unua al deka. 
+Saltadi el unua al deka.
 
-Sama buŝo blovas varmon kaj malvarmon. 
+Sama buŝo blovas varmon kaj malvarmon.
 
-Sama gento, sama sento. 
+Sama gento, sama sento.
 
-Samaj kondiĉoj, samaj superstiĉoj. 
+Samaj kondiĉoj, samaj superstiĉoj.
 
-Sango bolas, juneco petolas. 
+Sango bolas, juneco petolas.
 
-Sango komuna reciproke sin altiras. 
+Sango komuna reciproke sin altiras.
 
-112
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Sango ne silentas, sian sangon ĝi sentas. 
-
-Sanigaĵo malbongusta, sed efiko plej ĝusta. 
-
-Sanktfigurojn ornamas kaj homojn malamas. 
-
-Sapo blankecon ne havas, tamen blanke ĝi lavas. 
-
-Sapumi la okulojn. 
-
-Sata malsatan ne povas kompreni. 
-
-Sata stomako ne lernas volonte. 
-
-Scias la kato, kies lardon ĝi manĝis. 
-
-Scienco havas semon enuan, sed frukton bonĝuan. 
-
-Sciencon oni ne mendas, klerecon ne vendas. 
-
-Scion akiru, sed ne ĉion eldiru. 
-
-Sciu elokventi, sciu ankaŭ silenti. 
-
-Sciu funde, sed tenu profunde. 
-
-Se al hundo mankas nenio, ĝin atakas rabio. 
-
-Se amas Dio, prosperas ĉio. 
-
-Se amiko petas, li neniam ripetas. 
-
-Se birdo tro bekas, la katon ĝi vekas. 
-
-Se brulas nenio, fumo ne iras. 
-
-Se ĉiu balaos antaŭ sia pordo, tiam en la tuta urbo estos ordo. 
-
-Se ĉiu speson donos, malriĉulo malsaton ne konos. 
-
-Se decidos la sorto, helpos nenia forto. 
-
-Se devigas neceso, faru kun kareso. 
-
-113
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Se Dio ne aranĝos, lupo vin ne manĝos. 
+Sango ne silentas, sian sangon ĝi sentas.
 
-Se Dio ne volas, sanktulo ne helpos. 
+Sanigaĵo malbongusta, sed efiko plej ĝusta.
 
-Se Dio ordonos, eĉ ŝton’ lakton donos. 
+Sanktfigurojn ornamas kaj homojn malamas.
 
-Se edzino ordonas, domo ordon ne konas. 
+Sapo blankecon ne havas, tamen blanke ĝi lavas.
 
-Se en kor’ io sidas, vizaĝo perfidas. 
+Sapumi la okulojn.
 
-Se ensaltas la okazo, ĝi rompiĝas kiel vazo. 
+Sata malsatan ne povas kompreni.
 
-Se ezoko piiĝis, gobio ne dormu. 
+Sata stomako ne lernas volonte.
 
-Se forestas la suno, sufiĉas la luno. 
+Scias la kato, kies lardon ĝi manĝis.
 
-Se geedzoj sin batas, fremdulo restu flanke. 
+Scienco havas semon enuan, sed frukton bonĝuan.
 
-Se gut’ al guto aliĝas, maro fariĝas. 
+Sciencon oni ne mendas, klerecon ne vendas.
 
-Se haroj ne mankus, oni kalvon ne havus. 
+Scion akiru, sed ne ĉion eldiru.
 
-Se homoj mankas, infano ankaŭ estas homo. 
+Sciu elokventi, sciu ankaŭ silenti.
 
-Se io venas al buŝo, buŝon ne fermu. 
+Sciu funde, sed tenu profunde.
 
-Se juneco estus sperta, se maljuneco estus lerta\! 
+Se al hundo mankas nenio, ĝin atakas rabio.
 
-Se junulo ne lernis, maljunulo ne scias. 
+Se amas Dio, prosperas ĉio.
 
-Se kalumnio eĉ pasas, ĝi ĉiam ion lasas. 
+Se amiko petas, li neniam ripetas.
 
-Se kalumnio ne brulas, ĝi almenaŭ makulas. 
+Se birdo tro bekas, la katon ĝi vekas.
 
-Se la arbo falis, ĉiu branĉon derompas. 
+Se brulas nenio, fumo ne iras.
 
-Se la ĉielo falus al tero, birdokaptado estus facila afero. 
+Se ĉiu balaos antaŭ sia pordo, tiam en la tuta urbo estos ordo.
 
-Se la gasto estas amata, eĉ lia servanto ne restas malsata. 
+Se ĉiu speson donos, malriĉulo malsaton ne konos.
 
-Se la gasto meritas, eĉ la hundo profitas. 
+Se decidos la sorto, helpos nenia forto.
 
-Se la kaliko tro pleniĝas, la vino elverŝiĝas. 
+Se devigas neceso, faru kun kareso.
 
-Se la sorto vin batas, mokantoj ne mankas. 
-
-114
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Se la tempo forblovis, ni jam helpi ne povas; kio post ni aperos, ni de ĝi ne suferos. 
+Se Dio ne aranĝos, lupo vin ne manĝos.
 
-Se lipo dikiĝas, ventro maldikiĝas. 
+Se Dio ne volas, sanktulo ne helpos.
 
-Se lupo ekpentis, ŝafo atentu. 
+Se Dio ordonos, eĉ ŝton’ lakton donos.
 
-Se malriĉulo sukcesas, li ĉiujn forgesas. 
+Se edzino ordonas, domo ordon ne konas.
 
-Se malsato turmentas, lupo timon ne sentas. 
+Se en kor’ io sidas, vizaĝo perfidas.
 
-Se mi faru riverencon, mi elektas potencon. 
+Se ensaltas la okazo, ĝi rompiĝas kiel vazo.
 
-Se mi scius, kie mi falos, mi tien metus tapiŝon. 
+Se ezoko piiĝis, gobio ne dormu.
 
-Se mi scius, kion mi ne scias, ĉiuj saĝuloj min envius. 
+Se forestas la suno, sufiĉas la luno.
 
-Se muso nur unu truon disponas, ĝi baldaŭ la vivon fordonas. 
+Se geedzoj sin batas, fremdulo restu flanke.
 
-Se neĝas sur la monto, estas malvarme en la valo. 
+Se gut’ al guto aliĝas, maro fariĝas.
 
-Se ne estus ”se” kaj ”tamen”, mi al ĉio dirus amen. 
+Se haroj ne mankus, oni kalvon ne havus.
 
-Se ne la ”se” malfeliĉa, mi estus nun homo plej riĉa. 
+Se homoj mankas, infano ankaŭ estas homo.
 
-Se ne plaĉas la najbaro, ne plaĉas lia faro. 
+Se io venas al buŝo, buŝon ne fermu.
 
-Se ne venas per bona vorto, oni prenas per forto. 
+Se juneco estus sperta, se maljuneco estus lerta!
 
-Se neniu plendas, neniu defendas. 
+Se junulo ne lernis, maljunulo ne scias.
 
-Se okulo ne atentas, dorso eksentas. 
+Se kalumnio eĉ pasas, ĝi ĉiam ion lasas.
 
-Se okulo ne vidas, koro ne avidas. 
+Se kalumnio ne brulas, ĝi almenaŭ makulas.
 
-Se okulo ne vidis, pagas la poŝo. 
+Se la arbo falis, ĉiu branĉon derompas.
 
-Se oni amas la gaston, oni zorgas la paston. 
+Se la ĉielo falus al tero, birdokaptado estus facila afero.
 
-Se Peĉjo ne semos, Petro ne rikoltos. 
+Se la gasto estas amata, eĉ lia servanto ne restas malsata.
 
-Se peko trafas, eĉ bastono ekpafas. 
+Se la gasto meritas, eĉ la hundo profitas.
 
-115
+Se la kaliko tro pleniĝas, la vino elverŝiĝas.
 
-ESPERANTA PROVERBARO
+Se la sorto vin batas, mokantoj ne mankas.
 
-eLIBRO
-
-Se sako tro pleniĝas, ĝi baldaŭ disŝiriĝas. 
-
-Se silentas draŝejo, malpacas loĝejo. 
-
-Se stomako doloras, kapo laboras. 
-
-Se unu ne venis, dek ne atendas. 
-
-Se vendisto ne mensogas, li aĉetanton ne allogas. 
-
-Se vi donas mielon, donu ankaŭ kuleron. 
-
-Se vi faros vin ŝafo, la lupoj vin manĝos. 
-
-Se vi krudulon iom karesos, li al si ĉion permesos. 
-
-Se vi krudulon salutos, li vin tutan englutos. 
-
-Se vi povas, profitu, sed aliajn ne incitu. 
-
-Se vi prenis la violonon, prenu ankaŭ la arĉon. 
-
-Se vi pri ĉio informiĝos, vi baldaŭ maljuniĝos. 
-
-Se vi ŝafo fariĝos, lupoj ne mankos. 
-
-Se vi sendis malsaĝulon, sendu kontrolon. 
-
-Se vi senfine parolos, de ĝi la poto ne bolos. 
-
-Se vi sidos en branoj, vin manĝos la porkoj. 
-
-Se vi volas filinon, flatu la patrinon. 
-
-Se vulpo pentofaras, gardu la kokidojn. 
-
-Seka panpeco, sed en libereco. 
-
-Selante ĉevalon, oni ĝin karesas. 
-
-Sen atendo, sen espero venis mizero. 
-
-Sen fajro ne brulas eĉ pajlo. 
-
-Sen gutoj malgrandaj maro ne ekzistus. 
-
-116
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Sen laboro ne venas oro. 
+Se la tempo forblovis, ni jam helpi ne povas; kio post ni aperos, ni de ĝi ne suferos.
 
-Sen mensoga rekomendo ne iros la vendo. 
+Se lipo dikiĝas, ventro maldikiĝas.
 
-Sen mono en urbon ne iru. 
+Se lupo ekpentis, ŝafo atentu.
 
-Sen mono oni estas nulo, kun mono — saĝulo. 
+Se malriĉulo sukcesas, li ĉiujn forgesas.
 
-Sen ordo en afero ne ekzistas prospero. 
+Se malsato turmentas, lupo timon ne sentas.
 
-Sen povo kolero estas ridinda afero. 
+Se mi faru riverencon, mi elektas potencon.
 
-Sen regalo ne estas balo. 
+Se mi scius, kie mi falos, mi tien metus tapiŝon.
 
-Sen rigardo, sen gardo. 
+Se mi scius, kion mi ne scias, ĉiuj saĝuloj min envius.
 
-Sen speso unua ne ekzistas la dua. 
+Se muso nur unu truon disponas, ĝi baldaŭ la vivon fordonas.
 
-Senĉesa guto eĉ ŝtonon traboras. 
+Se neĝas sur la monto, estas malvarme en la valo.
 
-Sendemanda ekprotesto estas ofte kulpatesto. 
+Se ne estus ”se” kaj ”tamen”, mi al ĉio dirus amen.
 
-Sendito nur portas; kion oni ordonis, li raportas. 
+Se ne la ”se” malfeliĉa, mi estus nun homo plej riĉa.
 
-Senditon oni aŭskultas aŭ ne aŭskultas, sed ne punas nek insultas. 
+Se ne plaĉas la najbaro, ne plaĉas lia faro.
 
-Senfara plendo ne estas defendo. 
+Se ne venas per bona vorto, oni prenas per forto.
 
-Senfortuloj longe vivas. 
+Se neniu plendas, neniu defendas.
 
-Senkonscie vi agis, konscie vi pagos. 
+Se okulo ne atentas, dorso eksentas.
 
-Senlaboreco dormon alportas. 
+Se okulo ne vidas, koro ne avidas.
 
-Senlaboreco estas patrino de ĉiuj malvirtoj. 
+Se okulo ne vidis, pagas la poŝo.
 
-Senlanigu, sed ne senfeligu. 
+Se oni amas la gaston, oni zorgas la paston.
 
-Senlanigu, sed ne senfeligu. 
+Se Peĉjo ne semos, Petro ne rikoltos.
 
-Senlanigu, sed ne senhaŭtigu. 
+Se peko trafas, eĉ bastono ekpafas.
 
-Senpaga estas nur la morto, sed ĝi kostas la vivon. 
-
-117
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Senplumigi kokinon, ne vekante mastrinon. 
+Se sako tro pleniĝas, ĝi baldaŭ disŝiriĝas.
 
-Serĉi la tagon pasintan. 
+Se silentas draŝejo, malpacas loĝejo.
 
-Serpenton oni povas eviti, sed kalumnion neniam. 
+Se stomako doloras, kapo laboras.
 
-Servo al Dio vana ne restas. 
+Se unu ne venis, dek ne atendas.
 
-Servo ne petita ne estas merita. 
+Se vendisto ne mensogas, li aĉetanton ne allogas.
 
-Servo postulas reservon. 
+Se vi donas mielon, donu ankaŭ kuleron.
 
-Sia estas kara pli ol la najbara. 
+Se vi faros vin ŝafo, la lupoj vin manĝos.
 
-Sian sorton neniu evitos. 
+Se vi krudulon iom karesos, li al si ĉion permesos.
 
-Sidas gasto minuton, sed vidas la tuton. 
+Se vi krudulon salutos, li vin tutan englutos.
 
-Sidi en amaso da embaraso. 
+Se vi povas, profitu, sed aliajn ne incitu.
 
-Sidi en laboroj ĝis super la oreloj. 
+Se vi prenis la violonon, prenu ankaŭ la arĉon.
 
-Sidi kiel muso sub balailo. 
+Se vi pri ĉio informiĝos, vi baldaŭ maljuniĝos.
 
-Sidi kiel sur pingloj. 
+Se vi ŝafo fariĝos, lupoj ne mankos.
 
-Sidu lango malantaŭ la vango. 
+Se vi sendis malsaĝulon, sendu kontrolon.
 
-Sieĝi ies pordon. 
+Se vi senfine parolos, de ĝi la poto ne bolos.
 
-Silento estas konsento. 
+Se vi sidos en branoj, vin manĝos la porkoj.
 
-Silentu donante, parolu ricevante. 
+Se vi volas filinon, flatu la patrinon.
 
-Simio al simio plaĉas pli ol ĉio. 
+Se vulpo pentofaras, gardu la kokidojn.
 
-Sin turni al la poŝo. 
+Seka panpeco, sed en libereco.
 
-Singardeman Dio gardas. 
+Selante ĉevalon, oni ĝin karesas.
 
-Sinjorino kaj sinjoro, unu alian valoras. 
+Sen atendo, sen espero venis mizero.
 
-Sinjoro karesas, sed baldaŭ ĉesas. 
+Sen fajro ne brulas eĉ pajlo.
 
-Sinjoro petas, kvazaŭ dekretas. 
+Sen gutoj malgrandaj maro ne ekzistus.
 
-118
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Sinjoroj sin batas, servantoj vundojn ricevas. 
+Sen laboro ne venas oro.
 
-Situacio sen eliro. 
+Sen mensoga rekomendo ne iros la vendo.
 
-Sklavo kun forta mano estas plej granda tirano. 
+Sen mono en urbon ne iru.
 
-Sola vojo libera al la fundo rivera. 
+Sen mono oni estas nulo, kun mono — saĝulo.
 
-Sonĝo teruras, sonĝo forkuras. 
+Sen ordo en afero ne ekzistas prospero.
 
-Sonorado al li venas, sed de kie — li ne komprenas. 
+Sen povo kolero estas ridinda afero.
 
-Sonorilo vokas al preĝejo kaj mem neniam eniras. 
+Sen regalo ne estas balo.
 
-Sorto donas favoron, sorto donas doloron. 
+Sen rigardo, sen gardo.
 
-Sorto ofte alsendas, kion oni ne atendas. 
+Sen speso unua ne ekzistas la dua.
 
-Sperta mano ne restas sen pano. 
+Senĉesa guto eĉ ŝtonon traboras.
 
-Sperto saĝon akrigas. 
+Sendemanda ekprotesto estas ofte kulpatesto.
 
-Spesmilo superflua poŝon ne ŝiras. 
+Sendito nur portas; kion oni ordonis, li raportas.
 
-Spesmilo vojon trabatas. 
+Senditon oni aŭskultas aŭ ne aŭskultas, sed ne punas nek insultas.
 
-Spiko malplena plej alte sin tenas. 
+Senfara plendo ne estas defendo.
 
-Sprit’ en tempo neĝusta estas tre malbongusta. 
+Senfortuloj longe vivas.
 
-Sprita vorto tentas, nenion atentas. 
+Senkonscie vi agis, konscie vi pagos.
 
-Staras la morto jam en la korto. 
+Senlaboreco dormon alportas.
 
-Stariĝi obstine. 
+Senlaboreco estas patrino de ĉiuj malvirtoj.
 
-Stari per unu piedo en la tombo. 
+Senlanigu, sed ne senfeligu.
 
-Stari por iu kiel muro kaj turo. 
+Senlanigu, sed ne senfeligu.
 
-Staris, ekfaris. 
+Senlanigu, sed ne senhaŭtigu.
 
-Stomako malsata nur pri pano meditas. 
+Senpaga estas nur la morto, sed ĝi kostas la vivon.
 
-Stomako ne estas spegulo: kion ĝi manĝis, ne vidas okulo. 
-
-119
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Streĉiĝi el la haŭto. 
+Senplumigi kokinon, ne vekante mastrinon.
 
-Streĉi la orelojn. 
+Serĉi la tagon pasintan.
 
-Streĉu la okulojn\! 
+Serpenton oni povas eviti, sed kalumnion neniam.
 
-Sub seruro promesojn tenu, sed doninte ne reprenu. 
+Servo al Dio vana ne restas.
 
-Sub tero sklavo kaj sinjoro ne diferencas per valoro. 
+Servo ne petita ne estas merita.
 
-Suferinto pli valoras, ol lerninto. 
+Servo postulas reservon.
 
-Suferoj sufokas kaj homoj mokas. 
+Sia estas kara pli ol la najbara.
 
-Sukcesa venkanto de pordoj malfermitaj. 
+Sian sorton neniu evitos.
 
-Superpinte — nur tuŝinte. 
+Sidas gasto minuton, sed vidas la tuton.
 
-Sur arbon kliniĝintan saltas la kaproj. 
+Sidi en amaso da embaraso.
 
-Sur ĉeval’ de najbaro la ŝarĝo ne pezas. 
+Sidi en laboroj ĝis super la oreloj.
 
-Sur ĉiu flanko nur manko kaj manko. 
+Sidi kiel muso sub balailo.
 
-Sur la ŝtelisto brulas la ĉapo. 
+Sidi kiel sur pingloj.
 
-Sur la ventro veluro, en la ventro murmuro. 
+Sidu lango malantaŭ la vango.
 
-Sur leĝa bazo. 
+Sieĝi ies pordon.
 
-Sur lia nuko sidas pli ol peruko. 
+Silento estas konsento.
 
-Surmeto rompas, komparo trompas. 
+Silentu donante, parolu ricevante.
 
-Suspekto pruvon ne egalas. 
+Simio al simio plaĉas pli ol ĉio.
 
-120
+Sin turni al la poŝo.
+
+Singardeman Dio gardas.
+
+Sinjorino kaj sinjoro, unu alian valoras.
+
+Sinjoro karesas, sed baldaŭ ĉesas.
+
+Sinjoro petas, kvazaŭ dekretas.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Sinjoroj sin batas, servantoj vundojn ricevas.
+
+Situacio sen eliro.
+
+Sklavo kun forta mano estas plej granda tirano.
+
+Sola vojo libera al la fundo rivera.
+
+Sonĝo teruras, sonĝo forkuras.
+
+Sonorado al li venas, sed de kie — li ne komprenas.
+
+Sonorilo vokas al preĝejo kaj mem neniam eniras.
+
+Sorto donas favoron, sorto donas doloron.
+
+Sorto ofte alsendas, kion oni ne atendas.
+
+Sperta mano ne restas sen pano.
+
+Sperto saĝon akrigas.
+
+Spesmilo superflua poŝon ne ŝiras.
+
+Spesmilo vojon trabatas.
+
+Spiko malplena plej alte sin tenas.
+
+Sprit’ en tempo neĝusta estas tre malbongusta.
+
+Sprita vorto tentas, nenion atentas.
+
+Staras la morto jam en la korto.
+
+Stariĝi obstine.
+
+Stari per unu piedo en la tombo.
+
+Stari por iu kiel muro kaj turo.
+
+Staris, ekfaris.
+
+Stomako malsata nur pri pano meditas.
+
+Stomako ne estas spegulo: kion ĝi manĝis, ne vidas okulo.
+
+
+ESPERANTA PROVERBARO
+
+
+Streĉiĝi el la haŭto.
+
+Streĉi la orelojn.
+
+Streĉu la okulojn!
+
+Sub seruro promesojn tenu, sed doninte ne reprenu.
+
+Sub tero sklavo kaj sinjoro ne diferencas per valoro.
+
+Suferinto pli valoras, ol lerninto.
+
+Suferoj sufokas kaj homoj mokas.
+
+Sukcesa venkanto de pordoj malfermitaj.
+
+Superpinte — nur tuŝinte.
+
+Sur arbon kliniĝintan saltas la kaproj.
+
+Sur ĉeval’ de najbaro la ŝarĝo ne pezas.
+
+Sur ĉiu flanko nur manko kaj manko.
+
+Sur la ŝtelisto brulas la ĉapo.
+
+Sur la ventro veluro, en la ventro murmuro.
+
+Sur leĝa bazo.
+
+Sur lia nuko sidas pli ol peruko.
+
+Surmeto rompas, komparo trompas.
+
+Suspekto pruvon ne egalas.
+
+
+ESPERANTA PROVERBARO
+
 
 ŝ
 
-ŝafaro harmonia lupon ne timas. 
+ŝafaro harmonia lupon ne timas.
 
-ŝafo donas sian lanon, por ke mastro havu panon. 
+ŝafo donas sian lanon, por ke mastro havu panon.
 
-ŝafo kalkulita ne estas savita. 
+ŝafo kalkulita ne estas savita.
 
-ŝajno trompas. 
+ŝajno trompas.
 
-ŝajnon ne fidu, juĝi ne rapidu. 
+ŝajnon ne fidu, juĝi ne rapidu.
 
-ŝatu amikon laŭ la dato de akiro. 
+ŝatu amikon laŭ la dato de akiro.
 
-ŝerce dirite, cele pensite. 
+ŝerce dirite, cele pensite.
 
-ŝerce dirite, cele pensite. 
+ŝerce dirite, cele pensite.
 
-ŝipon rompitan ĉiuj ventoj atakas. 
+ŝipon rompitan ĉiuj ventoj atakas.
 
-ŝiriĝis fadeno sur la bobeno. 
+ŝiriĝis fadeno sur la bobeno.
 
-ŝiru rozojn en somero, ĉar en vintro ili ne estos. 
+ŝiru rozojn en somero, ĉar en vintro ili ne estos.
 
-ŝiru vin en du partojn, la mondo trian postulos. 
+ŝiru vin en du partojn, la mondo trian postulos.
 
-ŝlosilo uzata ruston ne konas. 
+ŝlosilo uzata ruston ne konas.
 
-ŝparu groŝon — vi havos plenan poŝon. 
+ŝparu groŝon — vi havos plenan poŝon.
 
-ŝparu kiam bone, vi havos kiam bezone. 
+ŝparu kiam bone, vi havos kiam bezone.
 
-ŝtelaĵokaŝisto mem estas ŝtelisto. 
+ŝtelaĵokaŝisto mem estas ŝtelisto.
 
-ŝteletiston oni batas, ŝtelegiston oni ŝatas. 
+ŝteletiston oni batas, ŝtelegiston oni ŝatas.
 
-ŝteli de ŝtelisto estas malfacile. 
+ŝteli de ŝtelisto estas malfacile.
 
-ŝtelisto ŝteliston evitas, ĉar li tie ne profitas. 
+ŝtelisto ŝteliston evitas, ĉar li tie ne profitas.
 
-121
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-ŝtelisto ŝteliston ne perfidas. 
-
-ŝtelu malproksime, edziĝu proksime. 
-
-ŝtono de falpuŝiĝo. 
-
-ŝuldo estas unua heredanto. 
-
-ŝuldo havas longan vivon. 
-
-ŝuldo kaj mizero estas najbaroj. 
-
-ŝuldo ne bruas, tamen dormon detruas. 
-
-ŝuldo ne makulas, sed pagon postulas. 
-
-ŝuldo ne rustiĝas, ŝuldo ne mortiĝas. 
-
-ŝuldoj kaj mizero estas najbaroj. 
-
-ŝuldon tempo ne kuracas. 
-
-ŝuti polvon en la okulojn. 
-
-122
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+ŝtelisto ŝteliston ne perfidas.
+
+ŝtelu malproksime, edziĝu proksime.
+
+ŝtono de falpuŝiĝo.
+
+ŝuldo estas unua heredanto.
+
+ŝuldo havas longan vivon.
+
+ŝuldo kaj mizero estas najbaroj.
+
+ŝuldo ne bruas, tamen dormon detruas.
+
+ŝuldo ne makulas, sed pagon postulas.
+
+ŝuldo ne rustiĝas, ŝuldo ne mortiĝas.
+
+ŝuldoj kaj mizero estas najbaroj.
+
+ŝuldon tempo ne kuracas.
+
+ŝuti polvon en la okulojn.
+
+
+ESPERANTA PROVERBARO
+
 
 t
 
-Tablo festena, sed telero malplena. 
+Tablo festena, sed telero malplena.
 
-Tablo kovrita faras amikojn. 
+Tablo kovrita faras amikojn.
 
-Tablon frapas tajloro, tuj tondilo eksonas. 
+Tablon frapas tajloro, tuj tondilo eksonas.
 
-Tablon ornamas ne tuko, sed kuko. 
+Tablon ornamas ne tuko, sed kuko.
 
-Tago aranĝas, tago ŝanĝas. 
+Tago aranĝas, tago ŝanĝas.
 
-Tago festa — for aferoj. 
+Tago festa — for aferoj.
 
-Tago tagon sekvas, sed ne similas. 
+Tago tagon sekvas, sed ne similas.
 
-Tajloro krimis, botisto pendas. 
+Tajloro krimis, botisto pendas.
 
-Taksi la sanon ni lernas en malsano. 
+Taksi la sanon ni lernas en malsano.
 
-Tani al iu la haŭton. 
+Tani al iu la haŭton.
 
-Tapiŝon ne deziris, maton akiris. 
+Tapiŝon ne deziris, maton akiris.
 
-Temp’ estas mono. 
+Temp’ estas mono.
 
-Temp’ estas valoro simile al oro. 
+Temp’ estas valoro simile al oro.
 
-Tempo flatas, tempo batas. 
+Tempo flatas, tempo batas.
 
-Tempo kaj cirkonstancoj saĝon alportas. 
+Tempo kaj cirkonstancoj saĝon alportas.
 
-Tempo prenas, tempo pagas. 
+Tempo prenas, tempo pagas.
 
-Tempo toleras, sed vero aperas. 
+Tempo toleras, sed vero aperas.
 
-Tempo venos, zorgon prenos. 
+Tempo venos, zorgon prenos.
 
-Teni iun per fera mano. 
+Teni iun per fera mano.
 
-123
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Teni la okulojn en streĉo. 
-
-Teni sian langon en la buŝo. 
-
-Tie ĉi malbone, tie nebone. 
-
-Tie iras fumo per densaj nuboj. 
-
-Tie vi petos, vi tiros, vi nenion akiros. 
-
-Tiel estas, tiel restas. 
-
-Tien okuloj iras, kion la koro deziras. 
-
-Timi sian propran ombron. 
-
-Timo havas grandajn okulojn. 
-
-Timu lupon edukitan kaj malamikon repacigitan. 
-
-Tio ĉi estas laŭ lia gusto. 
-
-Tio estas lia amata ĉevaleto. 
-
-Titolo sen mono — sensignifa sono. 
-
-Tolaĵon malpuran lavu en la domo. 
-
-Tondro kampulon memorigas pri Dio. 
-
-Tordi ŝnurojn el sablo. 
-
-Tra unu orelo eniras, tra la dua eliras. 
-
-Tra vitro de teruro pligrandiĝas la mezuro. 
-
-Trafe aŭ maltrafe. 
-
-Trafi de Scilo al ˘aribdo. 
-
-Trafi du celojn per unu ŝtono. 
-
-Trafi per la parolo rekte en la vizaĝon. 
-
-Trafi per la vizaĝo en koton. 
-
-124
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Trafis falĉilo sur ŝtonon. 
+Teni la okulojn en streĉo.
 
-Trafis hakilo al ligno malmola. 
+Teni sian langon en la buŝo.
 
-Trafis pugno pugnon. 
+Tie ĉi malbone, tie nebone.
 
-Traflugis anĝelo preter orelo. 
+Tie iras fumo per densaj nuboj.
 
-Tralavi la gorĝon. 
+Tie vi petos, vi tiros, vi nenion akiros.
 
-Tranĉi rekte en la karnon. 
+Tiel estas, tiel restas.
 
-Transsalte-senhalte. 
+Tien okuloj iras, kion la koro deziras.
 
-Trapafadi la aeron. 
+Timi sian propran ombron.
 
-Tremo atakas. 
+Timo havas grandajn okulojn.
 
-Treni sian vivon de mizero al mizero. 
+Timu lupon edukitan kaj malamikon repacigitan.
 
-Trinki pro ies sano. 
+Tio ĉi estas laŭ lia gusto.
 
-Trio plaĉas al Dio. 
+Tio estas lia amata ĉevaleto.
 
-Tro akra fajro estas sen daŭro. 
+Titolo sen mono — sensignifa sono.
 
-Tro alta postulo aĉetanton ne ŝarĝas. 
+Tolaĵon malpuran lavu en la domo.
 
-Tro da bono ne turmentas. 
+Tondro kampulon memorigas pri Dio.
 
-Tro da enspezo ne estas tro da pezo. 
+Tordi ŝnurojn el sablo.
 
-Tro da konfido kondukas al perfido. 
+Tra unu orelo eniras, tra la dua eliras.
 
-Tro da kuiristoj kaĉon difektas. 
+Tra vitro de teruro pligrandiĝas la mezuro.
 
-Tro da libero kondukas al mizero. 
+Trafe aŭ maltrafe.
 
-Tro da metioj — profitoj neniaj. 
+Trafi de Scilo al ˘aribdo.
 
-Tro elektema ricevas nenion. 
+Trafi du celojn per unu ŝtono.
 
-Tro forta ĵuro — la afero ne pura. 
+Trafi per la parolo rekte en la vizaĝon.
 
-Tro grandaj kalkuloj kondukas al nuloj. 
+Trafi per la vizaĝo en koton.
 
-125
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Tro kara aranĝo por malkara tagmanĝo. 
+Trafis falĉilo sur ŝtonon.
 
-Tro longa atendo ĝis la fino de l’vendo. 
+Trafis hakilo al ligno malmola.
 
-Tro longa sufero — malgranda espero. 
+Trafis pugno pugnon.
 
-Tro multe da salo malbonigas la manĝon. 
+Traflugis anĝelo preter orelo.
 
-Tro nutrata kapro fariĝas kiel apro. 
+Tralavi la gorĝon.
 
-Tro rapida akcelo ne kondukas al celo. 
+Tranĉi rekte en la karnon.
 
-Tro rapida edziĝo — porĉiama kateniĝo. 
+Transsalte-senhalte.
 
-Tro rapida faro estas nur baro. 
+Trapafadi la aeron.
 
-Tro rapida laboro, tro malgranda valoro. 
+Tremo atakas.
 
-Tro rapida riĉiĝo diablon ĝojigas. 
+Treni sian vivon de mizero al mizero.
 
-Tro saltas la rato — ĝin kaptas la kato. 
+Trinki pro ies sano.
 
-Tro sata, tro bata. 
+Trio plaĉas al Dio.
 
-Troa festeno estas veneno. 
+Tro akra fajro estas sen daŭro.
 
-Troa petolo estas danĝera por la kolo. 
+Tro alta postulo aĉetanton ne ŝarĝas.
 
-Troviĝas bonaj homoj en la mondo. 
+Tro da bono ne turmentas.
 
-Trovis malbonulo malbonulon pli grandan. 
+Tro da enspezo ne estas tro da pezo.
 
-Truon de l’honoro flikos neniu tajloro. 
+Tro da konfido kondukas al perfido.
 
-Turniĝadi kiel serpento. 
+Tro da kuiristoj kaĉon difektas.
 
-Tuso kaj amo ne estas kaŝeblaj. 
+Tro da libero kondukas al mizero.
 
-Tuta jam sata, sed okulo malsatas. 
+Tro da metioj — profitoj neniaj.
 
-Tute libera, kiel birdo aera. 
+Tro elektema ricevas nenion.
 
-Tute ĝuste laŭ lia gusto. 
+Tro forta ĵuro — la afero ne pura.
 
-126
+Tro grandaj kalkuloj kondukas al nuloj.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Tro kara aranĝo por malkara tagmanĝo.
+
+Tro longa atendo ĝis la fino de l’vendo.
+
+Tro longa sufero — malgranda espero.
+
+Tro multe da salo malbonigas la manĝon.
+
+Tro nutrata kapro fariĝas kiel apro.
+
+Tro rapida akcelo ne kondukas al celo.
+
+Tro rapida edziĝo — porĉiama kateniĝo.
+
+Tro rapida faro estas nur baro.
+
+Tro rapida laboro, tro malgranda valoro.
+
+Tro rapida riĉiĝo diablon ĝojigas.
+
+Tro saltas la rato — ĝin kaptas la kato.
+
+Tro sata, tro bata.
+
+Troa festeno estas veneno.
+
+Troa petolo estas danĝera por la kolo.
+
+Troviĝas bonaj homoj en la mondo.
+
+Trovis malbonulo malbonulon pli grandan.
+
+Truon de l’honoro flikos neniu tajloro.
+
+Turniĝadi kiel serpento.
+
+Tuso kaj amo ne estas kaŝeblaj.
+
+Tuta jam sata, sed okulo malsatas.
+
+Tute libera, kiel birdo aera.
+
+Tute ĝuste laŭ lia gusto.
+
+
+ESPERANTA PROVERBARO
+
 
 u
 
-Unu amiko malnova pli valoras ol du novaj. 
+Unu amiko malnova pli valoras ol du novaj.
 
-Unu, du, tri, kvar, kaj finita la far’. 
+Unu, du, tri, kvar, kaj finita la far’.
 
-Unu fava ŝafo tutan ŝafaron infektas. 
+Unu fava ŝafo tutan ŝafaron infektas.
 
-Unu floras, alia ploras. 
+Unu floras, alia ploras.
 
-Unu floro ne estas krono, unu monero ne estas mono. 
+Unu floro ne estas krono, unu monero ne estas mono.
 
-Unu fojon oni donas kaj tutan vivon fanfaronas. 
+Unu fojon oni donas kaj tutan vivon fanfaronas.
 
-Unu fojon ŝtelis pomon kaj perdis por ĉiam honestan nomon. 
+Unu fojon ŝtelis pomon kaj perdis por ĉiam honestan nomon.
 
-Unu guto plenigas la glason. 
+Unu guto plenigas la glason.
 
-Unu hako kverkon ne faligas. 
+Unu hako kverkon ne faligas.
 
-Unu hirundo printempon ne alportas. 
+Unu hirundo printempon ne alportas.
 
-Unu kapo facile trovas apogon. 
+Unu kapo facile trovas apogon.
 
-Unu malamiko pli difektas, ol cent amikoj protektas. 
+Unu malamiko pli difektas, ol cent amikoj protektas.
 
-Unu orienten, alia okcidenten. 
+Unu orienten, alia okcidenten.
 
-Unu ovo malbona tutan manĝon difektas. 
+Unu ovo malbona tutan manĝon difektas.
 
-Unu pasero alian valoras. 
+Unu pasero alian valoras.
 
-Unu saĝo estas bona, du estas pli bonaj. 
+Unu saĝo estas bona, du estas pli bonaj.
 
-Unu similas nulon, ne prezentas kalkulon. 
+Unu similas nulon, ne prezentas kalkulon.
 
-Unu sola guto la glason plenigas. 
+Unu sola guto la glason plenigas.
 
-127
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Unu soldato militon ne faras. 
-
-Unu vido taŭgas pli ol dek aŭdoj. 
-
-Unu vundo alian kuracas. 
-
-Unua atesto estas la vesto. 
-
-Unua paŝo iron direktas. 
-
-Unua venis, unua prenis. 
-
-Unueco donas fortecon. 
-
-Unufoje ŝtelinta restas ĉiam ŝtelisto. 
-
-Urson al mielo oni ne tiras per orelo. 
-
-Urson evitu, duonpatrinon ne incitu. 
-
-Urtikon frosto ne difektas. 
-
-Uzi monon kaj admonon kaj flaton kaj baton. 
-
-Uzu tempon estantan, antaŭvidu estontan, memoru estintan. 
-
-128
 
 ESPERANTA PROVERBARO
 
-eLIBRO
+
+Unu soldato militon ne faras.
+
+Unu vido taŭgas pli ol dek aŭdoj.
+
+Unu vundo alian kuracas.
+
+Unua atesto estas la vesto.
+
+Unua paŝo iron direktas.
+
+Unua venis, unua prenis.
+
+Unueco donas fortecon.
+
+Unufoje ŝtelinta restas ĉiam ŝtelisto.
+
+Urson al mielo oni ne tiras per orelo.
+
+Urson evitu, duonpatrinon ne incitu.
+
+Urtikon frosto ne difektas.
+
+Uzi monon kaj admonon kaj flaton kaj baton.
+
+Uzu tempon estantan, antaŭvidu estontan, memoru estintan.
+
+
+ESPERANTA PROVERBARO
+
 
 v
 
-Valoras ne la vesto, valoras la enesto. 
+Valoras ne la vesto, valoras la enesto.
 
-Valoron de objekto ni ekkonas post difekto. 
+Valoron de objekto ni ekkonas post difekto.
 
-Vane vi tentas, mi ne konsentos. 
+Vane vi tentas, mi ne konsentos.
 
-Vazo rompita longe sin tenas. 
+Vazo rompita longe sin tenas.
 
-Venas ĉagreno sen granda peno. 
+Venas ĉagreno sen granda peno.
 
-Venas kvazaŭ vokita kaj petita. 
+Venas kvazaŭ vokita kaj petita.
 
-Venas profito — venas merito. 
+Venas profito — venas merito.
 
-Venas proverbo el popola la cerbo. 
+Venas proverbo el popola la cerbo.
 
-Venas prudento post la ĝusta momento. 
+Venas prudento post la ĝusta momento.
 
-Venas rido post grimaco, kaj paciĝo post malpaco. 
+Venas rido post grimaco, kaj paciĝo post malpaco.
 
-Venis fino al mia latino. 
+Venis fino al mia latino.
 
-Venis mizero — helpu min, frato; pasis mizero — for, malamato. 
+Venis mizero — helpu min, frato; pasis mizero — for, malamato.
 
-Venis tranĉilo al la gorĝo. 
+Venis tranĉilo al la gorĝo.
 
-Venkas ne forto, venkas la sorto. 
+Venkas ne forto, venkas la sorto.
 
-Venkiton oni ne batas. 
+Venkiton oni ne batas.
 
-Venos knabeto ankaŭ kun peto. 
+Venos knabeto ankaŭ kun peto.
 
-Venos ŝtelisto al la juĝisto. 
+Venos ŝtelisto al la juĝisto.
 
-Venos tempo, venos konsilo. 
+Venos tempo, venos konsilo.
 
-129
-
-ESPERANTA PROVERBARO
-
-eLIBRO
-
-Vento al li ekflugis sub la haŭto. 
-
-Vento sendita tondron reportos. 
-
-Ventro malsata orelon ne havas. 
-
-Vera kiel vorto de profeto. 
-
-Vera opinio montriĝas en ebrio. 
-
-Vergo doloras, sed saĝon ellaboras. 
-
-Vero ne bezonas mediti nek spriti. 
-
-Verŝi aeron al aero. 
-
-Vespere ĝuu lunon, sed ne serĉu la sunon. 
-
-Vespero lacigas, mateno freŝigas. 
-
-Vesto eluzita, sed pureco spirita. 
-
-Vesto homon prezentas. 
-
-Veturi sur sia paro da kruroj. 
-
-Vi amas preni, amu redoni. 
-
-Vi min manĝigos, mi vin trinkigos. 
-
-Vi ne kredas, ne aŭskultu, sed min ne insultu. 
-
-Vi povas eĉ haki lignon sur lia kapo. 
-
-Vi sekrete vorton diros, ĝi tra l’tuta mondo iros. 
-
-Vi sekretos al edzino, ŝi sekretos al fratino, kaj tiel la sekreto promenados sen fino. 
-
-Vi varmigos serpenton, ĝi al vi enpikos la denton. 
-
-Via dekstra mano ne sciu, kion faras la maldekstra. 
-
-Vian vivon ĝuu, sed fremdan ne detruu. 
-
-130
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Vidas okulo, sed mano ne trafas. 
+Vento al li ekflugis sub la haŭto.
 
-Vilaĝano kreditas, vilaĝestro pruntas. 
+Vento sendita tondron reportos.
 
-Vilaĝano kreditas, vilaĝestro prunteprenas. 
+Ventro malsata orelon ne havas.
 
-Vin ne tuŝu la eraroj en fremdaj faroj. 
+Vera kiel vorto de profeto.
 
-Virina lango buĉas sen sango. 
+Vera opinio montriĝas en ebrio.
 
-Virina ploro sen valoro. 
+Vergo doloras, sed saĝon ellaboras.
 
-Virina rideto pli kaptas ol reto. 
+Vero ne bezonas mediti nek spriti.
 
-Virino batas per lango — aperas vundo plej sanga. 
+Verŝi aeron al aero.
 
-Virino bonorda estas muta kaj surda. 
+Vespere ĝuu lunon, sed ne serĉu la sunon.
 
-Virino eliĝis, kaleŝo senpeziĝis. 
+Vespero lacigas, mateno freŝigas.
 
-Virino havas haron longan kaj saĝon mallongan. 
+Vesto eluzita, sed pureco spirita.
 
-Virino kolera pli ol hundo danĝera. 
+Vesto homon prezentas.
 
-Virino scias, la tuta mondo scias. 
+Veturi sur sia paro da kruroj.
 
-Virta virino straton ne konas. 
+Vi amas preni, amu redoni.
 
-Vitro kaj feliĉo ne estas fortikaj. 
+Vi min manĝigos, mi vin trinkigos.
 
-Vivanton ni malhonoras, mortinton ni adoras. 
+Vi ne kredas, ne aŭskultu, sed min ne insultu.
 
-Vivi de estontaj enspezoj. 
+Vi povas eĉ haki lignon sur lia kapo.
 
-Vivi de ŝparita kaso. 
+Vi sekrete vorton diros, ĝi tra l’tuta mondo iros.
 
-Vivi emerite. 
+Vi sekretos al edzino, ŝi sekretos al fratino, kaj tiel la sekreto promenados sen fino.
 
-Vivi en silko kaj veluro, en ĝojo kaj plezuro. 
+Vi varmigos serpenton, ĝi al vi enpikos la denton.
 
-Vivi iele-trapele. 
+Via dekstra mano ne sciu, kion faras la maldekstra.
 
-Vivi inter forno hejtita kaj tablo kovrita. 
+Vian vivon ĝuu, sed fremdan ne detruu.
 
-Vivi kiel ĉe la brusto de Dio. 
-
-131
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Vivi kiel kuko en butero. 
+Vidas okulo, sed mano ne trafas.
 
-Vivi kun iu en fido kaj konfido. 
+Vilaĝano kreditas, vilaĝestro pruntas.
 
-Vivi kun iu en intima amikeco. 
+Vilaĝano kreditas, vilaĝestro prunteprenas.
 
-Vivi kun iu kiel hundo kun kato. 
+Vin ne tuŝu la eraroj en fremdaj faroj.
 
-Vivi laŭ postuloj de la ĝustaj kalkuloj. 
+Virina lango buĉas sen sango.
 
-Vivi larĝe kaj lukse. 
+Virina ploro sen valoro.
 
-Vivi modere, ne tro interne nek tro ekstere. 
+Virina rideto pli kaptas ol reto.
 
-Vivi per sistemo de ”el mano al buŝo”. 
+Virino batas per lango — aperas vundo plej sanga.
 
-Vivi sate kaj glate. 
+Virino bonorda estas muta kaj surda.
 
-Vivis puninde, mortis ridinde. 
+Virino eliĝis, kaleŝo senpeziĝis.
 
-Vivo glate ne fluas, ĉiam batas kaj skuas. 
+Virino havas haron longan kaj saĝon mallongan.
 
-Vivo modera estas vivo sendanĝera. 
+Virino kolera pli ol hundo danĝera.
 
-Vivo sen modero kondukas al mizero. 
+Virino scias, la tuta mondo scias.
 
-Vivon privatan kaŝu la muroj. 
+Virta virino straton ne konas.
 
-Vivon travivi estas art’ malfacila. 
+Vitro kaj feliĉo ne estas fortikaj.
 
-Vivu mizere, sed vivu libere\! 
+Vivanton ni malhonoras, mortinton ni adoras.
 
-Vivu, progresu, sed lerni ne ĉesu. 
+Vivi de estontaj enspezoj.
 
-Vivu stomako laŭ stato de l’sako. 
+Vivi de ŝparita kaso.
 
-Vizaĝo agrabla kaj ungo diabla. 
+Vivi emerite.
 
-Vizaĝo de Katono, sed virto de fripono. 
+Vivi en silko kaj veluro, en ĝojo kaj plezuro.
 
-Vizaĝo sen kulpo, sed koro de vulpo. 
+Vivi iele-trapele.
 
-Vojon batitan herbo ne kovras. 
+Vivi inter forno hejtita kaj tablo kovrita.
 
-Volanta kruro ne laciĝas de kuro. 
+Vivi kiel ĉe la brusto de Dio.
 
-132
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Vole-nevole. 
+Vivi kiel kuko en butero.
 
-Voli aŭ ne voli neniu malpermesas. 
+Vivi kun iu en fido kaj konfido.
 
-Volo kaj deziro leĝojn ne konas. 
+Vivi kun iu en intima amikeco.
 
-Volo kaj sento faras pli ol prudento. 
+Vivi kun iu kiel hundo kun kato.
 
-Volu-ne-volu — elekto ne ekzistas. 
+Vivi laŭ postuloj de la ĝustaj kalkuloj.
 
-Volus kato fiŝojn, sed la akvon ĝi timas. 
+Vivi larĝe kaj lukse.
 
-Vort’ en ĝusta momento faras pli ol arĝento. 
+Vivi modere, ne tro interne nek tro ekstere.
 
-Vorto dirita al la mondo apartenas kaj neniam revenas. 
+Vivi per sistemo de ”el mano al buŝo”.
 
-Vorto donita estas kiel leĝo. 
+Vivi sate kaj glate.
 
-Vorto sona estas plej admona. 
+Vivis puninde, mortis ridinde.
 
-Vortoj sakon ne plenigas. 
+Vivo glate ne fluas, ĉiam batas kaj skuas.
 
-Vortojn ŝparu, agojn faru. 
+Vivo modera estas vivo sendanĝera.
 
-Vulpo faras oferon — atendu danĝeron. 
+Vivo sen modero kondukas al mizero.
 
-Vulpo mienon ŝanĝas, sed plue kokidojn manĝas. 
+Vivon privatan kaŝu la muroj.
 
-Vundan lokon protektis, alian difektis. 
+Vivon travivi estas art’ malfacila.
 
-Vundo pasas, vorto restas. 
+Vivu mizere, sed vivu libere!
 
-Vundo sekreta doloras plej multe. 
+Vivu, progresu, sed lerni ne ĉesu.
 
-133
+Vivu stomako laŭ stato de l’sako.
+
+Vizaĝo agrabla kaj ungo diabla.
+
+Vizaĝo de Katono, sed virto de fripono.
+
+Vizaĝo sen kulpo, sed koro de vulpo.
+
+Vojon batitan herbo ne kovras.
+
+Volanta kruro ne laciĝas de kuro.
+
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-Zorgu pri vi, kaj nenion pli. 
+Vole-nevole.
 
-Zorgu vian metion kaj ne miksu vin en alian. 
+Voli aŭ ne voli neniu malpermesas.
+
+Volo kaj deziro leĝojn ne konas.
+
+Volo kaj sento faras pli ol prudento.
+
+Volu-ne-volu — elekto ne ekzistas.
+
+Volus kato fiŝojn, sed la akvon ĝi timas.
+
+Vort’ en ĝusta momento faras pli ol arĝento.
+
+Vorto dirita al la mondo apartenas kaj neniam revenas.
+
+Vorto donita estas kiel leĝo.
+
+Vorto sona estas plej admona.
+
+Vortoj sakon ne plenigas.
+
+Vortojn ŝparu, agojn faru.
+
+Vulpo faras oferon — atendu danĝeron.
+
+Vulpo mienon ŝanĝas, sed plue kokidojn manĝas.
+
+Vundan lokon protektis, alian difektis.
+
+Vundo pasas, vorto restas.
+
+Vundo sekreta doloras plej multe.
+
+
+ESPERANTA PROVERBARO
+
+
+Zorgu pri vi, kaj nenion pli.
+
+Zorgu vian metion kaj ne miksu vin en alian.
 
 z
 
-Zorgu vian vivon kaj lasu vivi alian. 
+Zorgu vian vivon kaj lasu vivi alian.
 
-134
 
 ESPERANTA PROVERBARO
 
-eLIBRO
 
-www.omnibus.se/inko
-
-ISBN 91-7303-131-3
-
-135
-
+www.omnibus.se/

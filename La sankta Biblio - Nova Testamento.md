@@ -1,50 +1,22 @@
-% La sankta Biblio
-% Nova Testamento
-
-L A S A N K TA B I B L I O
-
-
-eLIBRO
-
-eLIBRO
-
 La Sankta Biblio
 
 Nova
 
 testamento
 
-I N K O
-
-1
-
-L A S A N K TA B I B L I O
-
-eLIBRO
 
 La Sankta Biblio
 
 NOVA TESTAMENTO
 
-eLIBRO
 
-Aranĝis: Franko Luin
+@omnibus.se
 
-ISBN 91-7303-006-6
+·
 
-inko@omnibus.se
-
-INKO · SE-13542 TYRESÖ · SVEDIO
-
-http://www.omnibus.se/inko
-
-NOVEMBRO 2000
-
-2
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La evangelio laŭ sankta Mateo
 
@@ -52,7 +24,7 @@ La evangelio laŭ sankta Mateo
 
 1 La genealogia registro de Jesuo Kristo, filo de David, filo de Ab-
 
-raham. 
+raham.
 
 2 Al Abraham naskiĝis Isaak, kaj al Isaak naskiĝis Jakob, kaj al
 
@@ -66,7 +38,7 @@ iĝis Na˛ŝon, kaj al Na˛ŝon naskiĝis Salma, 5 kaj al Salma naskiĝis
 
 Boaz el Raąb, kaj al Boaz naskiĝis Obed el Rut, kaj al Obed nask-
 
-iĝis Jiŝaj, 6 kaj al Jiŝaj naskiĝis David, la reĝo. 
+iĝis Jiŝaj, 6 kaj al Jiŝaj naskiĝis David, la reĝo.
 
 Kaj al David naskiĝis Salomono el la edzino de Urija, 7 kaj al Sa-
 
@@ -80,15 +52,15 @@ Jotam, kaj al Jotam naskiĝis Aąz, kaj al Aąz naskiĝis ˘izkija, 10 kaj
 
 al ˘izkija naskiĝis Manase, kaj al Manase naskiĝis Amon, kaj al
 
-Amon naskiĝis Joŝija, 11 kaj al Joŝija naskiĝis Je˛onja kaj liaj fratoj, 
+Amon naskiĝis Joŝija, 11 kaj al Joŝija naskiĝis Je˛onja kaj liaj fratoj,
 
-je la tempo de la transloĝiĝo en Babelon. 
+je la tempo de la transloĝiĝo en Babelon.
 
 12 Kaj post la transloĝiĝo en Babelon, al Je˛onja naskiĝis ŝealti-
 
 el, kaj al ŝealtiel naskiĝis Zerubabel, 13 kaj al Zerubabel naskiĝis
 
-Abiud, kaj al Abiud naskiĝis Eljakim, kaj al Eljakim naskiĝis Azor, 
+Abiud, kaj al Abiud naskiĝis Eljakim, kaj al Eljakim naskiĝis Azor,
 
 14 kaj al Azor naskiĝis Cadok, kaj al Cadok naskiĝis A˛im, kaj al
 
@@ -96,15 +68,13 @@ A˛im naskiĝis Eliud, 15 kaj al Eliud naskiĝis Eleazar, kaj al Eleazar
 
 naskiĝis Mattan, kaj al Mattan naskiĝis Jakob, 16 kaj al Jakob nask-
 
-3
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 iĝis Jozef, edzo de Maria, el kiu estis naskita Jesuo, kiu estas nomata
 
-Kristo. 
+Kristo.
 
 17 Tial ĉiuj generacioj de Abraham ĝis David estas dek kvar ge-
 
@@ -112,13 +82,13 @@ neracioj, kaj de David ĝis la transloĝiĝo en Babelon dek kvar gene-
 
 racioj, kaj de la transloĝiĝo en Babelon ĝis la Kristo dek kvar gene-
 
-racioj. 
+racioj.
 
 18 Kaj la naskiĝo de Jesuo Kristo estis tiamaniere: kiam lia patri-
 
 no Maria estis fianĉinigita al Jozef, antaŭ ol ili kunvenis, ŝi troviĝis
 
-graveda per la Sankta Spirito. 19 Kaj ŝia edzo Jozef, estante justulo, 
+graveda per la Sankta Spirito. 19 Kaj ŝia edzo Jozef, estante justulo,
 
 kaj ne volante meti ŝin al publika malhonoro, volis ŝin sekrete for-
 
@@ -134,7 +104,7 @@ sian popolon de ĝiaj pekoj. 22 Kaj ĉio tio okazis, por ke plenumiĝu
 
 tio, kion la Eternulo parolis per la profeto, dirante: 23 Jen virgulino
 
-gravediĝos kaj naskos filon, 
+gravediĝos kaj naskos filon,
 
 Kaj oni donos al li la nomon Emanuel; tio estas, Dio kun ni. 24 Kaj
 
@@ -142,7 +112,7 @@ Jozef, leviĝinte el sia dormo, faris, kiel ordonis al li la anĝelo de la
 
 Eternulo, kaj prenis al si sian edzinon; 25 kaj li ne ekkonis ŝin, ĝis ŝi
 
-naskis filon; kaj li donis al li la nomon JESUO. 
+naskis filon; kaj li donis al li la nomon JESUO.
 
 ĉapitro 2
 
@@ -158,31 +128,29 @@ la reĝo Herodo tion aŭdis, li maltrankviliĝis, kaj la tuta Jerusalem
 
 kun li. 4 Kaj kunveniginte ĉiujn ĉefpastrojn kaj skribistojn de la po-
 
-4
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 polo, li demandis al ili, kie la Kristo devas naskiĝi. 5 Kaj ili diris al li: En Bet-Leęm de Judujo, ĉar per la profeto estas skribite jene:
 
-6 Kaj vi, ho Bet-Leęm, lando de Judujo, 
+6 Kaj vi, ho Bet-Leęm, lando de Judujo,
 
-Neniel estas plej malgranda inter la regantoj de Judujo; 
+Neniel estas plej malgranda inter la regantoj de Judujo;
 
-ĉar el vi venos reganto, 
+ĉar el vi venos reganto,
 
-Kiu paŝtos Mian popolon Izrael. 
+Kiu paŝtos Mian popolon Izrael.
 
 7 Tiam Herodo sekrete venigis la saĝulojn, kaj precize sciiĝis de
 
-ili pri la tempo, kiam aperis la stelo. 8 Kaj li sendis ilin al Bet-Leęm, 
+ili pri la tempo, kiam aperis la stelo. 8 Kaj li sendis ilin al Bet-Leęm,
 
-dirante: Iru kaj elserĉu zorge pri la knabeto; kaj kiam vi lin trovos, 
+dirante: Iru kaj elserĉu zorge pri la knabeto; kaj kiam vi lin trovos,
 
 sciigu al mi, por ke mi ankaŭ venu kaj adorkliniĝu al li. 9 Kaj aŭdinte
 
-la reĝon, ili ekvojiris; kaj jen la stelo, kiun ili vidis en la oriento, 
+la reĝon, ili ekvojiris; kaj jen la stelo, kiun ili vidis en la oriento,
 
 antaŭiris ilin, ĝis ĝi venis kaj staris super la loko, kie estis la juna
 
@@ -196,7 +164,7 @@ prezentis al li donacojn: oron kaj olibanon kaj mirhon. 12 Kaj aver-
 
 tite de Dio en sonĝo, ke ili ne iru returne al Herodo, ili foriris per
 
-alia vojo al sia lando. 
+alia vojo al sia lando.
 
 13 Kaj post ilia foriro jen anĝelo de la Eternulo aperis en sonĝo
 
@@ -220,25 +188,23 @@ ris; kaj sendinte, li mortigis ĉiujn knabojn en Bet-Leęm kaj en ĉiuj
 
 li precize sciiĝis de la saĝuloj. 17 Tiam plenumiĝis tio, kio estis diri-
 
-ta per la profeto Jeremia, nome: 18 Voĉo estas aŭdita en Rama, 
+ta per la profeto Jeremia, nome: 18 Voĉo estas aŭdita en Rama,
 
-5
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-¯emado kaj maldolĉa plorado, 
+emado kaj maldolĉa plorado,
 
-Raęl priploras siajn infanojn, 
+Raęl priploras siajn infanojn,
 
-Kaj ŝi ne volas konsoliĝi, ĉar ili forestas. 
+Kaj ŝi ne volas konsoliĝi, ĉar ili forestas.
 
 19 Sed kiam Herodo mortis, jen anĝelo de la Eternulo aperis en
 
 sonĝo al Jozef en Egiptujo, dirante: 20 Leviĝu, kaj prenu la knabe-
 
-ton kaj lian patrinon, kaj iru en la landon de Izrael; ĉar mortis tiuj, 
+ton kaj lian patrinon, kaj iru en la landon de Izrael; ĉar mortis tiuj,
 
 kiuj atencis la vivon de la knabeto. 21 Kaj li leviĝis, kaj prenis la kna-
 
@@ -252,7 +218,7 @@ nojn de Galileo, 23 kaj venis al kaj loĝis en urbo nomata Nazaret, por
 
 ke plenumiĝu tio, kio estis dirita per la profetoj, ke li estos noma-
 
-ta Nazaretano. 
+ta Nazaretano.
 
 ĉapitro 3
 
@@ -264,9 +230,9 @@ Judujo, 2 kaj dirante: Pentu, ĉar alproksimiĝis la regno de la ĉielo. 3
 
 Voĉo de krianto en la dezerto:
 
-Pretigu la vojon de la Eternulo, 
+Pretigu la vojon de la Eternulo,
 
-Rektigu Liajn irejojn. 
+Rektigu Liajn irejojn.
 
 4 Kaj tiu Johano havis sian vestaĵon el kamelaj haroj, kaj ledan
 
@@ -278,17 +244,15 @@ kaŭaĵo de Jordan; 6 kaj ili estis baptitaj de li en la rivero Jordan, kon-
 
 fesante siajn pekojn. 7 Kaj vidante multajn el la Fariseoj kaj Sadu-
 
-keoj venantajn al lia baptado, li diris al ili: Ho vipuridoj\! kiu vin
+keoj venantajn al lia baptado, li diris al ili: Ho vipuridoj! kiu vin
 
 avertis forkuri de la venonta kolero? 8 Donu do fruktojn taŭgajn por
 
-pento; 9 kaj ne pensu diri en vi: Ni havas Abrahamon kiel patron; 
+pento; 9 kaj ne pensu diri en vi: Ni havas Abrahamon kiel patron;
 
-6
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉar mi diras al vi, ke Dio povas el ĉi tiuj ŝtonoj starigi idojn al Ab-
 
@@ -306,7 +270,7 @@ lia mano, kaj li elpurigos sian draŝejon, kaj li kolektos sian tritikon
 
 en la grenejon; sed la grenventumaĵon li bruligos per fajro neesting-
 
-ebla. 
+ebla.
 
 13 Tiam venis Jesuo el Galileo al Jordan al Johano, por esti bap-
 
@@ -316,13 +280,13 @@ tata de vi, kaj ĉu vi venas al mi? 15 Sed Jesuo responde diris al li: Lasu
 
 do, ĉar tiel decas al ni plenumi ĉian justecon. Tiam li lasis lin. 16 Kaj
 
-Jesuo, baptite, supreniris tuj el la akvo; kaj jen la ĉielo malfermiĝis, 
+Jesuo, baptite, supreniris tuj el la akvo; kaj jen la ĉielo malfermiĝis,
 
 kaj li vidis la Spiriton de Dio malsuprenirantan kiel kolombo, kaj
 
 venantan sur lin; 17 kaj jen voĉo el la ĉielo, dirante: ĉi tiu estas Mia
 
-Filo, la amata, en kiu Mi havas plezuron. 
+Filo, la amata, en kiu Mi havas plezuron.
 
 ĉapitro 4
 
@@ -336,25 +300,23 @@ li diris: Estas skribite: Ne per la pano sole vivas homo, sed per ĉiu
 
 vorto, kiu eliras el la buŝo de Dio. 5 Poste la diablo portis lin en la
 
-sanktan urbon, kaj starigis lin sur la tegmenta pinto de la templo, 
+sanktan urbon, kaj starigis lin sur la tegmenta pinto de la templo,
 
 6 kaj diris al li: Se vi estas Filo de Dio, ĵetu vin malsupren, ĉar estas
 
 skribite:
 
-Al Siaj anĝeloj Li ordonos pri vi, 
+Al Siaj anĝeloj Li ordonos pri vi,
 
-7
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Kaj sur la manoj ili vin portos, 
+Kaj sur la manoj ili vin portos,
 
-Por ke vi ne falpuŝiĝu sur ŝtono per via piedo. 
+Por ke vi ne falpuŝiĝu sur ŝtono per via piedo.
 
-7 Jesuo diris al li: Ankaŭ estas skribite: Ne provu la Eternulon, 
+7 Jesuo diris al li: Ankaŭ estas skribite: Ne provu la Eternulon,
 
 vian Dion. 8 Denove la diablo portis lin al monto tre alta, kaj mont-
 
@@ -362,11 +324,11 @@ ris al li ĉiujn regnojn de la mondo kaj ilian gloron, 9 kaj diris al li:
 
 ĉion tion mi donos al vi, se vi faligos vin kaj adorkliniĝos al mi. 10
 
-Tiam Jesuo diris al li: Foriru, Satano\! ĉar estas skribite: Al la Eter-
+Tiam Jesuo diris al li: Foriru, Satano! ĉar estas skribite: Al la Eter-
 
 nulo, via Dio, vi adorkliniĝu, kaj al Li sola vi servu. 11 Tiam la diab-
 
-lo forlasis lin, kaj jen anĝeloj venis kaj servadis al li. 
+lo forlasis lin, kaj jen anĝeloj venis kaj servadis al li.
 
 10 Kaj aŭdinte, ke Johano estas arestita, li foriris en Galileon; 13 kaj
 
@@ -376,21 +338,21 @@ la limoj de Zebulun kaj Naftali; 14 por ke plenumiĝu tio, kio estis
 
 dirita per la profeto Jesaja, nome:
 
-15 Lando de Zebulun kaj lando de Naftali, 
+15 Lando de Zebulun kaj lando de Naftali,
 
-Laŭvoje de la maro, transe de Jordan, 
+Laŭvoje de la maro, transe de Jordan,
 
-Galileo de la nacioj, 
+Galileo de la nacioj,
 
-16 La popolo, sidanta en mallumo, 
+16 La popolo, sidanta en mallumo,
 
-Ekvidis grandan lumon, 
+Ekvidis grandan lumon,
 
-Kaj al homoj, sidantaj en lando de ombra morto, ekbrilis lumo. 
+Kaj al homoj, sidantaj en lando de ombra morto, ekbrilis lumo.
 
 17 De tiam Jesuo komencis prediki, kaj diri: Pentu, ĉar la regno
 
-de la ĉielo alproksimiĝis. 
+de la ĉielo alproksimiĝis.
 
 18 Kaj piedirante apud la maro de Galileo, li vidis du fratojn, Si-
 
@@ -400,17 +362,15 @@ reton en la maron, ĉar ili estis fiŝkaptistoj. 19 Kaj li diris al ili: Venu po
 
 retojn, kaj sekvis lin. 21 Kaj antaŭenirinte de tie, li vidis aliajn du fratojn, Jakobon, filon de Zebedeo, kaj Johanon, lian fraton, en la ŝi-
 
-peto kun ilia patro Zebedeo, riparantajn siajn retojn; kaj li vokis ilin. 
+peto kun ilia patro Zebedeo, riparantajn siajn retojn; kaj li vokis ilin.
 
 22 Kaj ili tuj forlasis la ŝipeton kaj sian patron, kaj sekvis lin. 23 Kaj
 
 Jesuo trairis tra la tuta Galileo, instruante en iliaj sinagogoj, kaj pre-
 
-8
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dikante la evangelion de la regno, kaj kuracante ĉian malsanon kaj
 
@@ -418,13 +378,13 @@ dikante la evangelion de la regno, kaj kuracante ĉian malsanon kaj
 
 Sirio; kaj oni alkondukis al li ĉiujn malsanulojn, malfortigitajn de
 
-diversaj malsanoj kaj turmentoj, demonhavantojn, epilepsiulojn, 
+diversaj malsanoj kaj turmentoj, demonhavantojn, epilepsiulojn,
 
 kaj paralizulojn, kaj li resanigis ilin. 25 Kaj grandaj homamasoj lin se-
 
 kvis el Galileo kaj Dekapolis kaj Jerusalem kaj Judujo kaj el trans
 
-Jordan. 
+Jordan.
 
 ĉapitro 5
 
@@ -436,29 +396,29 @@ struis ilin, dirante:
 
 3 Feliĉaj estas la malriĉaj en spirito, ĉar ilia estas la regno de la
 
-ĉielo. 
+ĉielo.
 
-4 Feliĉaj estas la plorantaj, ĉar ili konsoliĝos. 
+4 Feliĉaj estas la plorantaj, ĉar ili konsoliĝos.
 
-5 Feliĉaj estas la humilaj, ĉar ili heredos la teron. 
+5 Feliĉaj estas la humilaj, ĉar ili heredos la teron.
 
-6 Feliĉaj estas tiuj, kiuj malsatas kaj soifas justecon, ĉar ili satiĝos. 
+6 Feliĉaj estas tiuj, kiuj malsatas kaj soifas justecon, ĉar ili satiĝos.
 
-7 Feliĉaj estas la kompatemaj, ĉar ili ricevos kompaton. 
+7 Feliĉaj estas la kompatemaj, ĉar ili ricevos kompaton.
 
-8 Feliĉaj estas la kore puraj, ĉar ili vidos Dion. 
+8 Feliĉaj estas la kore puraj, ĉar ili vidos Dion.
 
-9 Feliĉaj estas la pacigantoj, ĉar filoj de Dio ili estos nomataj. 
+9 Feliĉaj estas la pacigantoj, ĉar filoj de Dio ili estos nomataj.
 
 10 Feliĉaj estas tiuj, kiuj estas persekutitaj pro justeco, ĉar ilia es-
 
 tas la regno de la ĉielo. 11 Feliĉaj estas vi, kiam oni vin riproĉos kaj
 
-persekutos kaj false vin kalumnios pro mi. 12 ¯oju kaj raviĝu, ĉar via
+persekutos kaj false vin kalumnios pro mi. 12 oju kaj raviĝu, ĉar via
 
 rekompenco estos granda en la ĉielo; ĉar tiel oni persekutis la pro-
 
-fetojn, kiuj estis antaŭ vi. 
+fetojn, kiuj estis antaŭ vi.
 
 13 Vi estas la salo de la tero; sed se la salo sengustiĝis, per kio ĝi
 
@@ -468,11 +428,9 @@ premita de homoj. 14 Vi estas la lumo de la mondo. Urbo starigita
 
 sur monto ne povas esti kaŝita. 15 Kiam oni bruligas lampon, oni
 
-9
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 metas ĝin ne sub grenmezurilon, sed sur la lampingon; kaj ĝi lumas
 
@@ -480,11 +438,11 @@ sur ĉiujn, kiuj estas en la domo. 16 Tiel same via lumo lumu antaŭ
 
 homoj, por ke ili vidu viajn bonajn farojn, kaj gloru vian Patron, kiu
 
-estas en la ĉielo. 
+estas en la ĉielo.
 
 17 Ne pensu, ke mi venis, por detrui la leĝon aŭ la profetojn; mi
 
-venis, ne por detrui, sed por plenumi. 18 Vere mi diras al vi: ¯is la
+venis, ne por detrui, sed por plenumi. 18 Vere mi diras al vi: is la
 
 ĉielo kaj la tero forpasos, nek unu joto nek unu streketo forpasos de
 
@@ -498,7 +456,7 @@ os, tiu estos nomata granda en la regno de la ĉielo. 20 ĉar mi diras
 
 al vi, ke se via justeco ne superos la justecon de la skribistoj kaj la
 
-Fariseoj, vi tute ne eniros en la regnon de la ĉielo. 
+Fariseoj, vi tute ne eniros en la regnon de la ĉielo.
 
 21 Vi aŭdis, ke estas dirite al la antikvuloj: Ne mortigu, kaj kiu
 
@@ -520,13 +478,13 @@ oferon. 25 Konsentu rapide kun via kontraŭulo, dum vi estas kun li
 
 sur la vojo, por ke la kontraŭulo ne transdonu vin al la juĝisto, kaj
 
-la juĝisto al la subulo, kaj por ke vi ne estu ĵetita en malliberejon. 
+la juĝisto al la subulo, kaj por ke vi ne estu ĵetita en malliberejon.
 
 26 Vere mi diras al vi, ke vi neniel eliros el tie, ĝis vi pagos la lastan
 
-kodranton. 
+kodranton.
 
-27 Vi aŭdis, ke estas dirite: Ne adultu; 28 sed mi diras al vi, ke ĉiu, 
+27 Vi aŭdis, ke estas dirite: Ne adultu; 28 sed mi diras al vi, ke ĉiu,
 
 kiu rigardas virinon, por deziri ŝin, jam adultis je ŝi en sia koro. 29
 
@@ -534,11 +492,9 @@ Kaj se via dekstra okulo faligas vin, elŝiru kaj forĵetu ĝin; ĉar estus
 
 pli bone por vi, se unu el viaj membroj pereus, ol se via tuta korpo
 
-10
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estus ĵetita en Gehenan. 30 Kaj se via dekstra mano faligas vin, de-
 
@@ -546,15 +502,15 @@ tranĉu kaj forĵetu ĝin; ĉar estus pli bone por vi, se unu el viaj mem-
 
 broj pereus, ol se via tuta korpo irus en Gehenan. 31 Estas ankaŭ
 
-dirite: Kiu forsendos sian edzinon, tiu donu al ŝi eksedzigan leteron; 
+dirite: Kiu forsendos sian edzinon, tiu donu al ŝi eksedzigan leteron;
 
 32 sed mi diras al vi, ke ĉiu, kiu forsendas sian edzinon, krom pro
 
 malĉasteco, igas ŝin adulti; kaj kiu edziĝos kun forsenditino, tiu
 
-adultas. 
+adultas.
 
-33 Plue, vi aŭdis, ke estas dirite al la antikvuloj: Ne rompu ĵurojn, 
+33 Plue, vi aŭdis, ke estas dirite al la antikvuloj: Ne rompu ĵurojn,
 
 sed plenumu viajn ĵurojn antaŭ la Eternulo; 34 sed mi diras al vi:
 
@@ -564,9 +520,9 @@ la tero, ĉar ĝi estas la benketo de Liaj piedoj; nek per Jerusalem, ĉar
 
 ĝi estas urbo de la granda Reĝo. 36 Nek ĵuru per via kapo, ĉar vi ne
 
-povas fari eĉ unu haron blanka aŭ nigra. 37 Sed via parolo estu: Jes, 
+povas fari eĉ unu haron blanka aŭ nigra. 37 Sed via parolo estu: Jes,
 
-jes, ne, ne; ĉio ekster tio estas el malbono. 
+jes, ne, ne; ĉio ekster tio estas el malbono.
 
 38 Vi aŭdis, ke estas dirite: Okulon pro okulo, kaj denton pro
 
@@ -576,11 +532,11 @@ pas vian dekstran vangon, turnu ankaŭ la alian. 40 Kaj se iu deziras
 
 procesi kontraŭ vi, por forpreni vian tunikon, lasu lin preni ankaŭ
 
-vian mantelon. 41 Kaj se iu devigas vin iri unu mejlon, iru kun li du. 
+vian mantelon. 41 Kaj se iu devigas vin iri unu mejlon, iru kun li du.
 
 42 Donu al tiu, kiu petas de vi; kaj ne deturnu vin de tiu, kiu dezi-
 
-ras prunti de vi. 
+ras prunti de vi.
 
 43 Vi aŭdis, ke estas dirite: Amu vian proksimulon, kaj malamu
 
@@ -596,15 +552,13 @@ se vi amas tiujn, kiuj amas vin, kian rekompencon vi havas? ĉu ne
 
 tion saman faras eĉ la impostistoj? 47 Kaj se vi salutas nur sole viajn
 
-fratojn, kion ekstran vi faras? ĉu ne tion saman faras eĉ la nacianoj? 
+fratojn, kion ekstran vi faras? ĉu ne tion saman faras eĉ la nacianoj?
 
-48 Estu do perfektaj, kiel ankaŭ via ĉiela Patro estas perfekta. 
+48 Estu do perfektaj, kiel ankaŭ via ĉiela Patro estas perfekta.
 
-11
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 6
 
@@ -612,9 +566,9 @@ eLIBRO
 
 gardataj de ili; alie vi ne havas rekompencon ĉe via Patro, kiu estas
 
-en la ĉielo. 
+en la ĉielo.
 
-2 Tial, kiam vi donos almozon, ne sonigu trumpeton antaŭ vi, 
+2 Tial, kiam vi donos almozon, ne sonigu trumpeton antaŭ vi,
 
 kiel faras la hipokrituloj en la sinagogoj kaj sur la stratoj, por havi
 
@@ -624,13 +578,13 @@ con. 3 Sed kiam vi donas almozon, ne lasu vian maldekstran manon
 
 scii, kion faras via dekstra; 4 por ke via almozo estu en sekreto; kaj
 
-via Patro, kiu vidas en sekreto, vin rekompencos. 
+via Patro, kiu vidas en sekreto, vin rekompencos.
 
 5 Kaj kiam vi preĝas, ne estu kiel la hipokrituloj; ĉar ili amas pre-
 
 ĝi, starante en la sinagogoj kaj ĉe la anguloj de la stratoj, por montri
 
-sin al homoj. Vere mi diras al vi: Ili jam ricevas sian rekompencon. 
+sin al homoj. Vere mi diras al vi: Ili jam ricevas sian rekompencon.
 
 6 Sed vi, kiam vi preĝas, eniru en vian ĉambreton, kaj ŝlosinte vian
 
@@ -658,25 +612,23 @@ iliajn kulpojn, via Patro ĉiela ankaŭ pardonos al vi. 15 Sed se vi ne
 
 pardonas al homoj iliajn kulpojn, via Patro ankaŭ ne pardonos vi-
 
-ajn kulpojn. 
+ajn kulpojn.
 
 16 Kaj kiam vi fastas, ne estu kiel la hipokrituloj, kun malĝoja
 
-mieno; ĉar ili malbeligas sian vizaĝon, por ke al homoj ili ŝajnu fasti. 
+mieno; ĉar ili malbeligas sian vizaĝon, por ke al homoj ili ŝajnu fasti.
 
-12
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Vere mi diras al vi: Ili jam ricevas sian rekompencon. 17 Sed fastante, 
+Vere mi diras al vi: Ili jam ricevas sian rekompencon. 17 Sed fastante,
 
 vi oleu vian kapon kaj lavu vian vizaĝon; 18 por ke vi ne al homoj
 
 ŝajnu fasti, sed al via Patro en sekreto; kaj via Patro, kiu vidas en
 
-sekreto, vin rekompencos. 
+sekreto, vin rekompencos.
 
 19 Ne provizu al vi trezorojn sur la tero, kie tineo kaj rusto kon-
 
@@ -692,19 +644,19 @@ tas sendifekta, via tuta korpo estos luma. 23 Sed se via okulo estas
 
 malbona, via tuta korpo estos malluma. Se do la lumo en vi estas
 
-mallumo, kiel densa estas la mallumo\! 24 Neniu povas esti sklavo
+mallumo, kiel densa estas la mallumo! 24 Neniu povas esti sklavo
 
 por du sinjoroj; ĉar aŭ li malamos unu kaj amos la alian, aŭ li aliĝos
 
 al unu kaj malestimos la alian. Vi ne povas servi al Dio kaj al Ma-
 
-mono\! 25 Tial mi diras al vi: Ne zorgu pri via vivo, kion vi manĝu, 
+mono! 25 Tial mi diras al vi: Ne zorgu pri via vivo, kion vi manĝu,
 
 aŭ kion vi trinku; nek pri via korpo, kion vi surmetu. ĉu la vivo ne
 
 estas pli ol nutraĵo, kaj la korpo pli ol vestaĵo? 26 Rigardu la birdojn
 
-de la ĉielo, ke ili ne semas, nek rikoltas, nek kolektas en grenejojn, 
+de la ĉielo, ke ili ne semas, nek rikoltas, nek kolektas en grenejojn,
 
 kaj via Patro ĉiela ilin nutras. ĉu vi ne multe pli valoras ol ili? 27 Kaj
 
@@ -728,15 +680,13 @@ via Patro ĉiela scias, ke vi bezonas ĉion tion. 33 Sed celu unue Lian
 
 regnon kaj Lian justecon, kaj ĉio tio estos aldonita al vi. 34 Tial ne
 
-13
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-zorgu pri la morgaŭa tago, ĉar la morgaŭa tago zorgos pri si mem. 
+zorgu pri la morgaŭa tago, ĉar la morgaŭa tago zorgos pri si mem.
 
-Sufiĉa por la tago estas ĝia propra malbono. 
+Sufiĉa por la tago estas ĝia propra malbono.
 
 ĉapitro 7
 
@@ -750,13 +700,13 @@ Lasu min eltiri la lignereton el via okulo; kaj jen la trabo en via pro-
 
 pra okulo? 5 Hipokritulo, eligu unue la trabon el via okulo, kaj tiam
 
-vi klare vidos, por eltiri la lignereton el la okulo de via frato. 
+vi klare vidos, por eltiri la lignereton el la okulo de via frato.
 
 6 Ne donu sanktaĵon al la hundoj, nek ĵetu viajn perlojn antaŭ la
 
 porkoj; por ke ili ne premu ilin sub la piedoj, nek poste, sin turn-
 
-inte, disŝiru vin. 
+inte, disŝiru vin.
 
 7 Petu, kaj estos donite al vi; serĉu, kaj vi trovos; frapu, kaj estos
 
@@ -770,11 +720,11 @@ serpenton? 11 Se do vi, estante malbonaj, scias doni bonajn dona-
 
 cojn al viaj filoj, kiom pli certe via Patro, kiu estas en la ĉielo, do-
 
-nos bonaĵojn al tiuj, kiuj petas de Li? 12 ĉion ajn do, kion vi deziras, 
+nos bonaĵojn al tiuj, kiuj petas de Li? 12 ĉion ajn do, kion vi deziras,
 
 ke la homoj faru al vi, vi ankaŭ faru al ili; ĉar ĉi tio estas la leĝo kaj
 
-la profetoj. 
+la profetoj.
 
 13 Eniru tra la mallarĝa pordo, ĉar larĝa estas la pordego kaj vasta
 
@@ -782,21 +732,19 @@ estas la vojo kondukanta al la pereo, kaj multaj tra ĝi eniras. 14 ĉar
 
 mallarĝa estas la pordo kaj malvastigita estas la vojo kondukanta al
 
-la vivo, kaj malmultaj ĝin trovas. 
+la vivo, kaj malmultaj ĝin trovas.
 
-15 Gardu vin kontraŭ la falsaj profetoj, kiuj venas al vi en ŝafaj
+15 Gardu vntraŭ la falsaj profetoj, kiuj venas al vi en ŝafaj
 
-feloj, sed interne estas rabemaj lupoj. 16 Per iliaj fruktoj vi konos ilin. 
+feloj, sed interne estas rabemaj lupoj. 16 Per iliaj fruktoj vi konos ilin.
 
 ĉu el dornarbetoj oni kolektas vinberojn, aŭ el kardoj figojn? 17 Tiel
 
 ĉiu bona arbo donas bonajn fruktojn, sed putra arbo donas malbo-
 
-14
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 najn fruktojn. 18 Bona arbo ne povas doni malbonajn fruktojn, nek
 
@@ -808,7 +756,7 @@ vi konos ilin. 21 Ne ĉiu, kiu diras al mi: Sinjoro, Sinjoro, eniros en la
 
 regnon de la ĉielo; sed tiu, kiu plenumas la volon de mia Patro, kiu
 
-estas en la ĉielo. 22 Multaj diros al mi en tiu tago: Sinjoro, Sinjoro, 
+estas en la ĉielo. 22 Multaj diros al mi en tiu tago: Sinjoro, Sinjoro,
 
 ĉu ni ne profetis en via nomo, kaj en via nomo elpelis demonojn, kaj
 
@@ -828,37 +776,35 @@ das ĉi tiujn miajn parolojn kaj ne plenumas ilin, estos komparata al
 
 viro malsaĝa, kiu konstruis sian domon sur la sablo; 27 kaj falis plu-
 
-vo, kaj venis inundoj, kaj blovis ventoj, kaj sin ĵetis sur tiun domon, 
+vo, kaj venis inundoj, kaj blovis ventoj, kaj sin ĵetis sur tiun domon,
 
-kaj ĝi falis; kaj granda estis ĝia falo. 
+kaj ĝi falis; kaj granda estis ĝia falo.
 
 28 Kaj kiam Jesuo finis tiujn parolojn, la homamasoj miregis pri
 
 lia instruado; 29 ĉar li instruis ilin, kiel havanta aŭtoritaton, kaj ne
 
-kiel iliaj skribistoj. 
+kiel iliaj skribistoj.
 
 ĉapitro 8
 
 1 Kaj kiam li malsupreniris de la monto, lin sekvis grandaj homama-
 
-soj. 2 Kaj jen venis al li leprulo kaj adorkliniĝis al li, dirante: Sinjoro, se vi volas, vi povas min purigi. 3 Kaj li etendis la manon kaj tuŝis lin, 
+soj. 2 Kaj jen venis al li leprulo kaj adorkliniĝis al li, dirante: Sinjoro, se vi volas, vi povas min purigi. 3 Kaj li etendis la manon kaj tuŝis lin,
 
 dirante: Mi volas; estu purigita. Kaj tuj lia lepro estis purigita. 4 Kaj
 
 Jesuo diris al li: Zorgu, ke vi diru al neniu. Sed iru, montru vin al la
 
-pastro, kaj oferu la donon, kiun Moseo ordonis, por atesto al ili. 
+pastro, kaj oferu la donon, kiun Moseo ordonis, por atesto al ili.
 
 5 Kaj kiam li eniris en Kapernaumon, venis al li centestro, petante
 
-15
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-lin, 6 kaj dirante: Sinjoro, mia knabo kuŝas paralizulo en la domo, 
+lin, 6 kaj dirante: Sinjoro, mia knabo kuŝas paralizulo en la domo,
 
 kaj terure suferas. 7 Kaj li diris al li: Mi venos, kaj sanigos lin. 8 Kaj
 
@@ -882,7 +828,7 @@ titaj en la eksteran mallumon; tie estos la plorado kaj la grincado de
 
 dentoj. 13 Kaj Jesuo diris al la centestro: Iru; kiel vi kredis, tiel estu
 
-farite al vi. Kaj lia knabo saniĝis en tiu sama horo. 
+farite al vi. Kaj lia knabo saniĝis en tiu sama horo.
 
 14 Kaj kiam Jesuo venis en la domon de Petro, li vidis lian bopa-
 
@@ -894,7 +840,7 @@ per vorto, kaj sanigis ĉiujn malsanulojn; 17 por ke plenumiĝu tio, kio
 
 estis dirita per la profeto Jesaja, nome: Li mem prenis niajn mal-
 
-fortaĵojn kaj portis niajn malsanojn. 
+fortaĵojn kaj portis niajn malsanojn.
 
 18 Kaj kiam Jesuo vidis ĉirkaŭ si grandan homamason, li ordonis
 
@@ -904,19 +850,17 @@ havas kavojn, kaj la birdoj de la ĉielo havas ripozejojn; sed la Filo
 
 de homo ne havas, kie kuŝigi sian kapon. 21 Kaj alia el la disĉiploj
 
-diris al li: Sinjoro, permesu al mi unue iri kaj enterigi mian patron. 
+diris al li: Sinjoro, permesu al mi unue iri kaj enterigi mian patron.
 
 22 Sed Jesuo diris al li: Sekvu min, kaj lasu la mortintojn enterigi
 
-siajn mortintojn. 
+siajn mortintojn.
 
 23 Kaj kiam li eniris en ŝipeton, liaj disĉiploj lin sekvis. 24 Kaj jen
 
-16
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 okazis granda malsereno sur la maro, tiel ke la ŝipeto estis kovrita
 
@@ -924,17 +868,17 @@ de la ondoj; sed li dormadis. 25 Kaj ili venis, kaj vekis lin, dirante:
 
 Sinjoro, savu; ni pereas. 26 Kaj li diris al ili: Kial vi estas timemaj, ho malgrandfiduloj? Tiam li leviĝis, kaj admonis la ventojn kaj la maron; kaj fariĝis granda sereno. 27 Kaj la homoj miregis, dirante: Kia
 
-estas ĉi tiu, ke eĉ la ventoj kaj la maro lin obeas? 
+estas ĉi tiu, ke eĉ la ventoj kaj la maro lin obeas?
 
-28 Kaj kiam li venis al la alia bordo, en la landon de la Gadaranoj, 
+28 Kaj kiam li venis al la alia bordo, en la landon de la Gadaranoj,
 
 lin renkontis du demonhavantoj, elvenante el inter la tomboj, tre
 
-furiozaj, tiel, ke neniu povis preterpasi per tiu vojo. 29 Kaj jen ili kriis, dirante: Kio estas inter ni kaj vi, ho Filo de Dio? ĉu vi venis ĉi tien, 
+furiozaj, tiel, ke neniu povis preterpasi per tiu vojo. 29 Kaj jen ili kriis, dirante: Kio estas inter ni kaj vi, ho Filo de Dio? ĉu vi venis ĉi tien,
 
 por turmenti nin antaŭ la tempo? 30 Kaj malproksime de ili estis
 
-granda grego da porkoj, paŝtiĝantaj tie. 31 Kaj la demonoj petegis lin, 
+granda grego da porkoj, paŝtiĝantaj tie. 31 Kaj la demonoj petegis lin,
 
 dirante: Se vi elpelos nin, forsendu nin en la gregon da porkoj. 32 Kaj
 
@@ -944,7 +888,7 @@ akvoj. 33 Kaj la paŝtistoj forkuris kaj iris en la urbon, kaj rakontis
 
 ĉion, kaj pri la demonhavintoj. 34 Kaj jen la tuta urbo elvenis ren-
 
-konte al Jesuo; kaj vidinte lin, ili petegis, ke li transiru el iliaj limoj. 
+konte al Jesuo; kaj vidinte lin, ili petegis, ke li transiru el iliaj limoj.
 
 ĉapitro 9
 
@@ -964,21 +908,19 @@ de homo havas aŭtoritaton sur la tero pardoni pekojn—tiam li di-
 
 ris al la paralizulo: Leviĝu, prenu vian liton, kaj iru al via domo. 7 Kaj
 
-17
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-li leviĝis, kaj iris al sia domo. 8 Kaj vidinte tion, la homamasoj timis, 
+li leviĝis, kaj iris al sia domo. 8 Kaj vidinte tion, la homamasoj timis,
 
-kaj gloris Dion, kiu donis tian aŭtoritaton al homoj. 
+kaj gloris Dion, kiu donis tian aŭtoritaton al homoj.
 
 9 Kaj Jesuo, forpasante de tie, vidis viron nomatan Mateo, sid-
 
 antan ĉe la impostejo; kaj li diris al li: Sekvu min. Kaj li stariĝis, kaj
 
-sekvis lin. 
+sekvis lin.
 
 10 Kaj dum li sidis ĉe manĝo en la domo, jen multaj impostistoj
 
@@ -990,9 +932,9 @@ kun impostistoj kaj pekuloj? 12 Kaj aŭdinte tion, li diris: Ne la sanu-
 
 loj bezonas kuraciston, sed la malsanuloj. 13 Sed iru, kaj lernu, kion
 
-signifas ĉi tio: Mi deziras bonfaradon, sed ne oferon; ĉar mi venis, 
+signifas ĉi tio: Mi deziras bonfaradon, sed ne oferon; ĉar mi venis,
 
-por alvoki ne justulojn, sed pekulojn. 
+por alvoki ne justulojn, sed pekulojn.
 
 14 Tiam alvenis al li la disĉiploj de Johano, dirante: Kial ni kaj la
 
@@ -1012,27 +954,25 @@ felsakojn; alie la felsakoj krevos, kaj la vino elfluos, kaj la felsakoj
 
 detruiĝos; sed oni enverŝas novan vinon en novajn felsakojn, kaj
 
-ambaŭ konserviĝas. 
+ambaŭ konserviĝas.
 
 18 Dum li tion parolis al ili, jen unu estro, alveninte, adorkliniĝis
 
 al li, dirante: Mia filino ĵus mortis; sed venu kaj metu vian manon
 
-sur ŝin, kaj ŝi vivos. 19 Kaj Jesuo leviĝis, kaj sekvis lin, kaj ankaŭ liaj disĉiploj. 20 Kaj jen virino, kiu jam dek du jarojn havis sangofluon, 
+sur ŝin, kaj ŝi vivos. 19 Kaj Jesuo leviĝis, kaj sekvis lin, kaj ankaŭ liaj disĉiploj. 20 Kaj jen virino, kiu jam dek du jarojn havis sangofluon,
 
 venis malantaŭ lin kaj tuŝis la randon de lia mantelo; 21 ĉar ŝi diris
 
-en si: Se mi nur tuŝos lian mantelon, mi estos sanigita. 22 Kaj Jesuo, 
+en si: Se mi nur tuŝos lian mantelon, mi estos sanigita. 22 Kaj Jesuo,
 
-sin turninte kaj vidinte ŝin, diris: Kuraĝu, filino; via fido vin savis. 
+sin turninte kaj vidinte ŝin, diris: Kuraĝu, filino; via fido vin savis.
 
 Kaj en tiu sama horo la virino resaniĝis. 23 Kaj Jesuo, veninte en la
 
-18
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 domon de la estro kaj vidinte la flutistojn kaj la homamason bru-
 
@@ -1042,37 +982,37 @@ ili mokridis lin. 25 Sed kiam la homamaso estis elpelita, li eniris, kaj
 
 prenis ŝian manon; kaj la knabineto leviĝis. 26 Kaj disiris tiu famo en
 
-tiun tutan regionon. 
+tiun tutan regionon.
 
 27 Kaj kiam Jesuo foriris de tie, du blinduloj sekvis lin, kriante kaj
 
 dirante: Kompatu nin, ho filo de David. 28 Kaj kiam li venis en la
 
-domon, la blinduloj alvenis al li, kaj Jesuo diris al ili: ĉu vi kredas, 
+domon, la blinduloj alvenis al li, kaj Jesuo diris al ili: ĉu vi kredas,
 
 ke mi povas fari ĉi tion? Ili diris al li: Jes, Sinjoro. 29 Tiam li tuŝis iliajn okulojn, dirante: Estu al vi laŭ via fido. 30 Kaj iliaj okuloj malfermiĝis. Kaj Jesuo severe ordonis al ili: Gardu vin, ke neniu tion
 
-sciu. 31 Sed elirinte, ili disvastigis lian famon en tiu tuta regiono. 
+sciu. 31 Sed elirinte, ili disvastigis lian famon en tiu tuta regiono.
 
-32 Kaj dum ili eliris, jen oni alportis al li mutan demonhavanton. 
+32 Kaj dum ili eliris, jen oni alportis al li mutan demonhavanton.
 
 33 Kaj kiam la demono estis elpelita, la mutulo parolis; kaj la homa-
 
 masoj miris, dirante: Neniam tia afero estas vidita en Izrael. 34 Sed
 
-la Fariseoj diris: Per la estro de la demonoj li elpelas demonojn. 
+la Fariseoj diris: Per la estro de la demonoj li elpelas demonojn.
 
 35 Kaj Jesuo trairis ĉiujn urbojn kaj vilaĝojn, instruante en iliaj
 
 sinagogoj, kaj predikante la evangelion de la regno, kaj sanigante
 
-ĉian malsanon kaj ĉian malfortaĵon. 36 Kaj vidante la homamasojn, 
+ĉian malsanon kaj ĉian malfortaĵon. 36 Kaj vidante la homamasojn,
 
 li estis kortuŝita pri ili, ĉar ili estis mizerigitaj kaj disigitaj, kiel ŝafoj ne havantaj paŝtiston. 37 Tiam li diris al siaj disĉiploj: La rikolto
 
 ja estas abunda, sed la laborantoj estas malmultaj. 38 Petu do la Sinj-
 
-oron de la rikolto, ke Li sendu laborantojn en Sian rikolton. 
+oron de la rikolto, ke Li sendu laborantojn en Sian rikolton.
 
 ĉapitro 10
 
@@ -1080,15 +1020,13 @@ oron de la rikolto, ke Li sendu laborantojn en Sian rikolton.
 
 super malpuraj spiritoj, por elpeli ilin, kaj por sanigi ĉian malsanon
 
-kaj ĉian malfortaĵon. 
+kaj ĉian malfortaĵon.
 
-2 Kaj la nomoj de la dek du apostoloj estas jenaj: la unua, Simon, 
+2 Kaj la nomoj de la dek du apostoloj estas jenaj: la unua, Simon,
 
-19
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiu estis nomata Petro, kaj lia frato Andreo, Jakobo, filo de Zebe-
 
@@ -1100,7 +1038,7 @@ rulo, kaj Judas Iskariota, kiu ankaŭ perfidis lin. 5 ĉi tiujn dek du Je-
 
 suo forsendis, kaj ordonis al ili, dirante:
 
-Ne iru vojon de nacianoj, kaj ne eniru en urbon de Samarianoj; 
+Ne iru vojon de nacianoj, kaj ne eniru en urbon de Samarianoj;
 
 6 sed iru prefere al la perditaj ŝafoj de la domo de Izrael. 7 Kaj dum
 
@@ -1110,7 +1048,7 @@ nulojn sanigu, mortintojn levu, leprulojn purigu, demonojn elpelu:
 
 donace vi ricevis, donace donu. 9 Ne provizu oron nek arĝenton nek
 
-kupron en viajn zonojn, 10 nek saketon por vojaĝo, nek du tunikojn, 
+kupron en viajn zonojn, 10 nek saketon por vojaĝo, nek du tunikojn,
 
 nek ŝuojn, nek bastonon; ĉar la laboranto meritas sian nutraĵon. 11
 
@@ -1120,21 +1058,19 @@ tas inda; kaj loĝu tie, ĝis vi foriros. 12 Kaj venante en la domon, sa-
 
 lutu ĝin. 13 Kaj se la domo estas inda, via paco venu sur ĝin; sed se
 
-ĝi ne estas inda, via paco revenu al vi. 14 Kaj se iu ne akceptos vin, 
+ĝi ne estas inda, via paco revenu al vi. 14 Kaj se iu ne akceptos vin,
 
-nek aŭskultos viajn vortojn, tiam forirante el tiu domo aŭ tiu urbo, 
+nek aŭskultos viajn vortojn, tiam forirante el tiu domo aŭ tiu urbo,
 
 deskuu la polvon de viaj piedoj. 15 Vere mi diras al vi: Pli elporteble
 
 estos por la lando de Sodom kaj Gomora en la tago de juĝado, ol
 
-por tiu urbo. 
+por tiu urbo.
 
 16 Jen mi forsendas vin kiel ŝafojn meze de lupoj; estu do pru-
 
-dentaj kiel serpentoj, kaj simplaj kiel kolomboj. 17 Sed gardu vin
-
-kontraŭ la homoj; ĉar ili transdonos vin al sinedrioj, kaj en siaj si-
+dentaj kiel serpentoj, kaj simplaj kiel kolomboj. 17 Sed gardu vntraŭ la homoj; ĉar ili transdonos vin al sinedrioj, kaj en siaj si-
 
 nagogoj ili vin skurĝos; 18 kaj antaŭ provincestrojn kaj reĝojn vi es-
 
@@ -1150,23 +1086,21 @@ to, kaj patro filon; kaj infanoj ribelos kontraŭ gepatroj kaj mortigos
 
 ilin. 22 Kaj vi estos malamataj de ĉiuj pro mia nomo; sed kiu persis-
 
-20
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tos ĝis la fino, tiu estos savita. 23 Kaj kiam oni vin persekutos en unu
 
 urbo, forkuru en alian; ĉar vere mi diras al vi: Vi ne trairos la urbojn
 
-de Izrael, antaŭ ol venos la Filo de homo. 
+de Izrael, antaŭ ol venos la Filo de homo.
 
 24 Disĉiplo ne estas super sia instruanto, nek sklavo super sia sinj-
 
 oro. 25 Sufiĉas por la disĉiplo, ke li estu kiel lia instruanto, kaj la sklavo, kiel lia sinjoro. Se oni nomis la dommastron Baal-Zebub, kiom pli
 
-ankaŭ liajn domanojn\! 26 Tial ne timu ilin, ĉar nenio estas kovrita, kio
+ankaŭ liajn domanojn! 26 Tial ne timu ilin, ĉar nenio estas kovrita, kio
 
 ne estos elmontrita, kaj nenio kaŝita, kio ne estos konigita. 27 Kion mi
 
@@ -1186,7 +1120,7 @@ antaŭ homoj, mi ankaŭ konfesos antaŭ mia Patro, kiu estas en la ĉie-
 
 lo. 33 Sed kiu malkonfesos min antaŭ homoj, tiun mi ankaŭ malkon-
 
-fesos antaŭ mia Patro, kiu estas en la ĉielo. 
+fesos antaŭ mia Patro, kiu estas en la ĉielo.
 
 34 Ne supozu, ke mi venis, por enkonduki pacon sur la teron; mi
 
@@ -1198,13 +1132,13 @@ non, kaj bofilinon kontraŭ ŝian bopatrinon; 36 kaj la domanoj de
 
 homo estos liaj malamikoj. 37 Kiu amas patron aŭ patrinon pli ol
 
-min, tiu ne estas inda je mi; kaj kiu amas filon aŭ filinon pli ol min, 
+min, tiu ne estas inda je mi; kaj kiu amas filon aŭ filinon pli ol min,
 
 tiu ne estas inda je mi. 38 Kaj kiu ne prenas sian krucon kaj sekvas
 
 post mi, tiu ne estas inda je mi. 39 Kiu trovas sian vivon, tiu ĝin per-
 
-dos; kaj kiu perdas sian vivon pro mi, tiu ĝin trovos. 
+dos; kaj kiu perdas sian vivon pro mi, tiu ĝin trovos.
 
 40 Kiu vin akceptas, tiu min akceptas; kaj kiu min akceptas, tiu
 
@@ -1212,11 +1146,9 @@ akceptas Tiun, kiu min sendis. 41 Kiu akceptas profeton en la nomo
 
 de profeto, tiu ricevos rekompencon de profeto; kaj kiu akceptas
 
-21
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 justulon en la nomo de justulo, tiu ricevos rekompencon de justu-
 
@@ -1224,21 +1156,21 @@ lo. 42 Kaj kiu trinkigos nur tason da malvarma akvo al unu el ĉi tiuj
 
 malgranduloj en la nomo de disĉiplo, vere mi diras al vi, tiu neniel
 
-perdos sian rekompencon. 
+perdos sian rekompencon.
 
 ĉapitro 11
 
 1 Kaj kiam Jesuo finis siajn ordonojn al siaj dek du disĉiploj, li for-
 
-iris de tie, por instrui kaj prediki en iliaj urboj. 
+iris de tie, por instrui kaj prediki en iliaj urboj.
 
-2 Kaj kiam Johano aŭdis en la malliberejo pri la faroj de Kristo, 
+2 Kaj kiam Johano aŭdis en la malliberejo pri la faroj de Kristo,
 
 li sendis per siaj disĉiploj, 3 por diri al li: ĉu vi estas la venonto, aŭ
 
 ĉu ni atendu alian? 4 Kaj Jesuo responde diris al ili: Iru kaj sciigu al
 
-Johano tion, kion vi aŭdas kaj vidas: 5 blinduloj ricevas vidpovon, 
+Johano tion, kion vi aŭdas kaj vidas: 5 blinduloj ricevas vidpovon,
 
 kaj lamuloj marŝas, lepruloj estas purigitaj, kaj surduloj aŭdas, kaj
 
@@ -1258,9 +1190,9 @@ profeton? Jes, mi diras al vi, kaj multe pli ol profeton. 10 ĉar li estas
 
 tiu, pri kiu estas skribite:
 
-Jen Mi sendos Mian anĝelon antaŭ via vizaĝo, 
+Jen Mi sendos Mian anĝelon antaŭ via vizaĝo,
 
-Kaj li preparos antaŭ vi vian vojon. 
+Kaj li preparos antaŭ vi vian vojon.
 
 11 Vere mi diras al vi: Inter naskitoj de virinoj ne aperis iu pli
 
@@ -1274,15 +1206,13 @@ ta, kaj perfortuloj kaptas ĝin. 13 ĉar ĉiuj profetoj kaj la leĝo profe-
 
 tis ĝis Johano. 14 Kaj se vi volas tion ricevi, tiu estas Elija, kiu estis
 
-22
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 venonta. 15 Kiu havas orelon por aŭdi, tiu aŭdu. 16 Sed al kio mi
 
-komparu ĉi tiun generacion? ¯i similas al infanoj, kiuj sidas sur la
+komparu ĉi tiun generacion? i similas al infanoj, kiuj sidas sur la
 
 placoj, kaj vokas al la ceteraj, 17 dirante: Ni flutis al vi, kaj vi ne dancis; ni lamentis, kaj vi ne ploris. 18 ĉar venis Johano, nek manĝante
 
@@ -1290,29 +1220,29 @@ nek trinkante, kaj ili diras: Li havas demonon. 19 La Filo de homo
 
 venis, manĝante kaj trinkante, kaj ili diras: Jen manĝegulo kaj vin-
 
-drinkulo, amiko de impostistoj kaj pekuloj\! Kaj la saĝeco estas pra-
+drinkulo, amiko de impostistoj kaj pekuloj! Kaj la saĝeco estas pra-
 
-vigita de siaj faroj. 
+vigita de siaj faroj.
 
 20 Tiam li komenci riproĉi la urbojn, en kiuj estis faritaj la plej
 
-multaj el liaj potencaj faroj; ĉar ili ne pentis. 21 Ve al vi, ˘orazin\! Ve
+multaj el liaj potencaj faroj; ĉar ili ne pentis. 21 Ve al vi, ˘orazin! Ve
 
-al vi, Betsaida\! ĉar se en Tiro kaj Cidon estus faritaj tiuj potencaĵoj, 
+al vi, Betsaida! ĉar se en Tiro kaj Cidon estus faritaj tiuj potencaĵoj,
 
 kiuj estas faritaj en vi, antaŭ longe ili jam pentus en sakaĵo kaj cind-
 
 ro. 22 Tamen mi diras al vi: Estos pli elporteble por Tiro kaj Cidon
 
-en la tago de juĝado, ol por vi. 23 Kaj vi, Kapernaum\! ĉu vi estos al-
+en la tago de juĝado, ol por vi. 23 Kaj vi, Kapernaum! ĉu vi estos al-
 
 tigita ĝis la ĉielo? vi malsupreniĝos ĝis Hades; ĉar se en Sodom es-
 
-tus faritaj tiuj potencaĵoj, kiuj estas faritaj en vi, ĝi restus ĝis hodiaŭ. 
+tus faritaj tiuj potencaĵoj, kiuj estas faritaj en vi, ĝi restus ĝis hodiaŭ.
 
 24 Tamen mi diras al vi: Estos pli elporteble por la lando de Sodom
 
-en la tago de juĝado, ol por vi. 
+en la tago de juĝado, ol por vi.
 
 25 En tiu tempo Jesuo ekparolis kaj diris: Mi Vin gloras, ho Pa-
 
@@ -1332,13 +1262,11 @@ gon, kaj lernu ĉe mi, ĉar mi estas milda kaj korhumila; kaj vi trovos
 
 ripozon por viaj animoj. 30 ĉar mia jugo estas facila, kaj mia ŝarĝo
 
-estas malpeza. 
+estas malpeza.
 
-23
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 12
 
@@ -1362,19 +1290,19 @@ baton kaj estas senkulpaj? 6 Sed mi diras al vi, ke alestas ĉi tie io pli
 
 granda ol la templo. 7 Sed se vi komprenus, kion signifas ĉi tio: Mi
 
-deziras bonfaradon, sed ne oferon; vi ne kondamnus la senkulpajn. 
+deziras bonfaradon, sed ne oferon; vi ne kondamnus la senkulpajn.
 
-8 ĉar la Filo de homo estas sinjoro de la sabato. 
+8 ĉar la Filo de homo estas sinjoro de la sabato.
 
-9 Kaj li foriris de tie, kaj eniris en ilian sinagogon; 10 kaj jen viro, 
+9 Kaj li foriris de tie, kaj eniris en ilian sinagogon; 10 kaj jen viro,
 
 havanta manon velkintan. Kaj oni demandis al li, dirante: ĉu estas
 
 permesate sanigi en sabato? por ke ili povu lin akuzi. 11 Kaj li diris
 
-al ili: Kiu el vi, havanta unu ŝafon, se ĝi falos en fosaĵon en sabato, 
+al ili: Kiu el vi, havanta unu ŝafon, se ĝi falos en fosaĵon en sabato,
 
-ne ekprenos kaj levos ĝin? 12 Kiom do viro superas ŝafon\! Tial estas
+ne ekprenos kaj levos ĝin? 12 Kiom do viro superas ŝafon! Tial estas
 
 permesate bonfari en sabato. 13 Tiam li diris al la viro: Etendu vian
 
@@ -1388,33 +1316,31 @@ gis ilin ĉiujn, 16 kaj admonis ilin, ke ili ne konatigu lin; 17 por ke ple-
 
 numiĝu tio, kio estis dirita per la profeto Jesaja, nome:
 
-18 Jen estas Mia servanto, kiun Mi elektis, 
+18 Jen estas Mia servanto, kiun Mi elektis,
 
-Mia amata, en kiu Mia animo havas plezuron. 
+Mia amata, en kiu Mia animo havas plezuron.
 
-Mi metos Mian Spiriton sur lin; 
+Mi metos Mian Spiriton sur lin;
 
 Kaj li proklamos justecon al la nacioj. 19 Li ne disputados, nek
 
-laŭte krios; 
+laŭte krios;
 
-24
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Kaj oni ne aŭdos sur la stratoj lian voĉon. 20 Kanon rompetitan
 
-li ne rompos, 
+li ne rompos,
 
-Kaj meĉon senfajriĝantan li ne estingos, 
+Kaj meĉon senfajriĝantan li ne estingos,
 
-¯is li elsendos juĝon por venko. 21 Kaj al lia nomo esperos la na-
+is li elsendos juĝon por venko. 21 Kaj al lia nomo esperos la na-
 
-cioj. 
+cioj.
 
-22 Tiam oni kondukis al li demonhavanton, blindan kaj mutan; 
+22 Tiam oni kondukis al li demonhavanton, blindan kaj mutan;
 
 kaj li sanigis lin, tiel ke la mutulo parolis kaj vidis. 23 Kaj miris ĉiuj
 
@@ -1432,7 +1358,7 @@ tas dividita kontraŭ si; kiel do staros lia regno? 27 Kaj se mi per Baal-
 
 Zebub elpelas demonojn, per kiu viaj filoj elpelas ilin? tial ili estos
 
-viaj juĝantoj. 28 Sed se mi per la Spirito de Dio elpelas demonojn, 
+viaj juĝantoj. 28 Sed se mi per la Spirito de Dio elpelas demonojn,
 
 tiam la regno de Dio estas veninta sur vin. 29 Kaj kiel oni povas eniri
 
@@ -1454,7 +1380,7 @@ pardonita en ĉi tiu mondo, nek en la venonta. 33 Aŭ faru la arbon
 
 bona kaj ĝian frukton bona, aŭ faru la arbon malbona kaj ĝian fruk-
 
-ton malbona; ĉar la arbo estas konata per la frukto. 34 Ho vipuridoj\! 
+ton malbona; ĉar la arbo estas konata per la frukto. 34 Ho vipuridoj!
 
 kiel vi povas paroli bonaĵojn, estante malbonaj? ĉar el la abundo de
 
@@ -1464,15 +1390,13 @@ tas bonaĵojn; kaj la malbona homo el sia malbona trezoro elmetas
 
 malbonaĵojn. 36 Kaj mi diras al vi, ke pro ĉiu senutila vorto, kiun
 
-25
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 homoj parolos, ili donos respondon en la tago de juĝado. 37 ĉar laŭ
 
-viaj vortoj vi estos pravigitaj, kaj laŭ viaj vortoj vi estos kondamnitaj. 
+viaj vortoj vi estos pravigitaj, kaj laŭ viaj vortoj vi estos kondamnitaj.
 
 38 Tiam iuj el la skribistoj kaj Fariseoj respondis al li, dirante:
 
@@ -1484,7 +1408,7 @@ estos donita al ĝi krom la signo de la profeto Jona; 40 ĉar kiel Jona
 
 estis tri tagojn kaj tri noktojn en la ventro de la marmonstro, tiel la
 
-Filo de homo estos tri tagojn kaj tri noktojn en la koro de la tero. 
+Filo de homo estos tri tagojn kaj tri noktojn en la koro de la tero.
 
 41 Viroj Nineveanoj staros en la juĝado kun ĉi tiu generacio, kaj
 
@@ -1498,37 +1422,35 @@ de la tero, por aŭskulti la saĝon de Salomono; kaj jen iu pli granda
 
 ol Salomono estas ĉi tie. 43 Sed kiam la malpura spirito eliras el ho-
 
-mo, ĝi trairas tra senakvaj lokoj, serĉante ripozon, sed ne trovas ĝin. 
+mo, ĝi trairas tra senakvaj lokoj, serĉante ripozon, sed ne trovas ĝin.
 
-44 Tiam ĝi diras: Mi reiros al mia domo, el kie mi eliris. Kaj alveninte, 
+44 Tiam ĝi diras: Mi reiros al mia domo, el kie mi eliris. Kaj alveninte,
 
 ĝi trovas ĝin vakanta, balaita, kaj ornamita. 45 Tiam ĝi iras, kaj kun-
 
 prenas al si sep aliajn spiritojn pli malbonajn ol ĝi mem, kaj ili eni-
 
-ras kaj loĝas tie; kaj la fina stato de tiu homo fariĝas pli malbona, 
+ras kaj loĝas tie; kaj la fina stato de tiu homo fariĝas pli malbona,
 
-ol la unua. Tiel estos ankaŭ al ĉi tiu malbona generacio. 
+ol la unua. Tiel estos ankaŭ al ĉi tiu malbona generacio.
 
 46 Dum li ankoraŭ parolis al la homamasoj, jen lia patrino kaj liaj
 
 fratoj staris ekstere, dezirantaj paroli kun li. 47 Kaj iu diris al li: Jen via patrino kaj viaj fratoj staras ekstere, dezirantaj paroli kun vi. 48
 
-Sed li responde diris al tiu, kiu parolis al li: Kiu estas mia patrino? 
+Sed li responde diris al tiu, kiu parolis al li: Kiu estas mia patrino?
 
-kaj kiuj estas miaj fratoj? 49 Kaj etendinte la manon al siaj disĉiploj, 
+kaj kiuj estas miaj fratoj? 49 Kaj etendinte la manon al siaj disĉiploj,
 
-li diris: Jen mia patrino kaj miaj fratoj\! 50 ĉar kiu ajn faros la volon
+li diris: Jen mia patrino kaj miaj fratoj! 50 ĉar kiu ajn faros la volon
 
 de mia Patro, kiu estas en la ĉielo, tiu estas mia frato kaj mia frati-
 
-no kaj mia patrino. 
+no kaj mia patrino.
 
-26
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 13
 
@@ -1550,9 +1472,9 @@ tero; 6 kaj kiam la suno leviĝis, ili brulsekiĝis, kaj ĉar ili ne havis radik
 
 kis kaj sufokis ilin; 8 kaj aliaj falis sur la bonan teron, kaj donis fruk-
 
-ton, jen centoble, jen sesdekoble, jen tridekoble. 9 Kiu havas orelojn, 
+ton, jen centoble, jen sesdekoble, jen tridekoble. 9 Kiu havas orelojn,
 
-tiu aŭdu. 
+tiu aŭdu.
 
 10 Kaj la disĉiploj venis, kaj diris al li: Kial vi parolas al ili per pa-
 
@@ -1570,37 +1492,35 @@ ne aŭdas nek komprenas. 14 Kaj por ili plenumiĝis tiu profetaĵo de
 
 Jesaja, kiu diras:
 
-Aŭdante, vi aŭdos, sed ne komprenos; 
+Aŭdante, vi aŭdos, sed ne komprenos;
 
-Kaj vidante, vi vidos, sed ne rimarkos; 
+Kaj vidante, vi vidos, sed ne rimarkos;
 
-15 ĉar la koro de tiu popolo grasiĝis, 
+15 ĉar la koro de tiu popolo grasiĝis,
 
-Kaj iliaj oreloj aŭdas malklare, 
+Kaj iliaj oreloj aŭdas malklare,
 
-Kaj siajn okulojn ili fermis; 
+Kaj siajn okulojn ili fermis;
 
-Por ke ili ne vidu per siaj okuloj, 
+Por ke ili ne vidu per siaj okuloj,
 
-Kaj ne aŭdu per siaj oreloj, 
+Kaj ne aŭdu per siaj oreloj,
 
-Kaj ne komprenu per sia koro, 
+Kaj ne komprenu per sia koro,
 
-Kaj ne rekonvertiĝu, 
+Kaj ne rekonvertiĝu,
 
-27
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Kaj ke Mi ne sanigu ilin. 
+Kaj ke Mi ne sanigu ilin.
 
 16 Sed feliĉaj estas viaj okuloj, ĉar ili vidas; kaj viaj oreloj, ĉar ili
 
 aŭdas. 17 Vere mi diras al vi, ke multaj profetoj kaj justuloj deziris
 
-vidi tion, kion vi vidas, sed ili ne vidis; kaj aŭdi tion, kion vi aŭdas, 
+vidi tion, kion vi vidas, sed ili ne vidis; kaj aŭdi tion, kion vi aŭdas,
 
 sed ili ne aŭdis. 18 Vi do aŭdu la parabolon de la semisto. 19 Kiam iu
 
@@ -1614,17 +1534,17 @@ sur la ŝtonaj lokoj, estas tiu, kiu aŭdas la vorton kaj tuj kun ĝojo ak-
 
 ceptas ĝin; 21 sed li ne havas radikon en si, sed restas nur portem-
 
-pe, kaj kiam venas sufero aŭ persekuto pro la vorto, tuj li falpuŝiĝas. 
+pe, kaj kiam venas sufero aŭ persekuto pro la vorto, tuj li falpuŝiĝas.
 
 22 Kaj kiu ricevis semon inter la dornoj, estas tiu, kiu aŭdas la vor-
 
 ton; sed la zorgoj de la mondo kaj la trompo de riĉo sufokas la vor-
 
-ton, kaj li fariĝas senfrukta. 23 Kaj kiu ricevis semon sur la bona tero, 
+ton, kaj li fariĝas senfrukta. 23 Kaj kiu ricevis semon sur la bona tero,
 
 estas tiu, kiu aŭdas la vorton kaj komprenas ĝin; kaj tiu ja portas
 
-frukton, kaj donas, jen centoble, jen sesdekoble, jen tridekoble. 
+frukton, kaj donas, jen centoble, jen sesdekoble, jen tridekoble.
 
 24 Alian parabolon li proponis al ili, dirante: La regno de la ĉie-
 
@@ -1632,7 +1552,7 @@ lo similas al homo, kiu semis bonan semon en sia kampo; 25 sed
 
 dum homoj dormis, lia malamiko venis kaj semis lolon meze de la
 
-tritiko, kaj foriris. 26 Kaj kiam la trunketo kreskis kaj donis frukton, 
+tritiko, kaj foriris. 26 Kaj kiam la trunketo kreskis kaj donis frukton,
 
 tiam aperis ankaŭ la lolo. 27 Kaj la sklavoj de la dommastro venis, kaj
 
@@ -1648,29 +1568,27 @@ tikon. 30 Lasu al ambaŭ kreski kune ĝis la rikolto; kaj en la tempo de
 
 la rikolto mi diros al la rikoltistoj: Kolektu unue la lolon, kaj ligu ĝin
 
-en faskojn, por bruligi ĝin; sed kolektu la tritikon en mian grenejon. 
+en faskojn, por bruligi ĝin; sed kolektu la tritikon en mian grenejon.
 
 31 Alian parabolon li proponis al ili, dirante: La regno de la ĉie-
 
 lo similas al sinapa semeto, kiun viro prenis kaj semis en sia kam-
 
-28
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 po; 32 ĝi vere estas pli malgranda ol ĉiuj semoj, sed kreskinte, ĝi
 
 estas pli granda ol la legomoj, kaj fariĝas arbo, tiel ke venas la bir-
 
-doj de la ĉielo kaj loĝas en ĝiaj branĉoj. 
+doj de la ĉielo kaj loĝas en ĝiaj branĉoj.
 
 33 Alian parabolon li parolis al ili: La regno de la ĉielo similas al
 
-fermentaĵo, kiun virino prenis kaj kaŝis en tri mezurojn da faruno, 
+fermentaĵo, kiun virino prenis kaj kaŝis en tri mezurojn da faruno,
 
-ĝis la tuto fermentis. 
+ĝis la tuto fermentis.
 
 34 ĉion tion parolis Jesuo per paraboloj al la homamasoj, kaj sen
 
@@ -1678,15 +1596,15 @@ parabolo li parolis nenion al ili; 35 por ke plenumiĝu tio, kio estis
 
 dirita per la profeto, nome:
 
-Mi malfermos per sentenco mian buŝon; 
+Mi malfermos per sentenco mian buŝon;
 
-Mi eldiros enigmojn el tempo antikva. 
+Mi eldiros enigmojn el tempo antikva.
 
 36 Tiam forsendinte la homamasojn, li venis en la domon; kaj liaj
 
 disĉiploj venis al li, dirante: Klarigu al ni la parabolon pri la lolo de
 
-la kampo. 37 Kaj responde li diris: Tiu, kiu semas la bonan semon, 
+la kampo. 37 Kaj responde li diris: Tiu, kiu semas la bonan semon,
 
 estas la Filo de homo; 38 kaj la kampo estas la mondo; kaj la bonaj
 
@@ -1706,25 +1624,23 @@ con, 42 kaj ĵetos ilin en la fornon de fajro; tie estos la plorado kaj la
 
 grincado de dentoj. 43 Tiam la justuloj brilos kiel la suno en la reg-
 
-no de sia Patro. Kiu havas orelojn, tiu aŭdu. 
+no de sia Patro. Kiu havas orelojn, tiu aŭdu.
 
 44 La regno de la ĉielo similas al kaŝita en kampo trezoro, kiun
 
 viro trovis kaj kaŝis, kaj pro ĝojo li iras kaj vendas ĉion, kion li po-
 
-sedas, kaj aĉetas tiun kampon. 
+sedas, kaj aĉetas tiun kampon.
 
 45 Cetere, la regno de la ĉielo similas al komercisto, serĉanta be-
 
 lajn perlojn; 46 kaj trovinte unu multevaloran perlon, li iris kaj ven-
 
-dis ĉion, kion li posedis, kaj aĉetis ĝin. 
+dis ĉion, kion li posedis, kaj aĉetis ĝin.
 
-29
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 47 Plue, la regno de la ĉielo similas al reto, kiu estis ĵetita en la
 
@@ -1738,31 +1654,31 @@ la mondaĝo: la anĝeloj eliros, kaj apartigos la malbonulojn el inter
 
 la justuloj, 50 kaj ĵetos ilin en la fornon de fajro; tie estos la plora-
 
-do kaj la grincado de dentoj. 
+do kaj la grincado de dentoj.
 
 51 ĉu vi komprenis ĉion tion? Ili diris al li: Jes. 52 Kaj li diris al ili: Tial ĉiu skribisto, disĉipligita en la regnon de la ĉielo, similas al
 
 dommastro, kiu elportas el sia trezorejo objektojn novajn kaj mal-
 
-novajn. 
+novajn.
 
 53 Kaj kiam Jesuo finis tiujn parabolojn, li foriris de tie. 54 Kaj ven-
 
 inte en sian patrujon, li instruis ilin en ilia sinagogo, tiel ke ili mi-
 
-ris, kaj diris: De kie ĉi tiu viro havas tian saĝecon kaj la potencaĵojn? 
+ris, kaj diris: De kie ĉi tiu viro havas tian saĝecon kaj la potencaĵojn?
 
 55 ĉu ĉi tiu ne estas la filo de la ĉarpentisto? ĉu lia patrino ne estas
 
-nomata Maria? kaj liaj fratoj Jakobo kaj Joses kaj Simon kaj Judas? 
+nomata Maria? kaj liaj fratoj Jakobo kaj Joses kaj Simon kaj Judas?
 
-56 Kaj ĉu liaj fratinoj ne estas ĉiuj ĉe ni? De kie do li ĉion tion havas? 
+56 Kaj ĉu liaj fratinoj ne estas ĉiuj ĉe ni? De kie do li ĉion tion havas?
 
 57 Kaj ili ofendiĝis pro li. Sed Jesuo diris al ili: Profeto ne estas sen
 
 honoro, krom en sia patrujo kaj en sia domo. 58 Kaj pro ilia nekrede-
 
-mo li faris tie ne multajn potencaĵojn. 
+mo li faris tie ne multajn potencaĵojn.
 
 ĉapitro 14
 
@@ -1776,19 +1692,17 @@ arestis Johanon kaj ligis lin kaj metis lin en malliberejon pro Hero-
 
 dias, kiu estis edzino de lia frato Filipo. 4 ĉar Johano diris al li: Ne
 
-decas, ke vi havu ŝin. 5 Kaj dezirante mortigi lin, li timis la popolon, 
+decas, ke vi havu ŝin. 5 Kaj dezirante mortigi lin, li timis la popolon,
 
 ĉar oni opiniis lin profeto. 6 Sed kiam venis la naskotaga festo de
 
-30
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Herodo, la filino de Herodias dancis en la mezo, kaj plaĉis al Hero-
 
-do. 7 Tiam li ĵure promesis doni al ŝi ion ajn, kion ŝi petos. 8 Kaj ŝi, 
+do. 7 Tiam li ĵure promesis doni al ŝi ion ajn, kion ŝi petos. 8 Kaj ŝi,
 
 instigite de sia patrino, diris: Donu al mi ĉi tie sur plado la kapon
 
@@ -1798,11 +1712,11 @@ pro la kunmanĝantoj li ordonis doni ĝin; 10 kaj sendinte, li senka-
 
 pigis Johanon en la malliberejo. 11 Kaj oni alportis lian kapon sur
 
-plado, kaj donis ĝin al la knabino, kaj ŝi alportis ĝin al sia patrino. 
+plado, kaj donis ĝin al la knabino, kaj ŝi alportis ĝin al sia patrino.
 
 12 Kaj liaj disĉiploj venis kaj forportis la korpon kaj enterigis ĝin, kaj
 
-ili iris kaj rakontis tion al Jesuo. 
+ili iris kaj rakontis tion al Jesuo.
 
 13 Kaj Jesuo, aŭdinte, foriris de tie en ŝipeto al dezerta loko apar-
 
@@ -1824,13 +1738,13 @@ kaj du fiŝoj. 18 Kaj li diris: Alportu ilin ĉi tien al mi. 19 Kaj li ordonis a
 
 la du fiŝojn, kaj suprenrigardinte al la ĉielo, li benis kaj dispecigis
 
-la panojn, kaj donis al la disĉiploj, kaj la disĉiploj al la homamasoj. 
+la panojn, kaj donis al la disĉiploj, kaj la disĉiploj al la homamasoj.
 
 20 Kaj ĉiuj manĝis kaj satiĝis; kaj oni kolektis da postrestintaj frag-
 
 mentoj dek du plenajn korbojn. 21 Kaj la manĝantoj estis ĉirkaŭ kvin
 
-mil viroj, krom virinoj kaj infanoj. 
+mil viroj, krom virinoj kaj infanoj.
 
 22 Kaj tuj li devigis la disĉiplojn eniri en la ŝipeton kaj iri antaŭ
 
@@ -1844,11 +1758,9 @@ maro, turmentata de la ondoj; ĉar la vento estis kontraŭa. 25 Kaj en
 
 la kvara gardoparto de la nokto li venis al ili, irante sur la maro. 26
 
-31
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Sed la disĉiploj, vidante lin iranta sur la maro, maltrankviliĝis, dir-
 
@@ -1858,25 +1770,25 @@ ili, dirante: Kuraĝu; ĝi estas mi; ne timu. 28 Kaj responde al li Petro
 
 diris: Sinjoro, se ĝi estas vi, ordonu min veni al vi sur la akvo. 29 Kaj
 
-li diris: Venu. Kaj Petro, malsuprenirinte el la ŝipeto, iris sur la akvo, 
+li diris: Venu. Kaj Petro, malsuprenirinte el la ŝipeto, iris sur la akvo,
 
 por veni al Jesuo. 30 Sed vidante la venton, li timis, kaj komencan-
 
 te subakviĝi, li ekkriis, dirante: Sinjoro, savu min. 31 Kaj tuj Jesuo
 
-etendis la manon kaj ektenis lin, dirante al li: Ho malgrandfidulo, 
+etendis la manon kaj ektenis lin, dirante al li: Ho malgrandfidulo,
 
-kial vi dubis? 32 Kaj kiam ili supreniris en la ŝipeton, la vento ĉesiĝis. 
+kial vi dubis? 32 Kaj kiam ili supreniris en la ŝipeton, la vento ĉesiĝis.
 
 33 Kaj tiuj, kiuj estis en la ŝipeto, adorkliniĝis al li, dirante: Vere vi
 
-estas Filo de Dio. 
+estas Filo de Dio.
 
 34 Kaj transirinte, ili alvenis teren ĉe Genesaret. 35 Kaj kiam la vi-
 
 roj de tiu loko ekkonis lin, ili sendis en la tutan ĉirkaŭaĵon, kaj ve-
 
-nigis al li ĉiujn malsanulojn; 36 kaj ili petis lin, ke ili nur tuŝu la randon de lia mantelo; kaj ĉiuj, kiuj tuŝis, estis tute resanigitaj. 
+nigis al li ĉiujn malsanulojn; 36 kaj ili petis lin, ke ili nur tuŝu la randon de lia mantelo; kaj ĉiuj, kiuj tuŝis, estis tute resanigitaj.
 
 ĉapitro 15
 
@@ -1900,17 +1812,15 @@ trinon. Kaj vi vantigis la vorton de Dio per via tradicio. 7 Ho hipo-
 
 krituloj, bone profetis Jesaja pri vi, dirante:
 
-8 ĉi tiu popolo honoras Min per siaj lipoj, 
+8 ĉi tiu popolo honoras Min per siaj lipoj,
 
-Sed ilia koro estas malproksime de Mi. 9 Sed vane ili Min adoras, 
+Sed ilia koro estas malproksime de Mi. 9 Sed vane ili Min adoras,
 
-32
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Instruante kiel doktrinojn ordonojn de homoj. 
+Instruante kiel doktrinojn ordonojn de homoj.
 
 10 Kaj alvokinte al si la homamason, li diris al ili: Aŭskultu kaj
 
@@ -1928,7 +1838,7 @@ kantoj de blinduloj. Kaj se blindulo kondukas blindulon, ambaŭ fa-
 
 los en fosaĵon. 15 Kaj Petro responde diris al li: Klarigu al ni tiun pa-
 
-rabolon. 16 Kaj li diris: ĉu vi ankaŭ estas eĉ ankoraŭ sen kompreno? 
+rabolon. 16 Kaj li diris: ĉu vi ankaŭ estas eĉ ankoraŭ sen kompreno?
 
 17 ĉu vi ne konscias, ke ĉio, eniranta en la buŝon, pasas en la vent-
 
@@ -1940,7 +1850,7 @@ ras malvirtaj pensoj, mortigoj, adultoj, malĉastaĵoj, ŝteloj, falsate-
 
 stoj, blasfemoj: 20 jen tio, kio profanas la homon, sed manĝi kun
 
-manoj nelavitaj ne profanas la homon. 
+manoj nelavitaj ne profanas la homon.
 
 21 Kaj elirinte de tie, Jesuo foriris en la regionojn apud Tiro kaj
 
@@ -1948,7 +1858,7 @@ Cidon. 22 Kaj jen virino Kanaana, veninte el tiuj limlandoj, kriis, dir-
 
 ante: Ho Sinjoro, filo de David, kompatu min; mia filino estas terure
 
-turmentata de demono. 23 Sed li ne respondis al ŝi eĉ unu vorton. 
+turmentata de demono. 23 Sed li ne respondis al ŝi eĉ unu vorton.
 
 Kaj alveninte, liaj disĉiploj petis lin, dirante: Forsendu ŝin, ĉar ŝi
 
@@ -1960,19 +1870,17 @@ li, dirante: Sinjoro, helpu min. 26 Sed li responde diris: Ne decas pre-
 
 ni la panon de la infanoj kaj ĵeti ĝin al la hundetoj. 27 Sed ŝi diris: Jes, Sinjoro; ĉar eĉ la hundetoj manĝas el la panpecetoj, kiuj falas de la
 
-tablo de iliaj sinjoroj. 28 Tiam responde Jesuo diris al ŝi: Ho virino, 
+tablo de iliaj sinjoroj. 28 Tiam responde Jesuo diris al ŝi: Ho virino,
 
 granda estas via fido; estu al vi, kiel vi volas. Kaj ŝia filino estis sa-
 
-nigita de post tiu horo. 
+nigita de post tiu horo.
 
 29 Kaj transirinte de tie, Jesuo venis apud la maron de Galileo; kaj
 
-33
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 suprenirinte sur la monton, li sidiĝis tie. 30 Kaj alvenis al li grandaj
 
@@ -1980,11 +1888,11 @@ homamasoj, havante kun si homojn lamajn, blindajn, mutajn, kri-
 
 plajn, kun multaj aliaj, kaj metis ilin apud liajn piedojn; kaj li sani-
 
-gis ilin; 31 tiel ke la homamaso miris, vidante mutulojn parolantaj, 
+gis ilin; 31 tiel ke la homamaso miris, vidante mutulojn parolantaj,
 
-kriplulojn sanaj, kaj lamulojn piedirantaj, kaj blindulojn vidantaj; 
+kriplulojn sanaj, kaj lamulojn piedirantaj, kaj blindulojn vidantaj;
 
-kaj ili gloris la Dion de Izrael. 
+kaj ili gloris la Dion de Izrael.
 
 32 Kaj Jesuo, alvokinte al si siajn disĉiplojn, diris: Mi kortuŝiĝas
 
@@ -2006,15 +1914,15 @@ gis ilin, kaj donis al la disĉiploj, kaj la disĉiploj al la homamasoj. 37
 
 Kaj ĉiuj manĝis kaj satiĝis; kaj oni kolektis da postrestintaj fragmen-
 
-toj sep korbegojn plenajn. 38 Kaj la manĝantoj estis kvar mil viroj, 
+toj sep korbegojn plenajn. 38 Kaj la manĝantoj estis kvar mil viroj,
 
 krom virinoj kaj infanoj. 39 Kaj forsendinte la homamasojn, li eni-
 
-ris en la ŝipeton, kaj venis en la regionojn de Magadan. 
+ris en la ŝipeton, kaj venis en la regionojn de Magadan.
 
 ĉapitro 16
 
-1 Kaj alvenis la Fariseoj kaj la Sadukeoj, kaj por provi lin postulis, 
+1 Kaj alvenis la Fariseoj kaj la Sadukeoj, kaj por provi lin postulis,
 
 ke li montru al ili signon el la ĉielo. 2 Kaj responde li diris al ili: Kiam vesperiĝas, vi diras: Estos bona vetero, ĉar la ĉielo ruĝiĝas; 3 kaj frumatene: Estos hodiaŭ malbona vetero, ĉar la ĉielo ruĝiĝas kolere. La
 
@@ -2024,17 +1932,15 @@ povas. 4 Generacio malbona kaj adultema serĉas signon; kaj signo
 
 ne estos donita al ĝi, krom la signo de Jona. Kaj lasinte ilin, li for-
 
-iris. 
+iris.
 
-34
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 5 Kaj la disĉiploj, transirinte al la alia bordo, forgesis preni pa-
 
-nojn. 6 Sed Jesuo diris al ili: Zorgu, kaj gardu vin kontraŭ la fer-
+nojn. 6 Sed Jesuo diris al ili: Zorgu, kaj gardu vntraŭ la fer-
 
 mentaĵo de la Fariseoj kaj Sadukeoj. 7 Kaj ili diskutis inter si, dirante:
 
@@ -2048,21 +1954,21 @@ la kvin mil, kaj kiom da korboj vi kolektis? 10 Nek la sep panojn de
 
 la kvar mil, kaj kiom da korbegoj vi kolektis? 11 Kial vi ne kompre-
 
-nas, ke ne pri panoj mi diris al vi: Gardu vin kontraŭ la fermentaĵo
+nas, ke ne pri panoj mi diris al vi: Gardu vntraŭ la fermentaĵo
 
 de la Fariseoj kaj Sadukeoj? 12 Tiam ili ekkomprenis, ke li admonis
 
 ilin sin gardi ne kontraŭ la fermentaĵo de panoj, sed kontraŭ la in-
 
-struado de la Fariseoj kaj Sadukeoj. 
+struado de la Fariseoj kaj Sadukeoj.
 
 13 Kaj Jesuo, veninte en la regionojn de Cezarea Filipi, demandis
 
-siajn disĉiplojn, dirante: Kiu, diras la homoj, ke mi, la Filo de homo, 
+siajn disĉiplojn, dirante: Kiu, diras la homoj, ke mi, la Filo de homo,
 
 estas? 14 Kaj ili diris: Laŭ iuj: Johano, la Baptisto; laŭ aliaj: Elija; kaj laŭ aliaj: Jeremia, aŭ unu el la profetoj. 15 Li diris al ili: Sed vi, kiu vi diras, ke mi estas? 16 Kaj responde Simon Petro diris: Vi estas la Kristo, la Filo de la vivanta Dio. 17 Kaj Jesuo responde diris al li: Feliĉa
 
-vi estas, Simon Bar-Jona; ĉar ne karno kaj sango tion malkaŝis al vi, 
+vi estas, Simon Bar-Jona; ĉar ne karno kaj sango tion malkaŝis al vi,
 
 sed mia Patro, kiu estas en la ĉielo. 18 Kaj mi diras al vi, ke vi estas
 
@@ -2076,21 +1982,19 @@ lo; kaj kion ajn vi malligos sur la tero, tio estos malligita en la ĉie-
 
 lo. 20 Tiam li admonis la disĉiplojn, ke ili diru al neniu, ke li estas la
 
-Kristo. 
+Kristo.
 
 21 De post tiu tempo Jesuo komencis montri al siaj disĉiploj, ke
 
 li devas iri al Jerusalem, kaj multe suferi ĉe la pliaĝuloj kaj ĉefpas-
 
-troj kaj skribistoj, kaj esti mortigita, kaj la trian tagon releviĝi. 22 Kaj Petro prenis lin, kaj komencis admoni lin, dirante: Kompaton al vi, 
+troj kaj skribistoj, kaj esti mortigita, kaj la trian tagon releviĝi. 22 Kaj Petro prenis lin, kaj komencis admoni lin, dirante: Kompaton al vi,
 
-35
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Sinjoro\! tio ne estu al vi\! 23 Sed turninte sin, li diris al Petro: Iru malantaŭ min, Satano; vi estas faligilo por mi, ĉar vi havas pensojn ne
+Sinjoro! tio ne estu al vi! 23 Sed turninte sin, li diris al Petro: Iru malantaŭ min, Satano; vi estas faligilo por mi, ĉar vi havas pensojn ne
 
 laŭ Dio, sed laŭ homoj. 24 Tiam Jesuo diris al siaj disĉiploj: Se iu
 
@@ -2098,7 +2002,7 @@ volas veni post mi, li abnegaciu sin, kaj levu sian krucon, kaj sek-
 
 vu min; 25 ĉar kiu volos savi sian animon, tiu ĝin perdos; kaj kiu
 
-perdos sian animon pro mi, tiu ĝin trovos. 26 ĉar kiel profitus homo, 
+perdos sian animon pro mi, tiu ĝin trovos. 26 ĉar kiel profitus homo,
 
 se li gajnus la tutan mondon kaj perdus sian animon? Aŭ kion ho-
 
@@ -2106,7 +2010,7 @@ mo donu interŝanĝe por sia animo? 27 ĉar la Filo de homo venos en
 
 la gloro de sia Patro kun siaj anĝeloj, kaj tiam li redonos al ĉiu laŭ
 
-liaj faroj. 28 Vere mi diras al vi: Inter la ĉi tie starantaj estas iuj, kiuj neniel gustumos morton, antaŭ ol ili vidos la Filon de homo venantan en sia regno. 
+liaj faroj. 28 Vere mi diras al vi: Inter la ĉi tie starantaj estas iuj, kiuj neniel gustumos morton, antaŭ ol ili vidos la Filon de homo venantan en sia regno.
 
 ĉapitro 17
 
@@ -2118,7 +2022,7 @@ li estis aliformita antaŭ ili, kaj lia vizaĝo lumis kiel la suno, kaj liaj
 
 vestoj fariĝis blankaj kiel la lumo. 3 Kaj jen aperis al ili Moseo kaj
 
-Elija, parolantaj kun li. 4 Kaj Petro responde diris al Jesuo: Sinjoro, 
+Elija, parolantaj kun li. 4 Kaj Petro responde diris al Jesuo: Sinjoro,
 
 estas bone por ni esti ĉi tie. Se vi volas, mi faros ĉi tie tri laŭbojn:
 
@@ -2130,7 +2034,7 @@ ante: ĉi tiu estas Mia Filo, la amata, en kiu Mi havas plezuron; aŭs-
 
 kultu lin. 6 Kaj aŭdinte tion, la disĉiploj falis sur sian vizaĝon, kaj tre timis. 7 Kaj Jesuo alvenis kaj ektuŝis ilin, kaj diris: Leviĝu, kaj ne
 
-timu. 8 Kaj levinte siajn okulojn, ili vidis neniun krom Jesuo sola. 
+timu. 8 Kaj levinte siajn okulojn, ili vidis neniun krom Jesuo sola.
 
 9 Kaj dum ili malsupreniris de la monto, Jesuo ordonis al ili, dir-
 
@@ -2138,11 +2042,9 @@ ante: Rakontu al neniu la vizion, ĝis la Filo de homo releviĝos el la
 
 mortintoj. 10 Kaj liaj disĉiploj demandis lin, dirante: Kial do diras la
 
-36
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 skribistoj, ke Elija devas veni antaŭe? 11 Kaj li responde diris: Vere
 
@@ -2150,7 +2052,7 @@ Elija venas antaŭe, kaj restarigos ĉion; 12 sed mi diras al vi, ke Elija
 
 jam venis, kaj oni ne konis lin, sed faris al li ĉion, kion ili volis. Tiel ankaŭ la Filo de homo estas suferonta sub ili. 13 Tiam la disĉiploj
 
-komprenis, ke li parolis al ili pri Johano, la Baptisto. 
+komprenis, ke li parolis al ili pri Johano, la Baptisto.
 
 14 Kaj kiam li venis al la homamaso, venis al li viro, genuante
 
@@ -2176,17 +2078,17 @@ fidon, kiel semero de sinapo, vi diros al ĉi tiu monto: Translokiĝu
 
 tien de ĉi tie, kaj ĝi translokiĝos; kaj nenio estos neebla por vi. 21 Sed
 
-ĉi tiu speco ne eliras, krom per preĝado kaj fastado. 
+ĉi tiu speco ne eliras, krom per preĝado kaj fastado.
 
 22 Kaj kiam ili kolektiĝis en Galileo, Jesuo diris al ili: La Filo de
 
 homo estos transdonita en la manojn de homoj; 23 kaj ili mortigos
 
-lin, kaj la trian tagon li leviĝos. Kaj ili tre malĝojis. 
+lin, kaj la trian tagon li leviĝos. Kaj ili tre malĝojis.
 
 24 Kaj kiam ili venis en Kapernaumon, venis al Petro la ricevistoj
 
-de la du dra˛moj, kaj diris: ĉu via majstro pagas la du dra˛mojn? 
+de la du dra˛moj, kaj diris: ĉu via majstro pagas la du dra˛mojn?
 
 25 Li respondis: Jes. Kaj kiam li venis en la domon, Jesuo unue pa-
 
@@ -2198,15 +2100,13 @@ Kaj kiam li diris: De la fremduloj; Jesuo diris: Sekve la filoj estas li-
 
 beraj. 27 Sed, por ke ni ne ofendu ilin, iru al la maro kaj ĵetu hoke-
 
-ton, kaj prenu la fiŝon unue venintan, kaj malferminte ĝian buŝon, 
+ton, kaj prenu la fiŝon unue venintan, kaj malferminte ĝian buŝon,
 
-vi trovos stateron. Prenu ĝin, kaj donu al ili por mi kaj vi. 
+vi trovos stateron. Prenu ĝin, kaj donu al ili por mi kaj vi.
 
-37
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 18
 
@@ -2216,21 +2116,21 @@ granda en la regno de la ĉielo? 2 Kaj alvokinte al si infanon, li sta-
 
 rigis ĝin meze de ili, 3 kaj diris: Vere mi diras al vi: Se vi ne turniĝos
 
-kaj ne fariĝos kiel infanoj, vi neniel eniros en la regnon de la ĉielo. 
+kaj ne fariĝos kiel infanoj, vi neniel eniros en la regnon de la ĉielo.
 
 4 Kiu do humiligos sin, kiel ĉi tiu infano, tiu estas la plej granda en
 
 la regno de la ĉielo. 5 Kaj kiu akceptos unu tian infanon en mia no-
 
-mo, tiu akceptas min; 6 sed kiu igos fali unu el ĉi tiuj malgranduloj, 
+mo, tiu akceptas min; 6 sed kiu igos fali unu el ĉi tiuj malgranduloj,
 
 kiuj kredas al mi, estus pli bone por tiu, se granda muelŝtono estus
 
 pendigita ĉirkaŭ lia kolo, kaj se li estus subakvigita en la profundon
 
-de la maro. 7 Ve al la mondo pro faliloj\! ĉar estas necese, ke venu
+de la maro. 7 Ve al la mondo pro faliloj! ĉar estas necese, ke venu
 
-faliloj, sed ve al tiu homo, per kiu la falilo venas\! 8 Kaj se via mano
+faliloj, sed ve al tiu homo, per kiu la falilo venas! 8 Kaj se via mano
 
 aŭ via piedo faligas vin, detranĉu ĝin kaj forĵetu ĝin de vi: estas bone
 
@@ -2254,23 +2154,21 @@ havas cent ŝafojn, kaj unu el ili erarvagis, ĉu li ne lasas la naŭdek
 
 naŭ, kaj iras al la montoj, kaj serĉas tiun, kiu erarvagis? 13 Kaj se
 
-okazas, ke li trovas ĝin, vere mi diras al vi, li plimulte ĝojas pri ĝi, 
+okazas, ke li trovas ĝin, vere mi diras al vi, li plimulte ĝojas pri ĝi,
 
 ol pri la naŭdek naŭ, kiuj ne erarvagis. 14 Tiel same ne estas la volo
 
 de via Patro, kiu estas en la ĉielo, ke unu el ĉi tiuj malgranduloj
 
-pereu. 
+pereu.
 
 15 Kaj se via frato pekos kontraŭ vi, iru kaj montru al li la kulpon
 
 inter vi kaj li sola. Se li aŭskultos vin, vi gajnos vian fraton. 16 Sed se li ne aŭskultos, prenu ankaŭ unu aŭ du kun vi, por ke per la buŝo
 
-38
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 de du aŭ tri atestantoj ĉiu vorto estu konfirmita. 17 Kaj se li rifuzos
 
@@ -2284,15 +2182,15 @@ lo; kaj ĉio, kion vi malligos sur la tero, estos malligita en la ĉielo. 19
 
 Cetere mi diras al vi, ke se du el vi konsentos sur la tero pri ia pri-
 
-petota afero, ĝi estos farita al ili de mia Patro, kiu estas en la ĉielo. 
+petota afero, ĝi estos farita al ili de mia Patro, kiu estas en la ĉielo.
 
-20 ĉar kie du aŭ tri kunvenas en mia nomo, tie mi estas meze de ili. 
+20 ĉar kie du aŭ tri kunvenas en mia nomo, tie mi estas meze de ili.
 
 21 Tiam Petro venis kaj diris al li: Sinjoro, kiomfoje povu peki mia
 
 frato kontraŭ mi, kaj mi pardonu lin? ĝis sep fojoj? 22 Jesuo diris al
 
-li: Mi ne diras al vi: ¯is sep fojoj; sed: ¯is sepdekoble sep fojoj. 23
+li: Mi ne diras al vi: is sep fojoj; sed: is sepdekoble sep fojoj. 23
 
 Tial la regno de la ĉielo similas al reĝo, kiu volis fari kalkulon kun
 
@@ -2314,11 +2212,11 @@ servisto trovis kunserviston, kiu ŝuldis al li cent denarojn; kaj li
 
 kaptis kaj eksufokis lin, dirante: Pagu tion, kion vi ŝuldas. 29 Kaj
 
-falinte antaŭ li, la kunservisto petegis lin, dirante: Paciencu pri mi, 
+falinte antaŭ li, la kunservisto petegis lin, dirante: Paciencu pri mi,
 
 kaj mi pagos al vi. 30 Sed li ne volis; sed foriris kaj ĵetis lin en mall-
 
-iberejon, ĝis li pagos tion, kio estas ŝuldata. 31 Tiam liaj kunservistoj, 
+iberejon, ĝis li pagos tion, kio estas ŝuldata. 31 Tiam liaj kunservistoj,
 
 vidinte tion, kio okazis, tre ĉagreniĝis; kaj veninte, rakontis al sia
 
@@ -2330,15 +2228,13 @@ gis min; 33 ĉu vi ankaŭ ne devis kompati vian kunserviston, kiel mi
 
 kompatis vin? 34 Kaj lia sinjoro koleris, kaj transdonis lin al la tur-
 
-39
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mentistoj, ĝis li pagos ĉion al li ŝuldatan. 35 Tiel same mia ĉiela Pa-
 
-tro faros al vi, se vi ne pardonas el viaj koroj, ĉiu al sia frato. 
+tro faros al vi, se vi ne pardonas el viaj koroj, ĉiu al sia frato.
 
 ĉapitro 19
 
@@ -2346,13 +2242,13 @@ tro faros al vi, se vi ne pardonas el viaj koroj, ĉiu al sia frato.
 
 en la limojn de Judujo trans Jordan; 2 kaj grandaj homamasoj lin
 
-sekvis, kaj li sanigis ilin tie. 
+sekvis, kaj li sanigis ilin tie.
 
 3 Kaj venis al li Fariseoj, provante lin, kaj dirante: ĉu estas per-
 
 mesate forsendi sian edzinon pro ĉia kaŭzo? 4 Kaj responde li diris:
 
-ĉu vi ne legis, ke en la komenco la Kreinto faris ilin vira kaj virina, 
+ĉu vi ne legis, ke en la komenco la Kreinto faris ilin vira kaj virina,
 
 5 kaj diris: Tial viro forlasos sian patron kaj sian patrinon, kaj aliĝos
 
@@ -2380,7 +2276,7 @@ eŭnukoj, kiuj estis eŭnukigitaj de homoj; kaj estas eŭnukoj, kiuj
 
 eŭnukigis sin pro la regno de la ĉielo. Kiu povas tion akcepti, tiu
 
-akceptu. 
+akceptu.
 
 13 Tiam oni venigis al li infanojn, por ke li metu la manojn sur ilin
 
@@ -2388,13 +2284,11 @@ kaj preĝu; kaj la disĉiploj admonis ilin. 14 Sed Jesuo diris: Lasu la
 
 infanojn, kaj ne malhelpu ilin, veni al mi; ĉar el tiaj estas la regno
 
-de la ĉielo. 15 Kaj metinte la manojn sur ilin, li foriris de tie. 
+de la ĉielo. 15 Kaj metinte la manojn sur ilin, li foriris de tie.
 
-40
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 16 Kaj jen unu viro, veninte al li, diris: Majstro, kian bonon mi
 
@@ -2416,7 +2310,7 @@ perfekta, iru, vendu viajn posedaĵojn, kaj donu al malriĉuloj, kaj vi
 
 havos trezoron en la ĉielo; kaj venu, sekvu min. 22 Sed aŭdinte tiun
 
-diron, la junulo foriris malĝoja, ĉar li havis multajn posedaĵojn. 
+diron, la junulo foriris malĝoja, ĉar li havis multajn posedaĵojn.
 
 23 Kaj Jesuo diris al siaj disĉiploj: Vere mi diras al vi: Malfacile
 
@@ -2428,9 +2322,9 @@ eniri en la regnon de Dio. 25 Kiam la disĉiploj tion aŭdis, ili forte
 
 miregis, dirante: Kiu do povas esti savita? 26 Kaj Jesuo, rigardante
 
-ilin, diris al ili: ĉe homoj tio estas neebla, sed ĉe Dio ĉio estas ebla. 
+ilin, diris al ili: ĉe homoj tio estas neebla, sed ĉe Dio ĉio estas ebla.
 
-27 Tiam Petro responde diris al li: Jen ni ĉion forlasis, kaj vin sekvis; 
+27 Tiam Petro responde diris al li: Jen ni ĉion forlasis, kaj vin sekvis;
 
 kion do ni havos? 28 Jesuo diris al ili: Vere mi diras al vi, ke vi, kiuj
 
@@ -2440,11 +2334,11 @@ no de sia gloro, vi ankaŭ sidos sur dek du tronoj, juĝante la dek du
 
 tribojn de Izrael. 29 Kaj ĉiu, kiu forlasis domojn aŭ fratojn aŭ frati-
 
-nojn aŭ patron aŭ patrinon aŭ infanojn aŭ kampojn pro mia nomo, 
+nojn aŭ patron aŭ patrinon aŭ infanojn aŭ kampojn pro mia nomo,
 
 ricevos multoble kaj heredos eternan vivon. 30 Sed multaj unuaj es-
 
-tos lastaj, kaj lastaj estos unuaj. 
+tos lastaj, kaj lastaj estos unuaj.
 
 ĉapitro 20
 
@@ -2452,11 +2346,9 @@ tos lastaj, kaj lastaj estos unuaj.
 
 ene, por dungi laboristojn por sia vinberĝardeno. 2 Kaj kontraktinte
 
-41
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kun la laboristoj po unu denaro por la tago, li ilin sendis en sian
 
@@ -2494,39 +2386,37 @@ al unu el ili: Amiko, mi ne faras al vi maljustaĵon; ĉu vi ne kontraktis
 
 kun mi por unu denaro? 14 Prenu do la vian kaj foriru; mi volas doni
 
-al ĉi tiu lasta tiel same, kiel al vi. 15 ĉu ne estas permesate al mi, fari kun la mia tion, kion mi volas? aŭ ĉu via okulo estas malbona tial, 
+al ĉi tiu lasta tiel same, kiel al vi. 15 ĉu ne estas permesate al mi, fari kun la mia tion, kion mi volas? aŭ ĉu via okulo estas malbona tial,
 
 ke mi estas bona? 16 Tiel la lastaj estos unuaj, kaj la unuaj estos las-
 
-taj. 
+taj.
 
 17 Kaj suprenirante al Jerusalem, Jesuo prenis la dek du disĉiplojn
 
-aparte, kaj sur la vojo li diris al ili: 18 Jen ni supreniras al Jerusalem; kaj la Filo de homo estos transdonita al la ĉefpastroj kaj skribistoj; 
+aparte, kaj sur la vojo li diris al ili: 18 Jen ni supreniras al Jerusalem; kaj la Filo de homo estos transdonita al la ĉefpastroj kaj skribistoj;
 
-kaj ili kondamnos lin al morto, 19 kaj transdonos lin al la nacianoj, 
+kaj ili kondamnos lin al morto, 19 kaj transdonos lin al la nacianoj,
 
-por moki kaj skurĝi kaj krucumi; kaj la trian tagon li releviĝos. 
+por moki kaj skurĝi kaj krucumi; kaj la trian tagon li releviĝos.
 
-20 Tiam venis al li la patrino de la filoj de Zebedeo, kun siaj filoj, 
+20 Tiam venis al li la patrino de la filoj de Zebedeo, kun siaj filoj,
 
-adorkliniĝante kaj farante al li peton. 21 Li diris al ŝi: Kion vi volas? 
+adorkliniĝante kaj farante al li peton. 21 Li diris al ŝi: Kion vi volas?
 
 ŝi diris al li: Ordonu, ke ĉi tiuj miaj du filoj povu sidi, unu dekstre
 
-42
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 de vi kaj la dua maldekstre, en via regno. 22 Sed Jesuo responde di-
 
 ris: Vi ne scias, kion vi petas. ĉu vi povas trinki la kalikon, kiun mi
 
-trinkos? Ili diris al li: Ni povas. 23 Li diris al ili: Mian kalikon vi ja trinkos; sed sidi dekstre de mi kaj maldekstre, tion doni ne apartenas
+trs? Ili diris al li: Ni povas. 23 Li diris al ili: Mian kalikon vi ja trs; sed sidi dekstre de mi kaj maldekstre, tion doni ne apartenas
 
-al mi, sed ĝi estas por tiuj, por kiuj ĝi estas preparita de mia Patro. 
+al mi, sed ĝi estas por tiuj, por kiuj ĝi estas preparita de mia Patro.
 
 24 Kaj aŭdinte, la dek indignis kontraŭ la du fratoj. 25 Sed Jesuo, al-
 
@@ -2534,11 +2424,11 @@ vokinte ilin al si, diris: Vi scias, ke la regantoj de la nacioj kondu-
 
 tas kiel sinjoroj super ili, kaj iliaj granduloj ekzercas aŭtoritaton
 
-super ili. 26 Ne tiel estos inter vi; sed kiu volas esti granda inter vi, 
+super ili. 26 Ne tiel estos inter vi; sed kiu volas esti granda inter vi,
 
 tiu estu via servanto; 27 kaj kiu volas esti la unua inter vi, tiu estu via servisto; 28 same kiel la Filo de homo venis, ne por esti servata, sed
 
-por servi, kaj por doni sian vivon kiel elaĉeton por multaj. 
+por servi, kaj por doni sian vivon kiel elaĉeton por multaj.
 
 29 Kaj kiam ili eliris el Jeri˛o, granda homamaso lin sekvis. 30 Kaj
 
@@ -2548,11 +2438,11 @@ pasas, ekkriis, dirante: Sinjoro, kompatu nin, ho filo de David. 31 Kaj
 
 la homamaso admonis ilin, ke ili silentu, sed ili plimulte kriis, dir-
 
-ante: Sinjoro, kompatu nin, ho filo de David. 32 Kaj Jesuo, haltinte, 
+ante: Sinjoro, kompatu nin, ho filo de David. 32 Kaj Jesuo, haltinte,
 
 alvokis ilin, kaj diris: Kion vi volas, ke mi faru al vi? 33 Ili diris al li: Sinjoro, ke niaj okuloj estu malfermitaj. 34 Kaj Jesuo, kortuŝite, tuŝis
 
-iliajn okulojn; kaj tuj ili ricevis vidpovon, kaj sekvis lin. 
+iliajn okulojn; kaj tuj ili ricevis vidpovon, kaj sekvis lin.
 
 ĉapitro 21
 
@@ -2560,49 +2450,47 @@ iliajn okulojn; kaj tuj ili ricevis vidpovon, kaj sekvis lin.
 
 monto Olivarba, tiam Jesuo sendis du disĉiplojn, 2 dirante al ili: Iru
 
-en la vilaĝon, kiu estas kontraŭ vi, kaj vi tuj trovos azeninon ligitan, 
+en la vilaĝon, kiu estas kontraŭ vi, kaj vi tuj trovos azeninon ligitan,
 
 kaj azenidon kun ĝi. Ilin malligu kaj alkonduku al mi. 3 Kaj se iu di-
 
-ros ion al vi, respondu: La Sinjoro bezonas ilin; kaj tuj li sendos ilin. 
+ros ion al vi, respondu: La Sinjoro bezonas ilin; kaj tuj li sendos ilin.
 
 4 Kaj ĉi tio okazis, por ke plenumiĝu tio, kio estis dirita per la pro-
 
 feto, nome:
 
-43
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 5 Diru al la filino de Cion:
 
-Jen via Reĝo iras al vi, 
+Jen via Reĝo iras al vi,
 
-Humila kaj rajdanta sur azeno, 
+Humila kaj rajdanta sur azeno,
 
-Kaj azenido, filo de ŝarĝobesto. 
+Kaj azenido, filo de ŝarĝobesto.
 
 6 Kaj la disĉiploj iris, kaj faris, kiel Jesuo ordonis al ili, 7 kaj alkon-
 
-dukis la azeninon kaj la azenidon, kaj surmetis sur ilin siajn vestojn; 
+dukis la azeninon kaj la azenidon, kaj surmetis sur ilin siajn vestojn;
 
 kaj li sidis sur tion. 8 Kaj la pli granda parto de la homamaso ster-
 
-nis siajn vestojn sur la vojo; kaj aliaj detranĉis branĉojn de la arboj, 
+nis siajn vestojn sur la vojo; kaj aliaj detranĉis branĉojn de la arboj,
 
 kaj dismetis ilin sur la vojon. 9 Kaj la homamaso, kiu iris antaŭ li, kaj
 
-kiu sekvis lin, kriis, dirante: Hosana al la Filo de David\! Estu bena-
+kiu sekvis lin, kriis, dirante: Hosana al la Filo de David! Estu bena-
 
 ta tiu, kiu venas en la nomo de la Eternulo; Hosana en la supera
 
-alto\! 10 Kaj li eniris en Jerusalemon, kaj la tuta urbo malkvietiĝis, 
+alto! 10 Kaj li eniris en Jerusalemon, kaj la tuta urbo malkvietiĝis,
 
 dirante: Kiu estas ĉi tiu? 11 Kaj la homamasoj diris: ĉi tiu estas la
 
-profeto, Jesuo el Nazaret en Galileo. 
+profeto, Jesuo el Nazaret en Galileo.
 
 12 Kaj Jesuo eniris en la templon de Dio, kaj elpelis ĉiujn vendan-
 
@@ -2620,7 +2508,7 @@ plo, kaj dirantajn: Hosana al la Filo de David, indignis, 16 kaj diris
 
 al li: ĉu vi aŭdas, kion ĉi tiuj diras? Kaj Jesuo diris al ili: Jes; ĉu vi neniam legis: El la buŝo de junaj infanoj kaj suĉinfanoj Vi perfektigis
 
-laŭdon? 17 Kaj lasinte ilin, li eliris el la urbo al Betania, kaj tie loĝis. 
+laŭdon? 17 Kaj lasinte ilin, li eliris el la urbo al Betania, kaj tie loĝis.
 
 18 Kaj matene, dum li revenis al la urbo, li malsatis. 19 Kaj vidan-
 
@@ -2630,13 +2518,11 @@ folioj; kaj li diris al ĝi: Ne plu estu frukto sur vi por eterne. Kaj tuj
 
 la figarbo forvelkis. 20 Kaj kiam la disĉiploj vidis, ili miris, dirante:
 
-Kiel rapide la figarbo forvelkis\! 21 Kaj Jesuo responde diris al ili: Vere
+Kiel rapide la figarbo forvelkis! 21 Kaj Jesuo responde diris al ili: Vere
 
-44
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi diras al vi: Se vi havos fidon kaj ne dubos, vi ne nur faros la afe-
 
@@ -2644,7 +2530,7 @@ ron de la figarbo, sed eĉ se vi diros al ĉi tiu monto: Estu formovita
 
 kaj ĵetita en la maron; tio plenumiĝos. 22 Kaj ĉion, kion vi petos per
 
-preĝado, kredante, vi ricevos. 
+preĝado, kredante, vi ricevos.
 
 23 Kaj kiam li jam venis en la templon, la ĉefpastroj kaj la pli-
 
@@ -2680,7 +2566,7 @@ Vere mi diras al vi, ke la impostistoj kaj malĉastistinoj iras antaŭ vi
 
 en la regnon de Dio. 32 ĉar Johano venis al vi en vojo de justeco, kaj
 
-vi ne kredis al li; sed la impostistoj kaj malĉastistinoj kredis al li. Kaj vi, kiam vi vidis, eĉ ne pentis poste, por kredi al li. 
+vi ne kredis al li; sed la impostistoj kaj malĉastistinoj kredis al li. Kaj vi, kiam vi vidis, eĉ ne pentis poste, por kredi al li.
 
 33 Aŭskultu alian parabolon: Estis viro dommastro, kiu plantis
 
@@ -2694,17 +2580,15 @@ ajn sklavojn al la kultivistoj, por ricevi siajn fruktojn. 35 Kaj la kul-
 
 tivistoj, kaptinte liajn sklavojn, skurĝis unu, kaj mortigis alian, kaj
 
-45
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ŝtonbatis alian. 36 Li sendis ankoraŭ aliajn sklavojn, pli multajn ol la
 
 unuaj; kaj ili faris al ili tiel same. 37 Sed poste li sendis al ili sian filon, dirante: Ili respektos mian filon. 38 Sed la kultivistoj, vidante la
 
-filon, diris inter si: ĉi tiu estas la heredonto; venu, ni lin mortigu, kaj prenu lian heredaĵon. 39 Kaj ili kaptis lin, elĵetis lin el la vinberejo, 
+filon, diris inter si: ĉi tiu estas la heredonto; venu, ni lin mortigu, kaj prenu lian heredaĵon. 39 Kaj ili kaptis lin, elĵetis lin el la vinberejo,
 
 kaj mortigis lin. 40 Kiam do venos la sinjoro de la vinberejo, kion li
 
@@ -2716,13 +2600,13 @@ li la fruktojn en iliaj sezonoj. 42 Jesuo diris al ili: ĉu vi neniam legis
 
 en la Skriboj:
 
-ŝtono, kiun malŝatis la konstruantoj, 
+ŝtono, kiun malŝatis la konstruantoj,
 
 Fariĝis ŝtono bazangula:
 
-De la Eternulo ĉi tio fariĝis, 
+De la Eternulo ĉi tio fariĝis,
 
-Kaj ĝi estas miraklo en niaj okuloj? 
+Kaj ĝi estas miraklo en niaj okuloj?
 
 43 Tial mi diras al vi: La regno de Dio estos prenita for de vi, kaj
 
@@ -2732,7 +2616,7 @@ tiun ŝtonon, tiu rompiĝos; sed sur kiun ĝi falos, ĝi tiun polvigos. 45
 
 Kaj la ĉefpastroj kaj la Fariseoj, aŭdinte liajn parabolojn, kompre-
 
-nis, ke li parolas pri ili. 46 Kaj celante kapti lin, ili timis la popolon, ĉar oni opiniis lin profeto. 
+nis, ke li parolas pri ili. 46 Kaj celante kapti lin, ili timis la popolon, ĉar oni opiniis lin profeto.
 
 ĉapitro 22
 
@@ -2750,11 +2634,9 @@ grasigitaj brutoj estas buĉitaj, kaj ĉio estas preta; venu al la edziĝa
 
 festo. 5 Sed ili malatentis, kaj foriris, unu al sia bieno, alia al sia ko-
 
-46
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mercado; 6 kaj la ceteraj, kaptinte liajn sklavojn, perfortis kaj mor-
 
@@ -2764,9 +2646,9 @@ tiujn mortigintojn kaj bruligis ilian urbon. 8 Tiam li diris al siaj skla-
 
 voj: La edziĝa festo estas preta, sed la invititoj ne estis indaj. 9 Iru do al la disirejoj de la vojoj, kaj ĉiujn, kiujn vi trovos, invitu al la edziĝa festo. 10 Kaj tiuj sklavoj, elirinte sur la vojojn, kunvenigis ĉiujn, kiujn ili trovis, malbonajn kaj bonajn; kaj la edziĝa festo pleniĝis de
 
-gastoj. 11 Sed la reĝo, enveninte por rigardi la gastojn, tie vidis viron, 
+gastoj. 11 Sed la reĝo, enveninte por rigardi la gastojn, tie vidis viron,
 
-kiu ne havis sur si edziĝofestan veston; 12 kaj li diris al li: Amiko, kiel vi envenis ĉi tien, ne havante edziĝofestan veston? Kaj li silentadis. 
+kiu ne havis sur si edziĝofestan veston; 12 kaj li diris al li: Amiko, kiel vi envenis ĉi tien, ne havante edziĝofestan veston? Kaj li silentadis.
 
 13 Tiam la reĝo diris al siaj servantoj: Ligu lin mane kaj piede, kaj
 
@@ -2774,7 +2656,7 @@ elĵetu lin en la eksteran mallumon; tie estos la plorado kaj la grin-
 
 cado de dentoj. 14 ĉar multaj estas vokitaj, sed malmultaj estas elek-
 
-titaj. 
+titaj.
 
 15 Tiam iris la Fariseoj, kaj konsiliĝis, kiel ili povos impliki lin per
 
@@ -2786,13 +2668,13 @@ vero la vojon de Dio, kaj ne zorgas pri iu ajn; ĉar vi ne favoras la
 
 personon de homoj. 17 Diru do al ni, kiel ŝajnas al vi? ĉu konvenas
 
-doni tributon al Cezaro, aŭ ne? 18 Sed Jesuo, sciante ilian ruzecon, 
+doni tributon al Cezaro, aŭ ne? 18 Sed Jesuo, sciante ilian ruzecon,
 
 diris: Kial vi min provas, hipokrituloj? 19 Montru al mi la tributan
 
 moneron. Kaj ili alportis al li denaron. 20 Kaj li diris al ili: Kies estas ĉi tiu bildo kaj la surskribaĵo? 21 Ili diris al li: De Cezaro. Tiam li diris al ili: Redonu do al Cezaro la propraĵon de Cezaro, kaj al Dio la
 
-propraĵon de Dio. 22 Kaj aŭdinte, ili miris, kaj lin lasis kaj foriris. 
+propraĵon de Dio. 22 Kaj aŭdinte, ili miris, kaj lin lasis kaj foriris.
 
 23 En tiu sama tago alvenis al li Sadukeoj, kiuj diras, ke ne estas
 
@@ -2804,11 +2686,9 @@ skigu idaron al sia frato. 25 Estis ĉe ni sep fratoj; kaj la unua edziĝis
 
 kaj mortis, kaj ne havante idaron, lasis sian edzinon al sia frato; 26
 
-47
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tiel same ankaŭ la dua, kaj la tria, ĝis la sepa. 27 Kaj post ĉiuj la vi-
 
@@ -2824,9 +2704,9 @@ releviĝo el la mortintoj, ĉu vi ne legis tion, kio estis dirita al vi de
 
 Dio, nome: 32 Mi estas la Dio de Abraham kaj la Dio de Isaak kaj la
 
-Dio de Jakob? Dio estas Dio ne de la mortintoj, sed de la vivantoj. 
+Dio de Jakob? Dio estas Dio ne de la mortintoj, sed de la vivantoj.
 
-33 Kaj kiam la homamaso tion aŭdis, ili miregis pro lia instruado. 
+33 Kaj kiam la homamaso tion aŭdis, ili miregis pro lia instruado.
 
 34 Sed la Fariseoj, aŭdinte, ke li silentigis la Sadukeojn, kune ko-
 
@@ -2840,7 +2720,7 @@ per via tuta menso. 38 ĉi tiu estas la granda kaj la unua ordono. 39
 
 Kaj dua estas simila al ĝi: Amu vian proksimulon kiel vin mem. 40 De
 
-ĉi tiuj du ordonoj dependas la tuta leĝo kaj la profetoj. 
+ĉi tiuj du ordonoj dependas la tuta leĝo kaj la profetoj.
 
 41 Kaj kiam la Fariseoj jam kunvenis, Jesuo ilin demandis, 42 dir-
 
@@ -2848,27 +2728,25 @@ ante: Kion vi pensas pri la Kristo? kies filo li estas? Ili diris al li: De Davi
 
 44 La Eternulo diris al mia Sinjoro:
 
-Sidu dekstre de Mi, 
+Sidu dekstre de Mi,
 
-¯is Mi faros viajn malamikojn benketo por viaj piedoj? 
+is Mi faros viajn malamikojn benketo por viaj piedoj?
 
 45 Se do David nomas lin Sinjoro, kiel li estas lia filo? 46 Kaj ne-
 
 niu povis respondi unu vorton al li, nek iu post tiu tago plu kuraĝis
 
-fari al li demandon. 
+fari al li demandon.
 
-48
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 23
 
 1 Tiam parolis Jesuo al la homamasoj kaj al siaj disĉiploj, dirante: 2
 
-La skribistoj kaj la Fariseoj sidas sur la seĝo de Moseo: 3 ĉion do, 
+La skribistoj kaj la Fariseoj sidas sur la seĝo de Moseo: 3 ĉion do,
 
 kion ili ordonas al vi, faru kaj observu; sed ne agu laŭ iliaj faroj, ĉar
 
@@ -2890,47 +2768,45 @@ tas via instruanto, kaj vi ĉiuj estas fratoj. 9 Kaj nomu neniun sur la
 
 tero via patro; ĉar Unu, kiu estas en la ĉielo, estas via Patro. 10 Kaj
 
-ne estu nomataj edukantoj; ĉar unu, la Kristo, estas via edukanto. 
+ne estu nomataj edukantoj; ĉar unu, la Kristo, estas via edukanto.
 
-11 Sed la pli granda el vi estos via servanto. 12 Kaj kiu sin plialtigos, 
+11 Sed la pli granda el vi estos via servanto. 12 Kaj kiu sin plialtigos,
 
-tiu estos humiligita; kaj kiu sin humiligos, tiu estos plialtigita. 
+tiu estos humiligita; kaj kiu sin humiligos, tiu estos plialtigita.
 
-13 Sed ve al vi, skribistoj kaj Fariseoj, hipokrituloj\! ĉar vi ŝlosas la
+13 Sed ve al vi, skribistoj kaj Fariseoj, hipokrituloj! ĉar vi ŝlosas la
 
 regnon de la ĉielo kontraŭ la homoj; ĉar vi mem ne eniras, nek la-
 
 sas al la enirantoj eniri. 14 Ve al vi, skribistoj kaj Fariseoj, hipokritu-
 
-loj\! ĉar vi formanĝas domojn de vidvinoj, kaj por preteksto vi longe
+loj! ĉar vi formanĝas domojn de vidvinoj, kaj por preteksto vi longe
 
-preĝas; tial vi ricevos pli severan kondamnon. 
+preĝas; tial vi ricevos pli severan kondamnon.
 
-15 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj\! ĉar vi ĉirkaŭiras
+15 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj! ĉar vi ĉirkaŭiras
 
 maron kaj teron, por varbi unu prozeliton; kaj kiam li tia fariĝis, vi
 
-lin faras filo de Gehena, duoble kiom vi mem. 
+lin faras filo de Gehena, duoble kiom vi mem.
 
-16 Ve al vi, blindaj gvidantoj\! kiuj diras: Se iu ĵuras per la sank-
+16 Ve al vi, blindaj gvidantoj! kiuj diras: Se iu ĵuras per la sank-
 
 tejo, tio estas nenio; sed kiu ĵuras per la oro de la sanktejo, tiu es-
 
-tas ŝuldanto. 17 Vi malsaĝaj kaj blindaj\! ĉar kio estas pli granda, la
+tas ŝuldanto. 17 Vi malsaĝaj kaj blindaj! ĉar kio estas pli granda, la
 
 oro, aŭ la sanktejo, kiu sanktigas la oron? 18 Kaj: Se iu ĵuras per la
 
 altaro, tio estas nenio; sed kiu ĵuras per la ofero, kuŝanta sur ĝi, tiu
 
-estas ŝuldanto. 19 Vi blinduloj\! ĉar kio estas pli granda, la ofero, aŭ
+estas ŝuldanto. 19 Vi blinduloj! ĉar kio estas pli granda, la ofero, aŭ
 
-49
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-la altaro, kiu sanktigas la oferon? 20 Tiu do, kiu ĵuras per la altaro, 
+la altaro, kiu sanktigas la oferon? 20 Tiu do, kiu ĵuras per la altaro,
 
 ĵuras per ĝi, kaj per ĉio, kuŝanta sur ĝi. 21 Kaj tiu, kiu ĵuras per la
 
@@ -2938,29 +2814,29 @@ sanktejo, ĵuras per ĝi, kaj per Tiu, kiu loĝas en ĝi. 22 Kaj tiu, kiu ĵu-
 
 ras per la ĉielo, ĵuras per la trono de Dio, kaj per Tiu, kiu sidas sur
 
-ĝi. 
+ĝi.
 
-23 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj\! ĉar vi pagas de-
+23 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj! ĉar vi pagas de-
 
 konaĵojn de mento kaj de anizo kaj de kumino, kaj forlasis la pli
 
 gravajn aferojn de la leĝo: juĝon kaj kompaton kaj fidon. Sed ĉi ti-
 
-ujn vi devus fari, kaj la aliajn ne preterlasi. 24 Vi blindaj gvidantoj\! 
+ujn vi devus fari, kaj la aliajn ne preterlasi. 24 Vi blindaj gvidantoj!
 
-kiuj elkribras la kulon kaj glutas la kamelon. 
+kiuj elkribras la kulon kaj glutas la kamelon.
 
-25 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj\! ĉar vi purigas la
+25 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj! ĉar vi purigas la
 
 eksteron de la kaliko kaj de la plado; sed interne ili estas plenaj de
 
-rabado kaj malmodereco. 26 Vi blinda Fariseo\! purigu unue la inter-
+rabado kaj malmodereco. 26 Vi blinda Fariseo! purigu unue la inter-
 
 non de la kaliko kaj de la plado, por ke ilia ekstero ankaŭ fariĝu
 
-pura. 
+pura.
 
-27 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj\! ĉar vi similas al
+27 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj! ĉar vi similas al
 
 tomboj blankigitaj, kiuj ekstere ŝajnas belaj, sed interne estas ple-
 
@@ -2968,11 +2844,11 @@ naj de ostoj de mortintoj kaj de ĉia malpureco. 28 Tiel ankaŭ vi ek-
 
 stere ŝajnas justaj antaŭ homoj, sed interne vi estas plenaj de hipo-
 
-kriteco kaj maljusteco. 
+kriteco kaj maljusteco.
 
-29 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj\! ĉar vi konstruas la
+29 Ve al vi, skribistoj kaj Fariseoj, hipokrituloj! ĉar vi konstruas la
 
-tombojn de la profetoj kaj ornamas la monumentojn de la justuloj, 
+tombojn de la profetoj kaj ornamas la monumentojn de la justuloj,
 
 kaj diras: 30 Se ni vivus en la tagoj de niaj patroj, ni ne partoprenus
 
@@ -2980,7 +2856,7 @@ kun ili en la sango de la profetoj. 31 Tial vi atestas pri vi mem, ke vi
 
 estas filoj de tiuj, kiuj mortigis la profetojn. 32 Vi do plenigu la me-
 
-zuron de viaj patroj. 33 Serpentoj, vipuridoj\! kiel vi povos eviti la
+zuron de viaj patroj. 33 Serpentoj, vipuridoj! kiel vi povos eviti la
 
 juĝon de Gehena? 34 Jen do mi sendas al vi profetojn kaj saĝulojn kaj
 
@@ -2990,21 +2866,19 @@ skurĝos en viaj sinagogoj kaj persekutos de urbo al urbo; 35 por ke
 
 venu sur vin la tuta justa sango elverŝita sur la teron, de la sango de
 
-50
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la justulo Habel ĝis la sango de Zeąrja, filo de Bere˛ja, kiun vi
 
 mortigis inter la sanktejo kaj la altaro. 36 Vere mi diras al vi: ĉio tio
 
-venos sur ĉi tiun generacion. 
+venos sur ĉi tiun generacion.
 
 37 Ho Jerusalem, Jerusalem, kiu mortigas la profetojn, kaj priĵetas
 
-per ŝtonoj tiujn, kiuj estas senditaj al ĝi\! kiom ofte mi volis kolekti
+per ŝtonoj tiujn, kiuj estas senditaj al ĝi! kiom ofte mi volis kolekti
 
 viajn infanojn, kiel kokino kolektas sian idaron sub la flugilojn, kaj
 
@@ -3012,7 +2886,7 @@ vi ne volis. 38 Jen via domo estas lasita al vi dezerta. 39 ĉar mi diras
 
 al vi: De nun vi ne vidos min, ĝis vi diros: Estu benata tiu, kiu ve-
 
-nas en la nomo de la Eternulo. 
+nas en la nomo de la Eternulo.
 
 ĉapitro 24
 
@@ -3022,25 +2896,25 @@ li, por montri al li la konstruaĵojn de la templo. 2 Sed li responde
 
 diris al ili: ĉu vi ne vidas ĉion tion? vere mi diras al vi: Ne estos la-
 
-sita ĉi tie ŝtono sur ŝtono, kiu ne estos deĵetita. 
+sita ĉi tie ŝtono sur ŝtono, kiu ne estos deĵetita.
 
 3 Kaj dum ili sidis sur la monto Olivarba, la disĉiploj venis aparte
 
 al li, dirante: Diru al ni, kiam tio estos? Kaj kio estos la signo de via
 
-alesto kaj de la maturiĝo de la mondaĝo? 4 Kaj Jesuo, respondante, 
+alesto kaj de la maturiĝo de la mondaĝo? 4 Kaj Jesuo, respondante,
 
 diris al ili: Gardu vin, ke neniu vin forlogu. 5 ĉar multaj venos en mia
 
 nomo, dirante: Mi estas la Kristo; kaj ili forlogos multajn. 6 Kaj vi
 
-aŭdos pri militoj kaj famoj de militoj. Zorgu, ke vi ne maltrankviliĝu; 
+aŭdos pri militoj kaj famoj de militoj. Zorgu, ke vi ne maltrankviliĝu;
 
 ĉar tio devas okazi; sed ankoraŭ ne estas la fino. 7 ĉar leviĝos nacio
 
 kontraŭ nacion, kaj regno kontraŭ regnon; kaj estos malsatoj kaj
 
-tertremoj en diversaj lokoj. 8 Sed ĉio tio estas komenco de suferoj. 
+tertremoj en diversaj lokoj. 8 Sed ĉio tio estas komenco de suferoj.
 
 9 Tiam oni transdonos vin al afliktado, kaj mortigos vin; kaj vi es-
 
@@ -3052,11 +2926,9 @@ multaj falsaj profetoj leviĝos, kaj forlogos multajn. 12 Kaj pro la mul-
 
 tobligo de maljusteco, la amo de la plimulto malvarmiĝos. 13 Sed kiu
 
-51
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 persistos ĝis la fino, tiu estos savita. 14 Kaj ĉi tiu evangelio de la reg-
 
@@ -3066,15 +2938,15 @@ tiam venos la fino. 15 Kiam do vi vidos la abomenindaĵon de dezer-
 
 teco, pri kiu estas dirite de la profeto Daniel, starantan sur la sankta
 
-loko \(la leganto komprenu\), 16 tiam tiuj, kiuj estas en Judujo, forku-
+loko (la leganto komprenu), 16 tiam tiuj, kiuj estas en Judujo, forku-
 
-ru al la montoj; 17 kiu estas sur la tegmento, tiu ne malsupreniru, 
+ru al la montoj; 17 kiu estas sur la tegmento, tiu ne malsupreniru,
 
 por preni ion el sia domo; 18 kaj kiu estas sur la kampo, tiu ne re-
 
 venu, por preni sian mantelon. 19 Sed ve al la gravedulinoj kaj al la
 
-suĉigantinoj en tiuj tagoj\! 20 Kaj preĝu, ke via forkurado ne estu en
+suĉigantinoj en tiuj tagoj! 20 Kaj preĝu, ke via forkurado ne estu en
 
 vintro nek en sabato; 21 ĉar tiam estos granda aflikto tia, kia ne es-
 
@@ -3096,7 +2968,7 @@ kretaj ĉambroj; ne kredu. 27 ĉar kiel la fulmo venas el la oriento kaj
 
 montriĝas ĝis la okcidento, tiel ankaŭ estos la alesto de la Filo de
 
-homo. 28 Kie ajn estos la kadavro, tien kolektiĝos la agloj. 
+homo. 28 Kie ajn estos la kadavro, tien kolektiĝos la agloj.
 
 29 Sed tuj post la aflikto de tiuj tagoj la suno mallumiĝos, kaj la
 
@@ -3112,21 +2984,19 @@ granda gloro. 31 Kaj li elsendos siajn anĝelojn kun granda sono de
 
 trumpeto, kaj ili kolektos liajn elektitojn el la kvar ventoj, el limo ĝis
 
-limo de la ĉielo. 
+limo de la ĉielo.
 
 32 De la figarbo lernu ĝian parabolon: kiam ĝia branĉo jam mo-
 
-liĝis kaj aperigas foliojn, tiam vi scias, ke la somero estas proksima; 
+liĝis kaj aperigas foliojn, tiam vi scias, ke la somero estas proksima;
 
-52
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 33 tiel same vi, kiam vi vidos ĉion tion, tiam sciu, ke li estas proksi-
 
-ma, ĉe la pordoj. 34 Vere mi diras al vi: ĉi tiu generacio ne forpasos, 
+ma, ĉe la pordoj. 34 Vere mi diras al vi: ĉi tiu generacio ne forpasos,
 
 ĝis ĉio tio plenumiĝos. 35 La ĉielo kaj la tero forpasos, sed miaj vortoj
 
@@ -3134,11 +3004,11 @@ ne forpasos. 36 Sed pri tiu tago kaj la horo scias neniu, eĉ ne la anĝe-
 
 loj de la ĉielo, nek la Filo, sed la Patro sola. 37 Sed kiel la tagoj de
 
-Noa, tiel estos la alesto de la Filo de homo. 38 ĉar kiel dum la tagoj, 
+Noa, tiel estos la alesto de la Filo de homo. 38 ĉar kiel dum la tagoj,
 
 kiuj estis antaŭ la diluvo, oni manĝis kaj trinkis, edziĝis kaj edzi-
 
-niĝis, ĝis la tago, kiam Noa eniris en la arkeon, 39 kaj oni ne eksciis, 
+niĝis, ĝis la tago, kiam Noa eniris en la arkeon, 39 kaj oni ne eksciis,
 
 ĝis la diluvo venis kaj forprenis ĉiujn; tiel estos la alesto de la Filo
 
@@ -3150,7 +3020,7 @@ prenita, kaj la alia lasita. 42 Tial viglu; ĉar vi ne scias, en kiu tago via Si
 
 gardoparto venos la ŝtelisto, li viglus kaj ne lasus sian domon tra-
 
-fosiĝi. 44 Tial vi ankaŭ estu pretaj; ĉar en horo, kiam vi ne atendas, 
+fosiĝi. 44 Tial vi ankaŭ estu pretaj; ĉar en horo, kiam vi ne atendas,
 
 la Filo de homo venas. 45 Kiu do estas la fidela kaj prudenta servis-
 
@@ -3170,7 +3040,7 @@ en tago, kiam li ne atendas, kaj en horo, kiam li ne scias, 51 kaj dis-
 
 tranĉos lin, kaj difinos lian parton kun la hipokrituloj; tie estos la
 
-plorado kaj la grincado de dentoj. 
+plorado kaj la grincado de dentoj.
 
 ĉapitro 25
 
@@ -3178,11 +3048,9 @@ plorado kaj la grincado de dentoj.
 
 prenis siajn lampojn kaj eliris renkonte al la fianĉo. 2 Kaj kvin el ili
 
-53
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estis malprudentaj, kaj kvin estis prudentaj. 3 La malprudentaj, pre-
 
@@ -3192,7 +3060,7 @@ oleon en la vazoj kun siaj lampoj. 5 Kaj kiam la fianĉo malfruis, ili
 
 ĉiuj malviglis kaj dormis. 6 Sed je la noktomezo estis ekkrio: Jen la
 
-fianĉo\! eliru al li renkonte. 7 Tiam ĉiuj tiuj virgulinoj leviĝis, kaj or-
+fianĉo! eliru al li renkonte. 7 Tiam ĉiuj tiuj virgulinoj leviĝis, kaj or-
 
 digis siajn lampojn. 8 Kaj la malprudentaj diris al la prudentaj: Donu
 
@@ -3202,13 +3070,13 @@ spondis, dirante: Eble ne estos sufiĉe por ni kaj vi; iru prefere al la
 
 vendistoj, kaj aĉetu por vi mem. 10 Kaj dum ili iris, por aĉeti, alve-
 
-nis la fianĉo; kaj tiuj, kiuj estis pretaj, eniris kun li al la edziĝa festo, kaj la pordo estis fermita. 11 Poste venis ankaŭ la ceteraj virgulinoj, 
+nis la fianĉo; kaj tiuj, kiuj estis pretaj, eniris kun li al la edziĝa festo, kaj la pordo estis fermita. 11 Poste venis ankaŭ la ceteraj virgulinoj,
 
 dirante: Sinjoro, sinjoro, malfermu al ni. 12 Sed li responde diris:
 
 Vere mi diras al vi: Mi vin ne konas. 13 Tial viglu, ĉar vi ne scias la
 
-tagon nek la horon. 
+tagon nek la horon.
 
 14 ĉar tiel estas, kvazaŭ viro, forvojaĝonte, alvokis siajn serv-
 
@@ -3238,13 +3106,11 @@ tiu, kiu ricevis la du talantojn, kaj diris: Sinjoro, vi komisiis al mi du
 
 talantojn; jen mi gajnis pluajn du talantojn. 23 Lia sinjoro diris al li:
 
-Bone, vi bona kaj fidela servisto; vi estis fidela pri malmultaj aferoj, 
+Bone, vi bona kaj fidela servisto; vi estis fidela pri malmultaj aferoj,
 
-54
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi starigos vin super multaj; envenu en la ĝojon de via sinjoro. 24
 
@@ -3264,15 +3130,15 @@ tio vi devus doni mian monon al la bankistoj, kaj veninte, mi ricevus
 
 mian propraĵon kun procento. 28 Forprenu de li do la talanton, kaj
 
-donu ĝin al tiu, kiu havas la dek talantojn. 29 ĉar al ĉiu, kiu havas, 
+donu ĝin al tiu, kiu havas la dek talantojn. 29 ĉar al ĉiu, kiu havas,
 
-estos donite, kaj li havos abundegon; sed for de tiu, kiu ne havas, 
+estos donite, kaj li havos abundegon; sed for de tiu, kiu ne havas,
 
 eĉ tio, kion li havas, estos prenita. 30 Kaj elĵetu la senutilan servis-
 
 ton en la eksteran mallumon; tie estos la plorado kaj la grincado de
 
-dentoj. 
+dentoj.
 
 31 Sed kiam la Filo de homo venos en sia gloro, kaj ĉiuj anĝeloj
 
@@ -3306,11 +3172,9 @@ respondos kaj diros al ili: Vere mi diras al vi: Kiom vi faris al unu el
 
 ĉi tiuj miaj fratoj la plej malgrandaj, tiom vi faris al mi. 41 Tiam li
 
-55
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 diros al tiuj, kiuj staras maldekstre: For de mi, vi malbenitaj, en la
 
@@ -3330,7 +3194,7 @@ rejo, kaj ne servis al vi? 45 Tiam li respondos al ili, dirante: Vere mi
 
 diras al vi: Kiom vi ne faris al unu el ĉi tiuj la plej malgrandaj, tiom
 
-vi ne faris al mi. 46 Kaj ĉi tiuj foriros en eternan punon, sed la justuloj en eternan vivon. 
+vi ne faris al mi. 46 Kaj ĉi tiuj foriros en eternan punon, sed la justuloj en eternan vivon.
 
 ĉapitro 26
 
@@ -3344,7 +3208,7 @@ Kajafas; 4 kaj ili konsiliĝis, por ke ili povu per ruzo kapti Jesuon, por
 
 mortigi lin. 5 Sed ili diris: Ne dum la festo, por ke ne leviĝu tumul-
 
-to ĉe la popolo. 
+to ĉe la popolo.
 
 6 Kaj kiam Jesuo estis en Betania, en la domo de Simon, lepru-
 
@@ -3352,7 +3216,7 @@ lo, 7 venis al li virino, havanta alabastran vazon de multekosta ŝmir-
 
 aĵo, kaj ŝi verŝis ĝin sur lian kapon, dum li sidis ĉe manĝo. 8 Sed
 
-kiam la disĉiploj tion vidis, ili indignis, dirante: 9 Por kio estas ĉi tiu malŝparo? ĉar ĉi tiun ŝmiraĵon oni povus vendi por granda prezo, 
+kiam la disĉiploj tion vidis, ili indignis, dirante: 9 Por kio estas ĉi tiu malŝparo? ĉar ĉi tiun ŝmiraĵon oni povus vendi por granda prezo,
 
 kaj doni al malriĉuloj. 10 Sed Jesuo, tion sciante, diris al ili: Kial vi
 
@@ -3362,25 +3226,23 @@ kaj doni al malriĉuloj. 10 Sed Jesuo, tion sciante, diris al ili: Kial vi
 
 ŝmiraĵon sur mian korpon, ŝi tion faris por mia entombigo. 13 Vere
 
-56
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi diras al vi: Kie ajn estos predikata ĉi tiu evangelio en la tuta mon-
 
 do, tio ankaŭ, kion faris ĉi tiu virino, estos priparolata, por memor-
 
-aĵo de ŝi. 
+aĵo de ŝi.
 
 14 Tiam unu el la dek du, nomata Judas Iskariota, iris al la ĉefpas-
 
-troj, 15 kaj diris: Kion vi volas doni al mi, se mi lin transdonos al vi? 
+troj, 15 kaj diris: Kion vi volas doni al mi, se mi lin transdonos al vi?
 
 Kaj ili pesis por li tridek arĝentajn monerojn. 16 Kaj de tiam li ser-
 
-ĉis okazon, por transdoni lin. 
+ĉis okazon, por transdoni lin.
 
 17 Kaj en la unua tago de macoj la disĉiploj venis al Jesuo, dirante:
 
@@ -3388,9 +3250,9 @@ Kie vi volas, ke ni pretigu por vi, por manĝi la Paskon? 18 Kaj li di-
 
 ris: Iru en la urbon al trovotulo, kaj diru al li: La Majstro diras: Mia
 
-tempo estas proksima; mi faros la Paskon ĉe vi, kun miaj disĉiploj. 
+tempo estas proksima; mi faros la Paskon ĉe vi, kun miaj disĉiploj.
 
-19 Kaj la disĉiploj faris, kiel Jesuo ordonis al ili, kaj ili pretigis la Paskon. 20 Kaj kiam vesperiĝis, li sidis ĉe manĝo kun la dek du disĉiploj; 
+19 Kaj la disĉiploj faris, kiel Jesuo ordonis al ili, kaj ili pretigis la Paskon. 20 Kaj kiam vesperiĝis, li sidis ĉe manĝo kun la dek du disĉiploj;
 
 21 kaj dum ili manĝis, li diris: Vere mi diras al vi, ke unu el vi perfi-
 
@@ -3402,7 +3264,7 @@ non en la pladon, perfidos min. 24 La Filo de homo iros, kiel estas
 
 skribite pri li; sed ve al tiu viro, de kiu la Filo de homo estos perfi-
 
-dita\! se tiu homo ne estus naskita, estus bone por li. 25 Kaj Judas, kiu
+dita! se tiu homo ne estus naskita, estus bone por li. 25 Kaj Judas, kiu
 
 estis lin perfidonta, responde diris: ĉu eble mi, rabeno? Li diris al li:
 
@@ -3414,27 +3276,25 @@ estas mia korpo. 27 Kaj li prenis kalikon, kaj doninte dankon, donis
 
 al ili, dirante: Vi ĉiuj trinku el ĝi; 28 ĉar ĉi tio estas mia sango de la
 
-interligo, kiu estas elverŝata por multaj, por la pardonado de pekoj. 
+interligo, kiu estas elverŝata por multaj, por la pardonado de pekoj.
 
-29 Sed mi diras al vi: De nun mi ne trinkos el ĉi tiu frukto de la vin-
+29 Sed mi diras al vi: De nun mi ne trs el ĉi tiu frukto de la vin-
 
-berarbo, ĝis tiu tago, kiam mi trinkos ĝin novan kun vi en la regno
+berarbo, ĝis tiu tago, kiam mi trs ĝin novan kun vi en la regno
 
-de mia Patro. 
+de mia Patro.
 
-30 Kaj kantinte himnon, ili foriris al la monto Olivarba. 
+30 Kaj kantinte himnon, ili foriris al la monto Olivarba.
 
 31 Tiam diris Jesuo al ili: Vi ĉiuj ofendiĝos pro mi dum ĉi tiu nok-
 
-57
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 to; ĉar estas skribite: Mi frapos la paŝtiston, kaj la ŝafoj de la grego
 
-diskuros. 32 Tamen, post mia releviĝo mi iros antaŭ vi en Galileon. 
+diskuros. 32 Tamen, post mia releviĝo mi iros antaŭ vi en Galileon.
 
 33 Sed Petro responde diris al li: Eĉ se ĉiuj ofendiĝos pro vi, mi ne-
 
@@ -3446,13 +3306,13 @@ ris al li: Eĉ se mi devos morti kun vi, mi neniel vin malkonfesos. Tiel
 
 same diris ĉiuj disĉiploj. 36 Tiam venis Jesuo kun ili al loko nomata
 
-Getsemane, kaj diris al siaj disĉiploj: Sidiĝu ĉi tie, dum mi iros tien, 
+Getsemane, kaj diris al siaj disĉiploj: Sidiĝu ĉi tie, dum mi iros tien,
 
-por preĝi. 37 Kaj li prenis kun si Petron kaj la du filojn de Zebedeo, 
+por preĝi. 37 Kaj li prenis kun si Petron kaj la du filojn de Zebedeo,
 
 kaj komencis malĝoji kaj maltrankviliĝi. 38 Tiam li diris al ili: Tre
 
-malĝoja estas mia animo, eĉ ĝis morto; restu ĉi tie, kaj viglu kun mi. 
+malĝoja estas mia animo, eĉ ĝis morto; restu ĉi tie, kaj viglu kun mi.
 
 39 Kaj irinte iom antaŭen, li falis sur sian vizaĝon, preĝante, kaj dir-
 
@@ -3468,7 +3328,7 @@ ton; la spirito ja estas fervora, sed la karno estas malforta. 42 Den-
 
 ove la duan fojon foririnte, li preĝis, dirante: Ho mia Patro, se ĉi tio
 
-ne povos forpasi, krom se mi trinkos ĝin, Via volo plenumiĝu. 43 Kaj
+ne povos forpasi, krom se mi trs ĝin, Via volo plenumiĝu. 43 Kaj
 
 denove reveninte, li trovis ilin dormantaj, ĉar iliaj okuloj peziĝis. 44
 
@@ -3480,9 +3340,9 @@ ili: Dormu nun kaj ripozu: jen la horo alproksimiĝis, kaj la Filo de
 
 homo estas perfidata en la manojn de pekuloj. 46 Leviĝu, ni iru; jen
 
-mia perfidanto alproksimiĝas. 
+mia perfidanto alproksimiĝas.
 
-47 Kaj dum li ankoraŭ parolis, jen venis Judas, unu el la dek du; 
+47 Kaj dum li ankoraŭ parolis, jen venis Judas, unu el la dek du;
 
 kaj kun li granda homamaso kun glavoj kaj bastonoj venis de la
 
@@ -3492,7 +3352,6 @@ kaj kun li granda homamaso kun glavoj kaj bastonoj venis de la
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 suo diris al li: Amiko, por kio vi venis? Tiam ili venis, kaj metis ma-
 
@@ -3502,7 +3361,7 @@ Jesuo, etendis sian manon kaj eltiris sian glavon, kaj frapis la skla-
 
 von de la ĉefpastro, kaj detranĉis lian orelon. 52 Tiam diris Jesuo al
 
-li: Remetu vian glavon en ĝian ingon; ĉar ĉiuj, kiuj glavon prenas, 
+li: Remetu vian glavon en ĝian ingon; ĉar ĉiuj, kiuj glavon prenas,
 
 per glavo pereos. 53 ĉu vi do supozas, ke mi ne povas alvoki mian
 
@@ -3512,19 +3371,19 @@ kiel plenumiĝus la Skriboj, ke tiel devas okazi? 55 En tiu horo Jesuo
 
 diris al la homamasoj: ĉu vi elvenis kvazaŭ kontraŭ rabiston, kun
 
-glavoj kaj bastonoj, por kapti min? ĉiutage mi sidis en la templo, 
+glavoj kaj bastonoj, por kapti min? ĉiutage mi sidis en la templo,
 
 instruante, kaj vi ne arestis min. 56 Sed ĉio tio okazis, por ke plen-
 
 umiĝu la Skriboj de la profetoj. Tiam ĉiuj disĉiploj forlasis lin kaj
 
-forkuris. 
+forkuris.
 
 57 Kaj la arestintoj de Jesuo forkondukis lin al la domo de la ĉef-
 
 pastro Kajafas, kie jam kolektiĝis la skribistoj kaj pliaĝuloj. 58 Sed
 
-Petro malproksime sekvis lin ĝis la korto de la ĉefpastro, kaj eniris, 
+Petro malproksime sekvis lin ĝis la korto de la ĉefpastro, kaj eniris,
 
 kaj sidis kun la subuloj, por vidi la finon. 59 Kaj la ĉefpastroj kaj la
 
@@ -3552,15 +3411,13 @@ bezonas atestantojn? jen nun vi aŭdis la blasfemon: 66 kion vi opi-
 
 nias? Ili respondis kaj diris: Li estas kondamninda al morto. 67 Tiam
 
-59
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 oni kraĉis sur lian vizaĝon kaj vangofrapis lin, kaj iuj frapis lin per
 
-la manplatoj, 68 dirante: Profetu al ni, ho Kristo, kiu vin frapis? 
+la manplatoj, 68 dirante: Profetu al ni, ho Kristo, kiu vin frapis?
 
 69 Kaj Petro sidis ekstere sur la korto; kaj venis al li unu servan-
 
@@ -3570,7 +3427,7 @@ konfesis antaŭ ili ĉiuj, dirante: Mi ne scias, kion vi diras. 71 Kaj post
 
 kiam li eliris en la vestiblon, alia vidis lin, kaj diris al la ĉeestantoj: ĉi tiu estis ankaŭ kun Jesuo, la Nazaretano. 72 Kaj denove li malkonfesis kun ĵuro: Mi ne konas tiun homon. 73 Kaj post iom da tempo
 
-la apudstarantoj venis, kaj diris al Petro: Vere vi ankaŭ estas el ili, 
+la apudstarantoj venis, kaj diris al Petro: Vere vi ankaŭ estas el ili,
 
 ĉar via parolmaniero malkaŝas vin. 74 Tiam li komencis malbeni kaj
 
@@ -3578,7 +3435,7 @@ la apudstarantoj venis, kaj diris al Petro: Vere vi ankaŭ estas el ili,
 
 moris la vorton, kiun Jesuo parolis: Antaŭ ol krios koko, vi trifoje
 
-malkonfesos min. Kaj li eliris, kaj maldolĉe ploris. 
+malkonfesos min. Kaj li eliris, kaj maldolĉe ploris.
 
 ĉapitro 27
 
@@ -3586,7 +3443,7 @@ malkonfesos min. Kaj li eliris, kaj maldolĉe ploris.
 
 konsiliĝis kontraŭ Jesuo, por mortigi lin; 2 kaj ili ligis lin, kaj forkon-
 
-dukis lin kaj transdonis lin al Pilato, la provincestro. 
+dukis lin kaj transdonis lin al Pilato, la provincestro.
 
 3 Tiam Judas, lia perfidinto, vidinte, ke li estas kondamnita, pen-
 
@@ -3596,7 +3453,7 @@ pliaĝuloj, 4 dirante: Mi pekis, perfidante senkulpan sangon. Sed ili
 
 diris: Kiel tio koncernas nin? vi zorgu pri tio. 5 Kaj li ĵetis la arĝen-
 
-tajn monerojn en la sanktejon, kaj eliris; kaj foririnte, pendigis sin. 
+tajn monerojn en la sanktejon, kaj eliris; kaj foririnte, pendigis sin.
 
 6 Kaj la ĉefpastroj prenis la arĝentajn monerojn, kaj diris: Ne kon-
 
@@ -3610,19 +3467,17 @@ raŭ ĝis hodiaŭ. 9 Tiam plenumiĝis tio, kio estis dirita per la profeto
 
 Jeremia, nome: Kaj ili prenis la tridek arĝentajn monerojn, takso-
 
-60
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 prezon de tiu, kiu estis taksita, kiujn iuj el la filoj de Izrael taksis; 10
 
 kaj donis ilin por la kampo de la potisto, kiel la Eternulo difinis al
 
-mi. 
+mi.
 
-11 Kaj Jesuo staris antaŭ la provincestro; kaj la estro demandis lin, 
+11 Kaj Jesuo staris antaŭ la provincestro; kaj la estro demandis lin,
 
 dirante: ĉu vi estas la Reĝo de la Judoj? Kaj Jesuo diris al li: Vi di-
 
@@ -3634,7 +3489,7 @@ atestas kontraŭ vi? 14 Kaj li ne respondis al li eĉ unu vorton, tiel ke
 
 la provincestro tre forte miris. 15 Sed ĉe tiu festo la provincestro
 
-kutimis liberigi al la homamaso unu malliberulon, kiun ili deziris. 
+kutimis liberigi al la homamaso unu malliberulon, kiun ili deziris.
 
 16 Kaj oni havis tiam faman malliberulon, nomatan Barabas. 17 Kiam
 
@@ -3670,31 +3525,28 @@ sponde diris: Lia sango estu sur ni kaj sur niaj infanoj. 26 Tiam li li-
 
 berigis al ili Barabason; sed skurĝinte Jesuon, li transdonis lin, por
 
-esti krucumita. 
+esti krucumita.
 
 27 Tiam la soldatoj de la provincestro, kondukinte Jesuon en la
 
 palacon, kolektis al li la tutan kohorton. 28 Kaj ili senvestigis lin, kaj
 
-61
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 surmetis al li skarlatan mantelon. 29 Kaj ili plektis kronon el dornoj
 
 kaj metis ĝin sur lian kapon, kaj metis kanon en lian dekstran ma-
 
 
-
 non; kaj ili genuis antaŭ li, kaj mokis lin, dirante: Saluton, Reĝo de
 
-la Judoj\! 30 Kaj ili kraĉis sur lin, kaj prenis la kanon kaj frapis lian
+la Judoj! 30 Kaj ili kraĉis sur lin, kaj prenis la kanon kaj frapis lian
 
 kapon. 31 Kaj mokinte lin, ili demetis de li la mantelon, kaj surme-
 
-tis al li liajn proprajn vestojn, kaj forkondukis lin, por krucumi lin. 
+tis al li liajn proprajn vestojn, kaj forkondukis lin, por krucumi lin.
 
 32 Kaj elirinte, ili trovis viron Kirenanon, nomatan Simon; tiun ili
 
@@ -3704,11 +3556,11 @@ gota, tio estas, Loko de Kranio, 34 ili donis al li trinki vinon kun galo
 
 enmiksita; kaj li gustumis ĝin, kaj ne volis trinki. 35 Kaj krucumin-
 
-te lin, ili dividis inter si liajn vestojn, ĵetante lotojn; 36 kaj ili sidiĝis, kaj gardis lin tie. 37 Kaj ili metis super lia kapo lian akuzon, skribitan: ĉI TIU ESTAS JESUO, LA RE¯O DE LA JUDOJ. 38 Tiam kun li
+te lin, ili dividis inter si liajn vestojn, ĵetante lotojn; 36 kaj ili sidiĝis, kaj gardis lin tie. 37 Kaj ili metis super lia kapo lian akuzon, skribitan: ĉI TIU ESTAS JESUO, LA REO DE LA JUDOJ. 38 Tiam kun li
 
 estis krucumitaj du rabistoj, unu dekstre kaj unu maldekstre. 39 Kaj
 
-la preterpasantoj insultis lin, balancante la kapon, 40 kaj dirante: Vi, 
+la preterpasantoj insultis lin, balancante la kapon, 40 kaj dirante: Vi,
 
 kiu detruas la sanktejon kaj rekonstruas ĝin en la daŭro de tri ta-
 
@@ -3718,11 +3570,11 @@ ankaŭ la ĉefpastroj, mokante kun la skribistoj kaj la pliaĝuloj, diris:
 
 42 Aliajn li savis; sin mem li ne povas savi. Li ja estas Reĝo de Izra-
 
-el, li nun deiru de la kruco, kaj ni kredos al li. 43 Li apogis sin al Dio; Tiu savu lin, se Li amas lin; ĉar li diris: Mi estas la Filo de Dio. 44 Kaj ankaŭ la rabistoj, kiuj estis krucumitaj kun li, tiel same insultis lin. 
+el, li nun deiru de la kruco, kaj ni kredos al li. 43 Li apogis sin al Dio; Tiu savu lin, se Li amas lin; ĉar li diris: Mi estas la Filo de Dio. 44 Kaj ankaŭ la rabistoj, kiuj estis krucumitaj kun li, tiel same insultis lin.
 
 45 Kaj de post la sesa horo fariĝis mallumo sur la tuta lando ĝis
 
-la naŭa horo. 46 Kaj ĉirkaŭ la naŭa horo Jesuo ekkriis per laŭta voĉo, 
+la naŭa horo. 46 Kaj ĉirkaŭ la naŭa horo Jesuo ekkriis per laŭta voĉo,
 
 dirante: Eli, Eli, lama saba˛tani? tio estas: Mia Dio, mia Dio, kial Vi
 
@@ -3732,15 +3584,13 @@ vokas Elijan. 48 Kaj tuj unu el ili kuris kaj prenis spongon kaj plenigis
 
 ĝin per vinagro, kaj metinte ĝin sur kanon, donis al li trinki. 49 Kaj
 
-la aliaj diris: Lasu; ni vidu, ĉu venos Elija, por savi lin. 50 Kaj Jesuo, 
+la aliaj diris: Lasu; ni vidu, ĉu venos Elija, por savi lin. 50 Kaj Jesuo,
 
 denove kriinte per laŭta voĉo, ellasis for la spiriton. 51 Kaj jen la kur-
 
-62
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 teno de la sanktejo disŝiriĝis en du pecojn de supre ĝis malsupre; kaj
 
@@ -3756,13 +3606,13 @@ on, kiam ili vidis la tertremon kaj la okazantaĵojn, tre timis, diran-
 
 te: Vere ĉi tiu estis Filo de Dio. 55 Kaj tie estis multaj virinoj, rigar-
 
-dantaj de malproksime, kiuj sekvis Jesuon el Galileo, servante al li; 
+dantaj de malproksime, kiuj sekvis Jesuon el Galileo, servante al li;
 
 56 inter kiuj estis Maria Magdalena, kaj Maria, la patrino de Jako-
 
-bo kaj de Joses, kaj la patrino de la filoj de Zebedeo. 
+bo kaj de Joses, kaj la patrino de la filoj de Zebedeo.
 
-57 Kaj kiam vesperiĝis, venis riĉulo, nomata Jozef, el Arimateo, 
+57 Kaj kiam vesperiĝis, venis riĉulo, nomata Jozef, el Arimateo,
 
 kiu mem estis disĉiplo de Jesuo: 58 tiu, irinte al Pilato, petis la kor-
 
@@ -3774,7 +3624,7 @@ van tombon, kiun li jam elhakis en la roko; kaj li alrulis grandan
 
 ŝtonon al la enirejo de la tombo, kaj foriris. 61 Kaj Maria Magdalena
 
-estis tie, kaj la alia Maria, sidantaj apud la tombo. 
+estis tie, kaj la alia Maria, sidantaj apud la tombo.
 
 62 La sekvantan tagon, kiu estas la tago post la Preparado, la ĉef-
 
@@ -3788,21 +3638,19 @@ tago, por ke liaj disĉiploj ne venu kaj ne forŝtelu lin kaj ne diru al
 
 la popolo: Li releviĝis el la mortintoj; kaj la lasta trompo estus pli
 
-malbona, ol la unua. 65 Pilato diris al ili: Vi havas gardistaron; iru, 
+malbona, ol la unua. 65 Pilato diris al ili: Vi havas gardistaron; iru,
 
 kaj gardu ĝin laŭ via eblo. 66 Tial ili foriris kaj gardis la tombon, si-
 
-gelinte la ŝtonon, kune kun gardistaro. 
+gelinte la ŝtonon, kune kun gardistaro.
 
-63
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 28
 
-1 Kaj sabate malfrue, kiam eklumis por la unua tago de la semajno, 
+1 Kaj sabate malfrue, kiam eklumis por la unua tago de la semajno,
 
 venis Maria Magdalena kaj la alia Maria, por vidi la tombon. 2 Kaj
 
@@ -3824,19 +3672,19 @@ disĉiploj. 9 Kaj jen Jesuo renkontis ilin, dirante: Saluton. Kaj alvenin-
 
 te, ili ekprenis liajn piedojn kaj adorkliniĝis al li. 10 Tiam Jesuo di-
 
-ris al ili: Ne timu; iru, diru al miaj fratoj, ke ili foriru en Galileon, kaj tie ili min vidos. 
+ris al ili: Ne timu; iru, diru al miaj fratoj, ke ili foriru en Galileon, kaj tie ili min vidos.
 
 11 Kaj dum ili iris, iuj el la gardistoj venis en la urbon, kaj rakontis
 
-al la ĉefpastroj ĉiujn okazintaĵojn. 12 Kaj kunveninte kun la pliaĝuloj, 
+al la ĉefpastroj ĉiujn okazintaĵojn. 12 Kaj kunveninte kun la pliaĝuloj,
 
 ili konsiliĝis kune, kaj ili donis al la soldatoj multe da mono, 13 dir-
 
 ante: Diru: Liaj disĉiploj venis nokte, kaj forŝtelis lin, dum ni dor-
 
-mis. 14 Kaj se la provincestro tion aŭdos, ni konvinkos lin, kaj libe-
+mis. 14 Kaj se la provincestro tion aŭdos, ni konvs lin, kaj libe-
 
-rigos vin de ĉia zorgo. 15 Kaj ili prenis la monon, kaj faris, kiel ili estis instruitaj; kaj tiu diro disvastiĝis inter la Judoj ĝis hodiaŭ. 
+rigos vin de ĉia zorgo. 15 Kaj ili prenis la monon, kaj faris, kiel ili estis instruitaj; kaj tiu diro disvastiĝis inter la Judoj ĝis hodiaŭ.
 
 16 Sed la dek unu disĉiploj iris en Galileon, sur la monton, kiun
 
@@ -3844,39 +3692,35 @@ Jesuo jam difinis al ili. 17 Kaj kiam ili vidis lin, ili adorkliniĝis al li; se
 
 de la Sankta Spirito; 20 instruante ilin observi ĉion, kion mi ordonis
 
-64
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 al vi. Kaj jen mi estas kun vi ĉiujn tagojn, ĝis la maturiĝo de la
 
-mondaĝo. 
+mondaĝo.
 
-65
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La evangelio laŭ sankta Marko
 
 ĉapitro 1
 
-1 La komenco de la evangelio de Jesuo Kristo, Filo de Dio. 
+1 La komenco de la evangelio de Jesuo Kristo, Filo de Dio.
 
 2 Kiel estas skribite en la profeto Jesaja:
 
-Jen Mi sendas Mian anĝelon antaŭ via vizaĝo, 
+Jen Mi sendas Mian anĝelon antaŭ via vizaĝo,
 
-Kaj li preparos vian vojon; 
+Kaj li preparos vian vojon;
 
 3 Voĉo de krianto en la dezerto:
 
-Pretigu la vojon de la Eternulo, 
+Pretigu la vojon de la Eternulo,
 
-Rektigu Liajn irejojn; 
+Rektigu Liajn irejojn;
 
 4 venis Johano, kiu baptis en la dezerto kaj predikis la bapton de
 
@@ -3888,13 +3732,13 @@ ro Jordan, konfesante siajn pekojn. 6 Kaj Johano estis vestita per
 
 kamelharaĵo kaj leda zono ĉirkaŭ siaj lumboj, kaj li manĝadis akri-
 
-dojn kaj sovaĝan mielon. 7 Kaj li predikis, dirante: Venas post mi tiu, 
+dojn kaj sovaĝan mielon. 7 Kaj li predikis, dirante: Venas post mi tiu,
 
-kiu estas pli potenca ol mi; la rimenon de liaj ŝuoj mi ne estas inda, 
+kiu estas pli potenca ol mi; la rimenon de liaj ŝuoj mi ne estas inda,
 
 kliniĝinte, malligi. 8 Mi vin baptis per akvo; sed li vin baptos per la
 
-Sankta Spirito. 
+Sankta Spirito.
 
 9 Kaj en tiuj tagoj Jesuo venis el Nazaret de Galileo, kaj estis bap-
 
@@ -3902,19 +3746,17 @@ tita de Johano en Jordan. 10 Kaj tuj kiam li eliris el la akvo, li vidis la ĉie
 
 lin; 11 kaj venis voĉo el la ĉielo: Vi estas Mia Filo, la amata, en kiu
 
-Mi havas plezuron. 
+Mi havas plezuron.
 
 12 Kaj tuj la Spirito pelis lin for en la dezerton. 13 Kaj li estis en la
 
-66
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dezerto kvardek tagojn, tentata de Satano; kaj li estis kun la sova-
 
-ĝaj bestoj, kaj la anĝeloj servadis al li. 
+ĝaj bestoj, kaj la anĝeloj servadis al li.
 
 14 Kaj post kiam Johano estis arestita, Jesuo iris en Galileon, pre-
 
@@ -3922,7 +3764,7 @@ dikante la evangelion de Dio, 15 kaj dirante: La tempo jam plen-
 
 umiĝis, kaj la regno de Dio alproksimiĝis; pentu, kaj kredu al la
 
-evangelio. 
+evangelio.
 
 16 Kaj irante apud la Galilea Maro, li vidis Simonon, kaj Andre-
 
@@ -3930,13 +3772,13 @@ on, fraton de Simon, ĵetantajn reton en la maron; ĉar ili estis fiŝkap-
 
 tistoj. 17 Kaj Jesuo diris al ili: Venu post mi, kaj mi igos vin fariĝi
 
-kaptistoj de homoj. 18 Kaj ili tuj forlasis la retojn, kaj sekvis lin. 19 Kaj irinte iom antaŭen, li vidis Jakobon, filon de Zebedeo, kaj Johanon, 
+kaptistoj de homoj. 18 Kaj ili tuj forlasis la retojn, kaj sekvis lin. 19 Kaj irinte iom antaŭen, li vidis Jakobon, filon de Zebedeo, kaj Johanon,
 
 lian fraton, kiuj ankaŭ estis en la ŝipeto, riparante la retojn. 20 Kaj
 
 tuj li alvokis ilin; kaj ili lasis sian patron Zebedeo en la ŝipeto kun
 
-la dungitoj, kaj foriris post li. 
+la dungitoj, kaj foriris post li.
 
 21 Kaj ili iris en Kapernaumon, kaj tuj en la sabato li eniris en la
 
@@ -3946,41 +3788,39 @@ struis kiel havanta aŭtoritaton, kaj ne kiel la skribistoj. 23 Kaj en ilia
 
 sinagogo estis viro kun malpura spirito; kaj li ekkriis, 24 dirante: Kio
 
-estas inter ni kaj vi, Jesuo Nazaretano? ĉu vi venis, por pereigi nin? 
+estas inter ni kaj vi, Jesuo Nazaretano? ĉu vi venis, por pereigi nin?
 
 mi scias, kiu vi estas: la Sanktulo de Dio. 25 Kaj Jesuo severe admo-
 
 nis lin, dirante: Silentu, kaj eliru el li. 26 Kaj la malpura spirito kon-
 
-vulsiigis lin, kaj, laŭte kriinte, eliris el li. 27 Kaj ĉiuj miregis tiom, ke ili diskutis inter si, dirante: Kio estas ĉi tio? jen nova instruado\! kun
+vulsiigis lin, kaj, laŭte kriinte, eliris el li. 27 Kaj ĉiuj miregis tiom, ke ili diskutis inter si, dirante: Kio estas ĉi tio? jen nova instruado! kun
 
-aŭtoritato li ordonas eĉ al la malpuraj spiritoj, kaj ili obeas lin. 28 Kaj tuj la famo pri li disvastiĝis ĉie en la tutan ĉirkaŭaĵon de Galileo. 
+aŭtoritato li ordonas eĉ al la malpuraj spiritoj, kaj ili obeas lin. 28 Kaj tuj la famo pri li disvastiĝis ĉie en la tutan ĉirkaŭaĵon de Galileo.
 
 29 Kaj tuj, elirinte el la sinagogo, ili eniris en la domon de Simon
 
 kaj Andreo, kun Jakobo kaj Johano. 30 Sed la bopatrino de Simon
 
-kuŝis malsana de febro; kaj tuj oni sciigis al li pri ŝi; 31 kaj veninte, 
+kuŝis malsana de febro; kaj tuj oni sciigis al li pri ŝi; 31 kaj veninte,
 
 li prenis ŝian manon kaj levis ŝin; kaj la febro forlasis ŝin, kaj ŝi ser-
 
-vis al ili. 
+vis al ili.
 
-67
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 32 Kaj vespere, kiam la suno subiris, oni venigis al li ĉiujn, kiuj
 
 estis malsanaj kaj demonhavantaj. 33 Kaj la tuta urbo kolektiĝis ĉe
 
-la pordo. 34 Kaj li sanigis multajn, kiuj malsanis de diversaj malsanoj, 
+la pordo. 34 Kaj li sanigis multajn, kiuj malsanis de diversaj malsanoj,
 
 kaj elpelis multajn demonojn; kaj li ne permesis al la demonoj pa-
 
-roli, ĉar ili konis lin. 
+roli, ĉar ili konis lin.
 
 35 Kaj matene, antaŭ ol la nokto pasis, li leviĝis, kaj foriris en de-
 
@@ -3990,7 +3830,7 @@ lin; 37 kaj ili trovis lin, kaj diris al li: ĉiuj vin serĉas. 38 Kaj li diris 
 
 prediku; ĉar por tio mi venis. 39 Kaj li iris, predikante en iliaj sina-
 
-gogoj tra la tuta Galileo, kaj elpelante la demonojn. 
+gogoj tra la tuta Galileo, kaj elpelante la demonojn.
 
 40 Kaj venis al li leprulo, alvokante lin, kaj genuinte, li diris al li:
 
@@ -4008,7 +3848,7 @@ te rakonti kaj disfamigi la aferon, tiel ke Jesuo jam ne povis malkaŝe
 
 eniri en urbon, sed restis ekstere en dezertaj lokoj; kaj oni venis al
 
-li el ĉie. 
+li el ĉie.
 
 ĉapitro 2
 
@@ -4016,19 +3856,17 @@ li el ĉie.
 
 iĝis, ke li estas en domo. 2 Kaj multaj kunvenis, tiel ke jam ne estis
 
-loko eĉ apud la pordo; kaj li parolis al ili la vorton. 3 Kaj oni venis, 
+loko eĉ apud la pordo; kaj li parolis al ili la vorton. 3 Kaj oni venis,
 
 alportante al li paralizulon, portatan de kvar homoj. 4 Kaj ne povan-
 
-te alproksimiĝi al li pro la homamaso, ili malkovris la tegmenton, 
+te alproksimiĝi al li pro la homamaso, ili malkovris la tegmenton,
 
 kie li estis; kaj trafosinte ĝin, ili mallevis la liton, sur kiu kuŝis la
 
-68
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 paralizulo. 5 Kaj Jesuo, vidante ilian fidon, diris al la paralizulo: Filo, viaj pekoj estas pardonitaj. 6 Sed estis iuj el la skribistoj tie, sidantaj kaj diskutantaj en siaj koroj: 7 Kial tiu tiel parolas? li blasfemas:
 
@@ -4036,15 +3874,15 @@ kiu povas pardoni pekojn, krom Dio sola? 8 Kaj Jesuo, tuj ekscian-
 
 te en sia spirito, ke tiel ili diskutas en si, diris al ili: Kial vi tion diskutas en viaj koroj? 9 Kio estas pli facila: diri al la paralizulo: Viaj pe-
 
-koj estas pardonitaj; aŭ diri: Leviĝu, prenu vian liton, kaj piediru? 
+koj estas pardonitaj; aŭ diri: Leviĝu, prenu vian liton, kaj piediru?
 
 10 Sed por ke vi sciu, ke la Filo de homo havas aŭtoritaton sur la tero
 
-pardoni pekojn—li diris al la paralizulo: 11 Mi diras al vi: Leviĝu, 
+pardoni pekojn—li diris al la paralizulo: 11 Mi diras al vi: Leviĝu,
 
 prenu vian liton, kaj iru al via domo. 12 Kaj li leviĝis, kaj tuj prenis
 
-la liton, kaj eliris antaŭ ĉiuj, tiel ke ĉiuj miregis, kaj gloris Dion, dirante: Neniam ni vidis ion tian. 
+la liton, kaj eliris antaŭ ĉiuj, tiel ke ĉiuj miregis, kaj gloris Dion, dirante: Neniam ni vidis ion tian.
 
 13 Kaj denove li eliris al la marbordo, kaj la tuta homamaso ve-
 
@@ -4060,7 +3898,7 @@ ili estis multaj, kaj ili sekvis lin. 16 Kaj la skribistoj kaj la Fariseoj, vida
 
 dinte tion, Jesuo diris al ili: Ne la sanuloj bezonas kuraciston, sed
 
-la malsanuloj: mi venis, por alvoki ne justulojn, sed pekulojn. 
+la malsanuloj: mi venis, por alvoki ne justulojn, sed pekulojn.
 
 18 Kaj la disĉiploj de Johano kaj la Fariseoj estis fastantaj, kaj oni
 
@@ -4078,11 +3916,9 @@ niu alkudras flikaĵon el nefulita drapo sur malnovan veston; alie la
 
 nova plenigaĵo ion forprenas de la malnova ŝtofo, kaj pli malbona
 
-69
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ŝiraĵo fariĝas. 22 Kaj neniu enverŝas novan vinon en malnovajn fel-
 
@@ -4090,7 +3926,7 @@ sakojn; alie la vino krevigos la felsakojn, kaj la vino elfluos kaj la
 
 felsakoj detruiĝos; sed oni enverŝas novan vinon en novajn felsa-
 
-kojn. 
+kojn.
 
 23 Kaj en sabato li iris tra la grenkampoj, kaj liaj disĉiploj kom-
 
@@ -4110,13 +3946,13 @@ kunuloj? 27 Kaj li diris al ili: La sabato estiĝis por la homo, kaj ne la
 
 homo por la sabato; 28 tial la Filo de homo estas sinjoro eĉ de la sa-
 
-bato. 
+bato.
 
 ĉapitro 3
 
 1 Kaj denove li eniris en la sinagogon, kaj tie estis viro, havanta ma-
 
-non velkintan. 2 Kaj oni observis lin, ĉu en la sabato li lin sanigos, 
+non velkintan. 2 Kaj oni observis lin, ĉu en la sabato li lin sanigos,
 
 por ke ili povu lin akuzi. 3 Kaj li diris al la viro, kiu havis la velkin-
 
@@ -4130,7 +3966,7 @@ la obstiniĝo de ilia koro, li diris al la viro: Etendu vian manon. Kaj
 
 li etendis ĝin, kaj lia mano resaniĝis. 6 Kaj la Fariseoj eliris, kaj tuj
 
-konsiliĝis kun la Herodanoj kontraŭ li, kiamaniere lin pereigi. 
+konsiliĝis kun la Herodanoj kontraŭ li, kiamaniere lin pereigi.
 
 7 Kaj Jesuo kun siaj disĉiploj foriris ĝis la maro; kaj granda homa-
 
@@ -4140,11 +3976,9 @@ Edom kaj el Transjordano kaj el ĉirkaŭ Tiro kaj Cidon, grandnom-
 
 bra homamaso, aŭdinte ĉion, kion li faris, venis al li. 9 Kaj li diris al
 
-70
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 siaj disĉiploj, ke malgranda ŝipeto estu sub lia dispono, pro la ho-
 
@@ -4154,7 +3988,7 @@ ke ĉiuj, kiuj havis malsanojn, premadis sur lin, por tuŝi lin. 11 Kaj
 
 malpuraj spiritoj, tuj kiam ili vidis lin, falis antaŭ li, kaj kriis, dirante: Vi estas la Filo de Dio. 12 Kaj li severe admonis ilin, ke ili ne konatigu
 
-lin. 
+lin.
 
 13 Kaj li supreniris sur la monton, kaj alvokis tiujn, kiujn li mem
 
@@ -4166,15 +4000,15 @@ diki, 15 kaj por havi aŭtoritaton elpeli demonojn: 16 kaj Simonon li
 
 alnomis Petro; 17 kaj Jakobon, filon de Zebedeo, kaj Johanon, fraton
 
-de Jakobo, kaj tiujn li alnomis Boanerges, tio estas, Filoj de tondro; 
+de Jakobo, kaj tiujn li alnomis Boanerges, tio estas, Filoj de tondro;
 
 18 kaj Andreon kaj Filipon kaj Bartolomeon kaj Mateon kaj Toma-
 
 son, kaj Jakobon, filon de Alfeo, kaj Tadeon, kaj Simonon, la Fervo-
 
-rulon, 19 kaj Judason Iskariotan, kiu ankaŭ perfidis lin. 
+rulon, 19 kaj Judason Iskariotan, kiu ankaŭ perfidis lin.
 
-Kaj li venis en domon. 20 Kaj denove la homamaso kunvenis tiel, 
+Kaj li venis en domon. 20 Kaj denove la homamaso kunvenis tiel,
 
 ke ili ne povis eĉ manĝi panon. 21 Kaj liaj amikoj, aŭdinte tion, eli-
 
@@ -4196,19 +4030,17 @@ daĵojn, se unue li ne ligos la fortulon, kaj poste li trarabos lian do-
 
 mon. 28 Vere mi diras al vi: ĉiuj iliaj pekoj estos pardonitaj al la fi-
 
-loj de homoj, kaj iliaj blasfemoj, per kiuj ajn ili blasfemos; 29 sed iu, 
+loj de homoj, kaj iliaj blasfemoj, per kiuj ajn ili blasfemos; 29 sed iu,
 
-kiu blasfemos kontraŭ la Sankta Spirito, eterne ne havos pardonon, 
+kiu blasfemos kontraŭ la Sankta Spirito, eterne ne havos pardonon,
 
-71
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sed estas kulpa pri eterna peko; 30 ĉar oni diris: Li havas malpuran
 
-spiriton. 
+spiriton.
 
 31 Kaj jen alvenis lia patrino kaj liaj fratoj, kaj starante ekstere, ili
 
@@ -4218,15 +4050,15 @@ ris al li: Jen via patrino kaj viaj fratoj ekstere vin serĉas. 33 Kaj li respon
 
 ĉirkaŭrigardante tiujn, kiuj ronde ĉirkaŭ li sidis, li diris: Jen mia
 
-patrino kaj miaj fratoj\! 35 ĉar kiu ajn faros la volon de Dio, tiu es-
+patrino kaj miaj fratoj! 35 ĉar kiu ajn faros la volon de Dio, tiu es-
 
-tas mia frato kaj mia fratino kaj mia patrino. 
+tas mia frato kaj mia fratino kaj mia patrino.
 
 ĉapitro 4
 
 1 Kaj denove li komencis instrui apud la maro. Kaj kolektiĝis al li tre
 
-granda homamaso tiel, ke li eniris en ŝipeton, kaj sidis sur la maro; 
+granda homamaso tiel, ke li eniris en ŝipeton, kaj sidis sur la maro;
 
 kaj la tuta homamaso estis sur la tero apud la maro. 2 Kaj li multe
 
@@ -4246,19 +4078,17 @@ frukton. 8 Kaj aliaj falis en la bonan teron, kaj donis frukton, kres-
 
 kante kaj multobliĝante, kaj produktis tridekoble kaj sesdekoble kaj
 
-centoble. 9 Kaj li diris: Kiu havas orelojn por aŭdi, tiu aŭdu. 
+centoble. 9 Kaj li diris: Kiu havas orelojn por aŭdi, tiu aŭdu.
 
 10 Kaj kiam li estis sola, tiuj, kiuj alestis kune kun la dek du, de-
 
-mandis lin pri la paraboloj. 11 Kaj li diris al ili: Al vi estas donite scii la misteron de la regno de Dio; sed al tiuj, kiuj estas ekstere, ĉio estas farata per paraboloj; 12 por ke, vidante, ili vidu, sed ne rimarku; 
+mandis lin pri la paraboloj. 11 Kaj li diris al ili: Al vi estas donite scii la misteron de la regno de Dio; sed al tiuj, kiuj estas ekstere, ĉio estas farata per paraboloj; 12 por ke, vidante, ili vidu, sed ne rimarku;
 
 kaj aŭdante, ili aŭdu, sed ne komprenu; por ke neniam ili konver-
 
-72
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tiĝu kaj pardoniĝu. 13 Kaj li diris al ili: ĉu vi ne scias ĉi tiun parabo-
 
@@ -4280,7 +4110,7 @@ dornoj: tiuj, kiuj aŭdis la vorton; 19 sed la zorgoj de la mondo kaj la
 
 trompo de riĉo kaj la deziroj al aliaj aferoj, enirante, sufokas la vor-
 
-ton, kaj ĝi fariĝas senfrukta. 20 Kaj jen la semitaj ĉe la bona tero: tiuj, kiuj aŭdas la vorton kaj akceptas ĝin, kaj donas frukton, jen tridekoble, kaj jen sesdekoble, kaj jen centoble. 
+ton, kaj ĝi fariĝas senfrukta. 20 Kaj jen la semitaj ĉe la bona tero: tiuj, kiuj aŭdas la vorton kaj akceptas ĝin, kaj donas frukton, jen tridekoble, kaj jen sesdekoble, kaj jen centoble.
 
 21 Kaj li diris al ili: ĉu lampo enportiĝas, por esti metita sub gren-
 
@@ -4296,7 +4126,7 @@ zuro vi mezuras, laŭ tiu sama oni mezuros al vi, kaj eĉ faros al vi
 
 aldonon. 25 ĉar al tiu, kiu havas, estos donite; sed for de tiu, kiu ne
 
-havas, estos prenita eĉ tio, kion li havas. 
+havas, estos prenita eĉ tio, kion li havas.
 
 26 Kaj li diris: Tia estas la regno de Dio, kvazaŭ homo ĵetus se-
 
@@ -4308,7 +4138,7 @@ nas frukton, unue folion, poste spikon, poste plenan grenon en spi-
 
 ko. 29 Sed kiam la frukto estas preta, li tuj svingas la rikoltilon, ĉar
 
-venis la rikolto. 
+venis la rikolto.
 
 30 Kaj li diris: Al kio ni komparu la regnon de Dio? aŭ per kia
 
@@ -4316,27 +4146,25 @@ parabolo ni montru ĝin? 31 Al sinapa semeto, kiu, kiam ĝi estas se-
 
 mita sur la teron, estas pli malgranda ol ĉiuj aliaj semoj, kiuj estas
 
-73
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sur la tero, 32 tamen semite, kreskas kaj fariĝas pli granda ol ĉiuj
 
 legomoj, kaj elmetas grandajn branĉojn, tiel ke sub ĝia ombro po-
 
-vas ekloĝi la birdoj de la ĉielo. 
+vas ekloĝi la birdoj de la ĉielo.
 
 33 Kaj per multaj tiaj paraboloj li parolis al ili la vorton laŭ tio, kiel
 
 ili povis aŭskulti; 34 kaj sen parabolo li ne parolis al ili; sed private
 
-li klarigis ĉion al siaj disĉiploj. 
+li klarigis ĉion al siaj disĉiploj.
 
 35 Kaj en tiu tago, kiam vesperiĝis, li diris al ili: Ni transiru al la
 
-alia bordo. 36 Kaj forsendinte la homamason, ili kondukis lin kun si, 
+alia bordo. 36 Kaj forsendinte la homamason, ili kondukis lin kun si,
 
 kiel li estis en la ŝipeto. Kaj aliaj ŝipetoj akompanis lin. 37 Kaj okazis
 
@@ -4352,7 +4180,7 @@ li diris al ili: Kial vi estas timemaj? ĉu vi ankoraŭ ne havas fidon? 41
 
 Kaj ili timis treege, kaj diris unu al alia: Kiu do estas ĉi tiu? ĉar eĉ
 
-la vento kaj la maro obeas al li. 
+la vento kaj la maro obeas al li.
 
 ĉapitro 5
 
@@ -4366,17 +4194,15 @@ povis ligi lin eĉ per kateno; 4 ĉar li ofte estis ĉirkaŭligita per katenoj
 
 kaj ĉenoj, kaj la ĉenoj estis disŝiritaj de li kaj la katenoj frakasitaj; kaj neniu kapablis malsovaĝigi lin. 5 Kaj ĉiam, nokte kaj tage, inter la
 
-tomboj kaj sur la montoj, li kriadis kaj sin tranĉis per ŝtonoj. 6 Kaj, 
+tomboj kaj sur la montoj, li kriadis kaj sin tranĉis per ŝtonoj. 6 Kaj,
 
 vidinte Jesuon el malproksime, li kuris kaj adorkliniĝis al li; 7 kaj
 
 kriante per laŭta voĉo, li diris: Kio estas inter mi kaj vi, ho Jesuo, Filo de Dio Plejalta? Mi vin ĵurpetas per Dio, ke vi ne turmentu min. 8
 
-74
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉar li diris al li: Eliru, ho malpura spirito, el la viro. 9 Kaj li deman-
 
@@ -4408,7 +4234,7 @@ la porkoj. 17 Kaj ili komencis petegi lin, ke li foriru el iliaj limoj. 18 Kaj k
 
 esti kun li. 19 Kaj li ne permesis al li, sed diris al li: Iru al via domo, al la viaj, kaj rakontu al ili ĉion, kion faris la Eternulo por vi, kaj kiel Li kompatis vin. 20 Kaj li foriris, kaj komencis famigi en Dekapolis
 
-ĉion, kion faris Jesuo por li; kaj ĉiuj miregis. 
+ĉion, kion faris Jesuo por li; kaj ĉiuj miregis.
 
 21 Kaj kiam Jesuo retransiris en la ŝipeto al la alia bordo, granda
 
@@ -4422,7 +4248,7 @@ ekstremo; venu do kaj metu viajn manojn sur ŝin, por ke ŝi saviĝu
 
 kaj vivu. 24 Kaj li iris kun li, kaj granda homamaso sekvis lin kaj pre-
 
-mis lin. 
+mis lin.
 
 25 Kaj virino, kiu jam dek du jarojn havis sangofluon, 26 kaj multe
 
@@ -4432,17 +4258,15 @@ tis neniel helpita, sed kontraŭe eĉ pli malsaniĝis, 27 aŭdinte pri Je-
 
 suo, venis en la homamaso malantaŭ lin, kaj tuŝis lian mantelon. 28
 
-75
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉar ŝi diris: Se mi nur tuŝos lian mantelon, mi estos sanigita. 29 Kaj
 
 tuj la fonto de ŝia sango sekiĝis, kaj ŝi korpe sentis, ke ŝi resaniĝis
 
-el sia malsano. 30 Kaj Jesuo, tuj sentante en si, ke la potenco eliris, 
+el sia malsano. 30 Kaj Jesuo, tuj sentante en si, ke la potenco eliris,
 
 turnis sin en la homamaso, kaj diris: Kiu tuŝis mian veston? 31 Kaj
 
@@ -4454,11 +4278,11 @@ tion faris. 33 Sed la virino, timigita kaj tremanta, sciante, kio fariĝis
 
 al ŝi, venis kaj falis antaŭ li, kaj diris al li la tutan veron. 34 Kaj li diris al ŝi: Filino, via fido vin savis; iru en paco, kaj estu sana el via
 
-malsano. 
+malsano.
 
 35 Dum li ankoraŭ parolis, oni venis el la domo de la sinagoges-
 
-tro, dirante: Via filino mortis; kial vi ankoraŭ ĝenas la instruiston? 
+tro, dirante: Via filino mortis; kial vi ankoraŭ ĝenas la instruiston?
 
 36 Sed Jesuo, ne atentante la parolon diritan, diris al la sinagogest-
 
@@ -4484,7 +4308,7 @@ leviĝis la knabineto kaj piediris; ĉar ŝi estis dekdujara. Kaj ili miris
 
 kun granda mirego. 43 Kaj li severe admonis ilin, ke neniu sciiĝu pri
 
-tio; kaj li ordonis doni al ŝi manĝi. 
+tio; kaj li ordonis doni al ŝi manĝi.
 
 ĉapitro 6
 
@@ -4492,13 +4316,11 @@ tio; kaj li ordonis doni al ŝi manĝi.
 
 sekvis. 2 Kaj kiam venis la sabato, li komencis instrui en la sinago-
 
-76
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-go; kaj multaj, lin aŭdante, miris, dirante: De kie tiu viro havas tion? 
+go; kaj multaj, lin aŭdante, miris, dirante: De kie tiu viro havas tion?
 
 kaj: Kia estas la saĝeco donita al li? kaj kiaj estas tiaj potencaĵoj fa-
 
@@ -4508,17 +4330,17 @@ ria, kaj frato de Jakobo kaj Joses kaj Judas kaj Simon? kaj ĉu liaj fra-
 
 tinoj ne estas ĉi tie ĉe ni? Kaj ili ofendiĝis pro li. 4 Kaj Jesuo diris al ili: Profeto ne estas sen honoro, krom en sia patrujo kaj inter siaj
 
-parencoj kaj en sia domo. 5 Kaj li povis tie fari nenian potencaĵon, 
+parencoj kaj en sia domo. 5 Kaj li povis tie fari nenian potencaĵon,
 
 krom tio, ke li metis la manojn sur kelkajn senfortulojn kaj ilin re-
 
-sanigis. 6 Kaj li miris pro ilia nekredemo. 
+sanigis. 6 Kaj li miris pro ilia nekredemo.
 
-Kaj li rondevizitis la vilaĝojn, instruante. 
+Kaj li rondevizitis la vilaĝojn, instruante.
 
-7 Kaj li alvokis al si la dek du, kaj komencis forsendi ilin duope; 
+7 Kaj li alvokis al si la dek du, kaj komencis forsendi ilin duope;
 
-kaj li donis al ili aŭtoritaton super malpuraj spiritoj; 8 kaj li ordonis, 
+kaj li donis al ili aŭtoritaton super malpuraj spiritoj; 8 kaj li ordonis,
 
 ke ili portu nenion por la vojo krom nur bastono—nek panon, nek
 
@@ -4530,7 +4352,7 @@ ne akceptos, nek vin aŭskultos, tiam el tie forirante, deskuu la pol-
 
 von, kiu estas sub viaj piedoj, por atesto al ili. 12 Kaj foririnte, ili predikis, ke oni pentu. 13 Kaj ili elpeladis multajn demonojn, kaj ŝmi-
 
-radis per oleo multajn malsanulojn kaj ilin sanigadis. 
+radis per oleo multajn malsanulojn kaj ilin sanigadis.
 
 14 Kaj la reĝo Herodo aŭdis pri tio, ĉar lia nomo jam konatiĝis; kaj
 
@@ -4546,13 +4368,11 @@ frato. 19 Kaj Herodias klopodis kontraŭ li, kaj deziris mortigi lin, kaj
 
 ne povis; 20 ĉar Herodo timis Johanon, sciante, ke li estas viro jus-
 
-77
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-ta kaj sankta, kaj nepre gardis lin. Kaj aŭskultante lin, li embarasiĝis, 
+ta kaj sankta, kaj nepre gardis lin. Kaj aŭskultante lin, li embarasiĝis,
 
 kaj aŭskultis lin volonte. 21 Kaj kiam venis oportuna tago, kiam He-
 
@@ -4564,7 +4384,7 @@ dancis, kaj ŝi plaĉis al Herodo kaj al liaj kunmanĝantoj; kaj la reĝo
 
 diris al la knabino: Petu de mi, kion ajn vi volas, kaj mi tion donos
 
-al vi. 23 Kaj li ĵuris al ŝi: Kion ajn vi petos de mi, mi tion donos al vi, 
+al vi. 23 Kaj li ĵuris al ŝi: Kion ajn vi petos de mi, mi tion donos al vi,
 
 ĝis duono de mia regno. 24 Kaj elirinte, ŝi diris al sia patrino: Kion
 
@@ -4580,7 +4400,7 @@ lis rifuzi al ŝi. 27 Kaj tuj la reĝo elsendis soldaton el sia gardistaro, kaj 
 
 bino; kaj la knabino donis ĝin al sia patrino. 29 Kaj kiam liaj disĉiploj
 
-aŭdis, ili venis kaj forportis lian korpon, kaj metis ĝin en tombon. 
+aŭdis, ili venis kaj forportis lian korpon, kaj metis ĝin en tombon.
 
 30 Kaj la apostoloj kolektiĝis al Jesuo, kaj rakontis al li ĉion, kion
 
@@ -4606,11 +4426,9 @@ aĉetu por si manĝaĵon. 37 Sed li responde diris al ili: Vi donu al ili
 
 manĝi. Kaj ili diris al li: ĉu ni iru kaj aĉetu panojn por ducent dena-
 
-78
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 roj, kaj donu al ili manĝi? 38 Kaj li diris al ili: Kiom da panoj vi ha-
 
@@ -4626,11 +4444,11 @@ li dividis la du fiŝojn inter ĉiuj. 42 Kaj ĉiuj manĝis kaj satiĝis. 43 Kaj
 
 oni kolektis da fragmentoj dek du korbojn, kaj ankaŭ el la fiŝoj. 44
 
-Kaj tiuj, kiuj manĝis la panojn, estis kvin mil viroj. 
+Kaj tiuj, kiuj manĝis la panojn, estis kvin mil viroj.
 
 45 Kaj tuj li devigis siajn disĉiplojn eniri en la ŝipeton kaj iri an-
 
-taŭ li al la alia bordo, al Betsaida, dum li forsendos la homamason. 
+taŭ li al la alia bordo, al Betsaida, dum li forsendos la homamason.
 
 46 Kaj adiaŭinte ilin, li foriris sur la monton, por preĝi. 47 Kaj kiam
 
@@ -4638,7 +4456,7 @@ vesperiĝis, la ŝipeto estis meze de la maro, kaj li sola sur la tero. 48
 
 Kaj vidante ilin laborantaj en malfacila remado, ĉar la vento estis
 
-kontraŭa al ili, ĉirkaŭ la kvara gardoparto de la nokto li venis al ili, 
+kontraŭa al ili, ĉirkaŭ la kvara gardoparto de la nokto li venis al ili,
 
 irante sur la maro, kaj li volis preterpasi ilin; 49 sed ili, vidante lin
 
@@ -4646,7 +4464,7 @@ iranta sur la maro, supozis, ke ĝi estas fantomo, kaj ili ekkriis; 50 ĉar
 
 ĉiuj vidis lin kaj maltrankviliĝis. Sed li tuj parolis kun ili, kaj diris al ili: Kuraĝu; ĝi estas mi; ne timu. 51 Kaj li supreniris al ili en la ŝipeton, kaj la vento ĉesiĝis; kaj ili sentis grandan miregon; 52 ĉar ili ne
 
-komprenis pri la panoj, ĉar ilia koro estis sensenta. 
+komprenis pri la panoj, ĉar ilia koro estis sensenta.
 
 53 Kaj transirinte, ili alvenis teren ĉe Genesaret, kaj alligis la ŝi-
 
@@ -4658,15 +4476,13 @@ iliaj litoj tien, kie ili aŭdis, ke li estas. 56 Kaj kien ajn li eniris, en vil
 
 ĝojn aŭ en urbojn aŭ sur la kamparon, ili demetis la malsanulojn
 
-sur la placoj, kaj petegis lin, ke ili tuŝu nur la randon de lia vesto; 
+sur la placoj, kaj petegis lin, ke ili tuŝu nur la randon de lia vesto;
 
-kaj ĉiuj, kiuj tuŝis, resaniĝis. 
+kaj ĉiuj, kiuj tuŝis, resaniĝis.
 
-79
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 7
 
@@ -4692,13 +4508,13 @@ diris al ili: Bone profetis Jesaja pri vi hipokrituloj, kiel estas skribi-
 
 te:
 
-ĉi tiu popolo honoras Min per siaj lipoj, 
+ĉi tiu popolo honoras Min per siaj lipoj,
 
-Sed ilia koro estas malproksime de Mi. 
+Sed ilia koro estas malproksime de Mi.
 
-7 Sed vane ili Min adoras, 
+7 Sed vane ili Min adoras,
 
-Instruante kiel doktrinojn ordonojn de homoj. 
+Instruante kiel doktrinojn ordonojn de homoj.
 
 8 ĉar, forlasinte la ordonon de Dio, vi tenas la tradicion de ho-
 
@@ -4710,7 +4526,7 @@ vian patrinon; kaj: Kiu malbenas sian patron aŭ sian patrinon, tiu
 
 nepre mortu. 11 Sed vi diras: Se iu diros al sia patro aŭ sia patrino:
 
-Korban, tio estas Oferdono, estu tio, per kio vi povus profiti de mi, 
+Korban, tio estas Oferdono, estu tio, per kio vi povus profiti de mi,
 
 12 vi jam ne permesas al li fari ion por sia patro aŭ sia patrino; 13
 
@@ -4718,7 +4534,7 @@ vantigante la vorton de Dio per via tradicio, kiun vi transdonis; kaj
 
 multajn tiajn aferojn vi faras. 14 Kaj denove alvokinte la homama-
 
-son, li diris al ili: ĉiuj min aŭskultu kaj komprenu: 15 ekzistas nenio, 
+son, li diris al ili: ĉiuj min aŭskultu kaj komprenu: 15 ekzistas nenio,
 
 kio, enirante en homon de ekstere, povas lin profani; sed kio eliras
 
@@ -4728,11 +4544,9 @@ aŭdu. 17 Kaj kiam li eniris en domon for de la homamaso, liaj dis-
 
 ĉiploj demandis lin pri la parabolo. 18 Kaj li diris al ili: ĉu vi ankaŭ
 
-80
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estas tiel sen kompreno? ĉu vi ne konscias, ke ĉio, eniranta de ek-
 
@@ -4748,7 +4562,7 @@ taj pensoj, malĉastaĵoj, 22 ŝteloj, mortigoj, adultoj, avideco, malin-
 
 daĵoj, ruzeco, voluptoj, malica okulo, blasfemo, aroganteco, malsa-
 
-ĝeco; 23 ĉiuj tiuj malbonoj elvenas de interne kaj profanas la homon. 
+ĝeco; 23 ĉiuj tiuj malbonoj elvenas de interne kaj profanas la homon.
 
 24 Kaj irinte de tie, li venis en la limojn de Tiro kaj Cidon. Kaj
 
@@ -4756,9 +4570,9 @@ enirinte en domon, li volis, ke neniu sciu; sed li ne povis esti kaŝi-
 
 ta. 25 Sed aŭdinte pri li, iu virino, kies filineto havis malpuran spi-
 
-riton, venis kaj falis antaŭ liaj piedoj. 26 Kaj la virino estis Grekino, 
+riton, venis kaj falis antaŭ liaj piedoj. 26 Kaj la virino estis Grekino,
 
-rase Sirofenika. Kaj ŝi petis lin, ke li elpelu la demonon el ŝia filino. 
+rase Sirofenika. Kaj ŝi petis lin, ke li elpelu la demonon el ŝia filino.
 
 27 Kaj li diris al ŝi: Lasu unue satigi la infanojn, ĉar ne decas preni
 
@@ -4766,9 +4580,9 @@ la panon de la infanoj kaj ĵeti ĝin al la hundetoj. 28 Sed ŝi respondis
 
 kaj diris al li: Jes, Sinjoro; ĉar eĉ la hundetoj sub la tablo manĝas el
 
-la panpecetoj de la infanoj. 29 Kaj li diris al ŝi: Pro ĉi tiu vorto iru vian vojon; la demono eliris el via filino. 30 Kaj kiam ŝi iris en sian domon, 
+la panpecetoj de la infanoj. 29 Kaj li diris al ŝi: Pro ĉi tiu vorto iru vian vojon; la demono eliris el via filino. 30 Kaj kiam ŝi iris en sian domon,
 
-ŝi trovis la infaninon kuŝigita sur la lito, kaj la demonon foririnta. 
+ŝi trovis la infaninon kuŝigita sur la lito, kaj la demonon foririnta.
 
 31 Kaj denove foririnte el la limoj de Tiro, li venis tra Cidon al la
 
@@ -4778,23 +4592,21 @@ dukis al li viron surdan kaj apenaŭ parolkapablan, kaj petis lin, ke
 
 li metu sian manon sur lin. 33 Kaj kondukinte lin el la homamaso en
 
-apartan lokon, li metis siajn fingrojn en liajn orelojn, kaj kraĉinte, 
+apartan lokon, li metis siajn fingrojn en liajn orelojn, kaj kraĉinte,
 
 li tuŝis lian langon; 34 kaj suprenrigardinte al la ĉielo, li ĝemis, kaj
 
-diris al li: Efata, tio estas: Malfermiĝu. 35 Kaj liaj oreloj malfermiĝis, 
+diris al li: Efata, tio estas: Malfermiĝu. 35 Kaj liaj oreloj malfermiĝis,
 
 kaj la ligilo de lia lango malstreĉiĝis, kaj li parolis klare. 36 Kaj li admonis ilin, ke oni diru tion al neniu; sed ju pli li malpermesis, des
 
 pli multe ili ĉie sciigis ĝin. 37 Kaj supermezure ili miregis, dirante: Li
 
-faris ĉion bone; li igas la surdulojn aŭdi, kaj la mutulojn paroli. 
+faris ĉion bone; li igas la surdulojn aŭdi, kaj la mutulojn paroli.
 
-81
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 8
 
@@ -4804,7 +4616,7 @@ havis manĝi, li alvokis al si siajn disĉiplojn, kaj diris al ili: 2 Mi kor-
 
 tuŝiĝas pro la homamaso, ĉar jam tri tagojn ili restas ĉe mi kaj ne-
 
-nion havas manĝi; 3 kaj se mi forsendos ilin fastantaj al iliaj domoj, 
+nion havas manĝi; 3 kaj se mi forsendos ilin fastantaj al iliaj domoj,
 
 ili laciĝos sur la vojo; kaj iuj el ili venis de malproksime. 4 Kaj liaj
 
@@ -4826,7 +4638,7 @@ tis da postrestintaj fragmentoj sep korbegojn. 9 Kaj ili estis proksi-
 
 mume kvar mil, kaj li forsendis ilin. 10 Kaj tuj enirinte en la ŝipeton
 
-kun siaj disĉiploj, li iris al la regiono Dalmanuta. 
+kun siaj disĉiploj, li iris al la regiono Dalmanuta.
 
 11 Kaj alvenis la Fariseoj, kaj komencis diskuti kun li, serĉante ĉe
 
@@ -4836,11 +4648,11 @@ to, li diris: Kial ĉi tiu generacio serĉas signon? vere, mi diras al vi:
 
 Nenia signo estos donita al ĉi tiu generacio. 13 Kaj forlasinte ilin, li
 
-denove enŝipiĝis kaj transiris al la alia bordo. 
+denove enŝipiĝis kaj transiris al la alia bordo.
 
 14 Kaj ili forgesis preni panojn; kaj nur unu panon ili havis kun
 
-si en la ŝipeto. 15 Kaj li admonis ilin, dirante: Zorgu, gardu vin kon-
+si en la ŝipeto. 15 Kaj li admonis ilin, dirante: Zorgu, gardu vn-
 
 traŭ la fermentaĵo de la Fariseoj kaj la fermentaĵo de Herodo. 16 Kaj
 
@@ -4856,17 +4668,15 @@ havante, ĉu vi ne aŭdas? kaj ĉu vi ne memoras? 19 Kiam mi dispe-
 
 cigis la kvin panojn por la kvin mil, kiom da korboj da fragmentoj
 
-82
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vi kolektis? Ili respondis al li: Dek du. 20 Kaj kiam la sep por la kvar
 
 mil, kiom da korbegoj da fragmentoj vi kolektis? Kaj ili respondis al
 
-li: Sep. 21 Kaj li diris al ili: ĉu vi ankoraŭ ne komprenas? 
+li: Sep. 21 Kaj li diris al ili: ĉu vi ankoraŭ ne komprenas?
 
 22 Kaj ili alvenis al Betsaida. Kaj oni alkondukis al li blindulon, kaj
 
@@ -4880,7 +4690,7 @@ li ekrigardis, kaj diris: Mi vidas homojn, ĉar mi vidas kvazaŭ arbojn
 
 irantajn. 25 Tiam denove li metis la manojn sur liajn okulojn; kaj li
 
-fikse rigardis, kaj resaniĝis, kaj vidis ĉion klare. 26 Kaj li forsendis lin al lia domo, dirante: Nepre ne eniru en la vilaĝon. 
+fikse rigardis, kaj resaniĝis, kaj vidis ĉion klare. 26 Kaj li forsendis lin al lia domo, dirante: Nepre ne eniru en la vilaĝon.
 
 27 Kaj eliris Jesuo kaj liaj disĉiploj en la vilaĝojn de Cezarea Fili-
 
@@ -4894,7 +4704,7 @@ Vi estas la Kristo. 30 Kaj li admonis ilin, ke ili diru al neniu pri li. 31
 
 Kaj li komencis instrui al ili, ke la Filo de homo devas multe sufe-
 
-ri, kaj esti rifuzita de la pliaĝuloj kaj la ĉefpastroj kaj la skribistoj, 
+ri, kaj esti rifuzita de la pliaĝuloj kaj la ĉefpastroj kaj la skribistoj,
 
 kaj esti mortigita, kaj post tri tagoj releviĝi. 32 Kaj li parolis tiun di-
 
@@ -4918,21 +4728,19 @@ perdus sian animon? 37 ĉar kion homo donu interŝanĝe por sia ani-
 
 mo? 38 ĉar kiu hontos pri mi kaj miaj paroloj antaŭ ĉi tiu adultema
 
-83
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj peka generacio, pri tiu ankaŭ hontos la Filo de homo, kiam li
 
-venos en la gloro de sia Patro kun la sanktaj anĝeloj. 
+venos en la gloro de sia Patro kun la sanktaj anĝeloj.
 
 ĉapitro 9
 
 1 Kaj li diris al ili: Vere mi diras al vi: Inter la ĉi tie starantaj estas iuj, kiuj neniel gustumos morton, antaŭ ol ili vidos la regnon de Dio
 
-venintan en potenco. 
+venintan en potenco.
 
 2 Kaj post ses tagoj Jesuo prenis kun si Petron kaj Jakobon kaj
 
@@ -4952,7 +4760,7 @@ ilin; kaj elvenis voĉo el la nubo: ĉi tiu estas Mia Filo, la amata; aŭs-
 
 kultu lin. 8 Kaj subite, ĉirkaŭrigardinte, ili jam vidis neniun krom Je-
 
-suo sola. 
+suo sola.
 
 9 Kaj dum ili malsupreniris de la monto, li admonis ilin, ke al
 
@@ -4968,17 +4776,15 @@ la Filo de homo, ke li devas multe suferi kaj esti malestimata? 13 Sed
 
 mi diras al vi, ke Elija jam venis, kaj oni faris al li ĉion, kion ili vo-
 
-lis, kiel estas skribite pri li. 
+lis, kiel estas skribite pri li.
 
 14 Kaj veninte al la disĉiploj, ili vidis grandan homamason ĉirkaŭ
 
 ili, kaj skribistojn diskutantajn kun ili. 15 Kaj tuj la homamaso, vid-
 
-84
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ante lin, forte miris, kaj alkuris, kaj salutis lin. 16 Kaj li demandis ilin: Pri kio vi diskutas kun ili? 17 Kaj unu el la amaso respondis al li: Majstro, mi venigis al vi mian filon, kiu havas mutan spiriton; 18 kaj kie
 
@@ -4994,9 +4800,9 @@ kiom da tempo okazadas ĉi tio al li? Kaj li diris: De infaneco. 22 Kaj
 
 ofte ĝi ĵetis lin en fajron kaj en akvon, por pereigi lin; sed se vi po-
 
-vas fari ion, kompatu al ni kaj helpu nin. 23 Kaj Jesuo diris al li: Kiel, 
+vas fari ion, kompatu al ni kaj helpu nin. 23 Kaj Jesuo diris al li: Kiel,
 
-se vi povas\! ĉio estas ebla por kredanto. 24 Tuj ekkriante, la patro de
+se vi povas! ĉio estas ebla por kredanto. 24 Tuj ekkriante, la patro de
 
 la infano diris: Mi kredas; helpu mian nekredemon. 25 Kaj kiam Je-
 
@@ -5012,15 +4818,15 @@ diris: Li mortis. 27 Sed Jesuo, preninte lin je la mano, levis lin; kaj li
 
 stariĝis. 28 Kaj kiam li eniris en la domon, liaj disĉiploj aparte de-
 
-mandis lin: Kial ni ne povis elpeli ĝin? 29 Kaj li diris al ili: ĉi tiu speco neniel povas eliri, krom per preĝado. 
+mandis lin: Kial ni ne povis elpeli ĝin? 29 Kaj li diris al ili: ĉi tiu speco neniel povas eliri, krom per preĝado.
 
 30 Kaj foririnte, ili trapasis tra Galileo; kaj li deziris, ke neniu tion
 
-eksciu. 31 ĉar li instruadis siajn disĉiplojn, kaj diris al ili: La Filo de homo estas transdonita en la manojn de homoj, kaj ili mortigos lin; 
+eksciu. 31 ĉar li instruadis siajn disĉiplojn, kaj diris al ili: La Filo de homo estas transdonita en la manojn de homoj, kaj ili mortigos lin;
 
 kaj, mortigite, li leviĝos post tri tagoj. 32 Sed ili ne komprenis la di-
 
-ron, kaj timis demandi lin. 
+ron, kaj timis demandi lin.
 
 33 Kaj ili venis al Kapernaum, kaj kiam li estis en la domo, li de-
 
@@ -5028,17 +4834,15 @@ mandis ilin: Pri kio vi diskutis sur la vojo? 34 Sed ili silentis; ĉar ili
 
 diskutis inter si sur la vojo pri tio, kiu estas la plej granda. 35 Kaj
 
-85
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sidiĝinte, li alvokis la dek du, kaj diris al ili: Se iu volas esti unua, li estos lasta el ĉiuj, kaj servanto de ĉiuj. 36 Kaj preninte infanon, li starigis ĝin meze de ili; kaj ĉirkaŭbrakinte ĝin, li diris al ili: 37 Kiu ak-
 
 ceptos unu el tiaj infanoj en mia nomo, tiu akceptas min; kaj kiu
 
-akceptas min, tiu akceptas ne min, sed Tiun, kiu sendis min. 
+akceptas min, tiu akceptas ne min, sed Tiun, kiu sendis min.
 
 38 Johano diris al li: Majstro, ni vidis iun elpelantan demonojn en
 
@@ -5052,7 +4856,7 @@ traŭ ni, estas por ni. 41 ĉar kiu donos al vi trinki tason da akvo, pro
 
 tio, ke vi apartenas al Kristo, vere mi diras al vi, tiu neniel perdos
 
-sian rekompencon. 42 Kaj kiu igos fali unu el ĉi tiuj malgranduloj, 
+sian rekompencon. 42 Kaj kiu igos fali unu el ĉi tiuj malgranduloj,
 
 kiuj kredas al mi, estus pli bone por tiu, se granda muelŝtono estus
 
@@ -5062,7 +4866,7 @@ via mano faligas vin, detranĉu ĝin: estas bone por vi eniri en vivon
 
 kripla prefere ol, havante du manojn, eniri en Gehenan, en la nees-
 
-tingeblan fajron, 44 kie ilia vermo ne pereas kaj la fajro ne estingiĝas. 
+tingeblan fajron, 44 kie ilia vermo ne pereas kaj la fajro ne estingiĝas.
 
 45 Kaj se via piedo faligas vin, detranĉu ĝin: estas bone por vi eniri
 
@@ -5078,7 +4882,7 @@ henan, 48 kie ilia vermo ne pereas kaj la fajro ne estingiĝas. 49 ĉar ĉiu
 
 estos salita per fajro. 50 Salo estas bona; sed se la salo fariĝis nesa-
 
-la, kiel vi rebonigos ĝin? Havu salon en vi, kaj paciĝu unu kun alia. 
+la, kiel vi rebonigos ĝin? Havu salon en vi, kaj paciĝu unu kun alia.
 
 ĉapitro 10
 
@@ -5086,11 +4890,9 @@ la, kiel vi rebonigos ĝin? Havu salon en vi, kaj paciĝu unu kun alia.
 
 danon; kaj homamasoj kunvenis denove al li, kaj laŭ sia kutimo li
 
-86
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 instruis ilin denove. 2 Kaj Fariseoj venis, kaj demandis lin, por pro-
 
@@ -5100,7 +4902,7 @@ sponde diris al ili: Kion Moseo ordonis al vi? 4 Kaj ili diris: Moseo
 
 permesis skribi eksedzigan leteron, kaj forsendi ŝin. 5 Sed Jesuo diris
 
-al ili: Pro la malmoleco de via koro li skribis por vi ĉi tiun ordonon. 
+al ili: Pro la malmoleco de via koro li skribis por vi ĉi tiun ordonon.
 
 6 Sed de la komenco de la kreo: Li faris ilin vira kaj virina. 7 Tial viro
 
@@ -5114,7 +4916,7 @@ denove demandis lin pri la afero. 11 Kaj li diris al ili: Kiu forsendos
 
 sian edzinon kaj edziĝos kun alia, tiu adultas kontraŭ ŝi; 12 kaj se ŝi
 
-mem forsendos sian edzon kaj edziniĝos kun alia, ŝi adultas. 
+mem forsendos sian edzon kaj edziniĝos kun alia, ŝi adultas.
 
 13 Kaj oni venigis al li infanojn, por ke li tuŝu ilin; kaj la disĉiploj
 
@@ -5126,7 +4928,7 @@ Dio. 15 Vere mi diras al vi: Kiu ne akceptos la regnon de Dio kiel in-
 
 fano, tiu neniel eniros en ĝin. 16 Kaj li prenis ilin en siaj brakoj, kaj
 
-benis ilin, metinte la manojn sur ilin. 
+benis ilin, metinte la manojn sur ilin.
 
 17 Kaj dum li foriris sur la vojo, unu homo kuris al li kaj genuis
 
@@ -5142,31 +4944,29 @@ rabu; Respektu vian patron kaj vian patrinon. 20 Kaj li responde diris
 
 al li: Majstro, ĉion tion mi observis detempe de mia juneco. 21 Kaj
 
-Jesuo, rigardante lin, amis lin, kaj diris al li: Unu mankon vi havas; 
+Jesuo, rigardante lin, amis lin, kaj diris al li: Unu mankon vi havas;
 
 iru, kaj vendu ĉion, kion vi havas, kaj donu al malriĉuloj, kaj vi ha-
 
 vos trezoron en la ĉielo; kaj venu, sekvu min. 22 Sed li malgajiĝis ĉe
 
-tiu vorto, kaj foriris malĝoja; ĉar li havis multajn posedaĵojn. 
+tiu vorto, kaj foriris malĝoja; ĉar li havis multajn posedaĵojn.
 
 23 Kaj Jesuo ĉirkaŭrigardis, kaj diris al siaj disĉiploj: Kiel malfa-
 
-87
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-cile tiuj, kiuj havas riĉon, eniros en la regnon de Dio\! 24 Kaj la dis-
+cile tiuj, kiuj havas riĉon, eniros en la regnon de Dio! 24 Kaj la dis-
 
 ĉiploj miris pro liaj vortoj. Sed Jesuo, respondante denove, diris al
 
-ili: Infanoj, kiel malfacile estas por tiuj, kiuj fidas al la riĉo, eniri en la regnon de Dio\! 25 Estas pli facile por kamelo iri tra trueton de kudrilo, ol por riĉulo eniri en la regnon de Dio. 26 Kaj ili forte miregis, 
+ili: Infanoj, kiel malfacile estas por tiuj, kiuj fidas al la riĉo, eniri en la regnon de Dio! 25 Estas pli facile por kamelo iri tra trueton de kudrilo, ol por riĉulo eniri en la regnon de Dio. 26 Kaj ili forte miregis,
 
 dirante al li: Kiu do povas esti savita? 27 Rigardante ilin, Jesuo diris:
 
-ĉe homoj tio estas neebla, sed ne ĉe Dio; ĉar ĉio estas ebla ĉe Dio. 
+ĉe homoj tio estas neebla, sed ne ĉe Dio; ĉar ĉio estas ebla ĉe Dio.
 
 28 Petro ekparolis al li: Jen ni ĉion forlasis kaj vin sekvis. 29 Jesuo di-
 
@@ -5174,13 +4974,13 @@ ris: Vere mi diras al vi: Ekzistas neniu, kiu forlasis domon aŭ fratojn
 
 aŭ fratinojn aŭ patrinon aŭ patron aŭ infanojn aŭ kampojn pro mi
 
-kaj pro la evangelio, 30 kaj kiu ne ricevos centoble en ĉi tiu tempo, 
+kaj pro la evangelio, 30 kaj kiu ne ricevos centoble en ĉi tiu tempo,
 
 domojn kaj fratojn kaj fratinojn kaj patrinojn kaj infanojn kaj kam-
 
 pojn, kun persekutado; kaj en la venonta mondo eternan vivon. 31
 
-Sed multaj unuaj estos lastaj, kaj lastaj estos unuaj. 
+Sed multaj unuaj estos lastaj, kaj lastaj estos unuaj.
 
 32 Kaj ili estis sur la vojo suprenirantaj al Jerusalem, kaj Jesuo iris
 
@@ -5194,7 +4994,7 @@ la ĉefpastroj kaj la skribistoj; kaj ili kondamnos lin al morto kaj
 
 transdonos lin al la nacianoj; 34 kaj ili lin mokos kaj sur lin kraĉos
 
-kaj lin skurĝos kaj lin mortigos; kaj post tri tagoj li releviĝos. 
+kaj lin skurĝos kaj lin mortigos; kaj post tri tagoj li releviĝos.
 
 35 Kaj alproksimiĝis al li Jakobo kaj Johano, filoj de Zebedeo, dir-
 
@@ -5208,21 +5008,19 @@ petas. ĉu vi povas trinki la kalikon, kiun mi trinkas? aŭ esti bapti-
 
 taj per la bapto, per kiu mi estas baptata? 39 Kaj ili diris al li: Ni po-
 
-vas. Kaj Jesuo diris al ili: La kalikon, kiun mi trinkas, vi trinkos, kaj
+vas. Kaj Jesuo diris al ili: La kalikon, kiun mi trinkas, vi trs, kaj
 
 per la bapto, per kiu mi estas baptata, vi estos baptitaj; 40 sed sidi
 
-88
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dekstre de mi aŭ maldekstre, tion doni ne apartenas al mi; sed ĝi
 
 estas por tiuj, por kiuj ĝi estas preparita. 41 Kaj aŭdinte, la dek ekin-
 
-dignis kontraŭ Jakobo kaj Johano. 42 Kaj Jesuo, alvokinte ilin al si, 
+dignis kontraŭ Jakobo kaj Johano. 42 Kaj Jesuo, alvokinte ilin al si,
 
 diris al ili: Vi scias, ke tiuj, kiuj pretendas regi la nacianojn, kondutas kiel sinjoroj super ili, kaj iliaj granduloj ekzercas aŭtoritaton super
 
@@ -5230,15 +5028,15 @@ ili. 43 Sed ne tiel estos inter vi; sed kiu volas esti granda inter vi, tiu estu
 
 de ĉiuj. 45 ĉar la Filo de homo venis, ne por esti servata, sed por
 
-servi, kaj por doni sian vivon kiel elaĉeton por multaj. 
+servi, kaj por doni sian vivon kiel elaĉeton por multaj.
 
-46 Kaj ili venis al Jeri˛o; kaj kiam li foriris el Jeri˛o kun siaj disĉiploj kaj granda homamaso, la filo de Timeo, Bartimeo, blinda almozulo, 
+46 Kaj ili venis al Jeri˛o; kaj kiam li foriris el Jeri˛o kun siaj disĉiploj kaj granda homamaso, la filo de Timeo, Bartimeo, blinda almozulo,
 
 sidis apud la vojo. 47 Kaj aŭdinte, ke ĉeestas Jesuo, la Nazaretano, li
 
 ekkriis, kaj diris: Jesuo, filo de David, kompatu min. 48 Kaj multaj ad-
 
-monis lin, ke li silentu; sed li des pli forte kriis: Ho Filo de David, kompatu min\! 49 Kaj Jesuo haltis, kaj diris: Alvoku lin. Kaj oni alvokis la
+monis lin, ke li silentu; sed li des pli forte kriis: Ho Filo de David, kompatu min! 49 Kaj Jesuo haltis, kaj diris: Alvoku lin. Kaj oni alvokis la
 
 blindulon, dirante al li: Kuraĝu; leviĝu, li vin alvokas. 50 Kaj li forĵetis sian veston, kaj eksaltis kaj venis al Jesuo. 51 Kaj Jesuo responde al li
 
@@ -5246,11 +5044,11 @@ diris: Kion vi volas, ke mi faru al vi? Kaj la blindulo diris al li: Rabe-
 
 no mia, ke mi ricevu vidpovon. 52 Kaj Jesuo diris al li: Iru; via fido vin
 
-savis. Kaj tuj li ricevis vidpovon, kaj sekvis lin sur la vojo. 
+savis. Kaj tuj li ricevis vidpovon, kaj sekvis lin sur la vojo.
 
 ĉapitro 11
 
-1 Kaj kiam ili alproksimiĝis al Jerusalem, al Betfage kaj Betania, 
+1 Kaj kiam ili alproksimiĝis al Jerusalem, al Betfage kaj Betania,
 
 apud la monto Olivarba, li sendis du el siaj disĉiploj, 2 kaj diris al ili: Iru en la vilaĝon, kiu estas kontraŭ vi, kaj enirinte ĝin, vi tuj trovos
 
@@ -5260,11 +5058,9 @@ konduku ĝin. 3 Kaj se iu diros al vi: Kial vi faras tion? respondu: La
 
 Sinjoro bezonas ĝin; kaj tuj li sendos ĝin ĉi tien. 4 Kaj ili iris, kaj trovis azenidon alligitan apud pordo ekstere sur la strato; kaj ili mal-
 
-89
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ligis ĝin. 5 Kaj iuj apudstarantoj diris al ili: Kion vi faras, malligan-
 
@@ -5272,17 +5068,17 @@ te la azenidon? 6 Sed ili respondis al ili, kiel Jesuo diris; kaj ili lasis ilin
 
 vestojn; kaj li sidis sur ĝi. 8 Kaj multaj sternis siajn vestojn sur la
 
-vojo, kaj aliaj sternis foliarojn, tranĉinte ilin el la kampoj. 9 Kaj kriis la antaŭirantoj kaj la sekvantoj: Hosana\! Estu benata tiu, kiu venas
+vojo, kaj aliaj sternis foliarojn, tranĉinte ilin el la kampoj. 9 Kaj kriis la antaŭirantoj kaj la sekvantoj: Hosana! Estu benata tiu, kiu venas
 
 en la nomo de la Eternulo; 10 Estu benata la venanta regno de nia
 
-patro David; Hosana en la supera alto\! 
+patro David; Hosana en la supera alto!
 
 11 Kaj li eniris en Jerusalemon, en la templon; kaj kiam li ĉirkaŭ-
 
 rigardis ĉion, kaj la horo jam vesperiĝis, li foriris al Betania kun la
 
-dek du. 
+dek du.
 
 12 Kaj la morgaŭan tagon, post ilia eliro el Betania, li malsatis. 13
 
@@ -5292,7 +5088,7 @@ trovi, se eble, ion sur ĝi; kaj veninte al ĝi, li trovis nenion krom fo-
 
 lioj, ĉar la tempo de figoj ankoraŭ ne venis. 14 Kaj responde li diris
 
-al ĝi: Neniu por ĉiam manĝu frukton el vi. Kaj aŭdis la disĉiploj. 
+al ĝi: Neniu por ĉiam manĝu frukton el vi. Kaj aŭdis la disĉiploj.
 
 15 Kaj ili venis en Jerusalemon; kaj enirinte en la templon, li kom-
 
@@ -5300,7 +5096,7 @@ encis elpeli la vendantojn kaj la aĉetantojn en la templo, kaj renver-
 
 sis la tablojn de la monŝanĝistoj kaj la seĝojn de la vendantoj de
 
-kolomboj; 16 kaj ne permesis, ke oni portu ian vazon tra la templo. 
+kolomboj; 16 kaj ne permesis, ke oni portu ian vazon tra la templo.
 
 17 Kaj li instruis, kaj diris al ili: ĉu ne estas skribite: Mia domo es-
 
@@ -5308,9 +5104,9 @@ tos nomata domo de preĝo por ĉiuj popoloj? Sed vi faris ĝin kaverno
 
 de rabistoj. 18 Kaj la ĉefpastroj kaj la skribistoj aŭdis tion, kaj serĉis, kiamaniere pereigi lin; ĉar ili timis lin, ĉar la tuta homamaso miregis
 
-pro lia instruado. 
+pro lia instruado.
 
-19 Kaj kiam vesperiĝis, li eliris el la urbo. 
+19 Kaj kiam vesperiĝis, li eliris el la urbo.
 
 20 Kaj matene, preterpasante, ili vidis la figarbon forvelkinta de
 
@@ -5320,25 +5116,23 @@ kis la figarbo, kiun vi malbenis. 22 Kaj responde Jesuo diris al ili:
 
 Havu fidon al Dio. 23 Vere mi diras al vi: Se iu diros al ĉi tiu mon-
 
-90
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-to: Estu formovita kaj ĵetita en la maron, kaj ne dubos en sia koro, 
+to: Estu formovita kaj ĵetita en la maron, kaj ne dubos en sia koro,
 
 sed kredos, ke okazos tio, kion li diras, tiu ĝin havos. 24 Pro tio mi
 
-diras al vi: Kion ajn vi petos, preĝante, kredu, ke vi tion jam ricevis, 
+diras al vi: Kion ajn vi petos, preĝante, kredu, ke vi tion jam ricevis,
 
 kaj vi ĝin havos. 25 Kaj kiam vi staras preĝante, pardonu, se vi ha-
 
-vas ion kontraŭ iu; por ke ankaŭ via Patro, kiu estas en la ĉielo, 
+vas ion kontraŭ iu; por ke ankaŭ via Patro, kiu estas en la ĉielo,
 
 pardonu al vi viajn erarojn. 26 Sed se vi ne pardonos, ankaŭ via Pa-
 
-tro, kiu estas en la ĉielo, ne pardonos viajn erarojn. 
+tro, kiu estas en la ĉielo, ne pardonos viajn erarojn.
 
 27 Kaj ili denove venis al Jerusalem; kaj dum li ĉirkaŭiris en la
 
@@ -5354,33 +5148,31 @@ lo, aŭ el homoj? respondu al mi. 31 Kaj ili diskutis inter si, dirante:
 
 Se ni diros: El la ĉielo, li diros: Kial do vi ne kredis al li? 32 Sed se ni diros: El homoj—ili timis la popolon, ĉar ĉiuj opiniis, ke Johano
 
-efektive estis profeto. 33 Kaj responde ili diris al Jesuo: Ni ne scias. 
+efektive estis profeto. 33 Kaj responde ili diris al Jesuo: Ni ne scias.
 
 Kaj Jesuo diris al ili: Kaj mi ne diras al vi, laŭ kia aŭtoritato mi fa-
 
-ras ĉi tion. 
+ras ĉi tion.
 
 ĉapitro 12
 
 1 Kaj li komencis paroli al ili per paraboloj. Vinberĝardenon plan-
 
-tis unu viro, kaj ĉirkaŭmetis plektobarilon, kaj fosis vinpremejon, 
+tis unu viro, kaj ĉirkaŭmetis plektobarilon, kaj fosis vinpremejon,
 
 kaj konstruis turon, kaj luigis ĝin al kultivistoj, kaj forvojaĝis. 2 Kaj
 
 li sendis sklavon en la ĝusta tempo al la kultivistoj, por ricevi de la
 
-kultivistoj el la fruktoj de la vinberejo. 3 Kaj ili kaptis lin kaj skurĝis lin, kaj forsendis lin senhava. 4 Kaj poste li sendis al ili duan sklavon; 
+kultivistoj el la fruktoj de la vinberejo. 3 Kaj ili kaptis lin kaj skurĝis lin, kaj forsendis lin senhava. 4 Kaj poste li sendis al ili duan sklavon;
 
 kaj ili lin kapvundis kaj malhonoris. 5 Kaj li sendis alian, kaj ili mor-
 
-tigis lin; kaj multajn aliajn; skurĝante unujn, kaj mortigante aliajn. 
+tigis lin; kaj multajn aliajn; skurĝante unujn, kaj mortigante aliajn.
 
-91
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 6 Li havis ankoraŭ unu amatan filon: li sendis lin ankaŭ la lastan al
 
@@ -5394,15 +5186,15 @@ la kultivistojn, kaj donos la vinberejon al aliaj. 10 ĉu vi ne legis tiun
 
 skribon:
 
-ŝtono, kiun malŝatis la konstruantoj, 
+ŝtono, kiun malŝatis la konstruantoj,
 
-Fariĝis ŝtono bazangula; 11 De la Eternulo ĉi tio fariĝis, 
+Fariĝis ŝtono bazangula; 11 De la Eternulo ĉi tio fariĝis,
 
-Kaj ĝi estas miraklo en niaj okuloj? 
+Kaj ĝi estas miraklo en niaj okuloj?
 
-12 Kaj ili celis kapti lin, sed ili timis la homamason; ĉar ili eksciis, 
+12 Kaj ili celis kapti lin, sed ili timis la homamason; ĉar ili eksciis,
 
-ke li parolis la parabolon kontraŭ ili; kaj forlasinte lin, ili foriris. 
+ke li parolis la parabolon kontraŭ ili; kaj forlasinte lin, ili foriris.
 
 13 Kaj ili sendis al li iujn el la Fariseoj kaj el la Herodanoj, por
 
@@ -5412,13 +5204,13 @@ la personon de homoj, sed instruas laŭ vero la vojon de Dio. ĉu
 
 konvenas doni tributon al Cezaro, aŭ ne? 15 ĉu ni donu, aŭ ne do-
 
-nu? Sed li, sciante ilian hipokritecon, diris al ili: Kial vi provas min? 
+nu? Sed li, sciante ilian hipokritecon, diris al ili: Kial vi provas min?
 
 alportu al mi denaron, ke mi ĝin vidu. 16 Kaj ili ĝin alportis. Kaj li
 
 diris al ili: Kies estas ĉi tiu bildo kaj la surskribaĵo? Kaj ili diris al li: De Cezaro. 17 Kaj Jesuo respondis al ili: Redonu al Cezaro la propraĵon de Cezaro, kaj al Dio la propraĵon de Dio. Kaj ili miregis pro
 
-li. 
+li.
 
 18 Kaj venis al li Sadukeoj, kiuj diras, ke ne estas releviĝo; kaj ili
 
@@ -5434,11 +5226,9 @@ ron; 21 kaj la dua prenis ŝin, kaj mortis, ne lasinte idaron; kaj la tria
 
 same; 22 kaj la sep ne lasis idaron. Laste post ĉiuj la virino ankaŭ
 
-92
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mortis. 23 En la releviĝo, por kiu el ili ŝi estos edzino? ĉar ĉiuj sep
 
@@ -5454,15 +5244,15 @@ ante: Mi estas la Dio de Abraham kaj la Dio de Isaak kaj la Dio de
 
 Jakob? 27 Li estas Dio ne de la mortintoj, sed de la vivantoj: vi mul-
 
-te eraras. 
+te eraras.
 
 28 Kaj unu el la skribistoj alvenis kaj aŭskultis la diskutadon, kaj
 
 rimarkis, ke li lerte respondas al ili; kaj tiu demandis lin: Kiu ordono
 
-estas la unua el ĉiuj? 29 Kaj Jesuo respondis: La unua estas: Aŭskultu, 
+estas la unua el ĉiuj? 29 Kaj Jesuo respondis: La unua estas: Aŭskultu,
 
-ho Izrael\! la Eternulo, nia Dio, la Eternulo estas unu; 30 kaj amu la
+ho Izrael! la Eternulo, nia Dio, la Eternulo estas unu; 30 kaj amu la
 
 Eternulon, vian Dion, per via tuta koro kaj per via tuta animo kaj
 
@@ -5482,7 +5272,7 @@ loferoj kaj pekoferoj. 34 Kaj Jesuo, vidante, ke li respondis pruden-
 
 te, diris al li: Vi ne estas malproksime de la regno de Dio. Kaj neniu
 
-plu kuraĝis fari al li demandon. 
+plu kuraĝis fari al li demandon.
 
 35 Kaj responde Jesuo diris, instruante en la templo: Kial diras la
 
@@ -5492,21 +5282,19 @@ la Sankta Spirito:
 
 La Eternulo diris al mia Sinjoro:
 
-Sidu dekstre de mi, 
+Sidu dekstre de mi,
 
-¯is Mi faros viajn malamikojn benketo por viaj piedoj. 
+is Mi faros viajn malamikojn benketo por viaj piedoj.
 
-93
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 37 David mem nomas lin Sinjoro; kaj kiel do li estas lia filo? Kaj
 
-la granda homamaso aŭskultis lin plezure. 
+la granda homamaso aŭskultis lin plezure.
 
-38 Kaj en sia instruado li diris: Gardu vin kontraŭ la skribistoj, 
+38 Kaj en sia instruado li diris: Gardu vntraŭ la skribistoj,
 
 kiuj amas promenadi en roboj kaj salutojn sur la placoj, 39 kaj ĉef-
 
@@ -5514,7 +5302,7 @@ seĝojn en la sinagogoj, kaj ĉeflokojn ĉe festenoj; 40 kaj kiuj forman-
 
 ĝas la domojn de vidvinoj, kaj por preteksto ili longe preĝas; ili ri-
 
-cevos pli severan kondamnon. 41 Kaj sidante kontraŭ la monkesto, 
+cevos pli severan kondamnon. 41 Kaj sidante kontraŭ la monkesto,
 
 li rimarkis, kiel la homoj enĵetas monerojn en la monkeston; kaj
 
@@ -5526,17 +5314,17 @@ disĉiplojn, li diris al ili: Vere mi diras al vi, ke tiu malriĉa vidvino
 
 enĵetis pli ol ĉiuj ĵetantoj en la monkeston; 44 ĉar ili ĉiuj enĵetis el sia abundo, sed ŝi el sia senhaveco ĵetis ĉion, kion ŝi havis, sian tutan
 
-vivrimedon. 
+vivrimedon.
 
 ĉapitro 13
 
 1 Kaj dum li eliris el la templo, unu el liaj disĉiploj diris al li: Majs-
 
-tro, jen kiaj ŝtonoj kaj kiaj konstruaĵoj\! 2 Kaj Jesuo diris al li: ĉu vi
+tro, jen kiaj ŝtonoj kaj kiaj konstruaĵoj! 2 Kaj Jesuo diris al li: ĉu vi
 
 vidas ĉi tiujn grandajn konstruaĵojn? ne estos lasita ĉi tie ŝtono sur
 
-ŝtono, kiu ne estos deĵetita. 
+ŝtono, kiu ne estos deĵetita.
 
 3 Kaj dum li sidis sur la monto Olivarba rekte kontraŭ la temp-
 
@@ -5550,19 +5338,17 @@ vin forlogu. 6 Multaj venos en mia nomo, dirante: Mi estas; kaj ili
 
 forlogos multajn. 7 Kaj kiam vi aŭdos pri militoj kaj famoj de mili-
 
-toj, ne maltrankviliĝu; tio devas okazi; sed ankoraŭ ne estas la fino. 
+toj, ne maltrankviliĝu; tio devas okazi; sed ankoraŭ ne estas la fino.
 
 8 ĉar leviĝos nacio kontraŭ nacio, kaj regno kontraŭ regno; estos
 
-94
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tertremoj en diversaj lokoj, kaj estos malsatoj; tio estas komenco de
 
-suferoj. 
+suferoj.
 
 9 Sed gardu vin; ĉar oni transdonos vin al sinedrioj, kaj en sina-
 
@@ -5570,7 +5356,7 @@ gogoj vi estos skurĝitaj; kaj vi staros antaŭ provincestroj kaj reĝoj
 
 pro mi, por atesto al ili. 10 Kaj la evangelio devas antaŭe esti predi-
 
-kita al ĉiuj nacioj. 11 Kaj kiam oni forkondukos kaj transdonos vin, 
+kita al ĉiuj nacioj. 11 Kaj kiam oni forkondukos kaj transdonos vin,
 
 ne antaŭzorgu, kion vi parolos; sed kio ajn estos donita al vi en tiu
 
@@ -5582,11 +5368,11 @@ iĝos gefiloj kontraŭ gepatroj kaj mortigos ilin. 13 Kaj vi estos mala-
 
 mataj de ĉiuj pro mia nomo; sed kiu persistos ĝis la fino, tiu estos
 
-savita. 
+savita.
 
 14 Sed kiam vi vidos la abomenindaĵon de dezerteco starantan
 
-tie, kie ne decas \(la leganto komprenu\), tiam kiuj estas en Judujo, 
+tie, kie ne decas (la leganto komprenu), tiam kiuj estas en Judujo,
 
 tiuj forkuru al la montoj; 15 kaj kiu estas sur la tegmento, tiu ne mal-
 
@@ -5594,9 +5380,9 @@ supreniru, nek eniru, por preni ion el sia domo; 16 kaj kiu estas sur
 
 la kampo, tiu ne revenu, por preni sian mantelon. 17 Sed ve al la gra-
 
-vedulinoj kaj al la suĉigantinoj en tiuj tagoj\! 18 Kaj preĝu, ke tio ne
+vedulinoj kaj al la suĉigantinoj en tiuj tagoj! 18 Kaj preĝu, ke tio ne
 
-okazu en vintro. 19 ĉar tiuj tagoj estos tagoj de aflikto tia, kia ne estis de la komenco de la kreo, kiun Dio kreis, ĝis nun, kaj neniam estos. 
+okazu en vintro. 19 ĉar tiuj tagoj estos tagoj de aflikto tia, kia ne estis de la komenco de la kreo, kiun Dio kreis, ĝis nun, kaj neniam estos.
 
 20 Kaj se la Eternulo ne malplilongigus la tagojn, neniu karno estus
 
@@ -5606,7 +5392,7 @@ gojn. 21 Kaj tiam se iu diros al vi: Jen ĉi tie la Kristo, aŭ, Jen tie; ne
 
 kredu; 22 ĉar leviĝos falsaj kristoj kaj falsaj profetoj, kaj faros signojn kaj miraklojn, por erarigi, se eble, la elektitojn. 23 Sed gardu vin; jen
 
-mi ĉion antaŭdiris al vi. 
+mi ĉion antaŭdiris al vi.
 
 24 Sed en tiuj tagoj, post tiu aflikto, la suno mallumiĝos kaj la
 
@@ -5614,17 +5400,15 @@ luno ne donos sian lumon, 25 kaj la steloj falados el la ĉielo, kaj la
 
 potencoj, kiuj estas en la ĉieloj, ŝanceliĝos. 26 Kaj tiam oni vidos la
 
-Filon de homo, venantan en nuboj kun granda potenco kaj gloro. 
+Filon de homo, venantan en nuboj kun granda potenco kaj gloro.
 
-95
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 27 Kaj tiam li elsendos la anĝelojn kaj kolektos siajn elektitojn el la
 
-kvar ventoj, de la limo de la tero ĝis la limo de la ĉielo. 
+kvar ventoj, de la limo de la tero ĝis la limo de la ĉielo.
 
 28 De la figarbo lernu ĝian parabolon: kiam ĝia branĉo jam mo-
 
@@ -5632,7 +5416,7 @@ liĝas kaj aperigas foliojn, vi scias, ke la somero estas proksima; 29 tiel
 
 same vi, kiam vi vidos, ke tio okazas, tiam sciu, ke li estas proksi-
 
-ma, ĉe la pordoj. 30 Vere mi diras al vi: ĉi tiu generacio ne forpasos, 
+ma, ĉe la pordoj. 30 Vere mi diras al vi: ĉi tiu generacio ne forpasos,
 
 antaŭ ol ĉio tio fariĝos. 31 La ĉielo kaj la tero forpasos, sed miaj vor-
 
@@ -5646,13 +5430,13 @@ forvojaĝinta, kiu lasis sian domon kaj donis aŭtoritaton al siaj skla-
 
 voj, al ĉiu lian propran laboron, kaj ordonis al la pordisto, ke li viglu:
 
-35 vi do viglu; ĉar vi ne scias, kiam venos la domomastro, ĉu vespere, 
+35 vi do viglu; ĉar vi ne scias, kiam venos la domomastro, ĉu vespere,
 
 ĉu noktomeze, ĉu ĉe la kokokrio, ĉu frumatene; 36 por ke li ne venu
 
 subite kaj ne trovu vin dormantaj. 37 Kaj kion mi diras al vi, tion mi
 
-diras al ĉiuj: Viglu. 
+diras al ĉiuj: Viglu.
 
 ĉapitro 14
 
@@ -5662,9 +5446,9 @@ troj kaj skribistoj serĉis, kiamaniere ili povu per ruzo lin kapti kaj
 
 mortigi; 2 ĉar ili diris: Ne dum la festo, por ke ne estu tumulto de
 
-la popolo. 
+la popolo.
 
-3 Kaj dum li estis en Betania, en la domo de Simon, la leprulo, 
+3 Kaj dum li estis en Betania, en la domo de Simon, la leprulo,
 
 kiam li sidis ĉe manĝo, venis virino, havanta alabastran vazon da
 
@@ -5678,11 +5462,9 @@ por pli ol tricent denaroj, kaj doni al malriĉuloj. Kaj ili murmuris
 
 kontraŭ ŝi. 6 Kaj Jesuo diris: Lasu ŝin; kial vi ĝenas ŝin? ŝi faris bo-
 
-96
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 nan faron al mi. 7 ĉar la malriĉulojn vi ĉiam havas kun vi, kaj kiam
 
@@ -5694,7 +5476,7 @@ entombigo. 9 Vere mi diras al vi: Kie ajn estos predikata la evange-
 
 lio en la tuta mondo, tio ankaŭ, kion ŝi faris, estos priparolata, por
 
-memoraĵo de ŝi. 
+memoraĵo de ŝi.
 
 10 Kaj Judas Iskariota, kiu estis unu el la dek du, foriris al la ĉef-
 
@@ -5712,11 +5494,11 @@ Kie estas mia gastoĉambro, en kiu mi manĝos la Paskon kun miaj
 
 disĉiploj? 15 Kaj li mem montros al vi grandan supran ĉambron, pre-
 
-te aranĝitan; kaj tie vi pretigu por ni. 16 Kaj foriris la disĉiploj kaj iris en la urbon, kaj trovis tiel, kiel li diris al ili; kaj ili pretigis la Paskon. 
+te aranĝitan; kaj tie vi pretigu por ni. 16 Kaj foriris la disĉiploj kaj iris en la urbon, kaj trovis tiel, kiel li diris al ili; kaj ili pretigis la Paskon.
 
 17 Kaj kiam vesperiĝis, li venis kun la dek du. 18 Kaj dum ili sidis
 
-kaj manĝis, Jesuo diris: Vere mi diras al vi, ke unu el vi perfidos min, 
+kaj manĝis, Jesuo diris: Vere mi diras al vi, ke unu el vi perfidos min,
 
 unu, kiu manĝas kun mi. 19 Kaj ili komencis malĝoji, kaj diri al li unu
 
@@ -5724,45 +5506,43 @@ post la alia: ĉu eble mi? 20 Sed li diris al ili: Unu el la dek du, kiu
 
 trempas kun mi en la pladon. 21 La Filo de homo iros, kiel estas skri-
 
-bite pri li; sed ve al tiu viro, de kiu la Filo de homo estos perfidita\! 
+bite pri li; sed ve al tiu viro, de kiu la Filo de homo estos perfidita!
 
-Se tiu homo ne estus naskita, estus bone por li. 
+Se tiu homo ne estus naskita, estus bone por li.
 
 22 Kaj dum ili manĝis, li prenis panon, kaj, beninte, dispecigis ĝin
 
 kaj donis al ili, kaj diris: Prenu; ĉi tio estas mia korpo. 23 Kaj li pre-
 
-nis kalikon, kaj, doninte dankon, li donis al ili; kaj ĉiuj trinkis el ĝi. 
+nis kalikon, kaj, doninte dankon, li donis al ili; kaj ĉiuj trinkis el ĝi.
 
 24 Kaj li diris al ili: ĉi tio estas mia sango de la interligo, kiu estas
 
-elverŝata por multaj. 25 Vere mi diras al vi: Mi ne plu trinkos el la
+elverŝata por multaj. 25 Vere mi diras al vi: Mi ne plu trs el la
 
-97
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-frukto de la vinberarbo, ĝis tiu tago, kiam mi trinkos ĝin novan en
+frukto de la vinberarbo, ĝis tiu tago, kiam mi trs ĝin novan en
 
-la regno de Dio. 
+la regno de Dio.
 
-26 Kaj kantinte himnon, ili foriris al la monto Olivarba. 
+26 Kaj kantinte himnon, ili foriris al la monto Olivarba.
 
 27 Kaj Jesuo diris al ili: Vi ĉiuj ofendiĝos; ĉar estas skribite: Mi fra-
 
 pos la paŝtiston, kaj la ŝafoj diskuros. 28 Tamen post mia releviĝo, mi
 
-iros antaŭ vi en Galileon. 29 Sed Petro diris al li: Eĉ se ĉiuj ofendiĝos, 
+iros antaŭ vi en Galileon. 29 Sed Petro diris al li: Eĉ se ĉiuj ofendiĝos,
 
 tamen ne mi. 30 Kaj Jesuo diris al li: Vere mi diras al vi, ke hodiaŭ en
 
-ĉi tiu nokto, antaŭ ol dufoje krios koko, vi trifoje malkonfesos min. 
+ĉi tiu nokto, antaŭ ol dufoje krios koko, vi trifoje malkonfesos min.
 
 31 Sed tre insiste li diris: Eĉ se mi devos morti kun vi, mi neniel vin
 
-malkonfesos. Kaj tiel same diris ili ĉiuj. 
+malkonfesos. Kaj tiel same diris ili ĉiuj.
 
 32 Kaj ili venis al loko, kies nomo estas Getsemane; kaj li diris al
 
@@ -5776,7 +5556,7 @@ morto; restu ĉi tie, kaj viglu. 35 Kaj irinte iom antaŭen, li falis sur la
 
 teron, kaj preĝis, ke, se povas esti, la horo pasu for de li. 36 Kaj li di-
 
-ris: Aba, Patro, ĉio estas ebla ĉe Vi: forportu de mi ĉi tiun kalikon; 
+ris: Aba, Patro, ĉio estas ebla ĉe Vi: forportu de mi ĉi tiun kalikon;
 
 tamen estu ne tio, kion mi volas, sed kion Vi volas. 37 Kaj li venis, kaj
 
@@ -5794,19 +5574,17 @@ iĝis; kaj ili ne sciis, kion respondi al li. 41 Kaj li venis la trian fojon, ka
 
 Filo de homo estas perfidata en la manojn de pekuloj. 42 Leviĝu, ni
 
-iru; jen mia perfidanto alproksimiĝas. 
+iru; jen mia perfidanto alproksimiĝas.
 
-43 Kaj tuj, dum li ankoraŭ parolis, venis Judas, unu el la dek du; 
+43 Kaj tuj, dum li ankoraŭ parolis, venis Judas, unu el la dek du;
 
 kaj kun li homamaso kun glavoj kaj bastonoj venis de la ĉefpastroj
 
 kaj la skribistoj kaj la pliaĝuloj. 44 Kaj lia perfidanto jam antaŭe
 
-98
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 aranĝis kun ili signon, dirante: Kiun mi kisos, tiu estas li; kaptu kaj
 
@@ -5822,11 +5600,11 @@ noj, por kapti min? 49 ĉiutage mi estis inter vi en la templo, instru-
 
 ante, kaj vi ne arestis min; tamen, ke plenumiĝu la Skriboj. 50 Kaj
 
-ĉiuj forlasis lin kaj forkuris. 
+ĉiuj forlasis lin kaj forkuris.
 
 51 Kaj sekvis lin unu junulo, vestita per tolaĵo ĉirkaŭ la nuda kor-
 
-po; kaj oni kaptis lin; 52 sed lasinte la tolaĵon, li forkuris nuda. 
+po; kaj oni kaptis lin; 52 sed lasinte la tolaĵon, li forkuris nuda.
 
 53 Kaj oni forkondukis Jesuon al la ĉefpastro; kaj kunvenis ĉe li
 
@@ -5836,9 +5614,9 @@ sekvis lin ĝis interne de la korto de la ĉefpastro; kaj sidis kun la
 
 subuloj kaj sin varmigis apud la fajro. 55 Sed la ĉefpastroj kaj la tuta
 
-sinedrio serĉis ateston kontraŭ Jesuo, por lin mortigi, kaj ne trovis. 
+sinedrio serĉis ateston kontraŭ Jesuo, por lin mortigi, kaj ne trovis.
 
-56 ĉar multaj malvere atestis kontraŭ li, kaj iliaj atestoj ne akordiĝis. 
+56 ĉar multaj malvere atestis kontraŭ li, kaj iliaj atestoj ne akordiĝis.
 
 57 Kaj elpaŝis iuj, kaj malvere atestis kontraŭ li, dirante: 58 Ni aŭdis
 
@@ -5852,7 +5630,7 @@ suon, dirante: ĉu vi respondas nenion? kion atestas ĉi tiuj kontraŭ
 
 vi? 61 Sed li silentadis kaj respondis nenion. Denove la ĉefpastro de-
 
-mandis lin, kaj diris al li: ĉu vi estas la Kristo, la Filo de la Benato? 
+mandis lin, kaj diris al li: ĉu vi estas la Kristo, la Filo de la Benato?
 
 62 Kaj Jesuo diris: Mi estas; kaj vi vidos la Filon de homo, sidantan
 
@@ -5862,17 +5640,15 @@ la ĉefpastro disŝiris siajn vestojn, kaj diris: Pro kio ni plu bezonas
 
 atestantojn? 64 Vi aŭdis la blasfemon: kion vi opinias? Kaj ili ĉiuj
 
-juĝis lin kondamninda al morto. 65 Kaj iuj komencis kraĉi sur lin, kaj
+juĝis lndamninda al morto. 65 Kaj iuj komencis kraĉi sur lin, kaj
 
-99
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉirkaŭkovri lian vizaĝon, kaj vangofrapi lin, kaj diri al li: Profetu; kaj
 
-la subuloj frapis lin per la manplatoj. 
+la subuloj frapis lin per la manplatoj.
 
 66 Kaj dum Petro estis malsupre sur la korto, venis unu el la ser-
 
@@ -5882,7 +5658,7 @@ rigardis lin, kaj diris: Vi ankaŭ estis kun la Nazaretano, kun tiu Je-
 
 suo. 68 Sed li malkonfesis, dirante: Mi ne scias, nek komprenas, kion
 
-vi diras; kaj li iris en la vestiblon; kaj koko kriis. 69 Kaj lin vidinte, la servantino denove komencis diri al la apudstarantoj: Tiu estas el ili. 
+vi diras; kaj li iris en la vestiblon; kaj koko kriis. 69 Kaj lin vidinte, la servantino denove komencis diri al la apudstarantoj: Tiu estas el ili.
 
 70 Kaj li denove malkonfesis. Kaj post iom da tempo la apudstaran-
 
@@ -5894,7 +5670,7 @@ kiu vi parolas. 72 Kaj tuj la duan fojon koko kriis. Kaj Petro ekreme-
 
 moris la vorton, kiun Jesuo diris al li: Antaŭ ol dufoje krios koko, vi
 
-trifoje malkonfesos min. Kaj pripensinte, li ekploris. 
+trifoje malkonfesos min. Kaj pripensinte, li ekploris.
 
 ĉapitro 15
 
@@ -5910,9 +5686,9 @@ multe lin akuzis. 4 Kaj Pilato denove lin demandis: ĉu vi respondas
 
 nenion? vidu, pri kiom da aferoj oni vin akuzas. 5 Sed Jesuo anko-
 
-raŭ nenion respondis, tiel ke Pilato miris. 
+raŭ nenion respondis, tiel ke Pilato miris.
 
-6 ĉe tiu festo li kutimis liberigi al ili unu malliberulon, iun ajn, 
+6 ĉe tiu festo li kutimis liberigi al ili unu malliberulon, iun ajn,
 
 kiun ili pripetis. 7 Kaj estis unu, nomata Barabas, katenita kun la ri-
 
@@ -5924,11 +5700,9 @@ Pilato respondis al ili, dirante: ĉu vi volas, ke mi liberigu al vi la
 
 Reĝon de la Judoj? 10 ĉar li eksciis, ke pro envio la ĉefpastroj trans-
 
-100
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 donis lin. 11 Sed la ĉefpastroj instigis la homamason, ke prefere li
 
@@ -5942,21 +5716,21 @@ bonon li faris? Sed ili des pli ekkriis: Krucumu lin. 15 Kaj Pilato, vo-
 
 lante kontentigi la homamason, liberigis al ili Barabason, kaj, skur-
 
-ĝinte Jesuon, transdonis lin, por esti krucumita. 
+ĝinte Jesuon, transdonis lin, por esti krucumita.
 
 16 Kaj la soldatoj forkondukis lin en la korton, kiu estas la Preto-
 
-rio, kaj kunvokis la tutan kohorton. 17 Kaj ili vestis lin per purpuro, 
+rio, kaj kunvokis la tutan kohorton. 17 Kaj ili vestis lin per purpuro,
 
 kaj plektinte dornan kronon, surmetis ĝin al li; 18 kaj ili komencis
 
-aklami lin: Saluton, Reĝo de la Judoj\! 19 Kaj ili frapis lian kapon per
+aklami lin: Saluton, Reĝo de la Judoj! 19 Kaj ili frapis lian kapon per
 
 kano, kaj kraĉis sur lin, kaj ekgenuinte, kliniĝis al li. 20 Kaj mokinte
 
 lin, ili demetis de li la purpuran veston, kaj surmetis liajn proprajn
 
-vestojn. Kaj ili elkondukis lin, por krucumi lin. 
+vestojn. Kaj ili elkondukis lin, por krucumi lin.
 
 21 Kaj ili devigis al servado unu preterpasanton, venantan de la
 
@@ -5968,31 +5742,29 @@ tas, Loko de Kranio. 23 Kaj ili donis al li vinon kun mirho enmiksi-
 
 ta, sed li ne akceptis ĝin. 24 Kaj ili krucumis lin kaj dividis inter si
 
-liajn vestojn, ĵetante lotojn sur ili, kion ĉiu el ili ricevu. 25 Kaj estis la tria horo, kaj ili krucumis lin. 26 Kaj la surskribo de lia akuzo estis surskribita: LA RE¯O DE LA JUDOJ. 27 Kaj kun li ili krucumis du
+liajn vestojn, ĵetante lotojn sur ili, kion ĉiu el ili ricevu. 25 Kaj estis la tria horo, kaj ili krucumis lin. 26 Kaj la surskribo de lia akuzo estis surskribita: LA REO DE LA JUDOJ. 27 Kaj kun li ili krucumis du
 
 rabistojn, unu dekstre kaj unu maldekstre de li. 28 Kaj plenumiĝis la
 
 Skribo, kiu diras: Kaj li estis alkalkulita al krimuloj. 29 Kaj la prete-
 
-rpasantoj insultis lin, balancante la kapon, kaj dirante: Ha, ha\! vi, 
+rpasantoj insultis lin, balancante la kapon, kaj dirante: Ha, ha! vi,
 
-kiu detruas la sanktejon kaj konstruas ĝin en la daŭro de tri tagoj, 
+kiu detruas la sanktejon kaj konstruas ĝin en la daŭro de tri tagoj,
 
-30 savu vin, deirante de la kruco. 31 Tiel same ankaŭ la ĉefpastroj, 
+30 savu vin, deirante de la kruco. 31 Tiel same ankaŭ la ĉefpastroj,
 
 mokante inter si kun la skribistoj, diris: Aliajn li savis; sin mem li ne
 
-povas savi. 32 La Kristo, la Reĝo de Izrael, deiru ja nun de la kruco, 
+povas savi. 32 La Kristo, la Reĝo de Izrael, deiru ja nun de la kruco,
 
-101
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 por ke ni vidu kaj kredu. Kaj tiuj, kiuj estis krucumitaj kun li, insultis
 
-lin. 
+lin.
 
 33 Kaj kiam venis la sesa horo, fariĝis mallumo sur la tuta lando
 
@@ -6012,7 +5784,7 @@ la spiriton. 38 Kaj la kurteno de la sanktejo disŝiriĝis en du pecojn de
 
 supre ĝis malsupre. 39 Kaj kiam la centestro, kiu apudstaris kontraŭ
 
-li, vidis, ke li tiamaniere ellasis for la spiriton, li diris: Vere ĉi tiu viro estis Filo de Dio. 40 Estis ankaŭ virinoj, rigardantaj de malproksime, 
+li, vidis, ke li tiamaniere ellasis for la spiriton, li diris: Vere ĉi tiu viro estis Filo de Dio. 40 Estis ankaŭ virinoj, rigardantaj de malproksime,
 
 inter kiuj estis Maria Magdalena, kaj Maria, la patrino de Jakobo la
 
@@ -6020,7 +5792,7 @@ malgranda kaj de Joses, kaj Salome; 41 kiuj sekvis lin, kiam li estis
 
 en Galileo, kaj servadis al li; kaj multaj aliaj virinoj, kiuj suprenve-
 
-nis kun li en Jerusalemon. 
+nis kun li en Jerusalemon.
 
 4 Kaj kiam jam vesperiĝis, pro tio, ke estas la Preparado, tio es-
 
@@ -6032,23 +5804,21 @@ Pilato, kaj petis la korpon de Jesuo. 44 Kaj Pilato miris, ĉu li jam mor-
 
 tis; kaj alvokinte la centestron, li demandis lin, ĉu li de longe estas
 
-mortinta. 45 Kaj sciiĝinte de la centestro, li donis al Jozef la korpon. 
+mortinta. 45 Kaj sciiĝinte de la centestro, li donis al Jozef la korpon.
 
-46 Kaj li aĉetis tolaĵon, kaj deprenis lin kaj envolvis lin en la tolaĵo, 
+46 Kaj li aĉetis tolaĵon, kaj deprenis lin kaj envolvis lin en la tolaĵo,
 
 kaj metis lin en tombon, kiu estis elhakita el ŝtonego; kaj li alrulis
 
 ŝtonon al la enirejo de la tombo. 47 Kaj Maria Magdalena, kaj Ma-
 
-ria, la patrino de Joses, vidis, kien oni metis lin. 
+ria, la patrino de Joses, vidis, kien oni metis lin.
 
 ĉapitro 16
 
-102
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 1 Kaj kiam la sabato jam pasis, Maria Magdalena, kaj Maria, la pa-
 
@@ -6068,19 +5838,19 @@ tan per blanka robo; kaj ili miregis. 6 Sed li diris al ili: Ne miregu; vi
 
 serĉas Jesuon, la Nazaretanon, la krucumitan: li leviĝis; li ne estas
 
-ĉi tie; jen la loko, kien oni metis lin\! 7 Sed iru, diru al liaj disĉiploj
+ĉi tie; jen la loko, kien oni metis lin! 7 Sed iru, diru al liaj disĉiploj
 
-kaj al Petro: Li iras antaŭ vi en Galileon; tie vi vidos lin, kiel li diris al vi. 8 Kaj elirinte, ili forkuris de la tombo, ĉar tremado kaj konfuziĝo posedis ilin; kaj ili diris nenion al iu, ĉar ili timis. 
+kaj al Petro: Li iras antaŭ vi en Galileon; tie vi vidos lin, kiel li diris al vi. 8 Kaj elirinte, ili forkuris de la tombo, ĉar tremado kaj konfuziĝo posedis ilin; kaj ili diris nenion al iu, ĉar ili timis.
 
 9 Sed leviĝinte frue en la unua tago de la semajno, li aperis unue
 
 al Maria Magdalena, el kiu li elpelis sep demonojn. 10 ŝi iris, kaj scii-
 
-gis ĝin al la homoj, kiuj estis kun li, dum ili malĝojis kaj ploris. 11 Kaj aŭdinte, ke li vivas kaj estas vidita de ŝi, ili ne kredis. 
+gis ĝin al la homoj, kiuj estis kun li, dum ili malĝojis kaj ploris. 11 Kaj aŭdinte, ke li vivas kaj estas vidita de ŝi, ili ne kredis.
 
 12 Kaj post tio li aperis sub alia formo al du el ili, dum ili piedi-
 
-ris en la kamparon. 13 Kaj foririnte, ili sciigis al la aliaj, kaj ankaŭ ili ne kredis. 
+ris en la kamparon. 13 Kaj foririnte, ili sciigis al la aliaj, kaj ankaŭ ili ne kredis.
 
 14 Poste li aperis al la dek unu, dum ili sidis ĉe manĝo, kaj riproĉis
 
@@ -6094,27 +5864,23 @@ rolos per lingvoj; 18 ili prenos en manojn serpentojn, kaj se ili trin-
 
 kos ion mortigan, ĝi neniel difektos ilin; sur malsanulojn ili metos
 
-la manojn, kaj ili saniĝos. 
+la manojn, kaj ili saniĝos.
 
 19 Tiam la Sinjoro Jesuo, post kiam li parolis al ili, estis ricevita
 
-103
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 supren en la ĉielon, kaj sidiĝis dekstre de Dio. 20 Kaj elirinte, ili pre-
 
 dikis ĉie, kaj la Sinjoro laboris kun ili kaj fortikigis la vorton per la
 
-signoj, kiuj sekvis. Amen. 
+signoj, kiuj sekvis. Amen.
 
-104
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La evangelio laŭ sankta Luko
 
@@ -6128,7 +5894,7 @@ ankaŭ al mi, esplorinta ĉion atente de la komenco, skribi en ordo
 
 al vi, plej eminenta Teofilo, 4 por ke vi povu scii la certecon pri la
 
-aferoj, pri kiuj vi estas instruita. 
+aferoj, pri kiuj vi estas instruita.
 
 5 En la tagoj de Herodo, reĝo de Judujo, estis pastro nomata Ze-
 
@@ -6136,11 +5902,11 @@ aferoj, pri kiuj vi estas instruita.
 
 Aaron, kaj ŝia nomo estis Elizabeto. 6 Kaj ambaŭ estis justaj antaŭ
 
-Dio, irantaj laŭ ĉiuj ordonoj kaj instruoj de la Eternulo sen riproĉo. 
+Dio, irantaj laŭ ĉiuj ordonoj kaj instruoj de la Eternulo sen riproĉo.
 
 7 Kaj ili ne havis infanon, ĉar Elizabeto estis senfrukta, kaj ili am-
 
-baŭ estis en profunda aĝo. 
+baŭ estis en profunda aĝo.
 
 8 Kaj dum li plenumis sian pastradon antaŭ Dio en la vico de sia
 
@@ -6152,7 +5918,7 @@ lo preĝis ekstere dum la horo de la incensado. 11 Kaj aperis antaŭ li
 
 anĝelo de la Eternulo, staranta dekstre de la altaro de incensado. 12
 
-Kaj Zeąrja maltrankviliĝis, kiam li vidis lin, kaj sur lin falis timo. 
+Kaj Zeąrja maltrankviliĝis, kiam li vidis lin, kaj sur lin falis timo.
 
 13 Sed la anĝelo diris al li: Ne timu, Zeąrja; ĉar via preĝo estas aŭd-
 
@@ -6160,15 +5926,13 @@ ita, kaj via edzino Elizabeto naskos al vi filon, kaj vi donos al li la
 
 nomon Johano. 14 Kaj vi havos ĝojon kaj feliĉon, kaj multaj ĝojos pro
 
-lia naskiĝo. 15 ĉar li estos granda antaŭ la Sinjoro, kaj li ne trinkos
+lia naskiĝo. 15 ĉar li estos granda antaŭ la Sinjoro, kaj li ne trs
 
 vinon nek ebriigaĵon; kaj li estos plena de la Sankta Spirito jam de
 
-105
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la ventro de sia patrino. 16 Kaj multajn el la filoj de Izrael li turnos
 
@@ -6178,7 +5942,7 @@ malobeemajn al la saĝeco de la justuloj, por pretigi por la Sinjoro
 
 popolon preparitan. 18 Kaj Zeąrja diris al la anĝelo: Per kio mi scios
 
-tion? ĉar mi estas maljunulo, kaj mia edzino havas profundan aĝon. 
+tion? ĉar mi estas maljunulo, kaj mia edzino havas profundan aĝon.
 
 19 Kaj la anĝelo responde diris al li: Mi estas Gabriel, kiu staras an-
 
@@ -6190,13 +5954,13 @@ tago, kiam tio okazos, ĉar vi ne kredis miajn vortojn, kiuj plenu-
 
 miĝos siatempe. 21 Kaj la popolo atendis Zeąrjan, kaj miris pro lia
 
-restado en la sanktejo. 22 Kaj kiam li elvenis, li ne povis paroli al ili; 
+restado en la sanktejo. 22 Kaj kiam li elvenis, li ne povis paroli al ili;
 
 kaj ili eksciis, ke li vidis vizion en la sanktejo; kaj li faradis signojn
 
 al ili, kaj restis muta. 23 Kaj kiam finiĝis la tagoj de lia pastrado, li
 
-foriris en sian domon. 
+foriris en sian domon.
 
 24 Kaj post tiuj tagoj lia edzino Elizabeto gravediĝis, kaj kaŝis sin
 
@@ -6214,7 +5978,7 @@ la nomo de la virgulino estis Maria. 28 Kaj li venis al ŝi, kaj diris: Sa-
 
 luton al vi la grace favorita, la Eternulo estas kun vi. 29 Sed ŝi tre
 
-maltrankviliĝis ĉe tiu diro, kaj konsideris, kia povas esti tiu saluto. 
+maltrankviliĝis ĉe tiu diro, kaj konsideris, kia povas esti tiu saluto.
 
 30 Kaj la anĝelo diris al ŝi: Ne timu, Maria; ĉar vi trovis gracon an-
 
@@ -6228,15 +5992,13 @@ David; 33 kaj li reĝos super la domo de Jakob eterne, kaj lia regno
 
 ne havos finon. 34 Kaj Maria diris al la anĝelo: Kiel estos tio, ĉar mi
 
-106
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ne konas viron? 35 Kaj la anĝelo responde diris al ŝi: La Sankta Spi-
 
-rito venos sur vin, kaj la potenco de la Plejaltulo superombros vin; 
+rito venos sur vin, kaj la potenco de la Plejaltulo superombros vin;
 
 pro kio ankaŭ la naskotaĵo estos nomata sankta, la Filo de Dio. 36
 
@@ -6248,7 +6010,7 @@ frukta. 37 ĉar ĉe Dio nenio estas neebla. 38 Kaj Maria diris: Jen la
 
 sklavino de la Eternulo; estu al mi laŭ via diro. Kaj la anĝelo foriris
 
-de ŝi. 
+de ŝi.
 
 39 Kaj en tiuj tagoj Maria leviĝis kaj senprokraste vojaĝis en la
 
@@ -6266,55 +6028,53 @@ ventro. 43 Kaj pro kio okazas al mi ĉi tio, ke la patrino de mia Sinjoro
 
 venas al mi? 44 ĉar jen kiam la voĉo de via saluto venis en miajn
 
-orelojn, la infaneto ĝoje eksaltis en mia ventro. 45 Kaj feliĉa estas ŝi, 
+orelojn, la infaneto ĝoje eksaltis en mia ventro. 45 Kaj feliĉa estas ŝi,
 
-kiu kredis, ĉar plenumiĝos tio, kio estas dirita al ŝi de la Eternulo. 
+kiu kredis, ĉar plenumiĝos tio, kio estas dirita al ŝi de la Eternulo.
 
 46 Kaj Maria diris:
 
-Mia animo altigas la Eternulon, 
+Mia animo altigas la Eternulon,
 
-47 Kaj mia spirito ĝojis en Dio, mia Savanto, 
+47 Kaj mia spirito ĝojis en Dio, mia Savanto,
 
-48 ĉar li rigardis la humilecon de Sia sklavino; 
+48 ĉar li rigardis la humilecon de Sia sklavino;
 
-ĉar jen de nun ĉiuj generacioj nomos min feliĉa. 
+ĉar jen de nun ĉiuj generacioj nomos min feliĉa.
 
-49 ĉar la Potenculo faris al mi grandaĵojn, 
+49 ĉar la Potenculo faris al mi grandaĵojn,
 
-Kaj sankta estas Lia nomo. 
+Kaj sankta estas Lia nomo.
 
 50 Kaj Lia boneco estas por ĉiuj generacioj
 
-Al tiuj, kiuj Lin timas. 
+Al tiuj, kiuj Lin timas.
 
-51 Li montris forton per Sia brako, 
+51 Li montris forton per Sia brako,
 
-Li dispelis fierulojn en la penso de ilia koro. 
+Li dispelis fierulojn en la penso de ilia koro.
 
-52 Li malaltigis potenculojn de iliaj tronoj, 
+52 Li malaltigis potenculojn de iliaj tronoj,
 
-107
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Kaj Li altigis humilulojn. 
+Kaj Li altigis humilulojn.
 
-53 Malsatulojn Li plenigis per bonaĵo, 
+53 Malsatulojn Li plenigis per bonaĵo,
 
-Kaj riĉulojn Li forsendis malplenaj. 
+Kaj riĉulojn Li forsendis malplenaj.
 
-54 Li helpis Sian servanton Izrael, 
+54 Li helpis Sian servanton Izrael,
 
-Memorante Sian korfavoron. 
+Memorante Sian korfavoron.
 
-55 Kiel Li parolis al niaj patroj, 
+55 Kiel Li parolis al niaj patroj,
 
-Al Abraham kaj al lia idaro eterne. 
+Al Abraham kaj al lia idaro eterne.
 
-56 Kaj Maria loĝis ĉi ŝi tri monatojn, kaj reiris al sia domo. 
+56 Kaj Maria loĝis ĉi ŝi tri monatojn, kaj reiris al sia domo.
 
 57 Kaj venis por Elizabeto la tempo, en kiu ŝi devis naski; kaj ŝi
 
@@ -6340,67 +6100,65 @@ monta regiono de Judujo disvastiĝis rakonto pri ĉio tio. 66 Kaj ĉiuj
 
 aŭdantoj konservis tion en sia koro, dirante: Kia do estos ĉi tiu kna-
 
-beto? ĉar la mano de la Eternulo estis kun li. 
+beto? ĉar la mano de la Eternulo estis kun li.
 
 67 Kaj lia patro Zeąrja pleniĝis de la Sankta Spirito, kaj profe-
 
 tis, dirante:
 
-68 Benata estu la Eternulo, la Dio de Izrael, 
+68 Benata estu la Eternulo, la Dio de Izrael,
 
-ĉar Li vizitis Sian popolon kaj faris por ili elaĉeton, 
+ĉar Li vizitis Sian popolon kaj faris por ili elaĉeton,
 
 69 Kaj levis kornon de savo por ni
 
-En la domo de Sia servanto David, 
+En la domo de Sia servanto David,
 
-70 Kiel Li parolis per la buŝo de Siaj sanktaj profetoj, 
+70 Kiel Li parolis per la buŝo de Siaj sanktaj profetoj,
 
-de post la komenco de la mondo, 
+de post la komenco de la mondo,
 
-108
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 71 Savadon el niaj malamikoj kaj el la mano de ĉiuj niaj
 
-malamantoj; 
+malamantoj;
 
-72 Por montri Sian bonecon ĉe niaj patroj, 
+72 Por montri Sian bonecon ĉe niaj patroj,
 
-Kaj por memori Sian sanktan interligon; 
+Kaj por memori Sian sanktan interligon;
 
-73 La ĵuron, kiun Li ĵuris al nia patro Abraham; 
+73 La ĵuron, kiun Li ĵuris al nia patro Abraham;
 
-74 Ke Li donos al ni, ke, liberigite el la mano de niaj malamikoj, 
+74 Ke Li donos al ni, ke, liberigite el la mano de niaj malamikoj,
 
-Ni servu Lin sentime, 
+Ni servu Lin sentime,
 
-75 En sankteco kaj justeco antaŭ Li ĉiujn niajn tagojn. 
+75 En sankteco kaj justeco antaŭ Li ĉiujn niajn tagojn.
 
-76 Kaj vi, infano, estos nomata profeto de la Plejaltulo, 
+76 Kaj vi, infano, estos nomata profeto de la Plejaltulo,
 
-ĉar vi iros antaŭ la vizaĝo de la Sinjoro, por pretigi liajn vojojn, 
+ĉar vi iros antaŭ la vizaĝo de la Sinjoro, por pretigi liajn vojojn,
 
 77 Por doni al lia popolo scion de savo
 
-En la pardonado de iliaj pekoj, 
+En la pardonado de iliaj pekoj,
 
-78 Pro la kompata koro de nia Dio, 
+78 Pro la kompata koro de nia Dio,
 
-Per kiu nin vizitis la sunleviĝo de supre, 
+Per kiu nin vizitis la sunleviĝo de supre,
 
 79 Por lumi sur tiujn, kiuj sidas en mallumo kaj en la ombro de
 
-morto, 
+morto,
 
-Por gvidi niajn piedojn en la vojojn de paco. 
+Por gvidi niajn piedojn en la vojojn de paco.
 
 80 Kaj kreskis la infano kaj fortiĝis en spirito, kaj estis en la de-
 
-zertoj ĝis la tago de sia ekmontriĝo al Izrael. 
+zertoj ĝis la tago de sia ekmontriĝo al Izrael.
 
 ĉapitro 2
 
@@ -6418,21 +6176,19 @@ fianĉino Maria, kiu estis graveda. 6 Kaj dum ili estis tie, venis la ta-
 
 goj por ŝia akuŝo. 7 Kaj ŝi naskis sian unuan filon, kaj ŝi ĉirkaŭvin-
 
-109
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dis lin kaj kuŝigis lin en staltrogon, ĉar ne estis loko por ili en la gas-
 
-tejo. 
+tejo.
 
 8 Kaj en tiu sama regiono estis paŝtistoj, kiuj kamploĝis kaj nokte
 
 gardis sian gregon. 9 Kaj anĝelo de la Eternulo alstaris apud ili, kaj
 
-la gloro de la Eternulo brilis ĉirkaŭ ili, kaj ili timis per granda timo. 
+la gloro de la Eternulo brilis ĉirkaŭ ili, kaj ili timis per granda timo.
 
 10 Kaj la anĝelo diris al ili: Ne timu; ĉar jen mi venigas al vi bonan
 
@@ -6446,25 +6202,25 @@ kaj kuŝantan en staltrogo. 13 Kaj subite estis kun la anĝelo amaso de
 
 la ĉiela armeo, laŭdante Dion, kaj dirante:
 
-14 Gloro al Dio en la supera alto, 
+14 Gloro al Dio en la supera alto,
 
-Kaj sur la tero paco, inter homoj Difavoro. 
+Kaj sur la tero paco, inter homoj Difavoro.
 
 15 Kaj kiam la anĝeloj foriris de ili en la ĉielon, la paŝtistoj diris
 
-unu al alia: Ni jam iru ĝis Bet-Leęm, kaj vidu ĉi tiun okazintaĵon, 
+unu al alia: Ni jam iru ĝis Bet-Leęm, kaj vidu ĉi tiun okazintaĵon,
 
 kiun la Eternulo sciigis al ni. 16 Kaj rapidante, ili iris, kaj trovis Mar-
 
 ian kaj Jozefon, kaj la infaneton kuŝantan en la staltrogo. 17 Kaj tion
 
-vidinte, ili sciigis pri la diro, kiu estis parolita al ili pri ĉi tiu infano. 
+vidinte, ili sciigis pri la diro, kiu estis parolita al ili pri ĉi tiu infano.
 
 18 Kaj ĉiuj aŭdintoj miris pri tio, kion rakontis al ili la paŝtistoj. 19 Sed Maria konservis ĉiujn tiujn dirojn kaj pripensis ilin en sia koro. 20
 
 Kaj la paŝtistoj revenis, glorante kaj laŭdante Dion pri ĉio, kion ili
 
-aŭdis kaj vidis, kiel estis parolite al ili. 
+aŭdis kaj vidis, kiel estis parolite al ili.
 
 21 Kaj kiam jam pasis ok tagoj por cirkumcidi lin, oni donis al li
 
@@ -6472,7 +6228,7 @@ la nomon JESUO, kiel li estis nomita de la anĝelo, antaŭ ol li estis
 
 en la ventro. 22 Kaj kiam finiĝis la tagoj de ilia purigado laŭ la leĝo
 
-de Moseo, ili alportis lin al Jerusalem, por prezenti lin al la Eternulo, 
+de Moseo, ili alportis lin al Jerusalem, por prezenti lin al la Eternulo,
 
 23 kiel estas skribite en la leĝo de la Eternulo: ĉiu virseksulo, kiu
 
@@ -6482,11 +6238,9 @@ oferon laŭ tio, kio estas dirita en la leĝo de la Eternulo: Paron da
 
 turtoj, aŭ du kolombidojn. 25 Kaj jen en Jerusalem estis viro, kies
 
-110
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 nomo estis Simeon, kaj ĉi tiu estis justa kaj pia, atendanta la kon-
 
@@ -6502,17 +6256,17 @@ la leĝo, 28 tiam li ricevis lin en siajn brakojn, kaj benis Dion, diran-
 
 te:
 
-29 Nun, ho Eternulo, Vi ellasas Vian servanton, 
+29 Nun, ho Eternulo, Vi ellasas Vian servanton,
 
-Laŭ Via vorto, en paco, 
+Laŭ Via vorto, en paco,
 
-30 ĉar miaj okuloj vidis Vian savon, 
+30 ĉar miaj okuloj vidis Vian savon,
 
-31 Kiun Vi preparis antaŭ la vizaĝo de ĉiuj popoloj, 
+31 Kiun Vi preparis antaŭ la vizaĝo de ĉiuj popoloj,
 
-32 Lumon por malkaŝo al la gentoj, 
+32 Lumon por malkaŝo al la gentoj,
 
-Kaj gloron de Via popolo Izrael. 
+Kaj gloron de Via popolo Izrael.
 
 33 Kaj lia patro kaj lia patrino miris pri tio, kio estis parolita pri
 
@@ -6522,25 +6276,25 @@ estas metita por la falo kaj leviĝo de multaj en Izrael, kaj por signo
 
 kontraŭparolata; 35 kaj ankaŭ vian animon glavo trapasos; por ke la
 
-pensoj de multaj koroj malkaŝiĝu. 36 Kaj estis unu profetino, Anna, 
+pensoj de multaj koroj malkaŝiĝu. 36 Kaj estis unu profetino, Anna,
 
-filino de Fanuel, el la tribo de Aŝer \(ŝi estis grandaĝa, loĝinte sep
+filino de Fanuel, el la tribo de Aŝer (ŝi estis grandaĝa, loĝinte sep
 
 jarojn kun sia edzo de post sia virgeco, 37 kaj estinte vidvino okdek
 
-kvar jarojn\), kiu neniam foriris el la templo, adorante per fastoj kaj
+kvar jarojn), kiu neniam foriris el la templo, adorante per fastoj kaj
 
 preĝoj nokte kaj tage. 38 Kaj alveninte ĝuste en tiu horo, ŝi dankis
 
 Dion, kaj parolis pri li al ĉiuj, kiuj atendadis la elaĉeton de Jerusa-
 
-lem. 39 Kaj kiam ili jam faris ĉion, konforme al la leĝo de la Eternulo, 
+lem. 39 Kaj kiam ili jam faris ĉion, konforme al la leĝo de la Eternulo,
 
-ili revenis en Galileon, al sia urbo Nazaret. 
+ili revenis en Galileon, al sia urbo Nazaret.
 
 40 Kaj la infano kreskadis kaj fortiĝis, pleniĝante de saĝeco; kaj
 
-la graco de Dio estis sur li. 
+la graco de Dio estis sur li.
 
 41 Kaj liaj gepatroj iris ĉiujare al Jerusalem ĉe la Paska festo. 42 Kaj
 
@@ -6548,17 +6302,15 @@ kiam li estis dekdujara, ili supreniris laŭ la kutimo de la festo; 43 kaj
 
 kiam ili jam pasigis la tagojn, ĉe ilia returniĝo la knabo Jesuo res-
 
-111
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tis en Jerusalem, kaj liaj gepatroj tion ne sciis; 44 sed supozante, ke
 
 li estas en la karavano, ili iris tagan vojaĝon, kaj serĉis lin inter siaj
 
-parencoj kaj konatoj; 45 kaj ne trovinte lin, ili reiris al Jerusalem, 
+parencoj kaj konatoj; 45 kaj ne trovinte lin, ili reiris al Jerusalem,
 
 serĉante lin. 46 Kaj post tri tagoj ili trovis lin en la templo, kie li si-
 
@@ -6566,19 +6318,19 @@ dis meze de la instruistoj, aŭskultante ilin kaj metante al ili deman-
 
 dojn; 47 kaj ĉiuj, kiuj aŭdis lin, miregis pro lia kompreno kaj liaj re-
 
-spondoj. 48 Kaj ili miris, vidante lin, kaj lia patrino diris al li: Filo, kial vi tiel agis kontraŭ ni? jen via patro kaj mi serĉis vin kun malĝojo. 
+spondoj. 48 Kaj ili miris, vidante lin, kaj lia patrino diris al li: Filo, kial vi tiel agis kontraŭ ni? jen via patro kaj mi serĉis vin kun malĝojo.
 
 49 Kaj li diris al ili: Kial vi serĉis min? ĉu vi ne sciis, ke mi devas esti en la domo de mia Patro? 50 Kaj ili ne komprenis la diron, kiun li
 
-parolis al ili. 51 Kaj li malsupreniris kun ili, kaj venis en Nazareton, 
+parolis al ili. 51 Kaj li malsupreniris kun ili, kaj venis en Nazareton,
 
 kaj li estis obeema al ili; kaj lia patrino konservis ĉiujn tiujn dirojn
 
-en sia koro. 
+en sia koro.
 
 52 Kaj Jesuo progresis en saĝeco kaj staturo, kaj en graco ĉe Dio
 
-kaj homoj. 
+kaj homoj.
 
 ĉapitro 3
 
@@ -6600,27 +6352,25 @@ skribite en la libro de la vortoj de la profeto Jesaja:
 
 Voĉo de krianto en la dezerto:
 
-Pretigu la vojon de la Eternulo, 
+Pretigu la vojon de la Eternulo,
 
-Rektigu Liajn irejojn. 5 ĉiu valo leviĝos, 
+Rektigu Liajn irejojn. 5 ĉiu valo leviĝos,
 
-Kaj ĉiu monto kaj monteto malaltiĝos, 
+Kaj ĉiu monto kaj monteto malaltiĝos,
 
-112
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Kaj la malebenaĵo fariĝos ebenaĵo, 
+Kaj la malebenaĵo fariĝos ebenaĵo,
 
-Kaj la malglataj vojoj glatiĝos; 
+Kaj la malglataj vojoj glatiĝos;
 
-6 Kaj ĉiu karno vidos la savon de Dio. 
+6 Kaj ĉiu karno vidos la savon de Dio.
 
 7 Li do diris al la homamasoj, kiuj eliris, por esti baptitaj de li: Ho
 
-vipuridoj\! kiu vin avertis forkuri de la venonta kolero? 8 Donu do
+vipuridoj! kiu vin avertis forkuri de la venonta kolero? 8 Donu do
 
 fruktojn taŭgajn por pento. Kaj ne komencu diri en vi: Ni havas
 
@@ -6640,23 +6390,23 @@ tiel same. 12 Venis ankaŭ impostistoj, por esti baptitaj, kaj ili diris al
 
 li: Majstro, kion ni faru? 13 Kaj li diris al ili: Ne postulu pli multe, ol estas ordonite. 14 Kaj ankaŭ soldatoj lin demandis, dirante: Kaj kion
 
-ni faru? Kaj li diris al ili: Ne perfortu iun, nek maljuste ion postulu, 
+ni faru? Kaj li diris al ili: Ne perfortu iun, nek maljuste ion postulu,
 
-kaj estu kontentaj je via salajro. 
+kaj estu kontentaj je via salajro.
 
 15 Kaj kiam la popolo atendis, kaj ĉiuj diskutis en siaj koroj pri
 
 Johano, ĉu eble li estas la Kristo, 16 Johano respondis al ĉiuj, dirante:
 
-Mi ja vin baptas per akvo, sed venas tiu, kiu estas pli potenca ol mi; 
+Mi ja vin baptas per akvo, sed venas tiu, kiu estas pli potenca ol mi;
 
 la rimenon de liaj ŝuoj mi ne estas inda malligi; li vin baptos per la
 
 Sankta Spirito kaj per fajro; 17 lia ventumilo estas en lia mano, por
 
-ke li elpurigu sian draŝejon, kaj kolektu la tritikon en sian grenejon; 
+ke li elpurigu sian draŝejon, kaj kolektu la tritikon en sian grenejon;
 
-sed la grenventumaĵon li bruligos per fajro neestingebla. 
+sed la grenventumaĵon li bruligos per fajro neestingebla.
 
 18 Kaj per multaj aliaj konsiloj li evangeliis al la popolo. 19 Sed
 
@@ -6664,25 +6414,23 @@ Herodo, la tetrar˛o, riproĉite de li pri Herodias, la edzino de lia fra-
 
 to, kaj pri ĉiuj malbonaĵoj, kiujn Herodo faris, 20 aldonis al ĉio an-
 
-kaŭ ĉi tion, ke li enŝlosis Johanon en malliberejo. 
+kaŭ ĉi tion, ke li enŝlosis Johanon en malliberejo.
 
 21 Kaj kiam la tuta popolo estis baptata, Jesuo ankaŭ estis bap-
 
 tita, kaj dum li preĝis, la ĉielo malfermiĝis, 22 kaj la Sankta Spirito
 
-113
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 malsupreniris sur lin en korpa aspekto kiel kolombo; kaj venis voĉo
 
-el la ĉielo: Vi estas Mia Filo, la amata; en vi Mi havas plezuron. 
+el la ĉielo: Vi estas Mia Filo, la amata; en vi Mi havas plezuron.
 
 23 Kaj Jesuo mem, komencante, havis ĉirkaŭ tridek jarojn, estante
 
-filo \(kiel oni supozis\) de Jozef, de Eli, 24 de Mattat, de Levi, de Mel˛i, 
+filo (kiel oni supozis) de Jozef, de Eli, 24 de Mattat, de Levi, de Mel˛i,
 
 de Janaj, de Jozef, 25 de Matatias, de Amos, de Na˛um, de Esli, de
 
@@ -6690,13 +6438,13 @@ Nagaj, 26 de Maat, de Matatias, de Semein, de Jozef, de Joda, 27 de
 
 Joąnan, de Resa, de Zerubabel, de ŝealtiel, de Neri, 28 de Mel˛i, de
 
-Adi, de Kosam, de Elmodam, de Er, 29 de Jesu, de Eliezer, de Jorim, 
+Adi, de Kosam, de Elmodam, de Er, 29 de Jesu, de Eliezer, de Jorim,
 
 de Mattat, de Levi, 30 de Simeon, de Jehuda, de Jozef, de Jonam, de
 
 Eljakim, 31 de Melea, de Mena, de Matata, de Natan, de David, 32
 
-de Jiŝaj, de Obed, de Boaz, de Salma, de Na˛ŝon, 33 de Aminadab, 
+de Jiŝaj, de Obed, de Boaz, de Salma, de Na˛ŝon, 33 de Aminadab,
 
 de Ram, de ˘ecron, de Perec, de Jehuda, 34 de Jakob, de Isaak, de
 
@@ -6704,9 +6452,9 @@ Abraham, de Tera˛, de Na˛or, 35 de Serug, de Reu, de Peleg, de
 
 Eber, de ŝela˛, 36 de Kenan, de Arpa˛ŝad, de ŝem, de Noa, de Le-
 
-me˛, 37 de Metuŝela˛, de ˘ano˛, de Jared, de Mahalalel, de Kenan, 
+me˛, 37 de Metuŝela˛, de ˘ano˛, de Jared, de Mahalalel, de Kenan,
 
-38 de Enoŝ, de Set, de Adam, de Dio. 
+38 de Enoŝ, de Set, de Adam, de Dio.
 
 ĉapitro 4
 
@@ -6730,55 +6478,54 @@ Jesuo diris al li: Estas skribite: Al la Eternulo, via Dio, adorkliniĝu, kaj 11
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 al Li sola servu. 9 Kaj li kondukis lin al Jerusalem, kaj starigis lin sur
 
-la tegmenta pinto de la templo, kaj diris al li: Se vi estas Filo de Dio, 
+la tegmenta pinto de la templo, kaj diris al li: Se vi estas Filo de Dio,
 
 ĵetu vin de ĉi tie malsupren; 10 ĉar estas skribite:
 
-Al siaj anĝeloj Li ordonos pri vi, ke ili vin gardu, 
+Al siaj anĝeloj Li ordonos pri vi, ke ili vin gardu,
 
 11 kaj:
 
-Sur la manoj ili vin portos, 
+Sur la manoj ili vin portos,
 
-Por ke vi ne falpuŝiĝu sur ŝtono per via piedo. 
+Por ke vi ne falpuŝiĝu sur ŝtono per via piedo.
 
 12 Kaj responde Jesuo diris al li: Estas dirite: Ne provu la Eternu-
 
-lon, vian Dion. 
+lon, vian Dion.
 
 13 Kaj fininte la tutan tentadon, la diablo foriris de li ĝis estonta
 
-tempo. 
+tempo.
 
 14 Kaj revenis Jesuo en la potenco de la Spirito en Galileon; kaj
 
 eliris famo pri li tra la tuta ĉirkaŭaĵo. 15 Kaj li instruadis en iliaj si-
 
-nagogoj, glorate de ĉiuj. 
+nagogoj, glorate de ĉiuj.
 
 16 Kaj li venis al Nazaret, kie li estis edukita; kaj laŭ sia kutimo li
 
 eniris en la sinagogon en la sabata tago, kaj stariĝis, por legi. 17 Kaj
 
-estis donita al li libro de la profeto Jesaja. Kaj, malferminte la libron, 
+estis donita al li libro de la profeto Jesaja. Kaj, malferminte la libron,
 
 li trovis la lokon, kie estis skribite:
 
-18 La spirito de la Eternulo estas sur mi, 
+18 La spirito de la Eternulo estas sur mi,
 
-ĉar Li min sanktoleis, por bonanonci al malriĉuloj; 
+ĉar Li min sanktoleis, por bonanonci al malriĉuloj;
 
 Li sendis min, por anonci liberecon al kaptitoj
 
-Kaj vidpovon al blinduloj, 
+Kaj vidpovon al blinduloj,
 
 Por meti la vunditojn en liberecon, 1
 
-9 Por proklami favorjaron de la Eternulo. 
+9 Por proklami favorjaron de la Eternulo.
 
 20 Kaj kunvolvinte la libron, kaj redoninte ĝin al la subulo, li sid-
 
@@ -6790,11 +6537,9 @@ ekparolis al ili: Hodiaŭ tiu skribo plenumiĝas en viaj oreloj. 22 Kaj
 
 buŝo; kaj ili diris: ĉu ĉi tiu ne estas la filo de Jozef? 23 Kaj li diris al ili: Sendube vi diros al mi la jenan sentencon: Kuracisto, sanigu vin
 
-115
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mem; kiajn aferojn, pri kiuj ni aŭdis, en Kapernaum faritajn, tiajn
 
@@ -6816,7 +6561,7 @@ gita, krom Naaman, la Siriano. 28 Kaj ĉiuj en la sinagogo pleniĝis de
 
 kolero, aŭdante tion; 29 kaj leviĝinte, ili elĵetis lin ekster la urbon, kaj kondukis lin ĝis la krutaĵo de la monteto, sur kiu ilia urbo estis konstruita, por ĵeti lin malsupren. 30 Sed li foriris, trapasinte tra ilia me-
 
-zo. 
+zo.
 
 31 Kaj li malsupreniris al Kapernaum, urbo Galilea. Kaj li instru-
 
@@ -6824,13 +6569,13 @@ is ilin en la sabato; 32 kaj oni miris pro lia instruado, ĉar kun aŭto-
 
 ritato estis lia vorto. 33 Kaj en la sinagogo estis viro, havanta spiri-
 
-ton de malpura demono; kaj li kriegis per laŭta voĉo, 34 dirante: Ha\! 
+ton de malpura demono; kaj li kriegis per laŭta voĉo, 34 dirante: Ha!
 
 kio estas inter ni kaj vi, Jesuo Nazaretano? ĉu vi venis, por pereigi
 
 nin? Mi scias, kiu vi estas, la Sanktulo de Dio. 35 Kaj Jesuo severe ad-
 
-monis lin, dirante: Silentu, kaj eliru el li. Kaj ĵetinte lin en la mezon, 
+monis lin, dirante: Silentu, kaj eliru el li. Kaj ĵetinte lin en la mezon,
 
 la demono eliris el li, neniel difektinte lin. 36 Kaj falis miro sur ĉiu-
 
@@ -6838,13 +6583,13 @@ jn, kaj ili kunparoladis inter si, dirante: Kia vorto estas ĉi tio? ĉar
 
 kun aŭtoritato kaj potenco li ordonas al la malpuraj spiritoj, kaj ili
 
-eliras. 37 Kaj famo pri li eliris al ĉiu loko de la tuta ĉirkaŭaĵo. 
+eliras. 37 Kaj famo pri li eliris al ĉiu loko de la tuta ĉirkaŭaĵo.
 
 38 Kaj leviĝinte el la sinagogo, li eniris en la domon de Simon. Kaj
 
 la bopatrino de Simon estis tenata de granda febro, kaj ili petis lin
 
-pri ŝi. 39 Kaj starante super ŝi, li admonis la febron; kaj ĝi forlasis ŝin, kaj ŝi tuj leviĝis kaj servis al ili. 
+pri ŝi. 39 Kaj starante super ŝi, li admonis la febron; kaj ĝi forlasis ŝin, kaj ŝi tuj leviĝis kaj servis al ili.
 
 40 Kaj ĉe la subiro de la suno ĉiuj, kiuj havis malsanulojn kun di-
 
@@ -6852,13 +6597,12 @@ versaj malsanoj, venigis ilin al li; kaj li metis sur ĉiun el ili la manojn, 11
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj sanigis ilin. 41 Eliris ankaŭ demonoj el multaj, kriegante, kaj dir-
 
 ante: Vi estas la Filo de Dio. Kaj severe admonante, li ne permesis
 
-al ili paroli, ĉar ili sciis, ke li estas la Kristo. 
+al ili paroli, ĉar ili sciis, ke li estas la Kristo.
 
 42 Kaj kiam tagiĝis, li eliris, kaj venis en dezertan lokon; kaj la
 
@@ -6866,9 +6610,9 @@ homamasoj lin serĉis, kaj venis al li, kaj lin detenis, ke li ne foriru
 
 de ili. 43 Sed li diris al ili: Ankaŭ al la ceteraj urboj mi devas prediki
 
-la evangelion de la regno de Dio; ĉar por tio mi estas sendita. 
+la evangelion de la regno de Dio; ĉar por tio mi estas sendita.
 
-44 Kaj li predikis en la sinagogoj de Galileo. 
+44 Kaj li predikis en la sinagogoj de Galileo.
 
 ĉapitro 5
 
@@ -6876,9 +6620,9 @@ la evangelion de la regno de Dio; ĉar por tio mi estas sendita.
 
 Dio, li staris apud la lago Genesaret; 2 kaj li vidis du ŝipetojn staran-
 
-tajn apud la lago, sed la fiŝkaptistoj ĵus eliris el ili, kaj lavis la retojn. 
+tajn apud la lago, sed la fiŝkaptistoj ĵus eliris el ili, kaj lavis la retojn.
 
-3 Kaj li eniris en unu el la ŝipetoj, kiu apartenis al Simon, kaj petis, 
+3 Kaj li eniris en unu el la ŝipetoj, kiu apartenis al Simon, kaj petis,
 
 ke li forŝovu iom for de la bordo. Kaj li sidiĝis, kaj instruis la homa-
 
@@ -6894,9 +6638,9 @@ enfermis grandan amason da fiŝoj, kaj iliaj retoj ekrompiĝis; 7 kaj ili
 
 geste signis al siaj kompanianoj en la alia ŝipeto, ke ili venu kaj hel-
 
-pu ilin. Kaj ili venis, kaj plenigis ambaŭ ŝipetojn, ĝis ekprofundiĝo. 
+pu ilin. Kaj ili venis, kaj plenigis ambaŭ ŝipetojn, ĝis ekprofundiĝo.
 
-8 Sed Simon Petro, tion vidinte, falis teren antaŭ la genuoj de Jesuo, 
+8 Sed Simon Petro, tion vidinte, falis teren antaŭ la genuoj de Jesuo,
 
 dirante: Foriru de mi, ho Sinjoro, ĉar mi estas pekulo. 9 ĉar pro la
 
@@ -6904,13 +6648,11 @@ preno de fiŝoj, kiun ili akiris, miro kaptis lin, kaj ĉiujn, kiuj estis kun li
 
 nun vi estos kaptisto de homoj. 11 Kaj kiam ili surbordigis siajn ŝi-
 
-petojn, ili forlasis ĉion, kaj sekvis lin. 
+petojn, ili forlasis ĉion, kaj sekvis lin.
 
-117
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 12 Kaj dum li estis en unu el la urboj, jen viro plena de lepro; kaj
 
@@ -6926,7 +6668,7 @@ atesto al ili. 15 Sed la famo pri li des pli multe disvastiĝis; kaj gran-
 
 daj homamasoj kunvenis, por aŭskulti kaj por esti sanigitaj je siaj
 
-malsanoj. 16 Sed li fortiris sin en la dezertojn, kaj preĝadis. 
+malsanoj. 16 Sed li fortiris sin en la dezertojn, kaj preĝadis.
 
 17 Kaj en unu el tiuj tagoj li estis instruanta; kaj ĉeestis Fariseoj
 
@@ -6958,7 +6700,7 @@ al vi: Leviĝu, kaj prenu vian liteton, kaj iru al via domo. 25 Kaj tuj li
 
 leviĝis antaŭ ili, kaj prenis tion, sur kio li kuŝis, kaj iris al sia domo, glorante Dion. 26 Kaj mirego kaptis ĉiujn, kaj li gloris Dion; kaj ili
 
-pleniĝis de timo, dirante: Ni vidis mirindaĵojn hodiaŭ. 
+pleniĝis de timo, dirante: Ni vidis mirindaĵojn hodiaŭ.
 
 27 Kaj post tio li eliris, kaj vidis impostiston, nomatan Levi, sid-
 
@@ -6966,7 +6708,6 @@ antan ĉe la impostejo, kaj diris al li: Sekvu min. 28 Kaj li forlasis ĉion, 11
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj leviĝis, kaj sekvis lin. 29 Kaj Levi faris grandan festenon por li en
 
@@ -6986,7 +6727,7 @@ no ofte fastas kaj faras preĝojn, kaj tiel same ankaŭ la disĉiploj de
 
 la Fariseoj; sed la viaj manĝas kaj trinkas. 34 Kaj Jesuo diris al ili: ĉu
 
-vi povas igi la filojn de la edziĝejo fasti, dum la fianĉo estas kun ili? 
+vi povas igi la filojn de la edziĝejo fasti, dum la fianĉo estas kun ili?
 
 35 Sed venos tagoj; kaj kiam la fianĉo estos prenita for de ili, tiam
 
@@ -7004,7 +6745,7 @@ fluus, kaj la felsakoj detruiĝus. 38 Sed novan vinon oni devas enverŝi
 
 en novajn felsakojn. 39 Kaj neniu, trinkinte malnovan vinon, dezi-
 
-ras novan; ĉar li diras: La malnova estas preferinda. 
+ras novan; ĉar li diras: La malnova estas preferinda.
 
 ĉapitro 6
 
@@ -7020,15 +6761,13 @@ vid, kiam malsatis li kaj liaj kunuloj? 4 ke li eniris en la domon de
 
 Dio, kaj prenis kaj manĝis kaj donis ankaŭ al siaj kunuloj la panojn
 
-de propono, kiujn manĝi ne estas permesate, krom nur al la pastroj? 
+de propono, kiujn manĝi ne estas permesate, krom nur al la pastroj?
 
 5 Kaj li diris al ili: La Filo de homo estas sinjoro de la sabato. 6 Kaj
 
-119
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 en alia sabato li eniris en la sinagogon kaj instruadis; kaj tie estis
 
@@ -7046,7 +6785,7 @@ te bonfari en sabato, aŭ malbonfari? Savi vivon, al ĝin pereigi? 10 Kaj
 
 faris, kaj lia mano resaniĝis. 11 Sed ili pleniĝis de frenezo, kaj inter-
 
-paroladis inter si, kion ili faru al Jesuo. 
+paroladis inter si, kion ili faru al Jesuo.
 
 12 Kaj en tiuj tagoj li foriris sur la monton, por preĝi; kaj li pasi-
 
@@ -7074,7 +6813,7 @@ kaj tiuj, kiuj estis turmentataj de malpuraj spiritoj, estis sanigitaj. 19
 
 Kaj la tuta homamaso volis tuŝi lin, ĉar potenco eliris el li kaj sani-
 
-gis ĉiujn. 
+gis ĉiujn.
 
 20 Kaj li levis siajn okulojn al siaj disĉiploj, kaj diris: Feliĉaj estas
 
@@ -7086,29 +6825,27 @@ ridos. 22 Feliĉaj vi estas, kiam oni vin malamos kaj vin izolos kaj vin
 
 riproĉos, kaj elĵetos vian nomon kial malbonan, pro la Filo de ho-
 
-mo. 23 ¯oju en tiu tago, kaj pro ĝojo saltu, ĉar jen via rekompenco
+mo. 23 oju en tiu tago, kaj pro ĝojo saltu, ĉar jen via rekompenco
 
-120
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estas granda en la ĉielo; ĉar tiel same faris iliaj patroj kontraŭ la pro-
 
-fetoj. 24 Sed ve al vi riĉuloj\! ĉar vi jam ricevis vian konsolon. 25 Ve al
+fetoj. 24 Sed ve al vi riĉuloj! ĉar vi jam ricevis vian konsolon. 25 Ve al
 
-vi satigitaj\! ĉar vi malsatos. Ve al vi, kiuj nun ridas\! ĉar vi malĝojos
+vi satigitaj! ĉar vi malsatos. Ve al vi, kiuj nun ridas! ĉar vi malĝojos
 
-kaj ploros. 26 Ve, kiam ĉiuj homoj parolos bone pri vi\! ĉar tiel same
+kaj ploros. 26 Ve, kiam ĉiuj homoj parolos bone pri vi! ĉar tiel same
 
-faris iliaj patroj al la falsaj profetoj. 
+faris iliaj patroj al la falsaj profetoj.
 
 27 Sed mi diras al vi, kiuj aŭdas: Amu viajn malamikojn, faru bo-
 
 non al viaj malamantoj; 28 benu tiujn, kiuj vin malbenas; preĝu por
 
-tiuj, kiuj kun insulto vin atakas. 29 Al tiu, kiu frapas vin sur la vango, 
+tiuj, kiuj kun insulto vin atakas. 29 Al tiu, kiu frapas vin sur la vango,
 
 prezentu ankaŭ la alian; kaj de tiu, kiu prenas vian mantelon, ne
 
@@ -7126,7 +6863,7 @@ kon vi havas? ĉar eĉ la pekuloj tiel same faras. 34 Kaj se vi pruntas
 
 al tiuj, de kiuj vi esperas ricevi, kian dankon vi havas? eĉ pekuloj
 
-pruntas al pekuloj, por egale rericevi. 35 Sed amu viajn malamikojn, 
+pruntas al pekuloj, por egale rericevi. 35 Sed amu viajn malamikojn,
 
 kaj bonfaru, kaj pruntedonu, pri neniu perdante esperon; kaj via re-
 
@@ -7138,11 +6875,11 @@ via Patro estas kompatema. 37 Kaj ne juĝu, kaj vi ne estos juĝitaj; kaj
 
 ne kondamnu, kaj vi ne estos kondamnitaj; liberigu, kaj vi estos li-
 
-berigitaj; 38 donu, kaj estos donite al vi; bonan mezuron, premitan, 
+berigitaj; 38 donu, kaj estos donite al vi; bonan mezuron, premitan,
 
 kunskuitan, superfluantan, oni donos en vian sinon. ĉar per kia
 
-mezuro vi mezuras, per tia oni remezuros al vi. 
+mezuro vi mezuras, per tia oni remezuros al vi.
 
 39 Kaj li parolis ankaŭ al ili parabolon: ĉu blindulo povas gvidi
 
@@ -7152,17 +6889,15 @@ sia instruisto; sed perfektigite, ĉiu estos kiel lia instruisto. 41 Kaj kial vi
 
 pripensas la trabon, kiu estas en via propra okulo? 42 Kiel vi povas
 
-121
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 diri al via frato: Frato, lasu min eltiri la lignereton, kiu estas en via
 
 okulo; dum vi ne pripensas la trabon en via propra okulo? Hipokri-
 
-tulo\! eltiru unue la trabon el via okulo, kaj tiam vi klare vidos, por
+tulo! eltiru unue la trabon el via okulo, kaj tiam vi klare vidos, por
 
 eltiri la lignereton, kiu estas en la okulo de via frato. 43 ĉar ne ek-
 
@@ -7176,13 +6911,13 @@ koltas vinberojn. 45 Bona homo el la bona trezorejo de sia koro li-
 
 veras bonon, kaj malbona homo el la malbona trezorejo liveras
 
-malbonon; ĉar el la abundo de la koro parolas lia buŝo. 
+malbonon; ĉar el la abundo de la koro parolas lia buŝo.
 
 46 Kaj kial vi min vokas: Sinjoro, Sinjoro; kaj ne faras tion, kion
 
 mi diras? 47 Pri ĉiu, kiu venas al mi, kaj aŭdas miajn parolojn, kaj
 
-plenumas ilin, mi montros al vi, al kiu li similas: 48 li similas al viro, 
+plenumas ilin, mi montros al vi, al kiu li similas: 48 li similas al viro,
 
 kiu, konstruante domon, fosis kaj profunde kavigis, kaj metis fun-
 
@@ -7194,13 +6929,13 @@ struita. 49 Sed tiu, kiu aŭdas kaj ne plenumas, similas al viro, kiu
 
 konstruis sur la tero sen fundamento domon; kontraŭ kiun la rivero
 
-sin ĵetis, kaj ĝi tuj enfalis, kaj la ruino de tiu domo estis granda. 
+sin ĵetis, kaj ĝi tuj enfalis, kaj la ruino de tiu domo estis granda.
 
 ĉapitro 7
 
 1 Fininte ĉiujn siajn dirojn en la oreloj de la popolo, li eniris en Ka-
 
-pernaumon. 
+pernaumon.
 
 2 Kaj sklavo de unu centestro, kiu estis kara por li, estis malsana
 
@@ -7214,11 +6949,9 @@ al li tiun komplezon; 5 ĉar li amas nian nacion, kaj li mem konstru-
 
 igis por ni la sinagogon. 6 Kaj Jesuo ekiris kun ili. Kaj kiam li estis ne
 
-122
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 malproksime de la domo, la centestro sendis al li amikojn, por diri
 
@@ -7228,7 +6961,7 @@ tegmenton; 7 pro tio mi ne opiniis min inda veni al vi. Sed vorton
 
 parolu, kaj mia knabo saniĝos. 8 ĉar mi ankaŭ estas homo metita
 
-sub aŭtoritato, havante sub mi soldatojn; kaj mi diras al ĉi tiu: Iru; 
+sub aŭtoritato, havante sub mi soldatojn; kaj mi diras al ĉi tiu: Iru;
 
 kaj li iras; kaj al alia: Venu; kaj li venas; kaj al mia sklavo: Faru ĉi
 
@@ -7236,7 +6969,7 @@ tion; kaj li ĝin faras. 9 Kaj kiam Jesuo tion aŭdis, li miris pri li, kaj sin 
 
 Izrael mi ne trovis tiom da fido. 10 Kaj la senditoj, reveninte al la
 
-domo, trovis la sklavon sana. 
+domo, trovis la sklavon sana.
 
 11 Kaj post nelonge li iris al urbo nomata Nain, kaj akompanis lin
 
@@ -7250,9 +6983,9 @@ kun ŝi. 13 Kaj kiam la Sinjoro ŝin vidis, li kortuŝiĝis pri ŝi, kaj diris a
 
 Kaj timo kaptis ĉiujn; kaj ili gloris Dio, dirante: Granda profeto lev-
 
-iĝis inter ni; kaj: Dio vizitis Sian popolon. 17 Kaj ĉi tiu famo pri li eliris tra la tuta Judujo, kaj tra la tuta ĉirkaŭaĵo. 
+iĝis inter ni; kaj: Dio vizitis Sian popolon. 17 Kaj ĉi tiu famo pri li eliris tra la tuta Judujo, kaj tra la tuta ĉirkaŭaĵo.
 
-18 Kaj la disĉiploj de Johano sciigis lin pri ĉio tio. 19 Kaj Johano, 
+18 Kaj la disĉiploj de Johano sciigis lin pri ĉio tio. 19 Kaj Johano,
 
 alvokinte al si du el siaj disĉiploj, sendis ilin al la Sinjoro, por diri:
 
@@ -7264,19 +6997,17 @@ multajn je malsanoj kaj pestoj kaj malbonaj spiritoj; kaj al multaj
 
 blinduloj li redonis vidpovon. 22 Kaj li respondis kaj diris al ili: Iru
 
-kaj sciigu Johanon pri tio, kion vi vidis kaj aŭdis: blinduloj vidas, 
+kaj sciigu Johanon pri tio, kion vi vidis kaj aŭdis: blinduloj vidas,
 
 lamuloj marŝas, lepruloj estas purigitaj, kaj surduloj aŭdas, mortin-
 
-123
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 toj leviĝas, al malriĉuloj evangelio estas predikata. 23 Kaj feliĉa es-
 
-tas ĉiu, kiu ne falpuŝiĝas pro mi. 
+tas ĉiu, kiu ne falpuŝiĝas pro mi.
 
 24 Kaj kiam la senditoj de Johano foriris, li komencis paroli al la
 
@@ -7292,29 +7023,29 @@ vidi? ĉu profeton? Jes, mi diras al vi, kaj multe pli ol profeton. 27 ĉar
 
 li estas tiu, pri kiu estas skribite:
 
-Jen Mi sendos Mian anĝelon antaŭ via vizaĝo, 
+Jen Mi sendos Mian anĝelon antaŭ via vizaĝo,
 
-Kaj li preparos antaŭ vi vian vojon. 
+Kaj li preparos antaŭ vi vian vojon.
 
 28 Mi diras al vi: Inter naskitoj de virinoj estas neniu pli granda
 
-ol Johano; tamen tiu, kiu estas nur malgranda en la regno de Dio, 
+ol Johano; tamen tiu, kiu estas nur malgranda en la regno de Dio,
 
-estas pli granda ol li. 29 Kaj la tuta popolo kaj la impostistoj, aŭdinte, 
+estas pli granda ol li. 29 Kaj la tuta popolo kaj la impostistoj, aŭdinte,
 
 pravigis Dion, ĉar ili ricevis la bapton de Johano. 30 Sed la Fariseoj
 
 kaj la leĝistoj rifuzis por si la intencon de Dio, ĉar ili ne estis bap-
 
-titaj de li. 31 Al kio do mi komparos la homojn de ĉi tiu generacio? 
+titaj de li. 31 Al kio do mi komparos la homojn de ĉi tiu generacio?
 
 kaj al kio ili similas? 32 Ili similas al infanoj, kiuj sidas sur la placo kaj vokas unu al alia, dirante: Ni flutis al vi, kaj vi ne dancis; ni lamentis, kaj vi ne ploris. 33 ĉar Johano, la Baptisto, venis, nek manĝante panon nek trinkante vinon; kaj vi diras: Li havas demonon. 34 La Filo
 
 de homo venis, manĝante kaj trinkante; kaj vi diras: Jen manĝegulo
 
-kaj vindrinkulo, amiko de impostistoj kaj pekuloj\! 35 Kaj la saĝeco
+kaj vindrinkulo, amiko de impostistoj kaj pekuloj! 35 Kaj la saĝeco
 
-estas pravigita de ĉiuj siaj infanoj. 
+estas pravigita de ĉiuj siaj infanoj.
 
 36 Kaj unu el la Fariseoj petis lin, ke li manĝu kun li. Kaj li eniris
 
@@ -7322,17 +7053,15 @@ en la domon de la Fariseo, kaj sidiĝis ĉe manĝo. 37 Kaj jen estis en
 
 la urbo virino pekulino; kaj kiam ŝi eksciis, ke Jesuo sidas ĉe man-
 
-ĝo en la domo de la Fariseo, ŝi alportis alabastran vazon da ŝmiraĵo, 
+ĝo en la domo de la Fariseo, ŝi alportis alabastran vazon da ŝmiraĵo,
 
 38 kaj starante malantaŭe ĉe liaj piedoj, plorante, ŝi komencis pri-
 
 verŝi liajn piedojn per ŝiaj larmoj, kaj viŝis ilin per la haroj de sia
 
-124
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kapo, kaj kisadis liajn piedojn, kaj ŝmiris ilin per la ŝmiraĵo. 39 Kaj
 
@@ -7356,7 +7085,7 @@ doj; sed ŝi priverŝis miajn piedojn per siaj larmoj kaj viŝis ilin per siaj h
 
 oleo; sed ŝi ŝmiris miajn piedojn per ŝmiraĵo. 47 Pro tio mi diras al
 
-vi: ŝiaj pekoj, kiuj estas multaj, estas pardonitaj; ĉar ŝi multe amis; 
+vi: ŝiaj pekoj, kiuj estas multaj, estas pardonitaj; ĉar ŝi multe amis;
 
 sed al kiu malmulto estas pardonita, tiu malmulte amas. 48 Kaj li
 
@@ -7364,7 +7093,7 @@ diris al ŝi: Viaj pekoj estas pardonitaj. 49 Kaj tiuj, kiuj sidis ĉe manĝo
 
 kun li, komencis diri inter si: Kiu estas ĉi tiu, kiu eĉ pardonas pe-
 
-kojn? 50 Kaj li diris al la virino: Via fido vin savis; iru en pacon. 
+kojn? 50 Kaj li diris al la virino: Via fido vin savis; iru en pacon.
 
 ĉapitro 8
 
@@ -7375,7 +7104,6 @@ alportante la evangelion de la regno de Dio, kaj kun li la dek du, 2
 kaj iuj virinoj, kiuj estis resanigitaj je malbonaj spiritoj kaj malsanoj:
 
 
-
 Maria, kiu estis nomata Magdalena, el kiu eliris sep demonoj, 3 kaj
 
 Joana, edzino de ˘uzas, la ĉambelano de Herodo, kaj Susana, kaj
@@ -7384,11 +7112,9 @@ multaj aliaj, kiuj faris al ili helpan servadon per sia havo. 4 Kaj kiam
 
 granda homamaso kolektiĝis, kaj homoj el ĉiu urbo venis al li, li
 
-125
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 diris per parabolo: 5 La semisto eliris, por semi sian semon; kaj dum
 
@@ -7400,9 +7126,9 @@ kreskinte, velkis, ĉar ili ne havis malsekaĵon. 7 Kaj aliaj falis meze
 
 inter dornojn; kaj la dornoj kunkreskis, kaj sufokis ilin. 8 Kaj aliaj
 
-falis en la bonan teron, kaj kreskinte, produktis frukton centoble. 
+falis en la bonan teron, kaj kreskinte, produktis frukton centoble.
 
-Dirinte tion, li kriis: Kiu havas orelojn por aŭdi, tiu aŭdu. 
+Dirinte tion, li kriis: Kiu havas orelojn por aŭdi, tiu aŭdu.
 
 9 Kaj liaj disĉiploj demandis al li, kia estas ĉi tiu parabolo. 10 Kaj
 
@@ -7416,7 +7142,7 @@ Dio. 12 Kaj la falintaj apud la vojo estas tiuj, kiuj aŭdis; tiam venas
 
 la diablo, kaj forprenas la vorton el ilia koro, por ke ili ne kredu kaj
 
-ne estu savitaj. 13 Kaj la falintaj sur la ŝtonan lokon estas tiuj, kiuj, 
+ne estu savitaj. 13 Kaj la falintaj sur la ŝtonan lokon estas tiuj, kiuj,
 
 aŭdinte, kun ĝojo akceptas la vorton; sed ili ne havas radikon, kaj
 
@@ -7430,7 +7156,7 @@ ton. 15 Kaj tio, kio falis en la bonan teron, estas tiuj, kiuj en bela kaj
 
 bona koro, aŭdinte la vorton, konservas ĝin, kaj kun pacienco do-
 
-nas frukton. 
+nas frukton.
 
 16 Kaj ekbruliginte lampon, oni ne kovras ĝin per vazo, aŭ for-
 
@@ -7442,33 +7168,31 @@ ne estas io sekreta, kio ne koniĝos kaj klare elmontriĝos. 18 Atentu
 
 do, kiamaniere vi aŭdas; ĉar kiu ajn havas, al tiu estos donite; kaj kiu
 
-ajn ne havas, de tiu estos forprenita eĉ tio, kion li ŝajne havas. 
+ajn ne havas, de tiu estos forprenita eĉ tio, kion li ŝajne havas.
 
 19 Kaj alvenis al li lia patrino kaj liaj fratoj, kaj ili ne povis lin atin-gi pro la homamaso. 20 Kaj oni sciigis lin: Via patrino kaj viaj fratoj
 
 staras ekstere, kaj deziras vin vidi. 21 Sed respondante, li diris al ili:
 
-126
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Mia patrino kaj miaj fratoj estas tiuj, kiuj aŭdas la vorton de Dio, kaj
 
-ĝin plenumas. 
+ĝin plenumas.
 
 22 Kaj en unu el tiuj tagoj eniris en ŝipeton li kaj liaj disĉiploj; kaj
 
-li diris al ili: Ni transiru al la alia bordo de la lago; kaj ili surmariĝis. 
+li diris al ili: Ni transiru al la alia bordo de la lago; kaj ili surmariĝis.
 
-23 Sed dum ili veturis, li endormiĝis; kaj falis ventego sur la lagon; 
+23 Sed dum ili veturis, li endormiĝis; kaj falis ventego sur la lagon;
 
 kaj ili tute pleniĝis de akvo, kaj estis en danĝero. 24 Kaj ili venis al
 
 li, kaj vekis lin, dirante: Estro, estro, ni pereas. Kaj li leviĝis, kaj admonis la venton kaj la furiozon de la akvo; kaj ili ĉesiĝis, kaj fariĝis
 
-sereno. 25 Kaj li diris al ili: Kie estas via fido? Kaj ili timis kaj miris, dirante unu al la alia: Kiu do estas ĉi tiu? ĉar li ordonas eĉ al la ventoj kaj al la akvo, kaj ili obeas al li. 
+sereno. 25 Kaj li diris al ili: Kie estas via fido? Kaj ili timis kaj miris, dirante unu al la alia: Kiu do estas ĉi tiu? ĉar li ordonas eĉ al la ventoj kaj al la akvo, kaj ili obeas al li.
 
 26 Kaj ili ŝipveturis al la lando de la Gerasenoj, kiu estas kontraŭ
 
@@ -7492,7 +7216,7 @@ mandis lin: Kia estas via nomo? Kaj li diris: Legio; ĉar multaj demo-
 
 noj eniris en lin. 31 Kaj ili petegis lin, ke li ne ordonu al ili foriri en la abismon. 32 Kaj estis tie granda grego da porkoj, paŝtiĝantaj sur
 
-la monto; kaj ili petegis lin, ke li permesu al ili eniri en la porkojn. 
+la monto; kaj ili petegis lin, ke li permesu al ili eniri en la porkojn.
 
 Kaj li tion permesis al ili. 33 Kaj elirinte el la viro, la demonoj eniris
 
@@ -7500,31 +7224,29 @@ en la porkojn; kaj la grego kuris de la krutaĵo en la lagon, kaj sufok-
 
 iĝis. 34 Kaj kiam iliaj paŝtistoj vidis la okazintaĵon, ili forkuris, kaj
 
-rakontis ĝin en la urbo kaj en la kamparo. 35 Kaj oni eliris por vidi, 
+rakontis ĝin en la urbo kaj en la kamparo. 35 Kaj oni eliris por vidi,
 
 kio okazis; kaj ili venis al Jesuo, kaj trovis la viron, el kiu eliris la
 
 demonoj, sidanta, vestita kaj en sana prudento, ĉe la piedoj de Je-
 
-127
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 suo, kaj ili timis. 36 Kaj la vidintoj rakontis al ili, kiamaniere la de-
 
 monhavinto saniĝis. 37 Kaj la tuta homamaso, el la ĉirkaŭaĵo de la
 
-Gerasenoj, petis lin foriri de ili; ĉar ili estis tenataj de granda timo; 
+Gerasenoj, petis lin foriri de ili; ĉar ili estis tenataj de granda timo;
 
 kaj li eniris en ŝipeton kaj returne veturis. 38 Sed la viro, el kiu eli-
 
-ris la demonoj, petis lin, ke li povu esti kun li; sed li forsendis lin, 
+ris la demonoj, petis lin, ke li povu esti kun li; sed li forsendis lin,
 
-dirante: 39 Reiru al via domo, kaj rakontu ĉion, kion Dio faris por vi. 
+dirante: 39 Reiru al via domo, kaj rakontu ĉion, kion Dio faris por vi.
 
-Kaj li foriris, famigante tra la tuta urbo ĉion, kion Jesuo faris por li. 
+Kaj li foriris, famigante tra la tuta urbo ĉion, kion Jesuo faris por li.
 
 40 Kaj kiam Jesuo revenis, la homamaso bonvenigis lin, ĉar ĉiuj
 
@@ -7536,7 +7258,7 @@ venu en lian domon; 42 ĉar li havis unu solan filinon, proksimume
 
 dekdujaran, kaj ŝi estis mortanta. Kaj dum li iris, la homamaso ĉir-
 
-kaŭpremis lin. 
+kaŭpremis lin.
 
 43 Kaj virino, kiu jam dek du jarojn havis sangofluon, kaj elspe-
 
@@ -7544,17 +7266,17 @@ zis sian tutan havon por kuracistoj, kaj ne povis esti resanigita de
 
 iu, 44 venis malantaŭ lin, kaj tuŝis la randon de lia vestaĵo; kaj tuj ŝia
 
-sangofluo ĉesiĝis. 45 Kaj Jesuo diris: Kiu min tuŝis? Kaj kiam ĉiuj neis, 
+sangofluo ĉesiĝis. 45 Kaj Jesuo diris: Kiu min tuŝis? Kaj kiam ĉiuj neis,
 
 Petro diris: Estro, la homamaso ĉirkaŭas kaj premas vin. 46 Sed Je-
 
 suo diris: Iu min tuŝis; ĉar mi sentis, ke de mi eliris potenco. 47 Kaj
 
-kiam la virino ekvidis, ke ŝi ne estas kaŝita, ŝi venis tremanta, kaj, 
+kiam la virino ekvidis, ke ŝi ne estas kaŝita, ŝi venis tremanta, kaj,
 
 sin ĵetante antaŭ lin, sciigis antaŭ la tuta popolo, pro kia motivo ŝi
 
-tuŝis lin, kaj kiel ŝi estas tuj sanigita. 48 Kaj li diris al ŝi: Filino, via fido vin savis; iru en pacon. 
+tuŝis lin, kaj kiel ŝi estas tuj sanigita. 48 Kaj li diris al ŝi: Filino, via fido vin savis; iru en pacon.
 
 49 Dum li ankoraŭ parolis, jen iu venis de la domo de la sinago-
 
@@ -7570,27 +7292,25 @@ knabino. 52 Kaj ĉiuj ploris kaj ĝemis pro ŝi; sed li diris: Ne ploru; ĉar
 
 ŝi ne mortis, sed dormas. 53 Kaj ili mokridis lin, sciante, ke ŝi mor-
 
-128
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tis. 54 Sed li, preninte ŝian manon, vokis ŝin, dirante: Knabino, lev-
 
-iĝu. 55 Kaj ŝia spirito revenis, kaj ŝi tuj stariĝis; kaj li ordonis, ke oni donu al ŝi manĝi. 56 Kaj ŝiaj gepatroj estis mirigitaj; sed li ordonis, 
+iĝu. 55 Kaj ŝia spirito revenis, kaj ŝi tuj stariĝis; kaj li ordonis, ke oni donu al ŝi manĝi. 56 Kaj ŝiaj gepatroj estis mirigitaj; sed li ordonis,
 
-ke ili diru al neniu tion, kio estis farita. 
+ke ili diru al neniu tion, kio estis farita.
 
 ĉapitro 9
 
 1 Kaj li kunvokis la dek du, kaj donis al ili potencon kaj aŭtoritaton
 
-super ĉiuj demonoj, kaj por forigi malsanojn. 2 Kaj li forsendis ilin, 
+super ĉiuj demonoj, kaj por forigi malsanojn. 2 Kaj li forsendis ilin,
 
 por prediki la regnon de Dio, kaj por sanigi la malsanulojn. 3 Kaj li
 
-diris al ili: Portu nenion por la vojo—nek bastonon, nek saketon, 
+diris al ili: Portu nenion por la vojo—nek bastonon, nek saketon,
 
 nek panon, nek monon; kaj ne havu du tunikojn. 4 Kaj en kiun ajn
 
@@ -7598,13 +7318,13 @@ domon vi eniros, tie loĝu, kaj el tie ekvojaĝu. 5 Kaj se ie oni vin ne
 
 akceptos, tiam, forirante el tiu urbo, deskuu la polvon de viaj pie-
 
-doj, por atesto kontraŭ ili. 6 Kaj ili, foririnte, trairis la vilaĝojn, ĉie predikante la evangelion kaj sanigante. 
+doj, por atesto kontraŭ ili. 6 Kaj ili, foririnte, trairis la vilaĝojn, ĉie predikante la evangelion kaj sanigante.
 
 7 Kaj la tetrar˛o Herodo aŭdis pri ĉio, kio fariĝis; kaj li embaras-
 
 iĝis, ĉar iuj diris, ke Johano leviĝis el la mortintoj; 8 kaj aliaj, ke Elija aperis; kaj aliaj, ke unu el la antikvaj profetoj releviĝis. 9 Kaj Herodo diris: Johanon mi senkapigis, sed kiu estas ĉi tiu, pri kiu mi aŭ-
 
-das tiajn aferojn? Kaj li deziris vidi lin. 
+das tiajn aferojn? Kaj li deziris vidi lin.
 
 10 Kaj la apostoloj, reveninte, rakontis al li ĉion, kion ili faris. Kaj
 
@@ -7616,27 +7336,25 @@ al ili pri la regno de Dio, kaj tiujn, kiuj bezonis kuracon, li resani-
 
 gis. 12 Kaj ekvesperiĝis; kaj la dek du, alveninte, diris al li: Forsendu
 
-la homamason, por ke ili iru en la ĉirkaŭajn vilaĝojn kaj kampojn, 
+la homamason, por ke ili iru en la ĉirkaŭajn vilaĝojn kaj kampojn,
 
-por trovi ripozejon kaj nutraĵon; ĉar ĉi tie ni estas en dezerta loko. 
+por trovi ripozejon kaj nutraĵon; ĉar ĉi tie ni estas en dezerta loko.
 
 13 Sed li diris al ili: Vi donu al ili manĝi. Kaj ili diris: Ni havas ne pli ol kvin panojn kaj du fiŝojn, se ni ne irus kaj aĉetus manĝaĵon por
 
-129
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉi tiu tuta homomulto. 14 ĉar ĉeestis proksimume kvin mil viroj. Kaj
 
-li diris al siaj disĉiploj: Sidigu ilin en aroj, po proksimume kvindek. 
+li diris al siaj disĉiploj: Sidigu ilin en aroj, po proksimume kvindek.
 
 15 Kaj tion ili faris, kaj sidigis ĉiujn. 16 Kaj li prenis la kvin panojn kaj la du fiŝojn, kaj suprenrigardinte al la ĉielo, li ilin benis kaj dispecigis, kaj donis al la disĉiploj, por meti antaŭ la homamason. 17 Kaj
 
 ili manĝis, kaj ĉiuj satiĝis; kaj oni kolektis da postrestintaj fragmen-
 
-toj dek du korbojn. 
+toj dek du korbojn.
 
 18 Kaj dum li preĝis en soleco, la disĉiploj estis kun li; kaj li de-
 
@@ -7646,7 +7364,7 @@ sponde diris: Laŭ iuj Johano, la Baptisto; sed laŭ aliaj: Elija; kaj laŭ
 
 aliaj, ke unu el la antikvaj profetoj releviĝis. 20 Sed li diris al ili: Sed vi—kiu vi diras, ke mi estas? Kaj Petro responde diris: La Kristo de
 
-Dio. 21 Sed li per severa ordono admonis, ke ili diru ĉi tion al neniu; 
+Dio. 21 Sed li per severa ordono admonis, ke ili diru ĉi tion al neniu;
 
 22 dirante: La Filo de homo devas multe suferi, kaj esti rifuzita de la
 
@@ -7668,7 +7386,7 @@ gloro, kaj la gloro de la Patro kaj de la sanktaj anĝeloj. 27 Sed mi di-
 
 ras al vi certe: Inter la ĉi tie starantaj estas iuj, kiuj neniel gustumos
 
-morton, antaŭ ol ili vidos la regnon de Dio. 
+morton, antaŭ ol ili vidos la regnon de Dio.
 
 28 Kaj pasis post tiuj diroj ĉirkaŭ ok tagoj, kaj li prenis kun si Pe-
 
@@ -7682,11 +7400,9 @@ li du viroj, kiuj estis Moseo kaj Elija, 31 kiuj montriĝis en gloro, kaj
 
 parolis pri lia foriro, kiun li estis plenumonta en Jerusalem. 32 Sed
 
-130
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Petro, kaj tiuj, kiuj estis kun li, estis subpremataj de dormo; sed
 
@@ -7698,7 +7414,7 @@ esti ĉi tie; kaj ni faru tri laŭbojn: unu por vi, kaj unu por Moseo, kaj
 
 unu por Elija; li ne sciis, kion li diras. 34 Kaj dum li tion diris, nubo
 
-venis kaj superombris ilin; kaj ili timis, kiam ili eniris en la nubon. 
+venis kaj superombris ilin; kaj ili timis, kiam ili eniris en la nubon.
 
 35 Kaj el la nubo venis voĉo, diranta: ĉi tiu estas Mia Filo, Mia elek-
 
@@ -7706,7 +7422,7 @@ tito; lin aŭskultu. 36 Kaj dum la voĉo ankoraŭ sonis, Jesuo troviĝis
 
 sola. Kaj ili silentis, kaj al neniu en tiuj tagoj rakontis ion, kion ili
 
-vidis. 
+vidis.
 
 37 Kaj la sekvantan tagon, post kiam ili malsupreniris de la mon-
 
@@ -7716,7 +7432,7 @@ maso ekkriis, dirante: Majstro, mi petegas vin rigardi mian filon, ĉar
 
 li estas mia sola infano; 39 kaj jen spirito kaptas lin, kaj subite li ek-
 
-krias, kaj ĝi konvulsiigas lin kun buŝa ŝaŭmo, kaj malfacile lasas lin, 
+krias, kaj ĝi konvulsiigas lin kun buŝa ŝaŭmo, kaj malfacile lasas lin,
 
 kontuzinte lin. 40 Kaj mi petis viajn disĉiplojn, ke ili elpelu ĝin; sed
 
@@ -7724,13 +7440,11 @@ ili ne povis. 41 Kaj Jesuo respondis kaj diris: Ho senfida kaj perver-
 
 sa generacio, ĝis kiam mi estos kun vi kaj vin toleros? venigu ĉi tien
 
-vian filon. 42 Kaj dum li venis, la demono lin ĵetis sur la teron kaj lin
-
-konvulsiigis. Sed Jesuo severe admonis la malpuran spiriton, kaj
+vian filon. 42 Kaj dum li venis, la demono lin ĵetis sur la teron kaj lnvulsiigis. Sed Jesuo severe admonis la malpuran spiriton, kaj
 
 sanigis la knabon kaj redonis lin al la patro. 43 Kaj ĉiuj miregis pro
 
-la majesto de Dio. 
+la majesto de Dio.
 
 Sed dum ĉiuj miris pri ĉio, kion li faris, li diris al siaj disĉiploj: 44
 
@@ -7738,7 +7452,7 @@ Penetrigu ĉi tiujn vortojn en viajn orelojn: ĉar la Filo de homo es-
 
 tos transdonita en la manojn de homoj. 45 Sed ili ne komprenis tiun
 
-diron, kaj ĝi estis kaŝita for de ili, por ke ili ne sciu ĝian signifon; kaj ili timis demandi al li pri tiu diro. 
+diron, kaj ĝi estis kaŝita for de ili, por ke ili ne sciu ĝian signifon; kaj ili timis demandi al li pri tiu diro.
 
 46 Kaj komenciĝis diskutado inter ili pri tio, kiu el ili estos la plej
 
@@ -7746,17 +7460,15 @@ granda. 47 Sed Jesuo, vidinte la diskutadon de iliaj koroj, prenis in-
 
 fanon, kaj starigis lin apud si, 48 kaj diris al ili: Kiu akceptos ĉi tiun
 
-131
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 infanon en mia nomo, tiu min akceptas; kaj kiu min akceptos, tiu
 
 akceptas Tiun, kiu min sendis; ĉar kiu estas la plej malgranda inter
 
-vi ĉiuj, tiu estas granda. 
+vi ĉiuj, tiu estas granda.
 
 49 Kaj Johano respondis kaj diris: Estro, ni vidis iun elpelantan
 
@@ -7764,7 +7476,7 @@ demonojn en via nomo; kaj ni malpermesis lin, ĉar li ne sekvas kun
 
 ni. 50 Sed Jesuo diris al li: Ne malpermesu; ĉar tiu, kiu ne estas kon-
 
-traŭ vi, estas por vi. 
+traŭ vi, estas por vi.
 
 51 Kaj kiam la tagoj maturiĝis por lia suprenakcepto, li firmigis
 
@@ -7778,11 +7490,11 @@ Sinjoro, ĉu vi volas, ke ni ordonu fajron malsuprenveni el la ĉielo
 
 kaj ekstermi ilin? 55 Sed li sin turnis kaj admonis lin; kaj li diris: Vi
 
-mem ne scias, laŭ kia spirito vi estas. 56 ĉar la Filo de homo venis, 
+mem ne scias, laŭ kia spirito vi estas. 56 ĉar la Filo de homo venis,
 
 ne por pereigi animojn de homoj, sed por savi. Kaj ili iris en alian
 
-vilaĝon. 
+vilaĝon.
 
 57 Kaj dum ili vojaĝis, sur la vojo iu diris al li: Mi vin sekvos, kien
 
@@ -7796,19 +7508,17 @@ oro, permesu al mi unue iri kaj enterigi mian patron. 60 Sed li diris
 
 al li: Lasu la mortintojn enterigi siajn mortintojn; sed vi iru kaj pro-
 
-klamu la regnon de Dio. 61 Kaj ankoraŭ alia diris: Mi vin sekvos, 
+klamu la regnon de Dio. 61 Kaj ankoraŭ alia diris: Mi vin sekvos,
 
 Sinjoro; sed unue permesu al mi adiaŭi tiujn, kiuj estas en mia do-
 
 mo. 62 Sed Jesuo diris al li: Neniu, metinte sian manon al la plugilo
 
-kaj rigardante malantaŭen, taŭgas por la regno de Dio. 
+kaj rigardante malantaŭen, taŭgas por la regno de Dio.
 
-132
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 10
 
@@ -7828,7 +7538,7 @@ salutu neniun sur la vojo. 5 Kaj en kiun ajn domon vi eniros, unue
 
 diru: Paco al ĉi tiu domo. 6 Kaj se tie estos filo de paco, via paco
 
-restos sur li; sed se ne, ĝi revenos al vi. 7 Kaj en tiu sama domo restu, 
+restos sur li; sed se ne, ĝi revenos al vi. 7 Kaj en tiu sama domo restu,
 
 manĝante kaj trinkante tion, kion ili havas; ĉar la laboranto meri-
 
@@ -7838,7 +7548,7 @@ urbon vi eniros, kaj oni vin akceptos, manĝu tion, kion oni metos
 
 antaŭ vin; 9 kaj sanigu la tieajn malsanulojn, kaj diru al ili: La reg-
 
-no de de Dio alproksimiĝis al vi. 10 Sed en kiun ajn urbon vi eniros, 
+no de de Dio alproksimiĝis al vi. 10 Sed en kiun ajn urbon vi eniros,
 
 kaj oni ne akceptos vin, eliru sur ĝiajn stratojn, kaj diru: 11 Eĉ la
 
@@ -7848,7 +7558,7 @@ vin; tamen sciu, ke la regno de Dio alproksimiĝis al vi. 12 Mi diras
 
 al vi: Estos pli elporteble en tiu tago por Sodom, ol por tiu urbo. 13
 
-Ve al vi, ˘orazin\! ve al vi, Betsaida\! ĉar se en Tiro kaj Cidon estus
+Ve al vi, ˘orazin! ve al vi, Betsaida! ĉar se en Tiro kaj Cidon estus
 
 faritaj tiuj potencaj faroj, kiuj fariĝis en vi, ili jam antaŭ longe pen-
 
@@ -7860,7 +7570,7 @@ estos altigita ĝis la ĉielo? vi ja malsupreniros ĝis Hades. 16 Kiu vin
 
 aŭskultas, tiu min aŭskultas; kiu vin malŝatas, tiu min malŝatas; kaj
 
-kiu min malŝatas, tiu malŝatas Tiun, kiu min sendis. 
+kiu min malŝatas, tiu malŝatas Tiun, kiu min sendis.
 
 17 Kaj la sepdek revenis kun ĝojo, dirante: Sinjoro, eĉ la demonoj
 
@@ -7870,17 +7580,15 @@ falanta de la ĉielo, kiel fulmo. 19 Jen mi donis al vi aŭtoritaton pied-
 
 paŝi sur serpentoj kaj skorpioj, kaj sur la tuta potenco de la mala-
 
-133
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 miko; kaj nenio iel vin difektos. 20 Tamen ne ĝoju pri tio, ke la spi-
 
 ritoj submetiĝis al vi; sed ĝoju, ke viaj nomoj estas skribitaj en la
 
-ĉielo. 
+ĉielo.
 
 21 En tiu sama horo li ĝojis en la Sankta Spirito, kaj diris: Mi Vin
 
@@ -7890,13 +7598,13 @@ de saĝuloj kaj prudentuloj, kaj malkaŝis al infanetoj; jes, Patro, ĉar
 
 al Vi tio bone plaĉis. 22 ĉio estas transdonita al mi de mia Patro; kaj
 
-neniu scias, kiu estas la Filo, krom la Patro; nek kiu estas la Patro, 
+neniu scias, kiu estas la Filo, krom la Patro; nek kiu estas la Patro,
 
 krom la Filo, kaj tiu, al kiu la Filo volas malkaŝi Lin. 23 Kaj sin turnin-
 
 te al la disĉiploj, li flanke diris: Feliĉaj estas la okuloj, kiuj vidas tion, kion vi vidas; 24 ĉar mi diras al vi, ke multaj profetoj kaj reĝoj deziris vidi tion, kion vi vidas, kaj ili ne vidis; kaj aŭdi tion, kion vi
 
-aŭdas, kaj ili ne aŭdis. 
+aŭdas, kaj ili ne aŭdis.
 
 25 Kaj jen unu leĝisto stariĝis, kaj tentis lin, dirante: Majstro, kion
 
@@ -7908,7 +7616,7 @@ ulon, vian Dion, per via tuta koro kaj per via tuta animo kaj per via
 
 tuta forto kaj per via tuta menso, kaj vian proksimulon kiel vin
 
-mem. 28 Kaj li diris al li: Vi prave respondis; tion faru, kaj vi vivos. 
+mem. 28 Kaj li diris al li: Vi prave respondis; tion faru, kaj vi vivos.
 
 29 Sed li, dezirante pravigi sin, diris al Jesuo: Kaj kiu estas mia prok-
 
@@ -7932,11 +7640,9 @@ vinon; kaj li metis lin sur sian beston, kaj kondukis lin al gastejo, kaj
 
 zorgis pri li. 35 Kaj la morgaŭan tagon li elprenis du denarojn kaj
 
-134
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 donis ilin al la gastejestro, kaj diris: Zorgu pri li, kaj kion pli vi el-
 
@@ -7946,7 +7652,7 @@ via opinio, sin montris proksimulo de tiu, kiu falis en la manojn de
 
 la rabistoj? 37 Kaj li diris: Tiu, kiu faris al li kompaton. Kaj Jesuo di-
 
-ris al li: Iru vi, kaj faru tion saman. 
+ris al li: Iru vi, kaj faru tion saman.
 
 38 Kaj dum ili vojaĝis, li eniris en unu vilaĝon; kaj virino, noma-
 
@@ -7962,7 +7668,7 @@ tino lasis al mi servi sola? diru do al ŝi, ke ŝi min helpu. 41 Sed la Sinjoro
 
 pri multaj aferoj; 42 sed unu afero estas necesa; kaj Maria elektis la
 
-bonan parton, kiu ne estos prenita for de ŝi. 
+bonan parton, kiu ne estos prenita for de ŝi.
 
 ĉapitro 11
 
@@ -7976,7 +7682,7 @@ sanktigita Via nomo. Venu Via regno. 3 Donu al ni tagon post tago
 
 nian ĉiutagan panon. 4 Kaj pardonu al ni niajn pekojn, ĉar ni ankaŭ
 
-pardonas al ĉiu, kiu ŝuldas al ni. Kaj ne konduku nin en tenton. 
+pardonas al ĉiu, kiu ŝuldas al ni. Kaj ne konduku nin en tenton.
 
 5 Kaj li diris al ili: Kiu el vi havos amikon, kaj iros al li noktome-
 
@@ -7992,19 +7698,17 @@ kaj doni al vi? 8 Mi diras al vi: Kvankam li ne volos pro sia amikeco
 
 al li leviĝi kaj doni al li, tamen, pro ĉi ties persisteco li leviĝos kaj
 
-135
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 donos al li tiom, kiom li bezonas. 9 Kaj mi diras al vi: Petu, kaj al vi
 
-estos donite; serĉu, kaj vi trovos; frapu, kaj al vi estos malfermite. 
+estos donite; serĉu, kaj vi trovos; frapu, kaj al vi estos malfermite.
 
 10 ĉar ĉiu petanto ricevas; kaj la serĉanto trovas; kaj al la frapanto
 
-estos malfermite. 11 Kaj de kiu el vi, kiu estas patro, filo petos panon, 
+estos malfermite. 11 Kaj de kiu el vi, kiu estas patro, filo petos panon,
 
 kaj li donos al li ŝtonon? aŭ se li petas fiŝon, ĉu li anstataŭ fiŝo do-
 
@@ -8014,7 +7718,7 @@ on? 13 Se vi do, estante malbonaj, scias doni bonajn donacojn al viaj
 
 infanoj, des pli via Patro ĉiela donos la Sanktan Spiriton al tiuj, kiuj
 
-petos al Li. 
+petos al Li.
 
 14 Kaj li estis elpelanta demonon, kiu estis muta. Kaj kiam la de-
 
@@ -8022,7 +7726,7 @@ mono eliris, la mutulo parolis; kaj la homamaso miregis. 15 Sed iuj
 
 el ili diris: Per Baal-Zebub, la estro de la demonoj, li elpelas demo-
 
-nojn. 16 Kaj aliaj, tentante lin, postulis de li signon el la ĉielo. 17 Sed li, sciante iliajn pensojn, diris al ili: ĉiu regno, dividita kontraŭ si, 
+nojn. 16 Kaj aliaj, tentante lin, postulis de li signon el la ĉielo. 17 Sed li, sciante iliajn pensojn, diris al ili: ĉiu regno, dividita kontraŭ si,
 
 dezertiĝas; kaj domo, dividita kontraŭ domo, falas. 18 Kaj se ankaŭ
 
@@ -8030,7 +7734,7 @@ Satano dividiĝas kontraŭ si, kiel staros lia regno? ĉar vi diras, ke per
 
 Baal-Zebub mi elpelas demonojn. 19 Kaj se per Baal-Zebub mi elpe-
 
-las demonojn, per kiu viaj filoj ilin elpelas? tial ili estos viaj juĝantoj. 
+las demonojn, per kiu viaj filoj ilin elpelas? tial ili estos viaj juĝantoj.
 
 20 Sed se per la fingro de Dio mi elpelas demonojn, tiam la regno de
 
@@ -8050,25 +7754,23 @@ trovante ĝin, diras: Mi reiros al mia domo, el kie mi eliris. 25 Kaj al-
 
 veninte, ĝi trovas ĝin balaita kaj ornamita. 26 Tiam ĝi iras kaj alpre-
 
-nas al si sep aliajn spiritojn pli malbonajn ol ĝi mem, kaj ili, enirinte, 
+nas al si sep aliajn spiritojn pli malbonajn ol ĝi mem, kaj ili, enirinte,
 
 loĝas tie; kaj la fina stato de tiu homo fariĝas pli malbona, ol la
 
-unua. 
+unua.
 
-136
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 27 Kaj dum li ĉi tion parolis, unu virino el la homamaso levis sian
 
 voĉon, kaj diris al li: Feliĉaj estas la ventro, kiu naskis vin, kaj la
 
-mamoj, kiujn vi suĉis. 28 Sed li diris: Sed pli ĝuste, feliĉaj estas tiuj, 
+mamoj, kiujn vi suĉis. 28 Sed li diris: Sed pli ĝuste, feliĉaj estas tiuj,
 
-kiuj aŭdas la vorton de Dio kaj observas ĝin. 
+kiuj aŭdas la vorton de Dio kaj observas ĝin.
 
 29 Kaj kiam la homamaso kolektiĝis al li, li ekparolis, dirante: ĉi
 
@@ -8080,15 +7782,15 @@ signo por la Nineveanoj, tiel ankaŭ estos la Filo de homo por ĉi tiu
 
 generacio. 31 La reĝino de la sudo leviĝos en la juĝado kun la viroj
 
-de ĉi tiu generacio, kaj ilin kondamnos; ĉar ŝi venis el la finoj de la
+de ĉi tiu generacio, kaj ilndamnos; ĉar ŝi venis el la finoj de la
 
 tero, por aŭskulti la saĝon de Salomono; kaj jen iu pli granda ol Sa-
 
 lomono estas ĉi tie. 32 Viroj Nineveanoj staros en la juĝado kun ĉi
 
-tiu generacio, kaj ĝin kondamnos; ĉar ili pentis pro la predikado de
+tiu generacio, kaj ĝndamnos; ĉar ili pentis pro la predikado de
 
-Jona; kaj jen iu pli granda ol Jona estas ĉi tie. 
+Jona; kaj jen iu pli granda ol Jona estas ĉi tie.
 
 33 Kiam oni ekbruligis lampon, oni metas ĝin ne en kaŝejon, nek
 
@@ -8098,49 +7800,47 @@ vidi la lumon. 34 La lampo de via korpo estas via okulo; kiam via
 
 okulo estas sendifekta, via tuta korpo estas luma; sed kiam ĝi estas
 
-malbona, via korpo ankaŭ estas malluma. 35 Tial viglu, ke la lumo, 
+malbona, via korpo ankaŭ estas malluma. 35 Tial viglu, ke la lumo,
 
 kiu estas en vi, ne estu mallumo. 36 Tial, se via tuta korpo estas lu-
 
 ma, havante nenian malluman parton, ĝi estos tute lumplena, kiel
 
-kiam la lampo lumas al vi per sia brilo. 
+kiam la lampo lumas al vi per sia brilo.
 
-37 Kaj dum li parolis, unu Fariseo invitis lin matenmanĝi kun li; 
+37 Kaj dum li parolis, unu Fariseo invitis lin matenmanĝi kun li;
 
 kaj li eniris kaj sidiĝis. 38 Kaj la Fariseo, ekvidinte, miris, ke li ne lavis sin antaŭ la matenmanĝo. 39 Kaj la Sinjoro diris al li: Vi Fariseoj
 
 purigas la eksteron de kaliko kaj plado, sed via interno estas plena
 
-de rabado kaj malvirto. 40 Malsaĝuloj\! ĉu Tiu, kiu faris la eksteron, 
+de rabado kaj malvirto. 40 Malsaĝuloj! ĉu Tiu, kiu faris la eksteron,
 
-ne faris ankaŭ la internon? 41 Tamen, uzu por almozo la internaĵojn, 
+ne faris ankaŭ la internon? 41 Tamen, uzu por almozo la internaĵojn,
 
-kaj jen ĉio estas al vi pura. 
+kaj jen ĉio estas al vi pura.
 
-42 Sed ve al vi, Fariseoj\! ĉar vi pagas dekonaĵojn de mento kaj
+42 Sed ve al vi, Fariseoj! ĉar vi pagas dekonaĵojn de mento kaj
 
-137
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ruto kaj ĉiu vegetaĵo, kaj preterlasas juĝon kaj amon al Dio; ĉi tion
 
-vi devus fari, kaj tion ne preterlasi. 43 Ve al vi, Fariseoj\! ĉar vi amas
+vi devus fari, kaj tion ne preterlasi. 43 Ve al vi, Fariseoj! ĉar vi amas
 
-la ĉefseĝojn en la sinagogoj, kaj la salutojn sur la placoj. 44 Ve al vi\! 
+la ĉefseĝojn en la sinagogoj, kaj la salutojn sur la placoj. 44 Ve al vi!
 
-ĉar vi similas tombojn ne vidatajn; kaj la homoj, kiuj iras super ili, 
+ĉar vi similas tombojn ne vidatajn; kaj la homoj, kiuj iras super ili,
 
-ne scias. 
+ne scias.
 
 45 Kaj unu el la leĝistoj responde diris al li: Majstro, dirante ĉi
 
-tion, vi ankaŭ nin riproĉas. 46 Kaj li diris: Ve ankaŭ al vi, leĝistoj\! ĉar vi ŝarĝas homojn per ŝarĝoj malfacile porteblaj, kaj vi mem ne tuŝas
+tion, vi ankaŭ nin riproĉas. 46 Kaj li diris: Ve ankaŭ al vi, leĝistoj! ĉar vi ŝarĝas homojn per ŝarĝoj malfacile porteblaj, kaj vi mem ne tuŝas
 
-eĉ per unu el viaj fingroj la ŝarĝon. 47 Ve al vi\! ĉar vi konstruas la
+eĉ per unu el viaj fingroj la ŝarĝon. 47 Ve al vi! ĉar vi konstruas la
 
 tombojn de la profetoj, kiujn viaj patroj mortigis. 48 Tial vi estas
 
@@ -8154,17 +7854,17 @@ post la komenco de la mondo, estu postulita el ĉi tiu generacio, 51
 
 de la sango de Habel ĝis la sango de Zeąrja, kiu pereis inter la al-
 
-taro kaj la sankta domo; jes, mi diras al vi: ¯i estos postulita el ĉi tiu
+taro kaj la sankta domo; jes, mi diras al vi: i estos postulita el ĉi tiu
 
-generacio. 52 Ve al vi, leĝistoj\! ĉar vi forprenis la ŝlosilon de la scio; 
+generacio. 52 Ve al vi, leĝistoj! ĉar vi forprenis la ŝlosilon de la scio;
 
-vi mem ne eniris, kaj vi malhelpis la enirantajn. 
+vi mem ne eniris, kaj vi malhelpis la enirantajn.
 
 53 Kaj kiam li eliris el tie, la skribistoj kaj la Fariseoj atakis lin in-
 
-siste, kaj instigis lin paroli pri multaj aferoj; 54 insidante kontraŭ li, 
+siste, kaj instigis lin paroli pri multaj aferoj; 54 insidante kontraŭ li,
 
-por kapti ion el lia buŝo. 
+por kapti ion el lia buŝo.
 
 ĉapitro 12
 
@@ -8172,25 +7872,23 @@ por kapti ion el lia buŝo.
 
 piedpremis unu la alian, li ekparolis al siaj disĉiploj, dirante unue:
 
-Gardu vin kontraŭ la fermentaĵo de la Fariseoj, kiu estas hipokrite-
+Gardu vntraŭ la fermentaĵo de la Fariseoj, kiu estas hipokrite-
 
 co. 2 Sed estas nenio kovrita, kio ne estos elmontrita; kaj nenio kaŝi-
 
 ta, kio ne estos sciata. 3 Tial, kion vi diris en la mallumo, tio estos
 
-138
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-aŭdita en la lumo; kaj kion vi parolis en orelon en internaj ĉambroj, 
+aŭdita en la lumo; kaj kion vi parolis en orelon en internaj ĉambroj,
 
 tio estos proklamita sur la tegmentoj. 4 Kaj mi diras al vi, miaj ami-
 
 koj: Ne timu tiujn, kiuj mortigas la korpon, kaj poste ne povas fari
 
-ion plu. 5 Sed mi montros al vi, kiun vi devas timi: Timu Tiun, kiu, 
+ion plu. 5 Sed mi montros al vi, kiun vi devas timi: Timu Tiun, kiu,
 
 mortiginte, plue havas aŭtoritaton enĵeti en Gehenan; jes, mi diras
 
@@ -8198,7 +7896,7 @@ al vi: Tiun timu. 6 ĉu oni ne vendas kvin paserojn por du asaroj? kaj
 
 eĉ unu el ili ne estas forgesita antaŭ Dio. 7 Sed eĉ la haroj de via
 
-kapo estas ĉiuj kalkulitaj. Ne timu; vi pli valoras ol multaj paseroj. 
+kapo estas ĉiuj kalkulitaj. Ne timu; vi pli valoras ol multaj paseroj.
 
 8 Kaj mi diras al vi: ĉiun, kiu konfesos min antaŭ la homoj, la Filo
 
@@ -8208,13 +7906,13 @@ fesos min antaŭ la homoj, tiu estos malkonfesita antaŭ la anĝeloj de
 
 Dio. 10 Kaj por ĉiu, kiu parolos vorton kontraŭ la Filo de homo, es-
 
-tos pardono; sed por tiu, kiu blasfemas kontraŭ la Sankta Spirito, 
+tos pardono; sed por tiu, kiu blasfemas kontraŭ la Sankta Spirito,
 
 ne estos pardono. 11 Kaj kiam oni kondukos vin antaŭ la sinagogojn
 
 kaj regantojn kaj aŭtoritatulojn, ne zorgu, kiel aŭ kion respondi, aŭ
 
-kion diri; 12 ĉar la Sankta Spirito instruos al vi en tiu horo mem tion, 
+kion diri; 12 ĉar la Sankta Spirito instruos al vi en tiu horo mem tion,
 
 kion vi devas diri. 13 Kaj unu el la homamaso diris al li: Majstro, diru
 
@@ -8222,7 +7920,7 @@ al mia frato, ke li dividu kun mi la heredaĵon. 14 Sed li diris al li: Ho
 
 viro, kiu starigis min super vi kiel juĝanton aŭ dividanton? 15 Kaj li
 
-diris al ili: Zorgu, kaj gardu vin kontraŭ ĉia avideco, ĉar la vivo de
+diris al ili: Zorgu, kaj gardu vntraŭ ĉia avideco, ĉar la vivo de
 
 homo ne konsistas en la abundeco de liaj posedaĵoj. 16 Kaj li paro-
 
@@ -8240,17 +7938,15 @@ mo: Animo, vi havas multajn posedaĵojn, provizitajn por multaj
 
 jaroj; ripozu, manĝu, trinku, estu gaja. 20 Sed Dio diris al li: Ho sen-
 
-prudentulo\! ĉi tiun nokton oni postulas de vi vian animon; kies es-
+prudentulo! ĉi tiun nokton oni postulas de vi vian animon; kies es-
 
-139
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-tos tio, kion vi preparis? 21 Tia estas tiu, kiu kolektas por si trezoron, 
+tos tio, kion vi preparis? 21 Tia estas tiu, kiu kolektas por si trezoron,
 
-kaj ne estas riĉa rilate Dion. 
+kaj ne estas riĉa rilate Dion.
 
 22 Kaj li diris al siaj disĉiploj: Tial mi diras al vi: Ne zorgu pri via
 
@@ -8260,7 +7956,7 @@ vivo estas pli ol nutraĵo, kaj la korpo pli ol vestaĵo. 24 Pripensu la
 
 korvojn, ke ili ne semas, nek rikoltas, kaj ne havas provizejon nek
 
-grenejon; kaj Dio nutras ilin; kiom pli vi valoras, ol la birdoj\! 25 Kaj
+grenejon; kaj Dio nutras ilin; kiom pli vi valoras, ol la birdoj! 25 Kaj
 
 kiu el vi per zorgado povas aldoni unu ulnon al sia staturo? 26 Se do
 
@@ -8270,23 +7966,23 @@ teraj? 27 Pripensu la liliojn, kiel ili kreskas; ili ne laboras, nek ŝpinas; ta
 
 baĵon, kiu hodiaŭ ekzistas, kaj morgaŭ estos ĵetata en fornon, kiom
 
-pli certe Li vestos vin, ho malgrandfiduloj\! 29 Kaj ne serĉu, kion vi
+pli certe Li vestos vin, ho malgrandfiduloj! 29 Kaj ne serĉu, kion vi
 
-manĝos, kaj kion vi trinkos, kaj ne estu dubemaj. 30 ĉar pri ĉio tio
+manĝos, kaj kion vi trs, kaj ne estu dubemaj. 30 ĉar pri ĉio tio
 
-serĉas la nacioj de la mondo; sed via Patro scias, ke vi tion bezonas. 
+serĉas la nacioj de la mondo; sed via Patro scias, ke vi tion bezonas.
 
-31 Sed celu Lian regnon, kaj ĉio tio estos aldonita al vi. 32 Ne timu, 
+31 Sed celu Lian regnon, kaj ĉio tio estos aldonita al vi. 32 Ne timu,
 
 malgranda grego; ĉar bone plaĉis al la Patro doni al vi la regnon. 33
 
-Vendu viajn posedaĵojn, kaj donu almozon; faru por vi monujojn, 
+Vendu viajn posedaĵojn, kaj donu almozon; faru por vi monujojn,
 
 kiuj ne fariĝos malnovaj, trezoron ne mankontan en la ĉielo, kie
 
 ŝtelisto ne alproksimiĝas kaj tineo ne detruas. 34 ĉar kie estas via
 
-trezoro, tie estos ankaŭ via koro. 
+trezoro, tie estos ankaŭ via koro.
 
 35 Viaj lumboj estu zonitaj, kaj viaj lampoj estu brulantaj; 36 kaj
 
@@ -8294,33 +7990,31 @@ vi mem estu similaj al viroj, kiuj atendas sian sinjoron, kiam li reve-
 
 nos de la edziĝa festo; por ke ili tuj malfermu al li, kiam li venos kaj
 
-frapos. 37 Feliĉaj estas tiuj servistoj, kiujn la sinjoro, kiam li venos, 
+frapos. 37 Feliĉaj estas tiuj servistoj, kiujn la sinjoro, kiam li venos,
 
 trovos viglaj; vere mi diras al vi, ke li sin zonos, kaj sidigos ilin por
 
 manĝi, kaj mem venos kaj servos al ili. 38 Kaj se li alvenos nokte dum
 
-la dua gardoparto, aŭ dum la tria gardoparto, kaj tiel ilin trovos, 
+la dua gardoparto, aŭ dum la tria gardoparto, kaj tiel ilin trovos,
 
 feliĉaj estas tiuj servistoj. 39 Sed sciu, ke se la domomastro scius, je
 
-140
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kioma horo la ŝtelisto venos, li maldormus kaj ne lasus sian domon
 
 trafosiĝi. 40 Vi ankaŭ estu pretaj, ĉar en tiu horo, kiun vi ne pripen-
 
-sas, la Filo de homo venos. 
+sas, la Filo de homo venos.
 
-41 Kaj Petro diris: Sinjoro, ĉu vi parolas ĉi tiun parabolon por ni, 
+41 Kaj Petro diris: Sinjoro, ĉu vi parolas ĉi tiun parabolon por ni,
 
 aŭ ankaŭ por ĉiuj? 42 Kaj la Sinjoro diris: Kiu do estas la fidela kaj
 
-saĝa administranto, kiun lia sinjoro starigos super sia servantaro, 
+saĝa administranto, kiun lia sinjoro starigos super sia servantaro,
 
 por doni al ili ĝustatempe ilian porcion da nutraĵo? 43 Feliĉa estas tiu
 
@@ -8330,7 +8024,7 @@ ras al vi, ke li starigos lin super ĉio, kion li havas. 45 Sed se tiu ser-
 
 visto diros en sia koro: Mia sinjoro prokrastas sian alvenon; kaj
 
-komencos bati la knabojn kaj la knabinojn, kaj manĝos kaj trinkos
+komencos bati la knabojn kaj la knabinojn, kaj manĝos kaj trs
 
 kaj ebriiĝos, 46 la sinjoro de tiu servisto alvenos en tago, kiam li ne
 
@@ -8346,37 +8040,35 @@ tis batojn, suferos malmultajn batojn. Kaj al kiu multo estas doni-
 
 ta, el tiu estos multo postulata; kaj al kiu oni multon komisiis, el tiu
 
-oni des pli multon postulos. 
+oni des pli multon postulos.
 
 49 Mi alvenis, por ĵeti fajron sur la teron; kaj kion mi volas, se jam
 
 ĝi ekbrulis? 50 Sed mi havas bapton, per kiu esti baptita; kaj kiel mi
 
-premiĝas, ĝis ĝi estos plenumita\! 51 ĉu vi supozas, ke mi alvenis, por
+premiĝas, ĝis ĝi estos plenumita! 51 ĉu vi supozas, ke mi alvenis, por
 
 doni pacon sur la tero? Mi diras al vi: Ne; sed pli vere disigon; 52 ĉar
 
 de nun estos kvin el unu domo disigitaj, tri kontraŭ du, kaj du kon-
 
-traŭ tri. 53 Estos disigitaj patro kontraŭ filo, kaj filo kontraŭ patro; 
+traŭ tri. 53 Estos disigitaj patro kontraŭ filo, kaj filo kontraŭ patro;
 
 patrino kontraŭ filino, kaj filino kontraŭ patrino; bopatrino kontraŭ
 
-bofilino, kaj bofilino kontraŭ bopatrino. 
+bofilino, kaj bofilino kontraŭ bopatrino.
 
 54 Kaj li diris al la homamasoj: Kiam vi vidas nubon leviĝantan
 
 en la okcidento, vi tuj diras: Venos pluveto; kaj tiel fariĝas. 55 Kaj
 
-kiam blovas la suda vento, vi diras: Estos varmego; kaj tiel fariĝas. 
+kiam blovas la suda vento, vi diras: Estos varmego; kaj tiel fariĝas.
 
-141
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-56 Ho hipokrituloj\! vi scias esplori la aspekton de la tero kaj de la
+56 Ho hipokrituloj! vi scias esplori la aspekton de la tero kaj de la
 
 ĉielo; sed kial vi ne scias esplori ĉi tiun tempon? 57 Kaj kial eĉ per vi
 
@@ -8388,7 +8080,7 @@ li trenu vin al la juĝisto, kaj la juĝisto vin transdonu al la oficisto de
 
 la tribunalo, kaj la oficisto vin ĵetu en malliberejon. 59 Mi diras al vi:
 
-Vi neniel el tie eliros, ĝis vi pagos la lastan lepton. 
+Vi neniel el tie eliros, ĝis vi pagos la lastan lepton.
 
 ĉapitro 13
 
@@ -8406,7 +8098,7 @@ falis la turo en ŝiloa˛ kaj ilin mortigis, ĉu vi pensas, ke ili estis pe-
 
 kuloj pli ol ĉiuj homoj, kiuj loĝis en Jerusalem? 5 Neniel, mi diras al
 
-vi; sed se vi ne pentos, vi ĉiuj ankaŭ pereos. 
+vi; sed se vi ne pentos, vi ĉiuj ankaŭ pereos.
 
 6 Kaj li parolis la jenan parabolon: Unu viro havis figarbon, plan-
 
@@ -8416,25 +8108,23 @@ ne trovis. 7 Kaj li diris al la vinberisto: Jen tri jarojn mi venas, serĉan-te 
 
 senutiligas ankaŭ la teron? 8 Sed li responde diris: Sinjoro, lasu ĝin
 
-resti ankaŭ ĉi tiun jaron, ĝis mi fosos ĉirkaŭ ĝi kaj metos sterkon; 
+resti ankaŭ ĉi tiun jaron, ĝis mi fosos ĉirkaŭ ĝi kaj metos sterkon;
 
-9 kaj se ĝi poste donos frukton, bone; sed se ne, vi elhakos ĝin. 
+9 kaj se ĝi poste donos frukton, bone; sed se ne, vi elhakos ĝin.
 
 10 Kaj li instruadis en unu el la sinagogoj en la sabato. 11 Kaj jen
 
 virino, kiu dum dek ok jaroj havis spiriton de malforteco; kaj ŝi estis
 
-kunkurbita kaj neniel povis leviĝi. 12 Kaj vidinte ŝin, Jesuo vokis ŝin, 
+kunkurbita kaj neniel povis leviĝi. 12 Kaj vidinte ŝin, Jesuo vokis ŝin,
 
 kaj diris: Virino, vi estas liberigita el via malforteco. 13 Kaj li metis
 
 sur ŝin la manojn, kaj ŝi tuj rektiĝis kaj gloris Dion. 14 Kaj la sinago-
 
-142
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 gestro, indignante, ke Jesuo resanigis en la sabato, respondis kaj
 
@@ -8442,7 +8132,7 @@ diris al la homamaso: Ekzistas ses tagoj, en kiuj oni devas labori; en
 
 ili do venu, por esti resanigitaj, kaj ne en la sabata tago. 15 Sed la
 
-Sinjoro respondis al li kaj diris: Ho hipokrituloj\! ĉu ne ĉiu el vi en
+Sinjoro respondis al li kaj diris: Ho hipokrituloj! ĉu ne ĉiu el vi en
 
 la sabato malligas sian bovon aŭ sian azenon el la stalo, kaj forkon-
 
@@ -8454,19 +8144,17 @@ no de Abraham, ligite de Satano jen dek ok jarojn, esti malligita el
 
 traŭuloj hontiĝis; kaj la tuta homamaso ĝojis pro ĉiuj gloraj agoj, fa-
 
-ritaj de li. 
+ritaj de li.
 
-18 Kaj li diris: Al kio similas la regno de Dio? kaj al kio mi ĝin
-
-komparu? 19 ¯i estas simila al sinapa semeto, kiun viro prenis kaj
+18 Kaj li diris: Al kio similas la regno de Dio? kaj al kio mi ĝmparu? 19 i estas simila al sinapa semeto, kiun viro prenis kaj
 
 ĵetis en sian ĝardenon; kaj ĝi kreskis kaj fariĝis arbo; kaj la birdoj de
 
 la ĉielo loĝis en ĝiaj branĉoj. 20 Poste li diris: Al kio mi komparu la
 
-regnon de Dio? 21 ¯i estas simila al fermentaĵo, kiun virino prenis
+regnon de Dio? 21 i estas simila al fermentaĵo, kiun virino prenis
 
-kaj kaŝis en tri mezuroj da faruno, ĝis la tuto fermentis. 
+kaj kaŝis en tri mezuroj da faruno, ĝis la tuto fermentis.
 
 22 Kaj li iris tra urboj kaj vilaĝoj, instruante kaj irante ĉiam plu-
 
@@ -8494,15 +8182,13 @@ bon kaj ĉiujn profetojn en la regno de Dio, kaj vin mem forpelitaj
 
 eksteren. 29 Kaj oni venos el oriento kaj el okcidento, kaj el nordo kaj
 
-143
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 el sudo, kaj sidiĝos en la regno de Dio. 30 Kaj jen estas lastaj, kiuj
 
-estos unuaj; kaj estas unuaj, kiuj estos lastaj. 
+estos unuaj; kaj estas unuaj, kiuj estos lastaj.
 
 31 En tiu sama horo alvenis iuj Fariseoj, kaj diris al li: Eliru kaj
 
@@ -8514,15 +8200,15 @@ devas iradi hodiaŭ kaj morgaŭ kaj postmorgaŭ, ĉar ne povas esti, ke
 
 profeto pereos ekster Jerusalem. 34 Ho Jerusalem, Jerusalem, kiu
 
-pereigas la profetojn kaj ŝtonmortigas tiujn, kiuj estas senditaj al ĝi\! 
+pereigas la profetojn kaj ŝtonmortigas tiujn, kiuj estas senditaj al ĝi!
 
 kiom ofte mi deziris kolekti viajn infanojn, kiel kokino kolektas sian
 
-idaron sub la flugilojn, kaj vi ne volis\! 35 Jen via domo estas lasita al
+idaron sub la flugilojn, kaj vi ne volis! 35 Jen via domo estas lasita al
 
 vi dezerta; kaj mi diras al vi: Vi min ne vidos, ĝis vi diros: Estu be-
 
-nata tiu, kiu venas en la nomo de la Eternulo. 
+nata tiu, kiu venas en la nomo de la Eternulo.
 
 ĉapitro 14
 
@@ -8536,7 +8222,7 @@ riseoj, kaj diris: ĉu estas permesate sanigi en sabato, aŭ ne? 4 Sed ili
 
 silentis. Kaj li prenis lin kaj sanigis lin, kaj forliberigis lin. 5 Kaj li diris al ili: Kiu el vi havos azenon aŭ bovon, falintan en puton, kaj ne tuj
 
-eltiros ĝin en sabata tago? 6 Kaj ili ne povis respondi al tio. 
+eltiros ĝin en sabata tago? 6 Kaj ili ne povis respondi al tio.
 
 7 Kaj li parolis parabolon al la invititoj, vidinte, kiel ili elektas la
 
@@ -8548,17 +8234,15 @@ preni la lastan lokon. 10 Sed kiam vi estas invitita, iru kaj sidiĝu en
 
 la lasta loko; kaj tiel, kiam venos tiu, kiu vin invitis, li diros al vi:
 
-144
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Amiko, iru pli alten; tiam vi havos honoron antaŭ ĉiuj, kiuj sidas
 
 kun vi. 11 ĉar ĉiu, kiu sin altigas, estos humiligita, kaj kiu sin humi-
 
-ligas, tiu estos altigita. 
+ligas, tiu estos altigita.
 
 12 Kaj li diris al tiu, kiu lin invitis: Kiam vi faras tagmanĝon aŭ
 
@@ -8572,7 +8256,7 @@ non, invitu malriĉulojn, kriplulojn, lamulojn, blindulojn; 14 kaj vi
 
 estos feliĉa, ĉar ili ne povas rekompenci vin, sed vi rekompenciĝos
 
-en la releviĝo de la justuloj. 
+en la releviĝo de la justuloj.
 
 15 Kaj aŭdinte tion, unu el la kunsidantoj diris al li: Feliĉa estas
 
@@ -8608,17 +8292,15 @@ kamplimojn, kaj devigu ilin enveni, por ke mia domo pleniĝu. 24 ĉar
 
 mi diras al vi, ke neniu el tiuj viroj invititaj gustumos mian vesper-
 
-manĝon. 
+manĝon.
 
 25 Kaj grandaj homamasoj iris kun li, kaj li sin turnis, kaj diris al
 
 ili: 26 Se iu venas al mi, kaj ne malamas sian patron kaj sian patri-
 
-145
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 non kaj sian edzinon kaj siajn infanojn kaj fratojn kaj fratinojn, kaj
 
@@ -8630,7 +8312,7 @@ kiu el vi, dezirante konstrui turon, unue ne sidiĝas, por kalkuli la
 
 koston, ĉu li havas sufiĉe, por fini ĝin? 29 Por ke, kiam li metis la fun-
 
-damenton kaj ne povas ĝin fini, ĉiuj vidantoj ne komencu moki lin, 
+damenton kaj ne povas ĝin fini, ĉiuj vidantoj ne komencu moki lin,
 
 30 dirante: ĉi tiu homo komencis konstrui, sed ne povis fini. 31 Kaj
 
@@ -8642,21 +8324,21 @@ kontraŭ li kun dudek mil? 32 Aŭ alie, dum la alia estas tre malprok-
 
 sime, li alsendas ambasadorojn kaj demandas pri paco. 33 Kiu do el
 
-vi ne forlasas ĉiujn siajn posedaĵojn, tiu ne povas esti mia disĉiplo. 
+vi ne forlasas ĉiujn siajn posedaĵojn, tiu ne povas esti mia disĉiplo.
 
 34 Salo do estas bona, sed se eĉ la salo sengustiĝis, per kio ĝi estos
 
-spicata? 35 ¯i taŭgas nek por la tero nek por sterkejo; oni ĝin forĵe-
+spicata? 35 i taŭgas nek por la tero nek por sterkejo; oni ĝin forĵe-
 
-tas. Kiu havas orelojn por aŭdi, tiu aŭdu. 
+tas. Kiu havas orelojn por aŭdi, tiu aŭdu.
 
 ĉapitro 15
 
-1 Kaj ĉiuj impostistoj kaj pekuloj alproksimiĝis al li, por aŭskulti lin. 
+1 Kaj ĉiuj impostistoj kaj pekuloj alproksimiĝis al li, por aŭskulti lin.
 
 2 Kaj murmuris la Fariseoj kaj la skribistoj, dirante: ĉi tiu akceptas
 
-pekulojn kaj manĝas kun ili. 
+pekulojn kaj manĝas kun ili.
 
 3 Kaj li parolis al ili la jenan parabolon, dirante: 4 Kiu el vi, hav-
 
@@ -8664,39 +8346,37 @@ ante cent ŝafojn kaj perdinte unu el ili, ne forlasas la naŭdek naŭ sur
 
 la stepo, kaj iras, por serĉi tiun, kiun li perdis, ĝis li ĝin trovos? 5 Kaj trovinte, li ĝin metas sur siajn ŝultrojn, ĝojante. 6 Kaj reveninte do-men, li kunvokas siajn amikojn kaj siajn najbarojn, dirante al ili:
 
-¯oju kun mi, ĉar mi trovis mian ŝafon, la perditan. 7 Mi diras al vi, 
+oju kun mi, ĉar mi trovis mian ŝafon, la perditan. 7 Mi diras al vi,
 
 ke tiel same estos ĝojo en la ĉielo pro unu pekulo, kiu pentas, pli ol
 
-pro naŭdek naŭ justuloj, kiuj ne bezonas penton. 
+pro naŭdek naŭ justuloj, kiuj ne bezonas penton.
 
-8 Kiu virino, havante dek dra˛mojn, se ŝi perdis unu dra˛mon, 
+8 Kiu virino, havante dek dra˛mojn, se ŝi perdis unu dra˛mon,
 
-146
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ne ekbruligas lampon kaj balaas la domon kaj serĉas diligente, ĝis
 
 ŝi ĝin trovos? 9 Kaj trovinte, ŝi kunvokas siajn amikinojn kaj siajn
 
-najbarinojn, dirante: ¯oju kun mi, ĉar mi trovis la dra˛mon, kiun
+najbarinojn, dirante: oju kun mi, ĉar mi trovis la dra˛mon, kiun
 
 mi perdis. 10 Tiel same, mi diras al vi, estas ĝojo antaŭ la anĝeloj de
 
-Dio pro unu pekulo, kiu pentas. 
+Dio pro unu pekulo, kiu pentas.
 
 11 Kaj li diris: Unu viro havis du filojn; 12 kaj la pli juna diris al sia
 
 patro: Patro, donu al mi la heredotan parton de la havo. Kaj li dividis
 
-inter ili siajn vivrimedojn. 13 Kaj post ne multaj tagoj la pli juna, 
+inter ili siajn vivrimedojn. 13 Kaj post ne multaj tagoj la pli juna,
 
 kolektinte ĉion, forvojaĝis al malproksima lando; kaj tie li disper-
 
-dis sian havon per diboĉa vivado. 14 Kaj kiam li jam elspezis ĉion, 
+dis sian havon per diboĉa vivado. 14 Kaj kiam li jam elspezis ĉion,
 
 forta malsato okazis en tiu lando, kaj li komencis havi mankon. 15
 
@@ -8708,13 +8388,13 @@ sian ventron per la karoboj, kiujn la porkoj manĝis; kaj neniu do-
 
 nis al li. 17 Sed reveninte al si, li diris: Kiom da dungitoj de mia pa-
 
-tro havas panon abunde, sed mi ĉi tie pereas de malsato\! 18 Mi levi-
+tro havas panon abunde, sed mi ĉi tie pereas de malsato! 18 Mi levi-
 
 ĝos, kaj iros al mia patro, kaj mi diros al li: Patro, mi pekis kontraŭ
 
 la ĉielo kaj antaŭ vi; 19 mi jam ne meritas esti nomata via filo; faru
 
-min kiel unu el viaj dungitoj. 20 Kaj li leviĝis, kaj iris al sia patro. Sed kiam li estis ankoraŭ malproksime, lia patro lin vidis kaj kortuŝiĝis, 
+min kiel unu el viaj dungitoj. 20 Kaj li leviĝis, kaj iris al sia patro. Sed kiam li estis ankoraŭ malproksime, lia patro lin vidis kaj kortuŝiĝis,
 
 kaj kurinte, falis sur lian kolon kaj lin kisadis. 21 Kaj la filo diris al li: Patro, mi pekis kontraŭ la ĉielo kaj antaŭ vi, kaj mi jam ne meritas
 
@@ -8724,25 +8404,23 @@ ide la ĉefan robon, kaj lin vestu, kaj metu ringon sur lian manon kaj
 
 ŝuojn sur liajn piedojn; 23 kaj alportu la grasigitan bovidon kaj buĉu
 
-ĝin, kaj ni manĝu kaj estu gajaj; 24 ĉar ĉi tiu mia filo estis mortinta, 
+ĝin, kaj ni manĝu kaj estu gajaj; 24 ĉar ĉi tiu mia filo estis mortinta,
 
 kaj denove vivas; li estis perdita, kaj estas trovita. Kaj ili komencis
 
 esti gajaj. 25 Sed la pli maljuna filo estis sur la kampo; kaj kiam li
 
-venis kaj alproksimiĝis al la domo, li aŭdis muzikon kaj dancadon. 
+venis kaj alproksimiĝis al la domo, li aŭdis muzikon kaj dancadon.
 
 26 Kaj li alvokis unu el la knaboj, kaj demandis lin, kio estas tio. 27
 
-147
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Kaj li diris al li: Via frato venis, kaj via patro buĉis la grasigitan bovidon, ĉar li ricevis lin sana. 28 Sed li koleris, kaj ne volis eniri; kaj lia patro elvenis, kaj lin petegis. 29 Sed li responde diris al sia patro: Jen
 
-tiom da jaroj mi servas al vi, kaj neniam mi malobeis vian ordonon, 
+tiom da jaroj mi servas al vi, kaj neniam mi malobeis vian ordonon,
 
 tamen vi neniam donis al mi kapridon, por ke mi estu gaja kun miaj
 
@@ -8754,7 +8432,7 @@ al li: Filo, vi estas ĉiam kun mi, kaj ĉio mia estas via. 32 Sed konve-
 
 nis esti gajaj kaj ĝoji; ĉar ĉi tiu via frato estis mortinta, kaj denove
 
-vivas; li estis perdita, kaj estas trovita. 
+vivas; li estis perdita, kaj estas trovita.
 
 ĉapitro 16
 
@@ -8790,11 +8468,9 @@ dentaj, ol la filoj de la lumo. 9 Kaj mi diras al vi: Faru al vi amikojn
 
 per la mamono de maljusteco, por ke, kiam ĝi mankos, oni akcep-
 
-148
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tu vin en eternajn loĝejojn. 10 Kiu estas fidela en la plej malgranda
 
@@ -8812,7 +8488,7 @@ vi al du sinjoroj; ĉar aŭ li malamos unu kaj amos la alian, aŭ li aliĝos
 
 al unu kaj malestimos la alian. Vi ne povas servi al Dio kaj al Mamo-
 
-no\! 
+no!
 
 14 Kaj la Fariseoj ankaŭ, kiuj estis monavidaj, aŭdis ĉion tion, kaj
 
@@ -8824,11 +8500,11 @@ homoj, tio estas abomenaĵo antaŭ Dio. 16 La leĝo kaj la profetoj estis
 
 predikata, kaj ĉiu al ĝi sin perforte aligas. 17 Sed estas pli facile por
 
-la ĉielo kaj la tero forpasi, ol por unu punkteto de la leĝo fali. 18 ĉiu, 
+la ĉielo kaj la tero forpasi, ol por unu punkteto de la leĝo fali. 18 ĉiu,
 
 kiu forsendas sian edzinon kaj edziĝas kun alia, adultas; kaj kiu
 
-edziĝas kun tiu, forsendita de sia edzo, tiu adultas. 
+edziĝas kun tiu, forsendita de sia edzo, tiu adultas.
 
 19 Estis unu riĉulo, kiu estis vestita per purpuro kaj bisino, kaj
 
@@ -8848,17 +8524,15 @@ te en turmentoj, kaj vidis Abrahamon malproksime kaj Lazaron sur
 
 lia sino. 24 Kaj li ekkriis, kaj diris: Patro Abraham, kompatu min, kaj
 
-sendu Lazaron, por ke li trempu en akvon la pinton de sia fingro, 
+sendu Lazaron, por ke li trempu en akvon la pinton de sia fingro,
 
 por malvarmigi mian langon; ĉar mi tre suferas en ĉi tiu flamo. 25
 
 Sed Abraham diris: Filo, memoru, ke dum via vivo vi ricevis viajn
 
-149
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 bonaĵojn, kaj Lazaro tiel same malbonaĵojn; sed nun li ricevas kon-
 
@@ -8874,13 +8548,13 @@ mento. 29 Sed Abraham diris: Ili havas Moseon kaj la profetojn; ili
 
 aŭskultu ilin. 30 Sed li diris: Ne, patro Abraham; sed se unu venos
 
-al ili el la mortintoj, ili pentos. 31 Kaj li diris al li: Se ili ne aŭskultas Moseon kaj la profetojn, ili ne kredos, eĉ se iu leviĝus el la mortintoj. 
+al ili el la mortintoj, ili pentos. 31 Kaj li diris al li: Se ili ne aŭskultas Moseon kaj la profetojn, ili ne kredos, eĉ se iu leviĝus el la mortintoj.
 
 ĉapitro 17
 
 1 Kaj li diris al siaj disĉiploj: Ne povas esti, ke faliloj ne venos, sed
 
-ve al tiu, per kiu ili venos\! 2 Pli bone estus por tiu, se muelŝtono
+ve al tiu, per kiu ili venos! 2 Pli bone estus por tiu, se muelŝtono
 
 estus pendigita ĉirkaŭ lia kolo, kaj se li estus ĵetita en la maron, ol
 
@@ -8890,7 +8564,7 @@ frato pekos, admonu lin; kaj se li pentos, pardonu lin. 4 Kaj se li pe-
 
 kos kontraŭ vi sep fojojn en la tago, kaj sep fojojn turniĝos al vi, dir-
 
-ante: Mi pentas; vi lin pardonu. 
+ante: Mi pentas; vi lin pardonu.
 
 5 Kaj la apostoloj diris al la Sinjoro: Aldonu al ni fidon. 6 Kaj la
 
@@ -8900,23 +8574,22 @@ Sinjoro diris: Se vi havus fidon kiel semeron de sinapo, vi dirus al
 
 ĝi obeus al vi. 7 Sed kiu el vi, havante serviston plugantan aŭ paŝ-
 
-tantan, diros al li, kiam li envenis de la kampo: Tuj venu, kaj sidiĝu, 
+tantan, diros al li, kiam li envenis de la kampo: Tuj venu, kaj sidiĝu,
 
 por manĝi? 8 ĉu li ne diros al li prefere: Preparu ion, por ke mi ves-
 
 permanĝu, kaj zonu vin, kaj servu al mi, dum mi manĝos kaj trin-
 
-kos; kaj poste vi manĝos kaj trinkos? 9 ĉu li dankas la serviston, ĉar
+kos; kaj poste vi manĝos kaj trs? 9 ĉu li dankas la serviston, ĉar
 
 li faris tion, kio estis ordonita? 10 Tiel ankaŭ vi, kiam vi faris ĉion, kio 150
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-estas ordonita al vi, diru: Ni estas senutilaj servistoj; ni faris tion, 
+estas ordonita al vi, diru: Ni estas senutilaj servistoj; ni faris tion,
 
-kion fari estis nia devo. 
+kion fari estis nia devo.
 
 11 Kaj dum ili vojiris al Jerusalem, li trapasis tra la mezo de Sa-
 
@@ -8926,11 +8599,11 @@ tis lin dek lepruloj, kiuj staris malproksime; 13 kaj ili levis sian vo-
 
 ĉon, dirante: Jesuo, estro, kompatu nin. 14 Kaj vidinte ilin, li diris al
 
-ili: Iru, kaj montru vin al la pastroj. Kaj dum ili iris, ili fariĝis puraj. 
+ili: Iru, kaj montru vin al la pastroj. Kaj dum ili iris, ili fariĝis puraj.
 
 15 Kaj unu el ili, vidinte, ke li resaniĝis, revenis, glorante Dion per
 
-laŭta voĉo, 16 kaj falis sur sian vizaĝon ĉe liaj piedoj kaj dankis lin; 
+laŭta voĉo, 16 kaj falis sur sian vizaĝon ĉe liaj piedoj kaj dankis lin;
 
 kaj li estis Samariano. 17 Kaj Jesuo responde diris: ĉu ne la dek es-
 
@@ -8938,21 +8611,21 @@ tis purigitaj? sed kie estas la naŭ? 18 ĉu ne troviĝis revenantoj, por
 
 doni gloron al Dio, krom ĉi tiu fremdulo? 19 Kaj li diris al li: Leviĝu
 
-kaj iru; via fido vin savis. 
+kaj iru; via fido vin savis.
 
-20 Kaj kiam la Fariseoj demandis al li, kiam venos la regno de Dio, 
+20 Kaj kiam la Fariseoj demandis al li, kiam venos la regno de Dio,
 
 li respondis al ili, dirante: La regno de Dio ne venas kun observa-
 
-do; 21 kaj oni ne diros: Jen ĉi tie, aŭ: Jen tie\! ĉar jen la regno de Dio
+do; 21 kaj oni ne diros: Jen ĉi tie, aŭ: Jen tie! ĉar jen la regno de Dio
 
-estas inter vi. 
+estas inter vi.
 
 22 Kaj li diris al la disĉiploj: Venos tagoj, kiam vi deziros vidi unu
 
-el la tagoj de la Filo de homo, kaj vi ne vidos. 23 Kaj ili diros al vi: Jen tie\! Jen ĉi tie\! Ne foriru, nek sekvu; 24 ĉar kiel la fulmo, kiam ĝi ful-mas el unu subĉiela flanko, lumas ĝis alia subĉiela flanko, tiel es-
+el la tagoj de la Filo de homo, kaj vi ne vidos. 23 Kaj ili diros al vi: Jen tie! Jen ĉi tie! Ne foriru, nek sekvu; 24 ĉar kiel la fulmo, kiam ĝi ful-mas el unu subĉiela flanko, lumas ĝis alia subĉiela flanko, tiel es-
 
-tos la Filo de homo en sia tago. 25 Sed unue li devas multon suferi, 
+tos la Filo de homo en sia tago. 25 Sed unue li devas multon suferi,
 
 kaj esti malŝatata de ĉi tiu generacio. 26 Kaj kiel estis en la tagoj de
 
@@ -8962,7 +8635,7 @@ kis, edziĝis, edziniĝis, ĝis la tago, kiam Noa eniris en la arkeon, kaj
 
 venis la diluvo kaj pereigis ĉiujn. 28 Ankaŭ tiel same, kiel estis en la
 
-tagoj de Lot; oni manĝis, trinkis, aĉetis, vendis, plantis, konstruis; 
+tagoj de Lot; oni manĝis, trinkis, aĉetis, vendis, plantis, konstruis;
 
 29 sed en la tago, kiam Lot eliris el Sodom, fajro kaj sulfuro falis el
 
@@ -8970,11 +8643,9 @@ la ĉielo kaj pereigis ĉiujn; 30 tiel same estos en tiu tago, kiam la Filo
 
 de homo malkaŝiĝos. 31 Kiu estos sur la tegmento en tiu tago, kun
 
-151
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 liaj havaĵoj en la domo, tiu ne malsupreniru, por ilin forporti; kaj kiu
 
@@ -8992,7 +8663,7 @@ tos sur kampo; unu estos prenita, kaj la alia lasita. 37 Kaj ili responde
 
 diris al li: Kie, Sinjoro? Kaj li diris al ili: Kie estas la kadavro, tien
 
-ankaŭ kolektiĝos la agloj. 
+ankaŭ kolektiĝos la agloj.
 
 ĉapitro 18
 
@@ -9000,7 +8671,7 @@ ankaŭ kolektiĝos la agloj.
 
 laciĝi, 2 dirante: En unu urbo estis juĝisto, kiu ne timis Dion, nek
 
-respektis homon; 3 kaj estis vidvino en tiu urbo, kaj ŝi venis al li, 
+respektis homon; 3 kaj estis vidvino en tiu urbo, kaj ŝi venis al li,
 
 dirante: Faru por mi justecon kontraŭ mia kontraŭulo. 4 Kaj li ne
 
@@ -9018,9 +8689,9 @@ kaj nokte krias al Li, kvankam Li longe pri ili paciencas? 8 Mi diras
 
 al vi: Rapide Li faros por ili justecon. Tamen kiam venos la Filo de
 
-homo, ĉu li trovos fidon sur la tero? 
+homo, ĉu li trovos fidon sur la tero?
 
-9 Kaj li parolis la jenan parabolon, ankaŭ por iuj, kiuj fidis al si, 
+9 Kaj li parolis la jenan parabolon, ankaŭ por iuj, kiuj fidis al si,
 
 ke ili estas justuloj, kaj malestimis la ceterajn: 10 Du homoj supren-
 
@@ -9028,17 +8699,15 @@ iris en la templon, por preĝi; unu estis Fariseo, kaj la alia estis im-
 
 postisto. 11 La Fariseo, starante, preĝis kun si jene: Ho Dio, mi Vin
 
-dankas, ke mi ne estas kiel la ceteraj homoj, rabemaj, maljustaj, 
+dankas, ke mi ne estas kiel la ceteraj homoj, rabemaj, maljustaj,
 
 adultemaj, nek eĉ kiel ĉi tiu impostisto. 12 Mi fastas dufoje en semaj-
 
-152
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-no; mi donas dekonaĵojn el ĉio, kion mi akiras. 13 Sed la impostisto, 
+no; mi donas dekonaĵojn el ĉio, kion mi akiras. 13 Sed la impostisto,
 
 starante malproksime, ne volis eĉ levi la okulojn al la ĉielo, sed bat-
 
@@ -9048,11 +8717,11 @@ diras al vi: ĉi tiu malsupreniris al sia domo, pravigita pli ol tiu; ĉar
 
 ĉiu, kiu sin altigas, estos humiligita; sed kiu sin humiligas, tiu estos
 
-altigita. 
+altigita.
 
-15 Kaj oni venigis al li ankaŭ siajn infanetojn, por ke li tuŝu ilin; 
+15 Kaj oni venigis al li ankaŭ siajn infanetojn, por ke li tuŝu ilin;
 
-kaj la disĉiploj, vidinte, admonis ilin. 16 Sed Jesuo alvokis ilin al si, 
+kaj la disĉiploj, vidinte, admonis ilin. 16 Sed Jesuo alvokis ilin al si,
 
 dirante: Lasu la infanojn veni al mi, kaj ne malhelpu ilin; ĉar el tiaj
 
@@ -9080,7 +8749,7 @@ Sed aŭdinte tion, li fariĝis tre malĝoja; ĉar li estis tre riĉa. 24 Kaj Je-
 
 suo, lin rigardante, diris: Kiel malfacile tiuj, kiuj havas riĉon, eniros
 
-en la regnon de Dio\! 25 ĉar estas pli facile por kamelo iri tra true-
+en la regnon de Dio! 25 ĉar estas pli facile por kamelo iri tra true-
 
 ton de kudrilo, ol por riĉulo eniri en la regnon de Dio. 26 Kaj tiuj, kiuj
 
@@ -9094,15 +8763,13 @@ ras al vi: Estas neniu, kiu forlasis domon aŭ edzinon aŭ fratojn aŭ
 
 gepatrojn aŭ infanojn pro la regno de Dio, 30 kaj kiu ne ricevos mul-
 
-toble en ĉi tiu tempo, kaj en la venonta mondo vivon eternan. 
+toble en ĉi tiu tempo, kaj en la venonta mondo vivon eternan.
 
 31 Kaj preninte al si la dek du, li diris al ili: Jen ni supreniras al
 
-153
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Jerusalem; kaj ĉio skribita per la profetoj estos plenumita al la Filo
 
@@ -9112,27 +8779,27 @@ perfortita kaj surkraĉita; 33 kaj ili skurĝos kaj mortigos lin; kaj la tri-
 
 an tagon li releviĝos. 34 Kaj ili komprenis nenion el tio, kaj ĉi tiu
 
-parolo estis kaŝita for de ili, kaj ili ne sciis la dirojn. 
+parolo estis kaŝita for de ili, kaj ili ne sciis la dirojn.
 
 35 Kaj kiam li alproksimiĝis al Jeri˛o, unu blindulo sidis apud la
 
 vojo, petante almozojn; 36 kaj aŭdinte homamason preterirantan, li
 
-demandis, kio estas tio. 37 Kaj oni diris al li, ke Jesuo, la Nazaretano, 
+demandis, kio estas tio. 37 Kaj oni diris al li, ke Jesuo, la Nazaretano,
 
-preteriras. 38 Kaj li kriis, dirante: Jesuo, filo de David, kompatu min. 
+preteriras. 38 Kaj li kriis, dirante: Jesuo, filo de David, kompatu min.
 
 39 Kaj la antaŭirantoj admonis lin, ke li silentu; sed li des pli forte
 
-kriis: Ho filo de David, kompatu min\! 40 Kaj Jesuo haltis, kaj ordo-
+kriis: Ho filo de David, kompatu min! 40 Kaj Jesuo haltis, kaj ordo-
 
 nis alkonduki lin; kaj kiam li alproksimiĝis, li lin demandis: 41 Kion
 
-vi volas, ke mi faru al vi? Kaj li diris: Sinjoro, ke mi ricevu vidpovon. 
+vi volas, ke mi faru al vi? Kaj li diris: Sinjoro, ke mi ricevu vidpovon.
 
-42 Kaj Jesuo diris al li: Ricevu vidpovon; via fido vin savis. 43 Kaj li tuj ricevis vidpovon, kaj sekvis lin, glorante Dion; kaj la tuta popolo, 
+42 Kaj Jesuo diris al li: Ricevu vidpovon; via fido vin savis. 43 Kaj li tuj ricevis vidpovon, kaj sekvis lin, glorante Dion; kaj la tuta popolo,
 
-vidinte tion, donis laŭdon al Dio. 
+vidinte tion, donis laŭdon al Dio.
 
 ĉapitro 19
 
@@ -9146,7 +8813,7 @@ tis malgranda je staturo. 4 Kaj antaŭkurinte antaŭen, li supreniris
 
 sur sikomorarbon, por lin vidi; ĉar li estis preterpasonta tie. 5 Kaj
 
-kiam Jesuo venis al la loko, li suprenrigardis, kaj diris al li: Zakęo, 
+kiam Jesuo venis al la loko, li suprenrigardis, kaj diris al li: Zakęo,
 
 rapide malsupreniru, ĉar hodiaŭ mi devas loĝi en via domo. 6 Kaj li
 
@@ -9158,17 +8825,15 @@ te, diris al la Sinjoro: Jen duonon de miaj posedaĵoj, Sinjoro, mi
 
 donacas al la malriĉuloj; kaj se el iu mi maljuste eldevigis ion, mi
 
-154
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 redonas kvaroblon. 9 Kaj Jesuo diris al li: Hodiaŭ venis savo al ĉi tiu
 
 domo, ĉar li ankaŭ estas filo de Abraham. 10 ĉar la Filo de homo
 
-venis, por serĉi kaj savi la perditaĵon. 
+venis, por serĉi kaj savi la perditaĵon.
 
 11 Kaj kiam oni aŭdis tion, li parolis ankoraŭ parabolon, ĉar li
 
@@ -9198,7 +8863,7 @@ venis la dua, kaj diris: Sinjoro, via min’o faris kvin min’ojn. 19 Li diris 
 
 diris: Sinjoro, jen via min’o, kiun mi konservis, flankemetitan en
 
-viŝtuko; 21 ĉar mi vin timis, ĉar vi estas homo severa; vi prenas tion, 
+viŝtuko; 21 ĉar mi vin timis, ĉar vi estas homo severa; vi prenas tion,
 
 kion vi ne demetis, kaj rikoltas tion, kion vi ne semis. 22 Li diris al
 
@@ -9212,21 +8877,19 @@ bankon, por ke, reveninte, mi postulu ĝin kun procento? 24 Kaj li
 
 diris al la apudstarantoj: Forprenu de li la min’on, kaj donu ĝin al
 
-tiu, kiu havas la dek min’ojn. 25 \(Kaj ili diris al li: Sinjoro, li havas dek min’ojn.\) 26 Mi diras al vi, ke al ĉiu, kiu havas, estos donite; kaj for
+tiu, kiu havas la dek min’ojn. 25 (Kaj ili diris al li: Sinjoro, li havas dek min’ojn.) 26 Mi diras al vi, ke al ĉiu, kiu havas, estos donite; kaj for
 
 de tiu, kiu ne havas, estos prenita eĉ tio, kion li havas. 27 Cetere ti-
 
 ujn miajn malamikojn, kiuj ne volis, ke mi reĝu super ili, konduku
 
-ĉi tien, kaj mortigu ilin antaŭ mi. 
+ĉi tien, kaj mortigu ilin antaŭ mi.
 
-155
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-28 Kaj tion dirinte, li ekiris antaŭe, suprenirante al Jerusalem. 
+28 Kaj tion dirinte, li ekiris antaŭe, suprenirante al Jerusalem.
 
 29 Kaj kiam li alproksimiĝis al Betfage kaj Betania, apud la monto
 
@@ -9238,31 +8901,31 @@ kiu neniu iam ankoraŭ sidis; ĝin malligu kaj alkonduku. 31 Kaj se iu
 
 demandos al vi: Kial vi ĝin malligas? parolu jene: La Sinjoro ĝin
 
-bezonas. 32 Kaj la senditoj foriris, kaj trovis, ĝuste kiel li diris al ili. 
+bezonas. 32 Kaj la senditoj foriris, kaj trovis, ĝuste kiel li diris al ili.
 
 33 Kaj dum ili malligis la azenidon, ĝiaj posedantoj diris al ili: Kial
 
 vi malligas la azenidon? 34 Kaj ili diris: La Sinjoro ĝin bezonas. 35 Kaj
 
-ili alkondukis ĝin al Jesuo; kaj ĵetinte siajn vestojn sur la azenidon, 
+ili alkondukis ĝin al Jesuo; kaj ĵetinte siajn vestojn sur la azenidon,
 
 ili sidigis Jesuon sur ĝin. 36 Kaj dum li iris, ili sternis siajn vestojn sur la vojo. 37 Kaj kiam li jam alproksimiĝis, malsuprenironte la dekli-von de la monto Olivarba, la tuta amaso de la disĉiploj komencis
 
-ĝoji kaj laŭdi Dion per laŭta voĉo pro ĉiuj potencaĵoj, kiujn ili vidis; 
+ĝoji kaj laŭdi Dion per laŭta voĉo pro ĉiuj potencaĵoj, kiujn ili vidis;
 
-38 dirante: Estu benata la Reĝo, kiu venas en la nomo de la Eternulo; 
+38 dirante: Estu benata la Reĝo, kiu venas en la nomo de la Eternulo;
 
 paco en la ĉielo kaj gloro en la supera alto. 39 Kaj iuj Fariseoj el la ho-
 
 mamaso diris al li: Majstro, admonu viajn disĉiplojn. 40 Kaj respon-
 
-de li diris: Mi diras al vi, ke se ĉi tiuj silentos, la ŝtonoj ekkrios. 
+de li diris: Mi diras al vi, ke se ĉi tiuj silentos, la ŝtonoj ekkrios.
 
-41 Kaj kiam li alproksimiĝis, li rigardis la urbon, kaj ploris pro ĝi, 
+41 Kaj kiam li alproksimiĝis, li rigardis la urbon, kaj ploris pro ĝi,
 
 42 dirante: Ho, se vi mem scius en ĉi tiu tago la aferojn apartenan-
 
-tajn al paco\! sed nun ili estas kaŝitaj for de viaj okuloj. 43 ĉar venos
+tajn al paco! sed nun ili estas kaŝitaj for de viaj okuloj. 43 ĉar venos
 
 sur vin tagoj, kiam viaj malamikoj ĉirkaŭbaros vin per palisaro, kaj
 
@@ -9270,25 +8933,23 @@ ronde ĉirkaŭos vin, kaj ĉiuflanke premos vin, 44 kaj detruos ĝis la
 
 tero vin, kaj viajn infanojn en vi, kaj ne lasos en vi ŝtonon sur ŝto-
 
-no, pro tio, ke vi ne sciis la tempon de via vizitado. 
+no, pro tio, ke vi ne sciis la tempon de via vizitado.
 
 45 Kaj enirinte en la templon, li komencis elpeli la vendantojn, 46
 
 dirante al ili: Estas skribite: Mia domo estos domo de preĝo; sed vi
 
-faris ĝin kaverno de rabistoj. 
+faris ĝin kaverno de rabistoj.
 
 47 Kaj li instruis tagon post tago en la templo. Sed la ĉefpastroj kaj
 
-156
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la skribistoj kaj la ĉefoj de la popolo penadis lin pereigi, 48 kaj ne
 
-trovis, kion fari, ĉar la tuta popolo tre atente aŭskultis lin. 
+trovis, kion fari, ĉar la tuta popolo tre atente aŭskultis lin.
 
 ĉapitro 20
 
@@ -9300,7 +8961,7 @@ pliaĝuloj; 2 kaj ili ekparolis, dirante al li: Diru al ni: Laŭ kia aŭto-
 
 ritato vi ĉi tion faras? aŭ kiu estas tiu, kiu donis al vi tian aŭtori-
 
-taton? 3 Kaj responde li diris al ili: Mi ankaŭ faros al vi demandon, 
+taton? 3 Kaj responde li diris al ili: Mi ankaŭ faros al vi demandon,
 
 kaj diru al mi: 4 La baptado de Johano, ĉu ĝi estis el la ĉielo, aŭ el
 
@@ -9310,7 +8971,7 @@ diros: Kial vi ne kredis al li? 6 Sed se ni diros: El homoj; la tuta po-
 
 polo ŝtonmortigos nin, ĉar ili estas konvinkitaj, ke Johano estis pro-
 
-feto. 7 Kaj ili respondis, ke ili ne scias, de kie ĝi estis. 8 Kaj Jesuo diris al ili: Kaj mi ne diras al vi, laŭ kia aŭtoritato mi faras ĉi tion. 
+feto. 7 Kaj ili respondis, ke ili ne scias, de kie ĝi estis. 8 Kaj Jesuo diris al ili: Kaj mi ne diras al vi, laŭ kia aŭtoritato mi faras ĉi tion.
 
 9 Kaj li komencis paroli al la popolo la jenan parabolon: Unu viro
 
@@ -9326,7 +8987,7 @@ koraŭ alian sklavon, kaj lin ankaŭ ili skurĝis kaj malhonoris, kaj for-
 
 sendis lin senhava. 12 Kaj li sendis ankoraŭ trian, kaj lin ankaŭ ili
 
-vundis kaj elĵetis. 13 Kaj la sinjoro de la vinberejo diris: Kion mi faru? 
+vundis kaj elĵetis. 13 Kaj la sinjoro de la vinberejo diris: Kion mi faru?
 
 Mi sendos mian amatan filon; eble lin ili respektos. 14 Sed kiam la
 
@@ -9338,29 +8999,27 @@ elĵetis lin el la vinberejo kaj lin mortigis. Kion do faros al ili la sinj-
 
 oro de la vinberejo? 16 Li venos kaj pereigos ĉi tiujn kultivistojn, kaj
 
-157
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-donos la vinberejon al aliaj. Kaj aŭdinte tion, ili diris: Ne tiel estu. 
+donos la vinberejon al aliaj. Kaj aŭdinte tion, ili diris: Ne tiel estu.
 
 17 Sed li, rigardante ilin, diris: Kio do estas la jena skribitaĵo:
 
-ŝtono, kiun malŝatis la konstruantoj, 
+ŝtono, kiun malŝatis la konstruantoj,
 
-Fariĝis ŝtono bazangula? 
+Fariĝis ŝtono bazangula?
 
-18 ĉiu, kiu falas sur tiun ŝtonon, rompiĝos; sed sur kiun ĝi falos, 
+18 ĉiu, kiu falas sur tiun ŝtonon, rompiĝos; sed sur kiun ĝi falos,
 
-tiun ĝi polvigos. 
+tiun ĝi polvigos.
 
 19 Kaj la skribistoj kaj ĉefpastroj celis meti manojn sur lin en tiu
 
 sama horo, kaj ili timis la popolon; ĉar ili eksciis, ke kontraŭ ili li
 
-parolis ĉi tiun parabolon. 20 Kaj ili observis lin, kaj elsendis spionojn, 
+parolis ĉi tiun parabolon. 20 Kaj ili observis lin, kaj elsendis spionojn,
 
 kiuj ŝajnigis sin justaj, por ke ili ekkaptu lian parolon, celante trans-
 
@@ -9380,7 +9039,7 @@ li diris al ili: Tial redonu al Cezaro la propraĵon de Cezaro, kaj al Dio
 
 la propraĵon de Dio. 26 Kaj ili ne povis ekkapti la diron antaŭ la po-
 
-polo; kaj ili miris pro lia respondo, kaj silentis. 
+polo; kaj ili miris pro lia respondo, kaj silentis.
 
 27 Kaj venis iuj el la Sadukeoj, kiuj diras, ke ne estas releviĝo; kaj
 
@@ -9388,7 +9047,7 @@ ili demandis lin, 28 dirante: Majstro, Moseo skribis por ni, ke, se ies
 
 frato mortos, havante edzinon, kaj li estas seninfana, lia frato pre-
 
-nu la edzinon kaj naskigu idaron al sia frato. 29 Estis do sep fratoj; 
+nu la edzinon kaj naskigu idaron al sia frato. 29 Estis do sep fratoj;
 
 kaj la unua edziĝis, kaj mortis seninfana; 30 ankaŭ la dua; 31 kaj la
 
@@ -9404,11 +9063,9 @@ estas juĝitaj indaj atingi tiun mondon kaj la releviĝon el la mortin-
 
 toj, tiuj nek edziĝas nek edziniĝas; 36 ĉar ili ne plu povas morti; ĉar
 
-158
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ili estas egalaj kun la anĝeloj, kaj estas filoj de Dio, estante filoj de
 
@@ -9422,29 +9079,29 @@ la vivantoj, ĉar ĉiuj vivas al Li. 39 Kaj iuj el la skribistoj responde di-
 
 ris: Majstro, vi bone diris. 40 Kaj ili ne plu kuraĝis fari al li deman-
 
-don. 
+don.
 
-41 Kaj li diris al ili: Kiel oni diras, ke la Kristo estas filo de David? 
+41 Kaj li diris al ili: Kiel oni diras, ke la Kristo estas filo de David?
 
 42 ĉar David mem diras en la Psalmaro:
 
 La Eternulo diris al mia Sinjoro:
 
-Sidu dekstre de Mi, 43 ¯is Mi faros viajn malamikojn benketo por
+Sidu dekstre de Mi, 43 is Mi faros viajn malamikojn benketo por
 
-viaj piedoj. 
+viaj piedoj.
 
-44 Tial David nomas lin Sinjoro, kaj kiamaniere li estas lia filo? 
+44 Tial David nomas lin Sinjoro, kaj kiamaniere li estas lia filo?
 
 45 Kaj dum la tuta popolo aŭskultis, li diris al siaj disĉiploj: 46 Gar-
 
-du vin kontraŭ la skribistoj, kiuj amas promenadi en roboj kaj amas
+du vntraŭ la skribistoj, kiuj amas promenadi en roboj kaj amas
 
 salutojn sur la placoj, kaj ĉefseĝojn en la sinagogoj, kaj ĉeflokojn ĉe
 
 festenoj; 47 kaj kiuj formanĝas domojn de vidvinoj, kaj por pretek-
 
-sto longe preĝas. ĉi tiuj ricevos pli severan kondamnon. 
+sto longe preĝas. ĉi tiuj ricevos pli severan kondamnon.
 
 ĉapitro 21
 
@@ -9458,7 +9115,7 @@ leptojn. 3 Kaj li diris: Vere mi diras al vi: ĉi tiu malriĉa vidvino en-
 
 caron; sed ŝi el sia malmultego enĵetis la tutan vivrimedon, kiun ŝi
 
-havis. 
+havis.
 
 5 Kaj kiam iuj parolis pri la templo, ke ĝi estas ornamita per be-
 
@@ -9466,15 +9123,13 @@ laj ŝtonoj kaj oferdonoj, li diris: 6 Rilate al tio, kion vi vidas, venos
 
 tagoj, en kiuj ne estos lasita ĉi tie ŝtono sur ŝtono, kiu ne estos de-
 
-159
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĵetita. 7 Kaj ili demandis lin, dirante: Majstro, kiam do tio estos? kaj
 
-kio estos la signo, kiam tio estos proksima? 8 Kaj li diris: Gardu vin, 
+kio estos la signo, kiam tio estos proksima? 8 Kaj li diris: Gardu vin,
 
 ke vi ne estu erarigitaj; ĉar multaj venos en mia nomo, dirante: Mi
 
@@ -9482,7 +9137,7 @@ estas; kaj: La tempo proksimiĝis; ne sekvu ilin. 9 Kaj kiam vi aŭdos
 
 pri militoj kaj tumultoj, ne teruriĝu; ĉar tio devas okazi unue, sed
 
-ne tuj estos la fino. 
+ne tuj estos la fino.
 
 10 Tiam li diris al ili: Leviĝos nacio kontraŭ nacio, kaj regno kon-
 
@@ -9490,7 +9145,7 @@ traŭ regno; 11 kaj estos grandaj tertremoj, kaj en diversaj lokoj mal-
 
 satoj kaj pestoj; kaj estos teruraĵoj kaj grandaj signoj el la ĉielo. 12
 
-Sed antaŭ ĉio tio oni metos sur vin siajn manojn kaj persekutos vin, 
+Sed antaŭ ĉio tio oni metos sur vin siajn manojn kaj persekutos vin,
 
 transdonante vin al la sinagogoj kaj malliberejoj, kaj kondukante
 
@@ -9508,9 +9163,9 @@ mortigos. 17 Kaj vi estos malamataj de ĉiuj pro mia nomo. 18 Kaj eĉ
 
 unu haro de via kapo ne pereos. 19 Per via pacienco vi akiros viajn
 
-animojn. 
+animojn.
 
-20 Sed kiam vi vidos Jerusalemon ĉirkaŭitan de armeoj, tiam sciu, 
+20 Sed kiam vi vidos Jerusalemon ĉirkaŭitan de armeoj, tiam sciu,
 
 ke ĝia ruiniĝo alproksimiĝis. 21 Tiam, kiuj estas en Judujo, tiuj for-
 
@@ -9520,7 +9175,7 @@ estas sur la kamparo, tiuj ne eniru tien. 22 ĉar tiuj estas tagoj de pu-
 
 nado, por ke plenumiĝu ĉio, kio estas skribita. 23 Ve al la gravedu-
 
-linoj kaj al la suĉigantinoj en tiuj tagoj\! ĉar estos granda manko sur
+linoj kaj al la suĉigantinoj en tiuj tagoj! ĉar estos granda manko sur
 
 la tero, kaj kolero kontraŭ ĉi tiu popolo. 24 Kaj ili falos per tranĉran-
 
@@ -9532,11 +9187,9 @@ noj. 25 Kaj estos signoj en la suno kaj la luno kaj la steloj, kaj sur la
 
 tero mizero de nacioj, konsternitaj de la muĝado de la maro kaj la
 
-160
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ondegoj; 26 homoj malfortiĝos de timo kaj de atendado de tio, kio
 
@@ -9546,11 +9199,11 @@ tiam oni vidos la Filon de homo, venantan en nubo kun potenco kaj
 
 granda gloro. 28 Sed kiam tio komencos okazi, rigardu supren kaj
 
-levu viajn kapojn, ĉar via elaĉeto alproksimiĝas. 
+levu viajn kapojn, ĉar via elaĉeto alproksimiĝas.
 
 29 Kaj li parolis al ili parabolon: Rigardu la figarbon kaj ĉiujn ar-
 
-bojn; 30 kiam ili ekkreskigas foliojn, vi ekvidas, kaj el vi mem scias, 
+bojn; 30 kiam ili ekkreskigas foliojn, vi ekvidas, kaj el vi mem scias,
 
 ke la somero jam estas proksima. 31 Tiel same vi, kiam vi vidos, ke
 
@@ -9558,7 +9211,7 @@ tio okazas, tiam sciu, ke la regno de Dio estas proksima. 32 Vere mi
 
 diras al vi: ĉi tiu generacio ne forpasos, ĝis ĉio plenumiĝos. 33 La ĉie-
 
-lo kaj la tero forpasos, sed miaj vortoj ne forpasos. 
+lo kaj la tero forpasos, sed miaj vortoj ne forpasos.
 
 34 Sed gardu vin, por ke viaj koroj ne estu ŝarĝitaj de trosatiĝo kaj
 
@@ -9568,13 +9221,13 @@ subite; 35 ĉar kiel kaptilo ĝi venos sur ĉiujn, kiuj loĝas sur la supraĵo
 
 de la tero. 36 Sed viglu en ĉiu tempo, preĝante, ke prosperu al vi
 
-saviĝi de ĉio, kio okazos, kaj stari antaŭ la Filo de homo. 
+saviĝi de ĉio, kio okazos, kaj stari antaŭ la Filo de homo.
 
-37 Kaj dum la tagoj li instruis en la templo, kaj ĉiunokte li eliris, 
+37 Kaj dum la tagoj li instruis en la templo, kaj ĉiunokte li eliris,
 
 kaj loĝis sur la monto nomata Olivarba. 38 Kaj la tuta popolo venis
 
-al li frumatene en la templo, por aŭskulti lin. 
+al li frumatene en la templo, por aŭskulti lin.
 
 ĉapitro 22
 
@@ -9582,7 +9235,7 @@ al li frumatene en la templo, por aŭskulti lin.
 
 Kaj la ĉefpastroj kaj la skribistoj serĉis, kiamaniere ili povu morti-
 
-gi lin, ĉar ili timis la popolon. 
+gi lin, ĉar ili timis la popolon.
 
 3 Kaj Satano eniris en Judason, nomatan Iskariota, kiu estis el la
 
@@ -9592,13 +9245,11 @@ troj kaj kapitanoj, kiamaniere transdoni lin al ili. 5 Kaj ili ĝojis, kaj
 
 konsentis doni al li monon. 6 Kaj li promesis, kaj serĉis okazon
 
-transdoni lin al ili, for de la homamaso. 
+transdoni lin al ili, for de la homamaso.
 
-161
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 7 Kaj venis la tago de macoj, kiam oni devis buĉi la Paskon. 8 Kaj
 
@@ -9616,7 +9267,7 @@ estas la gastoĉambro, en kiu mi manĝos la Paskon kun miaj dis-
 
 ĉiploj? 12 Kaj li montros al vi grandan supran ĉambron aranĝitan; tie
 
-pretigu. 13 Kaj ili iris kaj trovis tiel, kiel li diris al ili; kaj ili pretigis la Paskon. 
+pretigu. 13 Kaj ili iris kaj trovis tiel, kiel li diris al ili; kaj ili pretigis la Paskon.
 
 14 Kaj kiam alvenis la horo, li sidiĝis, kaj la apostoloj kun li. 15 Kaj
 
@@ -9628,7 +9279,7 @@ taŭ ol mi suferos; 16 ĉar mi diras al vi: Mi ne manĝos ĝin, antaŭ ol
 
 inte dankon, li diris: ĉi tion prenu kaj dividu inter vi; 18 ĉar mi di-
 
-ras al vi: De nun mi ne trinkos el la frukto de la vinberarbo, ĝis ve-
+ras al vi: De nun mi ne trs el la frukto de la vinberarbo, ĝis ve-
 
 nos la regno de Dio. 19 Kaj li prenis panon, kaj doninte dankon, li ĝin
 
@@ -9644,7 +9295,7 @@ mano de tiu, kiu min perfidas, estas apud mi sur la tablo. 22 ĉar la
 
 Filo de homo ja iros, laŭ la antaŭdecido; sed ve al tiu viro, de kiu li
 
-estos perfidata\! 23 Kaj ili komencis diskuti inter si: kiu el ili faros tion. 
+estos perfidata! 23 Kaj ili komencis diskuti inter si: kiu el ili faros tion.
 
 24 Kaj fariĝis ankaŭ inter ili disputo: kiun el ili oni opinias la plej
 
@@ -9654,15 +9305,13 @@ super ili; kaj tiujn, kiuj potencas inter ili, oni nomas Bonfarantoj. 26
 
 Sed vi ne estas tiaj; sed kiu estas la pli granda el vi, tiu fariĝu kiel la pli juna; kaj tiu, kiu estas ĉefa, kiel la servanto. 27 ĉar kiu estas la pli granda, la sidanto ĉe manĝo, aŭ la servanto? ĉu ne la sidanto ĉe
 
-162
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-manĝo? sed mi estas meze de vi kiel la servanto. 28 Sed vi estas tiuj, 
+manĝo? sed mi estas meze de vi kiel la servanto. 28 Sed vi estas tiuj,
 
-kiuj restadis apud mi en miaj tentoj; 29 kaj mi difinas por vi regnon, 
+kiuj restadis apud mi en miaj tentoj; 29 kaj mi difinas por vi regnon,
 
 kiel mia Patro difinis por mi; 30 por ke vi manĝu kaj trinku ĉe mia
 
@@ -9678,7 +9327,7 @@ mi estas preta akompani eĉ al malliberejo kaj al morto. 34 Kaj li di-
 
 ris: Mi diras al vi, Petro, koko ne krios hodiaŭ, antaŭ ol vi trifoje
 
-malkonfesos, ke vi min konas. 
+malkonfesos, ke vi mnas.
 
 35 Kaj li diris al ili: Kiam mi vin elsendis sen monujo kaj sako kaj
 
@@ -9688,25 +9337,25 @@ havas, tiu vendu sian mantelon kaj aĉetu glavon. 37 ĉar mi diras al
 
 vi, ke tio, kio estas skribita, devas plenumiĝi pri mi: Kaj li estis al-
 
-kalkulita al krimuloj; ĉar tio, kio rilatas al mi, havas sian finon. 38 Kaj ili diris: Sinjoro, jen estas du glavoj; kaj li diris al ili: Sufiĉas. 
+kalkulita al krimuloj; ĉar tio, kio rilatas al mi, havas sian finon. 38 Kaj ili diris: Sinjoro, jen estas du glavoj; kaj li diris al ili: Sufiĉas.
 
 39 Kaj elirinte, li iris laŭ sia kutimo al la monto Olivarba, kaj la
 
-disĉiploj lin sekvis. 40 Kaj veninte al la loko, li diris al ili: Preĝu, ke vi ne eniru en tenton. 41 Kaj li iris for de ili proksimume ŝtonĵeton, 
+disĉiploj lin sekvis. 40 Kaj veninte al la loko, li diris al ili: Preĝu, ke vi ne eniru en tenton. 41 Kaj li iris for de ili proksimume ŝtonĵeton,
 
 kaj li genuis, kaj preĝis, 42 dirante: Patro, se Vi volas, formetu de mi
 
 ĉi tiun kalikon; tamen plenumiĝu ne mia volo, sed Via. 43 Kaj ape-
 
-ris antaŭ li anĝelo el la ĉielo, fortigante lin. 44 Kaj estante en agonio, 
+ris antaŭ li anĝelo el la ĉielo, fortigante lin. 44 Kaj estante en agonio,
 
 li preĝis pli fervore, kaj lia ŝvito fariĝis kiel gutoj da sango, defalan-
 
 taj sur la teron. 45 Kaj leviĝinte post la preĝo, li venis al la disĉiploj
 
-kaj trovis ilin dormantaj de malĝojo, 46 kaj diris al ili: Kial vi dormas? 
+kaj trovis ilin dormantaj de malĝojo, 46 kaj diris al ili: Kial vi dormas?
 
-leviĝu kaj preĝu, ke vi ne eniru en tenton. 
+leviĝu kaj preĝu, ke vi ne eniru en tenton.
 
 47 Dum li ankoraŭ parolis, jen homamaso; kaj tiu, kiu estis no-
 
@@ -9716,39 +9365,38 @@ suo, por kisi lin. 48 Sed Jesuo diris al li: Judas, ĉu vi perfidas per kiso 163
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-la Filon de homo? 49 Kaj kiam tiuj, kiuj ĉirkaŭis lin, vidis, kio sekvos, 
+la Filon de homo? 49 Kaj kiam tiuj, kiuj ĉirkaŭis lin, vidis, kio sekvos,
 
 ili diris: Sinjoro, ĉu ni frapu per glavo? 50 Kaj unu el ili frapis la sklavon de la ĉefpastro, kaj detranĉis lian dekstran orelon. 51 Sed Jesuo
 
-responde diris: Permesu tiom. Kaj li tuŝis lian orelon kaj sanigis lin. 
+responde diris: Permesu tiom. Kaj li tuŝis lian orelon kaj sanigis lin.
 
 52 Kaj Jesuo diris al la ĉefpastroj kaj kapitanoj de la templo kaj pli-
 
-aĝuloj, kiuj venis kontraŭ lin: ĉu vi elvenis kun glavoj kaj bastonoj, 
+aĝuloj, kiuj venis kontraŭ lin: ĉu vi elvenis kun glavoj kaj bastonoj,
 
 kvazaŭ kontraŭ rabiston? 53 Kiam mi estis ĉiutage inter vi en la tem-
 
 plo, vi ne etendis kontraŭ min viajn manojn; sed ĉi tiu estas via
 
-horo, kaj la potenco de mallumo. 
+horo, kaj la potenco de mallumo.
 
 54 Kaj ili kaptis lin, kaj forkondukinte, venigis lin en la domon de
 
 la ĉefpastro. Sed Petro sekvis malproksime. 55 Kaj kiam oni ekbru-
 
-ligis fajron meze de la korto kaj sidis kune, Petro sidiĝis meze de ili. 
+ligis fajron meze de la korto kaj sidis kune, Petro sidiĝis meze de ili.
 
 56 Kaj unu servantino, vidante lin sidantan en la fajrolumo, kaj fikse
 
-rigardinte lin, diris: 57 ĉi tiu ankaŭ estis kun li. Sed li malkonfesis, 
+rigardinte lin, diris: 57 ĉi tiu ankaŭ estis kun li. Sed li malkonfesis,
 
 dirante: Virino, mi lin ne konas. 58 Kaj post iom da tempo alia vidis
 
-lin, kaj diris: Vi ankaŭ estas el ili. Sed Petro diris: Viro, mi ne estas. 
+lin, kaj diris: Vi ankaŭ estas el ili. Sed Petro diris: Viro, mi ne estas.
 
-59 Kaj post la daŭro de unu horo proksimume, alia asertis persiste, 
+59 Kaj post la daŭro de unu horo proksimume, alia asertis persiste,
 
 dirante: Vere, ĉi tiu ankaŭ estis kun li, ĉar li estas Galileano. 60 Sed
 
@@ -9760,33 +9408,31 @@ ron. Kaj Petro ekmemoris la vorton de la Sinjoro, ke li diris al li:
 
 Antaŭ ol koko krios hodiaŭ, vi trifoje min malkonfesos. 62 Kaj li eli-
 
-ris, kaj maldolĉe ploris. 
+ris, kaj maldolĉe ploris.
 
 63 Kaj tiuj, kiuj gardis Jesuon, lin mokis kaj batis. 64 Kaj ili ĉirkaŭ-
 
 kovris lin, kaj demandis lin, dirante: Profetu, kiu vin frapis? 65 Kaj
 
-per multaj aliaj insultoj ili parolis kontraŭ li. 
+per multaj aliaj insultoj ili parolis kontraŭ li.
 
 66 Kaj tuj kiam tagiĝis la pliaĝularo de la popolo kunvenis, kaj
 
-ĉefpastroj kaj skribistoj, kaj ili forkondukis lin antaŭ sian sinedrion, 
+ĉefpastroj kaj skribistoj, kaj ili forkondukis lin antaŭ sian sinedrion,
 
 kaj diris: 67 Se vi estas la Kristo, diru al ni. Sed li diris al ili: Se mi diros al vi, vi ne kredos; 68 kaj se mi demandos, vi ne respondos. 69
 
-164
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Tamen, de nun la Filo de homo sidos dekstre de la Potenco de Dio. 
+Tamen, de nun la Filo de homo sidos dekstre de la Potenco de Dio.
 
 70 Kaj ili ĉiuj demandis: ĉu vi do estas la Filo de Dio? Kaj li respon-
 
 dis: Vi diras, ke mi estas. 71 Kaj ili diris: Pro kio ni bezonas pluan
 
-atestadon? ĉar ni mem aŭdis el lia propra buŝo. 
+atestadon? ĉar ni mem aŭdis el lia propra buŝo.
 
 ĉapitro 23
 
@@ -9808,7 +9454,7 @@ kiam Pilato tion aŭdis, li demandis, ĉu la viro estas Galileano. 7 Kaj
 
 kiam li sciiĝis, ke li estas el sub la aŭtoritato de Herodo, li sendis lin
 
-al Herodo, kiu ankaŭ ĉeestis en Jerusalem en tiuj tagoj. 
+al Herodo, kiu ankaŭ ĉeestis en Jerusalem en tiuj tagoj.
 
 8 Sed Herodo, vidinte Jesuon, treege ĝojis; ĉar de longe li dezi-
 
@@ -9822,7 +9468,7 @@ vestinte lin per brilaj vestoj, li resendis lin al Pilato. 12 Kaj Herodo
 
 kaj Pilato fariĝis amikoj unu kun la alia en tiu sama tago; ĉar antaŭe
 
-ili havis inter si malamon. 
+ili havis inter si malamon.
 
 13 Kaj Pilato, kunvokinte la ĉefpastrojn kaj la regantojn kaj la
 
@@ -9832,17 +9478,15 @@ erarigantan la popolon; kaj jen ekzameninte lin antaŭ vi, mi trovis
 
 nenian kulpon en ĉi tiu viro rilate tion, pri kio vi lin akuzas; 15 nek
 
-165
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Herodo ankaŭ, ĉar li resendis lin al ni; kaj jen nenio inda je morto
 
 estas farita de li. 16 Tial mi lin skurĝos kaj liberigos. 17 ĉar li devis liberigi unu al ili dum la festo. 18 Sed amase ili kriis, dirante: Forigu
 
-lin, kaj liberigu al ni Barabason; 19 kiu pro ribelado farita en la urbo, 
+lin, kaj liberigu al ni Barabason; 19 kiu pro ribelado farita en la urbo,
 
 kaj pro mortigo, estis ĵetita en malliberejon. 20 Kaj Pilato, volante
 
@@ -9854,13 +9498,13 @@ malbonon faris ĉi tiu? mi trovis en li nenion indan je morto; mi do
 
 lin skurĝos kaj liberigos. 23 Sed ili insistis per grandaj krioj, postu-
 
-lante krucumi lin. Kaj iliaj krioj superfortis. 24 Kaj Pilato donis juĝon, 
+lante krucumi lin. Kaj iliaj krioj superfortis. 24 Kaj Pilato donis juĝon,
 
 ke plenumiĝu ilia postulo. 25 Kaj li liberigis tiun, kiu pro ribelado kaj
 
 mortigo estis ĵetita en malliberejon, kaj kiun ili postulis; sed Jesu-
 
-on li transdonis al ilia volo. 
+on li transdonis al ilia volo.
 
 26 Kaj kiam ili forkondukis lin, ili kaptis Simonon, Kirenanon, ve-
 
@@ -9868,7 +9512,7 @@ nantan de la kamparo, kaj metis sur lin la krucon, por porti ĝin post
 
 Jesuo. 27 Kaj sekvis lin granda amaso de la popolo, kaj de virinoj, kiuj
 
-ĝemis kaj lamentis pro li. 28 Sed Jesuo, turninte sin al ili, diris: Filinoj de Jerusalem, ne ploru pro mi, sed ploru pro vi kaj pro viaj infanoj. 
+ĝemis kaj lamentis pro li. 28 Sed Jesuo, turninte sin al ili, diris: Filinoj de Jerusalem, ne ploru pro mi, sed ploru pro vi kaj pro viaj infanoj.
 
 29 ĉar jen venas tagoj, kiam oni diros: Feliĉaj estas la senfruktaj, kaj
 
@@ -9876,11 +9520,11 @@ la ventroj ne naskintaj, kaj la mamoj ne nutrintaj. 30 Tiam oni kom-
 
 encos diri al la montoj: Falu sur nin; kaj al la montetoj: Kovru nin. 31
 
-ĉar se oni tiel agas en la suka ligno, kiel oni agos en la seka? 
+ĉar se oni tiel agas en la suka ligno, kiel oni agos en la seka?
 
 32 Kaj estis kondukataj kun li ankaŭ aliaj du, krimuloj, por esti
 
-mortigitaj. 
+mortigitaj.
 
 33 Kaj kiam ili alvenis al la loko nomata Kranio, tie ili krucumis
 
@@ -9892,23 +9536,21 @@ te inter si liajn vestojn, ili ĵetis lotojn. 35 Kaj la popolo staris, rigardant
 
 sin mem, se ĉi tiu estas la Kristo de Dio, la elektito. 36 Kaj ŝercis pri
 
-166
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 li ankaŭ la soldatoj, venante al li kaj proponante al li vinagron, 37 kaj
 
 dirante: Se vi estas la Reĝo de la Judoj, savu vin. 38 Kaj estis ankaŭ
 
-surskribo super li: ĉI TIU ESTAS LA RE¯O DE LA JUDOJ. 
+surskribo super li: ĉI TIU ESTAS LA REO DE LA JUDOJ.
 
 39 Kaj unu el la pendigitaj krimuloj insultis lin, dirante: ĉu vi ne
 
-estas la Kristo? savu vin kaj nin. 40 Sed la alia responde admonis lin, 
+estas la Kristo? savu vin kaj nin. 40 Sed la alia responde admonis lin,
 
-dirante: ĉu vi eĉ ne timas Dion? ĉar vi estas en la sama kondamno. 
+dirante: ĉu vi eĉ ne timas Dion? ĉar vi estas en la sama kondamno.
 
 41 Kaj ni ja juste, ĉar ni ricevas rekompencon, merititan pro niaj fa-
 
@@ -9916,7 +9558,7 @@ roj; sed ĉi tiu faris nenion malbonan. 42 Kaj li diris: Jesuo, memoru
 
 min, kiam vi venos en vian regnon. 43 Kaj li diris al li: Vere mi diras
 
-al vi: Hodiaŭ vi estos kun mi en Paradizo. 
+al vi: Hodiaŭ vi estos kun mi en Paradizo.
 
 44 Kaj jam estis ĉirkaŭ la sesa horo, kaj fariĝis mallumo sur la tuta
 
@@ -9930,11 +9572,11 @@ dirinte, li ellasis for la spiriton. 47 Kaj kiam la centestro vidis la okazanta�
 
 mamasoj, kiuj kunvenis al ĉi tiu spektaklo, kiam ili vidis la okaz-
 
-intaĵojn, reiris, frapante al si la bruston. 49 Kaj ĉiuj liaj konantoj, kaj la virinoj, kiuj sekvis lin el Galileo, staris malproksime, vidante tion. 
+intaĵojn, reiris, frapante al si la bruston. 49 Kaj ĉiuj liaj konantoj, kaj la virinoj, kiuj sekvis lin el Galileo, staris malproksime, vidante tion.
 
 50 Kaj jen viro nomata Jozef, kiu estis konsilanto, viro bona kaj
 
-justa 51 \(li ne konsentis al ilia intenco kaj faro\), el Arimateo, urbo de
+justa 51 (li ne konsentis al ilia intenco kaj faro), el Arimateo, urbo de
 
 la Judoj, kiu atendis la regnon de Dio, 52 irinte al Pilato, petis la kor-
 
@@ -9942,21 +9584,19 @@ pon de Jesuo. 53 Kaj li deprenis ĝin kaj envolvis ĝin en tolaĵo, kaj
 
 metis lin en tombo, elhakita el ŝtono, kie neniu antaŭe kuŝis. 54 Kaj
 
-estis la tago de la Preparado, kaj la sabato eklumis. 55 Kaj la virinoj, 
+estis la tago de la Preparado, kaj la sabato eklumis. 55 Kaj la virinoj,
 
 kiuj venis kun li el Galileo, sekvis, kaj vidis la tombon, kaj kiama-
 
 niere la korpo estis metita. 56 Kaj ili reiris, kaj preparis aromaĵojn kaj
 
-ŝmiraĵojn. 
+ŝmiraĵojn.
 
-Kaj sabate ili ripozis laŭ la ordono. 
+Kaj sabate ili ripozis laŭ la ordono.
 
-167
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 24
 
@@ -9976,7 +9616,7 @@ toj? 6 Li ne estas ĉi tie, sed leviĝis; memoru, kiamaniere li parolis al
 
 vi, kiam li estis ankoraŭ en Galileo, 7 dirante, ke la Filo de homo
 
-devas esti transdonita en la manojn de pekuloj kaj esti krucumita, 
+devas esti transdonita en la manojn de pekuloj kaj esti krucumita,
 
 kaj la trian tagon releviĝi. 8 Kaj ili rememoris liajn vortojn; 9 kaj re-
 
@@ -9986,9 +9626,9 @@ ceteraj. 10 Kaj ili estis Maria Magdalena, kaj Joana, kaj Maria, la pa-
 
 trino de Jakobo; kaj la ceteraj virinoj kun ili rakontis tion al la apos-
 
-toloj. 11 Kaj tiuj vortoj ŝajnis al ili kiel babilado, kaj ili ne kredis al la virinoj. 12 Sed Petro leviĝis kaj kuris al la tombo, kaj kliniĝinte, vidis la tolaĵojn solajn, kaj li foriris, mirante en si pri tio, kio okazis. 
+toloj. 11 Kaj tiuj vortoj ŝajnis al ili kiel babilado, kaj ili ne kredis al la virinoj. 12 Sed Petro leviĝis kaj kuris al la tombo, kaj kliniĝinte, vidis la tolaĵojn solajn, kaj li foriris, mirante en si pri tio, kio okazis.
 
-13 Kaj jen du el ili iris en tiu sama tago al vilaĝo nomata Emaus, 
+13 Kaj jen du el ili iris en tiu sama tago al vilaĝo nomata Emaus,
 
 kiu estas malproksime de Jerusalem sesdek stadiojn. 14 Kaj ili inter-
 
@@ -10004,13 +9644,11 @@ okazis en ĉi tiuj tagoj? 19 Kaj li diris al ili: Kion? Kaj ili diris al li: Pri
 
 transdonis lin por kondamno al morto, kaj lin krucumis. 21 Sed ni
 
-esperis, ke li estas tiu, kiu elaĉetos Izraelon. Kaj plie, krom ĉio tio, 
+esperis, ke li estas tiu, kiu elaĉetos Izraelon. Kaj plie, krom ĉio tio,
 
-168
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 hodiaŭ estas jam la tria tago, de kiam tio okazis. 22 Ankaŭ mirigis
 
@@ -10020,7 +9658,7 @@ ne trovinte lian korpon, revenis, dirante, ke ili ankaŭ vidis vizion de
 
 anĝeloj, kiuj diris, ke li vivas. 24 Kaj iuj el nia kunularo iris al la tom-bo, kaj trovis tiel, kiel diris la virinoj; sed lin ili ne vidis. 25 Kaj li diris al ili: Ho malsaĝuloj kaj kore malviglaj por kredi ĉion, kion la
 
-profetoj antaŭparolis\! 26 ĉu la Kristo ne devis suferi ĉion tion, kaj
+profetoj antaŭparolis! 26 ĉu la Kristo ne devis suferi ĉion tion, kaj
 
 eniri en sian gloron? 27 Kaj komencante de Moseo kaj de ĉiuj pro-
 
@@ -10034,7 +9672,7 @@ dirantaj: 34 La Sinjoro vere leviĝis, kaj aperis al Simon. 35 Kaj ili ra-
 
 kontis tion, kio okazis sur la vojo, kaj kiamaniere li rekoniĝis al ili
 
-en la dispecigo de pano. 
+en la dispecigo de pano.
 
 36 Kaj dum ili priparolis tion, li mem staris meze de ili, kaj diris
 
@@ -10048,23 +9686,21 @@ siajn manojn kaj siajn piedojn. 41 Kaj dum ili ankoraŭ ne kredis pro
 
 ĝojo, kaj miris, li demandis ilin: ĉu vi havas ian manĝaĵon ĉi tie? 42
 
-169
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Kaj ili donis al li pecon de rostita fiŝo. 43 Kaj li prenis, kaj manĝis
 
-antaŭ ili. 
+antaŭ ili.
 
-44 Kaj li diris al ili: Jen estas miaj vortoj, kiujn mi parolis al vi, 
+44 Kaj li diris al ili: Jen estas miaj vortoj, kiujn mi parolis al vi,
 
 kiam mi ankoraŭ estis ĉe vi, ke devas plenumiĝi ĉio, kio estas skri-
 
-bita pri mi en la leĝo de Moseo kaj en la profetoj kaj en la psalmoj. 
+bita pri mi en la leĝo de Moseo kaj en la profetoj kaj en la psalmoj.
 
-45 Tiam li malfermis ilian menson, por ke ili komprenu la Skribojn; 
+45 Tiam li malfermis ilian menson, por ke ili komprenu la Skribojn;
 
 46 kaj li diris al ili: Tiel estas skribite, ke la Kristo devas suferi, kaj leviĝi el la mortintoj la trian tagon; 47 kaj ke pento kaj pardonado
 
@@ -10074,7 +9710,7 @@ Jerusalem. 48 Vi estas atestantoj pri tio. 49 Kaj jen mi elsendos sur vin
 
 la promeson de mia Patro; sed restu en la urbo, ĝis vi vestiĝos per
 
-potenco de supre. 
+potenco de supre.
 
 50 Kaj li elkondukis ilin ĝis apud Betania, kaj, levinte siajn ma-
 
@@ -10082,13 +9718,11 @@ nojn, li benis ilin. 51 Kaj dum li benis ilin, li foriĝis de ili kaj estis sup-
 
 salem kun granda ĝojo; 53 kaj estis konstante en la templo, gloran-
 
-te Dion. 
+te Dion.
 
-170
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La evangelio laŭ sankta Johano
 
@@ -10098,7 +9732,7 @@ La evangelio laŭ sankta Johano
 
 Vorto estis Dio. 2 Tiu estis en la komenco kun Dio. 3 ĉio estiĝis per
 
-li; kaj aparte de li estiĝis nenio, kio estiĝis. 4 En li estis la vivo, kaj la vivo estis la lumo de la homoj. 5 Kaj la lumo brilas en la mallumo, 
+li; kaj aparte de li estiĝis nenio, kio estiĝis. 4 En li estis la vivo, kaj la vivo estis la lumo de la homoj. 5 Kaj la lumo brilas en la mallumo,
 
 kaj la mallumo ĝin ne venkis. 6 De Dio estis sendita viro, kies nomo
 
@@ -10114,7 +9748,7 @@ mondo lin ne konis. 11 Li venis al siaj propraĵoj, kaj liaj propruloj lin
 
 ne akceptis. 12 Sed al ĉiuj, kiuj lin akceptis, li donis la rajton fariĝi
 
-filoj de Dio, al la kredantoj al lia nomo, 13 kiuj naskiĝis nek el sango, 
+filoj de Dio, al la kredantoj al lia nomo, 13 kiuj naskiĝis nek el sango,
 
 nek el volo de karno, nek el volo de homo, sed el Dio. 14 Kaj la Vorto
 
@@ -10124,7 +9758,7 @@ zaŭ de la solenaskita de la Patro, plena de graco kaj vero. 15 Johano
 
 atestis pri li, kaj kriis, dirante: ĉi tiu estas li, pri kiu mi diris: Kiu
 
-venas post mi, tiu estas metita super mi, ĉar li ekzistis pli frue ol mi. 
+venas post mi, tiu estas metita super mi, ĉar li ekzistis pli frue ol mi.
 
 16 ĉar el lia pleneco ni ĉiuj ricevis, kaj gracon post graco. 17 ĉar la
 
@@ -10132,17 +9766,15 @@ leĝo estis donita per Moseo; la graco kaj la vero estiĝis per Jesuo
 
 Kristo. 18 Neniu iam vidis Dion; la solenaskita Filo, kiu estas en la
 
-sino de la Patro, Lin deklaris. 
+sino de la Patro, Lin deklaris.
 
 19 Kaj jen estas la atesto de Johano, kiam la Judoj sendis al li pas-
 
 trojn kaj Levidojn el Jerusalem, por demandi lin: Kiu vi estas? 20 Kaj
 
-171
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 li konfesis kaj ne kaŝis; kaj li konfesis: Mi ne estas la Kristo. 21 Kaj ili demandis lin: Kio do? ĉu vi estas Elija? Kaj li diris: Mi ne estas. ĉu
 
@@ -10156,17 +9788,17 @@ ditaj de la Fariseoj. 25 Kaj ili demandis lin, kaj diris al li: Kial do vi
 
 baptas, se vi ne estas la Kristo, nek Elija, nek la profeto? 26 Johano
 
-respondis al ili, dirante: Mi baptas per akvo; meze de vi staras tiu, 
+respondis al ili, dirante: Mi baptas per akvo; meze de vi staras tiu,
 
 kiun vi ne konas, 27 kiu venas post mi; la rimenon de lia ŝuo mi ne
 
 estas inda malligi. 28 Tio okazis en Betania transe de Jordan, kie Jo-
 
-hano baptadis. 
+hano baptadis.
 
 29 La sekvantan tagon li vidis Jesuon venanta al li, kaj diris: Jen
 
-la ŝafido de Dio, kiu forportas la pekon de la mondo\! 30 Li estas tiu, 
+la ŝafido de Dio, kiu forportas la pekon de la mondo! 30 Li estas tiu,
 
 pri kiu mi diris: Post mi venas viro, kiu estas metita super mi, ĉar
 
@@ -10182,37 +9814,35 @@ por bapti per akvo, Tiu diris al mi: Sur kiun vi vidos la Spiriton mal-
 
 supreniranta kaj restanta sur li, tiu estas la baptanto per la Sankta
 
-Spirito. 34 Kaj mi vidis, kaj atestis, ke ĉi tiu estas la Filo de Dio. 
+Spirito. 34 Kaj mi vidis, kaj atestis, ke ĉi tiu estas la Filo de Dio.
 
 35 Denove la sekvantan tagon staris Johano, kaj du el liaj dis-
 
 ĉiploj; 36 kaj rigardante Jesuon promenantan, li diris: Jen la ŝafido
 
-de Dio\! 37 Kaj la du disĉiploj aŭdis lin paroli, kaj sekvis Jesuon. 38 Kaj
+de Dio! 37 Kaj la du disĉiploj aŭdis lin paroli, kaj sekvis Jesuon. 38 Kaj
 
 Jesuo sin turnis, kaj vidis ilin sekvantajn, kaj diris al ili: Kion vi ser-
 
-ĉas? Kaj ili diris al li: Rabeno \(tio estas, Majstro\), kie vi loĝas? 39 Li
+ĉas? Kaj ili diris al li: Rabeno (tio estas, Majstro), kie vi loĝas? 39 Li
 
-diris al ili: Venu, kaj vi vidos. Ili do venis, kaj vidis, kie li loĝas, kaj ili restis ĉe li tiun tagon; estis ĉirkaŭ la deka horo. 40 Unu el la du, 
+diris al ili: Venu, kaj vi vidos. Ili do venis, kaj vidis, kie li loĝas, kaj ili restis ĉe li tiun tagon; estis ĉirkaŭ la deka horo. 40 Unu el la du,
 
 kiuj aŭdis Johanon kaj lin sekvis, estis Andreo, la frato de Simon
 
-172
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Petro. 41 Tiu unue trovis sian propran fraton Simon, kaj diris al li: Ni
 
-trovis la Mesion \(tio estas, Kriston\). 42 Li kondukis lin al Jesuo. Jesuo
+trovis la Mesion (tio estas, Kriston). 42 Li kondukis lin al Jesuo. Jesuo
 
 lin rigardis, kaj diris: Vi estas Simon, filo de Jona; vi estos nomata
 
-Kefas \(tio estas, Petro\). 
+Kefas (tio estas, Petro).
 
-43 La sekvantan tagon li volis foriri en Galileon, kaj trovis Filipon; 
+43 La sekvantan tagon li volis foriri en Galileon, kaj trovis Filipon;
 
 kaj Jesuo diris al li: Sekvu min. 44 Filipo estis el Betsaida, la urbo de
 
@@ -10226,17 +9856,17 @@ esti el Nazaret? Filipo diris al li: Venu kaj vidu. 47 Jesuo vidis Natana-
 
 elon venanta al li, kaj diris pri li: Jen vera Izraelido, en kiu ne estas
 
-ruzeco\! 48 Natanael diris al li: Per kio vi min konas? Jesuo respondis
+ruzeco! 48 Natanael diris al li: Per kio vi mnas? Jesuo respondis
 
-kaj diris al li: Antaŭ ol Filipo vin vokis, kiam vi estis sub la figarbo, 
+kaj diris al li: Antaŭ ol Filipo vin vokis, kiam vi estis sub la figarbo,
 
 mi vin vidis. 49 Natanael respondis kaj diris al li: Rabeno, vi estas la
 
-Filo de Dio; vi estas Reĝo de Izrael\! 50 Jesuo respondis kaj diris al li:
+Filo de Dio; vi estas Reĝo de Izrael! 50 Jesuo respondis kaj diris al li:
 
 ĉu vi kredas pro tio, ke mi diris al vi: Mi vin vidis sub la figarbo? vi
 
-vidos pli grandajn aferojn ol ĉi tio. 51 Kaj li diris al li: Vere, vere, mi diras al vi, vi vidos la ĉielon malfermita kaj la anĝelojn de Dio suprenirantaj kaj malsuprenirantaj sur la Filon de homo. 
+vidos pli grandajn aferojn ol ĉi tio. 51 Kaj li diris al li: Vere, vere, mi diras al vi, vi vidos la ĉielon malfermita kaj la anĝelojn de Dio suprenirantaj kaj malsuprenirantaj sur la Filon de homo.
 
 ĉapitro 2
 
@@ -10252,29 +9882,27 @@ horo ankoraŭ ne venis. 5 Lia patrino diris al la servantoj: Kion ajn
 
 li diros al vi, tion faru. 6 Kaj estis tie ses akvokuvoj ŝtonaj, metitaj laŭ la purigo de la Judoj, enhavantaj po du ĝis tri metretoj. 7 Jesuo diris al ili: Plenigu la akvokuvojn per akvo. Kaj oni plenigis ilin ĝis la
 
-173
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 rando. 8 Kaj li diris al ili: ĉerpu nun, kaj alportu al la festenestro. Kaj oni alportis. 9 Kiam la festenestro gustumis la akvon, nun fariĝintan
 
-vino, kaj ne sciis, de kie ĝi estas \(sciis tamen la servantoj, kiuj ĉer-
+vino, kaj ne sciis, de kie ĝi estas (sciis tamen la servantoj, kiuj ĉer-
 
-pis la akvon\), la festenestro alvokis la fianĉon, 10 kaj diris al li: ĉiu
+pis la akvon), la festenestro alvokis la fianĉon, 10 kaj diris al li: ĉiu
 
-homo prezentas unue la bonan vinon, kaj kiam oni jam drinkis, 
+homo prezentas unue la bonan vinon, kaj kiam oni jam drinkis,
 
 tiam la malpli bonan; sed vi rezervis la bonan vinon ĝis nun. 11 ĉi
 
 tiun komencon de signoj Jesuo faris en Kana Galilea, kaj elmontris
 
-sian gloron, kaj liaj disĉiploj kredis al li. 
+sian gloron, kaj liaj disĉiploj kredis al li.
 
 12 Post tio li malsupreniris al Kapernaum, kaj kun li lia patrino kaj
 
-liaj fratoj kaj liaj disĉiploj; kaj tie ili restis ne multajn tagojn. 
+liaj fratoj kaj liaj disĉiploj; kaj tie ili restis ne multajn tagojn.
 
 13 Kaj la Pasko de la Judoj alproksimiĝis, kaj Jesuo supreniris al
 
@@ -10290,7 +9918,7 @@ la vendistoj de la kolomboj li diris: Forportu tion de ĉi tie; ne faru
 
 la domon de mia Patro domon de komerco. 17 La disĉiploj rememo-
 
-ris, ke estis skribite: Fervoro pri Via domo min konsumis. 18 La Ju-
+ris, ke estis skribite: Fervoro pri Via domo mnsumis. 18 La Ju-
 
 doj do respondis kaj diris al li: Kian signon vi montras al ni, ĉar vi
 
@@ -10304,19 +9932,17 @@ daŭro de tri tagoj? 21 Sed li parolis pri la sanktejo de sia korpo. 22
 
 Kiam do li leviĝis el la mortintoj, la disĉiploj rememoris, ke li diris
 
-tion; kaj ili kredis la Skribon, kaj la vorton, kiun Jesuo diris. 
+tion; kaj ili kredis la Skribon, kaj la vorton, kiun Jesuo diris.
 
 23 Kaj kiam li estis en Jerusalem ĉe la Pasko, dum la festo, mul-
 
 taj fidis al lia nomo, vidante la signojn, kiujn li faris. 24 Sed Jesuo ne
 
-konfidis sin al ili, ĉar li konis ĉiujn, 25 kaj ne bezonis, ke iu atestu pri la homo, ĉar li mem sciis, kio estas en la homo. 
+konfidis sin al ili, ĉar li konis ĉiujn, 25 kaj ne bezonis, ke iu atestu pri la homo, ĉar li mem sciis, kio estas en la homo.
 
-174
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 3
 
@@ -10336,7 +9962,7 @@ patrino kaj naskiĝi? 5 Jesuo respondis: Vere, vere, mi diras al vi: Se
 
 homo ne estas naskita el akvo kaj la Spirito, li ne povas eniri en la
 
-regnon de Dio. 6 Tio, kio naskiĝas el la karno, estas karno; kaj tio, 
+regnon de Dio. 6 Tio, kio naskiĝas el la karno, estas karno; kaj tio,
 
 kio naskiĝas de la Spirito, estas spirito. 7 Ne miru, ke mi diris al vi:
 
@@ -10362,7 +9988,7 @@ iris de la ĉielo, la Filo de homo, kiu estas en la ĉielo. 14 Kaj kiel Mo-
 
 seo levis la serpenton en la dezerto, tiel devas la Filo de homo esti
 
-levita; 15 por ke ĉiu, fidanta al li, havu eternan vivon. 
+levita; 15 por ke ĉiu, fidanta al li, havu eternan vivon.
 
 16 ĉar Dio tiel amis la mondon, ke Li donis Sian solenaskitan Fi-
 
@@ -10376,11 +10002,9 @@ ata; sed la nekredanto jam estas juĝita, ĉar li ne fidas al la nomo de
 
 la solenaskita Filo de Dio. 19 Kaj jen estas la juĝo: ke la lumo venis
 
-175
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 en la mondon, kaj la homoj amis la mallumon pli ol la lumon, ĉar
 
@@ -10390,15 +10014,15 @@ la lumon, kaj ne venas al la lumo, por ke liaj faroj ne estu malapro-
 
 bitaj. 21 Sed tiu, kiu faras la veron, venas al la lumo, por ke liaj fa-
 
-roj estu montrataj, ke ili estas faritaj en Dio. 
+roj estu montrataj, ke ili estas faritaj en Dio.
 
 22 Post tio venis Jesuo kun siaj disĉiploj en la landon Judujo, kaj
 
-restis tie kun ili kaj baptadis. 23 Johano ankaŭ baptadis en Enon, 
+restis tie kun ili kaj baptadis. 23 Johano ankaŭ baptadis en Enon,
 
 proksime de Salim, ĉar estis tie multe da akvoj; kaj oni alvenis kaj
 
-estis baptitaj. 24 ĉar Johano ankoraŭ ne estis ĵetita en malliberejon. 
+estis baptitaj. 24 ĉar Johano ankoraŭ ne estis ĵetita en malliberejon.
 
 25 Fariĝis do diskutado inter la disĉiploj de Johano kaj iu Judo pri la
 
@@ -10418,7 +10042,7 @@ de la fianĉo, kiu staras kaj lin aŭdas, tre ĝojas pro la voĉo de la fi-
 
 anĉo; ĉi tiu mia ĝojo do plenumiĝis. 30 Li devas altiĝi, sed mi devas
 
-malaltiĝi. 
+malaltiĝi.
 
 31 Kiu de supre venas, tiu estas super ĉiuj; kiu estas el la tero, tiu
 
@@ -10428,27 +10052,25 @@ super ĉiuj. 32 Kion li vidis kaj aŭdis, tion li atestas; kaj neniu akceptas li
 
 laŭmezure Li donas la Spiriton. 35 La Patro amas la Filon, kaj donis
 
-ĉion en lian manon. 36 Kiu fidas al la Filo, tiu havas eternan vivon; 
+ĉion en lian manon. 36 Kiu fidas al la Filo, tiu havas eternan vivon;
 
 sed kiu ne obeas al la Filo, tiu ne vidos vivon, sed la kolero de Dio
 
-sur li restas. 
+sur li restas.
 
-176
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 4
 
 1 Kiam do la Sinjoro sciis, ke la Fariseoj aŭdis, ke Jesuo faras kaj
 
-baptas pli multe da disĉiploj, ol Johano 2 \(kvankam baptadis ne Je-
+baptas pli multe da disĉiploj, ol Johano 2 (kvankam baptadis ne Je-
 
-suo mem, sed liaj disĉiploj\), 3 li foriris el Judujo kaj reiris al Galileo. 
+suo mem, sed liaj disĉiploj), 3 li foriris el Judujo kaj reiris al Galileo.
 
-4 Kaj li devis trairi tra Samario. 5 Li alvenis do al unu urbo Samaria, 
+4 Kaj li devis trairi tra Samario. 5 Li alvenis do al unu urbo Samaria,
 
 nomata Siąr, apud la terpeco, kiun Jakob donis al sia filo Jozef; 6
 
@@ -10460,11 +10082,11 @@ no Samaria, por ĉerpi akvon; Jesuo diris al ŝi: Donu al mi trinki. 8
 
 ĉar liaj disĉiploj jam foriris en la urbon, por aĉeti nutraĵojn. 9 La
 
-Samarianino do diris al li: Kiel vi, estante Judo, petas trinki de mi, 
+Samarianino do diris al li: Kiel vi, estante Judo, petas trinki de mi,
 
-kiu estas Samarianino? \(ĉar la Judoj ne interrilatas kun la Samari-
+kiu estas Samarianino? (ĉar la Judoj ne interrilatas kun la Samari-
 
-anoj.\) 10 Jesuo respondis kaj diris al ŝi: Se vi scius la donacon de Dio, 
+anoj.) 10 Jesuo respondis kaj diris al ŝi: Se vi scius la donacon de Dio,
 
 kaj kiu estas tiu, kiu diras al vi: Donu al mi trinki, vi petus lin, kaj
 
@@ -10476,9 +10098,9 @@ vivan akvon? 12 ĉu vi estas pli granda ol nia patro Jakob, kiu donis
 
 al ni la puton, kaj trinkis mem el ĝi, kiel ankaŭ liaj filoj kaj liaj bru-
 
-toj? 13 Jesuo respondis kaj diris al ŝi: ĉiu, kiu trinkas el ĉi tiu akvo, 
+toj? 13 Jesuo respondis kaj diris al ŝi: ĉiu, kiu trinkas el ĉi tiu akvo,
 
-denove soifos; 14 sed kiu trinkos el la akvo, kiun mi donos al li, tiu
+denove soifos; 14 sed kiu trs el la akvo, kiun mi donos al li, tiu
 
 neniam soifos; sed la akvo, kiun mi donos al li, fariĝos en li fonto
 
@@ -10496,13 +10118,11 @@ havas edzon. Jesuo diris al ŝi: Vi prave diris: Mi ne havas edzon; 18
 
 zo; ĉi tion vi diris vere. 19 La virino diris al li: Sinjoro, mi ekvidas, ke vi estas profeto. 20 Niaj patroj adoradis sur ĉi tiu monto; kaj vi diras, ke en Jerusalem estas la loko, kie oni devas adori. 21 Jesuo diris
 
-177
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-al ŝi: Kredu al mi, virino; venas la horo, kiam nek sur ĉi tiu monto, 
+al ŝi: Kredu al mi, virino; venas la horo, kiam nek sur ĉi tiu monto,
 
 nek en Jerusalem, vi adoros la Patron. 22 Vi adoras tion, kion vi ne
 
@@ -10516,9 +10136,9 @@ rantoj. 24 Dio estas Spirito: kaj Liaj adorantoj devas adori Lin laŭ
 
 spirito kaj vero. 25 La virino diris al li: Mi scias, ke venas la Mesio
 
-\(kiu estas nomata Kristo\); kiam tiu alestos, li anoncos al ni ĉion. 26
+(kiu estas nomata Kristo); kiam tiu alestos, li anoncos al ni ĉion. 26
 
-Jesuo diris al ŝi: Tiu estas mi, kiu parolas kun vi. 
+Jesuo diris al ŝi: Tiu estas mi, kiu parolas kun vi.
 
 27 Kaj ĉe tio venis liaj disĉiploj, kaj ili miris, ke li parolas kun vi-
 
@@ -10548,7 +10168,7 @@ ke ĝoju kune la semanto kaj la rikoltanto. 37 ĉar en ĉi tio estas vera
 
 la proverbo: Unu semas, alia rikoltas. 38 Mi vin sendis, por rikolti
 
-tion, kion vi ne prilaboris; aliaj laboris, kaj vi eniris en ilian laboron. 
+tion, kion vi ne prilaboris; aliaj laboris, kaj vi eniris en ilian laboron.
 
 39 Kaj el tiu urbo multaj el la Samarianoj kredis al li pro la diro
 
@@ -10556,15 +10176,13 @@ de la virino, kiu atestis: Li rakontis al mi ĉion, kion mi faris. 40 Kiam
 
 do la Samarianoj venis al li, ili petis, ke li restu ĉe ili; kaj li restis tie du tagojn. 41 Kaj multe pli multaj kredis pro lia vorto, 42 kaj diris al
 
-178
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la virino: Jam ne pro via diro ni kredas, ĉar ni mem aŭdis lin; kaj ni
 
-scias, ke ĉi tiu estas vere la Savanto de la mondo. 
+scias, ke ĉi tiu estas vere la Savanto de la mondo.
 
 43 Kaj post la du tagoj li foriris de tie en Galileon. 44 ĉar Jesuo
 
@@ -10574,7 +10192,7 @@ Kiam do li venis en Galileon, la Galileanoj akceptis lin, ĉar ili jam
 
 vidis ĉion, kion li faris en Jerusalem dum la festo; ĉar ili ankaŭ iris
 
-al la festo. 
+al la festo.
 
 46 Li revenis en Kanan Galilean, kie li faris la akvon vino. Kaj es-
 
@@ -10582,7 +10200,7 @@ tis unu kortegano, kies filo estis malsana en Kapernaum. 47 Kiam li
 
 aŭdis, ke Jesuo alvenis el Judujo en Galileon, li iris al li, kaj petis lin malsupreniri kaj resanigi lian filon; ĉar li preskaŭ mortis. 48 Jesuo do
 
-diris al li: Se vi ne vidas signojn kaj mirindaĵojn, vi tute ne kredos. 
+diris al li: Se vi ne vidas signojn kaj mirindaĵojn, vi tute ne kredos.
 
 49 La kortegano diris al li: Sinjoro, malsupreniru, antaŭ ol mia file-
 
@@ -10600,11 +10218,11 @@ estis en tiu sama horo, en kiu Jesuo diris al li: Via filo vivas; kaj kre-
 
 dis li mem kaj lia tuta domo. 54 ĉi tiun jam la duan signon faris Je-
 
-suo, veninte el Judujo en Galileon. 
+suo, veninte el Judujo en Galileon.
 
 ĉapitro 5
 
-1 Post tio estis festo de la Judoj, kaj Jesuo supreniris al Jerusalem. 
+1 Post tio estis festo de la Judoj, kaj Jesuo supreniris al Jerusalem.
 
 2 En Jerusalem apud la Pordego de ŝafoj estas lageto, nomata en
 
@@ -10616,11 +10234,9 @@ ekmovon de la akvo; 4 ĉar anĝelo de la Eternulo malsupreniris iafoje
 
 en la lageton kaj movis la akvon; kiu ajn do unua post la movado
 
-179
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 de la akvo enpaŝis, tiu resaniĝis, tute egale, de kia malsano li sufe-
 
@@ -10636,15 +10252,15 @@ akvo moviĝis; sed dum mi venas, alia paŝas malsupren antaŭ mi. 8
 
 Jesuo diris al li: Leviĝu, prenu vian liton, kaj iru. 9 Kaj la viro tuj
 
-fariĝis sana, kaj prenis sian liton, kaj iris. 
+fariĝis sana, kaj prenis sian liton, kaj iris.
 
 Kaj estis la sabato en tiu tago. 10 La Judoj do diris al la resanigi-
 
 to: Estas la sabato, kaj al vi ne konvenas porti vian liton. 11 Li re-
 
-spondis: Tiu, kiu min sanigis, diris al mi: Prenu vian liton, kaj iru. 
+spondis: Tiu, kiu min sanigis, diris al mi: Prenu vian liton, kaj iru.
 
-12 Ili demandis lin: Kiu estas tiu homo, kiu diris al vi: Prenu kaj iru? 
+12 Ili demandis lin: Kiu estas tiu homo, kiu diris al vi: Prenu kaj iru?
 
 13 Sed la resanigito ne sciis, kiu tiu estas; ĉar Jesuo jam formoviĝis
 
@@ -10652,17 +10268,17 @@ pro la tiea homamaso. 14 Poste Jesuo trovis lin en la templo, kaj di-
 
 ris al li: Jen vi fariĝis sana; ne plu peku, por ke io pli malbona ne
 
-okazu al vi. 15 La viro foriris, kaj diris al la Judoj, ke Jesuo estas tiu, kiu lin sanigis. 16 Kaj la Judoj persekutis Jesuon pro tio, ke li tion faris en sabato. 17 Sed Jesuo respondis al ili: Mia Patro ĝis nun laboras, 
+okazu al vi. 15 La viro foriris, kaj diris al la Judoj, ke Jesuo estas tiu, kiu lin sanigis. 16 Kaj la Judoj persekutis Jesuon pro tio, ke li tion faris en sabato. 17 Sed Jesuo respondis al ili: Mia Patro ĝis nun laboras,
 
-kaj mi laboras. 18 Pro tio do la Judoj des pli celis mortigi lin, pro tio, 
+kaj mi laboras. 18 Pro tio do la Judoj des pli celis mortigi lin, pro tio,
 
 ke li ne nur malobservis la sabaton, sed ankaŭ diris, ke Dio estas lia
 
-propra Patro, kaj pretendis esti egala al Dio. 
+propra Patro, kaj pretendis esti egala al Dio.
 
 19 Jesuo do respondis kaj diris al ili:
 
-Vere, vere, mi diras al vi: La Filo ne povas per si mem fari ion, 
+Vere, vere, mi diras al vi: La Filo ne povas per si mem fari ion,
 
 krom tio, kion li vidas la Patron faranta; ĉar kion ajn Li faras, tion
 
@@ -10678,11 +10294,9 @@ la Patro juĝas neniun, sed Li donis ĉian juĝon al la Filo, 23 por ke ĉiuj
 
 honoru la Filon tiel same, kiel ili honoras la Patron. Kiu ne honoras
 
-180
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la Filon, tiu ne honoras la Patron, kiu lin sendis. 24 Vere, vere, mi di-
 
@@ -10698,15 +10312,15 @@ intoj vivos. 26 ĉar kiel la Patro havas en Si mem vivon, tiel Li donis
 
 al la Filo ankaŭ, ke ĉi tiu havu en si mem vivon; 27 kaj Li donis al li
 
-la rajton fari juĝon, ĉar li estas la Filo de homo. 28 Ne miru pro tio; 
+la rajton fari juĝon, ĉar li estas la Filo de homo. 28 Ne miru pro tio;
 
 ĉar venas horo, en kiu ĉiuj, kiuj estas en la tomboj, aŭdos lian vo-
 
 ĉon, 29 kaj eliros; la farintoj de bono, al releviĝo por vivo; sed la fa-
 
-rintoj de malbono, al releviĝo por juĝo. 
+rintoj de malbono, al releviĝo por juĝo.
 
-30 Mi ne povas per mi mem fari ion; kiel mi aŭdas, tiel mi juĝas; 
+30 Mi ne povas per mi mem fari ion; kiel mi aŭdas, tiel mi juĝas;
 
 kaj mia juĝo estas justa, ĉar mi celas ne mian propran volon, sed la
 
@@ -10714,7 +10328,7 @@ volon de Tiu, kiu min sendis. 31 Se mi atestus pri mi mem, mia ate-
 
 sto ne estus vera. 32 Estas alia, kiu atestas pri mi; kaj mi scias, ke vera estas la atesto, kiun li atestas pri mi. 33 Vi sendis al Johano, kaj li
 
-atestis pri la vero. 34 Sed la atesto, kiun mi ricevas, ne estas el homo, 
+atestis pri la vero. 34 Sed la atesto, kiun mi ricevas, ne estas el homo,
 
 tamen mi tion diras, por ke vi estu savitaj. 35 Li estis la lampo, kiu
 
@@ -10724,7 +10338,7 @@ la atesto, kiun mi havas, estas pli granda ol la atesto de Johano; ĉar
 
 la laboroj, kiujn la Patro donis al mi por fini, tiuj samaj laboroj, ki-
 
-ujn mi faras, atestas pri mi, ke la Patro min sendis. 37 Kaj la Patro, 
+ujn mi faras, atestas pri mi, ke la Patro min sendis. 37 Kaj la Patro,
 
 kiu min sendis, atestis pri mi. Vi nek aŭdis iam Lian voĉon, nek vi-
 
@@ -10738,15 +10352,13 @@ pri mi; 40 kaj vi ne volas veni al mi, por havi vivon. 41 De homoj mi
 
 ne prenas gloron. 42 Sed mi vin scias, ke vi ne havas en vi la amon
 
-al Dio. 43 Mi venis en la nomo de mia Patro, kaj vi min ne akceptas; 
+al Dio. 43 Mi venis en la nomo de mia Patro, kaj vi min ne akceptas;
 
 se alia venos en sia propra nomo, vi lin akceptos. 44 Kiel povas kredi
 
-181
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vi, kiuj prenas gloron unu de alia, kaj la gloron, kiu venas de la sola
 
@@ -10756,7 +10368,7 @@ zistas unu, kiu akuzas vin, Moseo, al kiu vi esperas. 46 ĉar se vi kre-
 
 dus al Moseo, vi ankaŭ kredus al mi, ĉar li skribis pri mi. 47 Sed se
 
-vi ne kredas liajn skribojn, kiel vi kredos miajn vortojn? 
+vi ne kredas liajn skribojn, kiel vi kredos miajn vortojn?
 
 ĉapitro 6
 
@@ -10794,17 +10406,15 @@ la fragmentoj de la kvin hordeaj panoj, kiuj postrestis al la manĝ-
 
 intoj. 14 Kiam do la homoj vidis la signon, kiun Jesuo faris, ili diris:
 
-ĉi tiu estas vere la profeto, kiu devis veni en la mondon. 
+ĉi tiu estas vere la profeto, kiu devis veni en la mondon.
 
 15 Tial Jesuo, eksciante, ke oni celas veni kaj kapti lin, por fari lin
 
-reĝo, denove fortiris sin sola al la monto. 
+reĝo, denove fortiris sin sola al la monto.
 
-182
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 16 Kaj kiam vesperiĝis, liaj disĉiploj malsupreniris al la maro; 17
 
@@ -10816,19 +10426,19 @@ sereniĝis de forta vento, kiu blovis. 19 Kiam do ili remis proksimu-
 
 me dudek kvin ĝis tridek stadiojn, ili ekvidis Jesuon iranta sur la
 
-akvo, kaj proksimiĝanta al la ŝipo; kaj ili timis. 20 Sed li diris al ili: ¯i estas mi; ne timu. 21 Tiam ili volonte ricevis lin en la ŝipon, kaj tuj
+akvo, kaj proksimiĝanta al la ŝipo; kaj ili timis. 20 Sed li diris al ili: i estas mi; ne timu. 21 Tiam ili volonte ricevis lin en la ŝipon, kaj tuj
 
-la ŝipo albordiĝis tien, kien ili veturis. 
+la ŝipo albordiĝis tien, kien ili veturis.
 
 22 La sekvantan tagon, kiam la homamaso, kiu restis trans la ma-
 
 ro, vidis, ke nenia ŝipeto estas tie krom unu, kaj ke Jesuo ne eniris
 
-kun la disĉiploj en la ŝipon, sed la disĉiploj solaj veturis 23 \(venis
+kun la disĉiploj en la ŝipon, sed la disĉiploj solaj veturis 23 (venis
 
 tamen ŝipetoj el Tiberias proksime al la loko, kie oni manĝis la pa-
 
-non, post kiam la Sinjoro donis dankon\)— 24 kiam do la homama-
+non, post kiam la Sinjoro donis dankon)— 24 kiam do la homama-
 
 so vidis, ke Jesuo ne estas tie, nek liaj disĉiploj, ili ankaŭ eniris la
 
@@ -10838,7 +10448,7 @@ lin trans la maro, ili diris al li: Rabeno, kiam vi venis ĉi tien? 26 Je-
 
 suo respondis al ili kaj diris: Vere, vere, mi diras al vi: Vi min ser-
 
-ĉas, ne ĉar vi vidis signojn, sed ĉar vi manĝis el la panoj kaj satiĝis. 
+ĉas, ne ĉar vi vidis signojn, sed ĉar vi manĝis el la panoj kaj satiĝis.
 
 27 Laboru ne por la pereema nutraĵo, sed por la nutraĵo, kiu restas
 
@@ -10858,13 +10468,11 @@ lan panon. 33 ĉar la pano de Dio estas tiu, kiu malsupreniras de la
 
 ĉielo kaj donas vivon al la mondo. 34 Ili do diris al li: Sinjoro, ĉiam
 
-donu al ni tiun panon. 35 Jesuo diris al ili: Mi estas la pano de vivo; 
+donu al ni tiun panon. 35 Jesuo diris al ili: Mi estas la pano de vivo;
 
-183
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiu venas al mi, tiu neniam malsatos, kaj kiu kredas al mi, tiu ne-
 
@@ -10876,13 +10484,13 @@ venas al mi, mi ja ne elĵetos. 38 ĉar mi malsupreniris de la ĉielo, por
 
 plenumi ne mian volon, sed la volon de Tiu, kiu min sendis. 39 Kaj
 
-estas la volo de Tiu, kiu min sendis, ke el ĉio, kion Li donis al mi, 
+estas la volo de Tiu, kiu min sendis, ke el ĉio, kion Li donis al mi,
 
 mi ne perdu ion, sed relevu ĝin en la lasta tago. 40 ĉar estas la volo
 
 de mia Patro, ke ĉiu, kiu vidas la Filon kaj kredas al li, havu eternan
 
-vivon; kaj mi levos tiun en la lasta tago. 
+vivon; kaj mi levos tiun en la lasta tago.
 
 41 La Judoj do murmuris pri li, ĉar li diris: Mi estas la pano, kiu
 
@@ -10906,9 +10514,9 @@ reniris de la ĉielo, por ke oni manĝu el ĝi kaj ne mortu. 51 Mi estas
 
 la viva pano, kiu malsupreniris de la ĉielo; se iu manĝos el ĉi tiu
 
-pano, tiu vivos eterne; kaj la pano, kiun mi donos, estas mia karno, 
+pano, tiu vivos eterne; kaj la pano, kiun mi donos, estas mia karno,
 
-por la vivo de la mondo. 
+por la vivo de la mondo.
 
 52 La Judoj do disputis inter si, dirante: Kiel ĉi tiu povas doni al
 
@@ -10922,11 +10530,9 @@ kaj trinkas mian sangon, tiu havas eternan vivon; kaj mi levos tiun
 
 en la lasta tago. 55 ĉar mia karno estas vera manĝaĵo, kaj mia sango
 
-184
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estas vera trinkaĵo. 56 Kiu manĝas mian karnon kaj trinkas mian
 
@@ -10938,7 +10544,7 @@ mi. 58 Jen la pano, kiu malsupreniris de la ĉielo; ne kiel la patroj
 
 manĝis, kaj mortis; kiu manĝas ĉi tiun panon, tiu vivos eterne. 59
 
-Tion li diris en la sinagogo, instruante en Kapernaum. 
+Tion li diris en la sinagogo, instruante en Kapernaum.
 
 60 Multaj do el liaj disĉiploj, aŭdinte tion, diris: Malfacila estas tiu
 
@@ -10952,7 +10558,7 @@ diris al vi, estas spirito kaj estas vivo. 64 Sed estas iuj el vi, kiuj ne
 
 kredas. ĉar Jesuo sciis de la komenco, kiuj estas la nekredantoj, kaj
 
-kiu lin perfidos. 65 Kaj li diris: Tial mi diris al vi, ke neniu povas veni al mi, se tio ne estas donita al li de mia Patro. 
+kiu lin perfidos. 65 Kaj li diris: Tial mi diris al vi, ke neniu povas veni al mi, se tio ne estas donita al li de mia Patro.
 
 66 ĉe tio multaj el liaj disĉiploj iris returne kaj lin ne plu akom-
 
@@ -10966,25 +10572,23 @@ Dio. 70 Respondis al ili Jesuo: ĉu mi ne elektis vin la dek du, kaj unu
 
 el vi estas diablo? 71 Li parolis pri Judas Iskariota, filo de Simon; ĉar
 
-tiu, unu el la dek du, estis perfidonta lin. 
+tiu, unu el la dek du, estis perfidonta lin.
 
 ĉapitro 7
 
-1 Kaj post tio Jesuo iradis en Galileo; ĉar li ne volis iradi en Judujo, 
+1 Kaj post tio Jesuo iradis en Galileo; ĉar li ne volis iradi en Judujo,
 
 ĉar la Judoj celis mortigi lin. 2 La festo de la Judoj, nomata la festo
 
-de laŭboj, proksimiĝis. 3 Liaj fratoj do diris al li: Transiru de ĉi tie, 
+de laŭboj, proksimiĝis. 3 Liaj fratoj do diris al li: Transiru de ĉi tie,
 
 kaj iru en Judujon, por ke viaj disĉiploj ankaŭ vidu viajn farojn, ki-
 
 ujn vi faras. 4 ĉar neniu faras ion sekrete, kaj celas mem esti publi-
 
-185
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ke konata. Se vi faras tiajn farojn, montru vin al la mondo. 5 ĉar liaj
 
@@ -10998,7 +10602,7 @@ tas malbonaj. 8 Supreniru vi al la festo: mi ankoraŭ ne supreniras al
 
 la festo, ĉar mia tempo ankoraŭ ne maturiĝis. 9 Dirinte tion al ili, li
 
-restis ankoraŭ en Galileo. 
+restis ankoraŭ en Galileo.
 
 10 Sed kiam liaj fratoj supreniris al la festo, tiam li ankaŭ supren-
 
@@ -11006,15 +10610,15 @@ iris, ne malkaŝe, sed kvazaŭ sekrete. 11 La Judoj do serĉis lin ĉe la
 
 festo, kaj diris: Kie li estas? 12 Kaj fariĝis multe da murmurado in-
 
-ter la homamasoj pri li. Unuj diris: Li estas bonulo; aliaj diris: Ne, 
+ter la homamasoj pri li. Unuj diris: Li estas bonulo; aliaj diris: Ne,
 
 sed li erarigas la amason. 13 Tamen neniu parolis malkaŝe pri li, pro
 
-timo antaŭ la Judoj. 
+timo antaŭ la Judoj.
 
 14 Sed ĉirkaŭ la mezo de la festo, Jesuo supreniris en la templon
 
-kaj instruis. 15 Kaj la Judoj miris, dirante: Kiel ĉi tiu scias skribojn, 
+kaj instruis. 15 Kaj la Judoj miris, dirante: Kiel ĉi tiu scias skribojn,
 
 neniam lerninte? 16 Jesuo respondis al ili kaj diris: Mia instruado
 
@@ -11030,29 +10634,27 @@ ma, kaj maljusteco ne estas en li. 19 ĉu Moseo ne donis al vi la le-
 
 ĝon? kaj neniu el vi observas la leĝon. Kial vi celas mortigi min? 20
 
-La homamaso respondis: Vi havas demonon; kiu celas mortigi vin? 
+La homamaso respondis: Vi havas demonon; kiu celas mortigi vin?
 
 21 Jesuo respondis kaj diris al ili: Mi faris unu faron, kaj vi ĉiuj mi-
 
-ras pro tio. 22 Moseo donis al vi cirkumcidon \(tamen ĝi estas ne de
+ras pro tio. 22 Moseo donis al vi cirkumcidon (tamen ĝi estas ne de
 
-Moseo, sed de la patroj\); kaj vi en la sabato cirkumcidas viron. 23 Se
+Moseo, sed de la patroj); kaj vi en la sabato cirkumcidas viron. 23 Se
 
 viro estas cirkumcidata en la sabato, por ke oni ne malobeu al la
 
 Mosea leĝo, ĉu vi koleras kontraŭ mi pro tio, ke mi tute sanigis vi-
 
-ron en sabato? 24 Ne juĝu laŭ ŝajno, sed juĝu justan juĝon. 
+ron en sabato? 24 Ne juĝu laŭ ŝajno, sed juĝu justan juĝon.
 
 25 Tiam kelkaj el la Jerusalemanoj diris: ĉu li ne estas tiu, kiun oni
 
-186
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-celas mortigi? 26 Kaj jen li parolas maltime, kaj ili diris al li nenion. 
+celas mortigi? 26 Kaj jen li parolas maltime, kaj ili diris al li nenion.
 
 ĉu eble la estraro certe scias, ke ĉi tiu estas la Kristo? 27 Tamen ni
 
@@ -11060,13 +10662,12 @@ scias, de kie ĉi tiu estas; sed kiam la Kristo venos, neniu scios, de kie
 
 li estas. 28 Jesuo do, instruante en la templo, ekkriis kaj diris: Vi jam
 
-min konas, kaj vi ankaŭ scias, de kie mi estas; kaj mi ne venis de mi
-
+mnas, kaj vi ankaŭ scias, de kie mi estas; kaj mi ne venis de mi
 
 
 mem; sed Tiu, kiu min sendis, estas vera, sed Lin vi ne konas. 29 Mi
 
-Lin konas, ĉar mi estas de Li; kaj Li min sendis. 30 Oni do celis kapti
+Lnas, ĉar mi estas de Li; kaj Li min sendis. 30 Oni do celis kapti
 
 lin; sed neniu metis sur lin sian manon, ĉar lia horo ankoraŭ ne
 
@@ -11086,13 +10687,13 @@ tien veni. 35 Tial la Judoj inter si diris: Kien ĉi tiu iros, ke ni lin ne
 
 trovos? ĉu li iros al la disĵetitoj inter la Grekoj kaj instruos la Gre-
 
-kojn? 36 Kia diro estas tio, kion li diris: Vi min serĉos kaj ne trovos, 
+kojn? 36 Kia diro estas tio, kion li diris: Vi min serĉos kaj ne trovos,
 
-kaj: Kie mi estas, vi ne povas tien veni? 
+kaj: Kie mi estas, vi ne povas tien veni?
 
-37 En la lasta tago, la granda tago de la festo, Jesuo staris kaj kriis, 
+37 En la lasta tago, la granda tago de la festo, Jesuo staris kaj kriis,
 
-dirante: Se iu soifas, tiu venu al mi kaj trinku. 38 Kiu kredas al mi, 
+dirante: Se iu soifas, tiu venu al mi kaj trinku. 38 Kiu kredas al mi,
 
 kiel la Skribo diris, el ties ventro fluos riveroj da viva akvo. 39 Sed
 
@@ -11100,21 +10701,19 @@ tion li diris pri la Spirito, kiun estis ricevontaj tiuj, kiuj kredis al li; ĉa
 
 glorita. 40 Iuj do el la homamaso, aŭdinte tiujn vortojn, diris: Vere
 
-ĉi tiu estas la Profeto. 41 Aliaj diris: ĉi tiu estas la Kristo. Sed kelkaj diris: Tamen ĉu el Galileo la Kristo venas? 42 ĉu la Skribo ne diris, 
+ĉi tiu estas la Profeto. 41 Aliaj diris: ĉi tiu estas la Kristo. Sed kelkaj diris: Tamen ĉu el Galileo la Kristo venas? 42 ĉu la Skribo ne diris,
 
 ke la Kristo venas el la idaro de David kaj el la vilaĝo Bet-Leęm, kie
 
 David estis? 43 Tiel fariĝis pro li malkonsento inter la homamaso. 44
 
-Kaj iuj el ili volis kapti lin, sed neniu metis sur lin la manojn. 
+Kaj iuj el ili volis kapti lin, sed neniu metis sur lin la manojn.
 
 45 Tiam la oficistoj revenis al la ĉefpastroj kaj Fariseoj, kaj ĉi tiuj
 
-187
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 diris al ili: Kial vi lin ne alkondukis? 46 Respondis la oficistoj: Anko-
 
@@ -11124,11 +10723,11 @@ vi ankaŭ estas erarigitaj? 48 ĉu kredis al li iu el la regantoj, aŭ el la
 
 Fariseoj? 49 Sed tiu homamaso, kiu ne scias la leĝon, estas malbeni-
 
-ta. 50 Tiam Nikodemo \(tiu, kiu venis nokte al Jesuo, estante unu el
+ta. 50 Tiam Nikodemo (tiu, kiu venis nokte al Jesuo, estante unu el
 
-ili\) diris al ili: 51 ĉu nia leĝo juĝas iun, se antaŭe oni ne aŭskultis lin, kaj ne sciiĝis, kion li faras? 52 Ili respondis kaj diris al li: ĉu vi ankaŭ estas el Galileo? Esploru, kaj vidu, ke neniam el Galileo venas profeto. 
+ili) diris al ili: 51 ĉu nia leĝo juĝas iun, se antaŭe oni ne aŭskultis lin, kaj ne sciiĝis, kion li faras? 52 Ili respondis kaj diris al li: ĉu vi ankaŭ estas el Galileo? Esploru, kaj vidu, ke neniam el Galileo venas profeto.
 
-53 \[Kaj ĉiu iris al sia domo; 
+53 [Kaj ĉiu iris al sia domo;
 
 ĉapitro 8
 
@@ -11140,33 +10739,31 @@ dis ilin. 3 Kaj la skribistoj kaj Fariseoj alkondukis virinon, kaptitan
 
 en adulto; kaj stariginte ŝin en la mezo, 4 ili diris al li: Majstro, ĉi tiu virino estas kaptita adultante, en la faro mem. 5 En la leĝo Moseo
 
-ordonis al ni tiajn ŝtonmortigi; sed kion vi diras? 6 Kaj tion ili diris, 
+ordonis al ni tiajn ŝtonmortigi; sed kion vi diras? 6 Kaj tion ili diris,
 
 provante lin, por povi lin akuzi pri io. Sed Jesuo sin klinis, kaj per
 
-fingro skribis sur la tero. 7 Kiam ili ankoraŭ demandis lin, li leviĝis, 
+fingro skribis sur la tero. 7 Kiam ili ankoraŭ demandis lin, li leviĝis,
 
-kaj diris al ili: Kiu el vi estas senpeka, tiu unua ĵetu sur ŝin ŝtonon. 
+kaj diris al ili: Kiu el vi estas senpeka, tiu unua ĵetu sur ŝin ŝtonon.
 
-8 Kaj denove li sin klinis kaj skribis sur la tero. 9 Sed aŭdinte tion, ili eliris unu post alia, komencante de la plej maljunaj kaj ĝis la lastaj; 
+8 Kaj denove li sin klinis kaj skribis sur la tero. 9 Sed aŭdinte tion, ili eliris unu post alia, komencante de la plej maljunaj kaj ĝis la lastaj;
 
 kaj restis Jesuo sola, kaj la virino staranta en la mezo. 10 Kaj Jesuo
 
-leviĝis, kaj diris al ŝi: Virino, kie ili estas? ĉu neniu vin kondamnis? 
+leviĝis, kaj diris al ŝi: Virino, kie ili estas? ĉu neniu vndamnis?
 
 11 Kaj ŝi diris: Neniu, Sinjoro. Jesuo diris al ŝi: Ankaŭ mi vin ne kon-
 
-damnas; iru, kaj de nun ne plu peku.\]
+damnas; iru, kaj de nun ne plu peku.]
 
 12 Jesuo denove parolis al ili, dirante: Mi estas la lumo de la mon-
 
 do; kiu min sekvas, tiu ne iros en mallumo, sed havos la lumon de
 
-188
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la vivo. 13 La Fariseoj do diris al li: Vi atestas pri vi mem; via atesto
 
@@ -11178,13 +10775,13 @@ venis, kaj kien mi iras; sed vi ne scias, de kie mi venis, nek kien mi
 
 iras. 15 Vi juĝas laŭ la karno; mi juĝas neniun. 16 Tamen, eĉ se mi
 
-juĝas, mia juĝo estas vera; ĉar mi ne estas sola, sed mi kaj la Patro, 
+juĝas, mia juĝo estas vera; ĉar mi ne estas sola, sed mi kaj la Patro,
 
 kiu min sendis. 17 Estas ja skribite en via leĝo, ke la atesto de du
 
 homoj estas vera. 18 Mi estas atestanto pri mi mem, kaj la Patro, kiu
 
-min sendis, atestas pri mi. 19 Ili do diris al li: Kie estas via Patro? 
+min sendis, atestas pri mi. 19 Ili do diris al li: Kie estas via Patro?
 
 Respondis Jesuo: Vi konas nek min, nek mian Patron; se vi konus
 
@@ -11192,7 +10789,7 @@ min, vi konus ankaŭ mian Patron. 20 Tiujn vortojn Jesuo parolis en
 
 la trezorejo, dum li instruis en la templo; kaj neniu arestis lin, ĉar
 
-lia horo ankoraŭ ne venis. 
+lia horo ankoraŭ ne venis.
 
 21 Jesuo do denove diris al ili: Mi foriras, kaj vi serĉos min, kaj vi
 
@@ -11200,15 +10797,15 @@ mortos en via peko; kien mi iras, tien vi ne povas veni. 22 La Judoj
 
 do diris: ĉu li sin mortigos? ĉar li diras: Kien mi iras, tien vi ne po-
 
-vas veni. 23 Kaj li diris al ili: Vi estas de malsupre, mi estas de supre; 
+vas veni. 23 Kaj li diris al ili: Vi estas de malsupre, mi estas de supre;
 
 vi estas de ĉi tiu mondo, mi ne estas de ĉi tiu mondo. 24 Mi tial di-
 
-ris al vi, ke vi mortos en viaj pekoj; ĉar se vi ne kredos, ke mi estas, 
+ris al vi, ke vi mortos en viaj pekoj; ĉar se vi ne kredos, ke mi estas,
 
 vi mortos en viaj pekoj. 25 Ili do diris al li: Kiu vi estas? Jesuo diris al ili: Laŭ tio, kion mi diradis al vi de la komenco. 26 Mi havas multon
 
-por diri kaj juĝi pri vi; sed Tiu, kiu min sendis, estas vera; kaj tion, 
+por diri kaj juĝi pri vi; sed Tiu, kiu min sendis, estas vera; kaj tion,
 
 kion mi aŭdis de Li, mi parolas al la mondo. 27 Ili ne komprenis, ke
 
@@ -11218,25 +10815,23 @@ de homo, tiam vi scios, ke mi estas, kaj ke mi ne faras ion per mi
 
 mem; sed kiel la Patro instruis min, tion mi parolas. 29 Kaj Tiu, kiu
 
-min sendis, estas kun mi; Li ne lasis min sola; ĉar mi ĉiam faras tion, 
+min sendis, estas kun mi; Li ne lasis min sola; ĉar mi ĉiam faras tion,
 
-kio plaĉas al Li. 30 Dum li parolis tion, multaj kredis al li. 
+kio plaĉas al Li. 30 Dum li parolis tion, multaj kredis al li.
 
 31 Jesuo do diris al la Judoj, kiuj kredis al li: Se vi restos en mia
 
 vorto, vi estas vere miaj disĉiploj; 32 kaj vi scios la veron, kaj la vero
 
-189
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vin liberigos. 33 Ili respondis al li: Ni estas idaro de Abraham, kaj
 
 ankoraŭ al neniu ni estis sklavoj; kial vi diras: Vi estos liberigitaj? 34
 
-Jesuo respondis al ili: Vere, vere, mi diras al vi: ĉiu, kiu faras pekon, 
+Jesuo respondis al ili: Vere, vere, mi diras al vi: ĉiu, kiu faras pekon,
 
 estas sklavo de peko. 35 Kaj la sklavo ne ĉiam restas en la domo, sed
 
@@ -11246,7 +10841,7 @@ beraj. 37 Mi scias, ke vi estas idaro de Abraham; sed vi celas morti-
 
 gi min, ĉar mia vorto ne progresas en vi. 38 Mi parolas tion, kion mi
 
-vidis ĉe mia Patro; kaj vi ankaŭ faras tion, kion vi vidis ĉe via patro. 
+vidis ĉe mia Patro; kaj vi ankaŭ faras tion, kion vi vidis ĉe via patro.
 
 39 Ili respondis kaj diris al li: Nia patro estas Abraham. Jesuo diris
 
@@ -11258,9 +10853,9 @@ aŭdis de Dio; tion Abraham ne faris. 41 Vi faras la farojn de via pa-
 
 tro. Tiam ili diris al li: Ni ne naskiĝis per malĉasteco; unu Patron ni
 
-havas, Dion. 42 Jesuo diris al ili: Se Dio estus via Patro, vi min amus; 
+havas, Dion. 42 Jesuo diris al ili: Se Dio estus via Patro, vi min amus;
 
-ĉar de Dio mi elvenis, kaj estas veninta; ĉar mi ne venis de mi mem, 
+ĉar de Dio mi elvenis, kaj estas veninta; ĉar mi ne venis de mi mem,
 
 sed Li min sendis. 43 Kial vi ne komprenas mian parolon? Tial, ke vi
 
@@ -11272,7 +10867,7 @@ enco, kaj ne staras en la vero, ĉar vero ne estas en li. Kiam li paro-
 
 las mensogon, li parolas sian propraĵon, ĉar li estas mensoganto, kaj
 
-la patro de ĝi. 45 Sed tial, ke mi parolas la veron, vi ne kredas al mi. 
+la patro de ĝi. 45 Sed tial, ke mi parolas la veron, vi ne kredas al mi.
 
 46 Kiu el vi pruvas kontraŭ mi pekon? Se mi diras la veron, kial vi ne
 
@@ -11280,7 +10875,7 @@ kredas al mi? 47 Kiu estas de Dio, tiu aŭskultas la vortojn de Dio; vi
 
 ne aŭskultas, ĉar vi ne estas el Dio. 48 La Judoj respondis kaj diris al
 
-li: ĉu ne prave ni diras, ke vi estas Samariano kaj havas demonon? 
+li: ĉu ne prave ni diras, ke vi estas Samariano kaj havas demonon?
 
 49 Jesuo respondis: Mi ne havas demonon; sed mi honoras mian
 
@@ -11292,11 +10887,9 @@ servos mian vorton, tiu la morton neniam vidos. 52 La Judoj diris al
 
 li: Nun ni scias, ke vi havas demonon. Mortis Abraham, kaj la pro-
 
-190
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 fetoj; kaj vi diras: Se iu observos mian vorton, tiu la morton neni-
 
@@ -11308,9 +10901,9 @@ dis: Se mi gloros min mem, mia gloro estas nenio; Tiu, kiu min glo-
 
 ras, estas mia Patro, pri kiu vi diras, ke Li estas via Dio; 55 kaj vi Lin
 
-ne konis, sed mi Lin konas; kaj se mi diros, ke mi Lin ne konas, mi
+ne konis, sed mi Lnas; kaj se mi diros, ke mi Lin ne konas, mi
 
-estos, kiel vi, mensoganto; sed mi Lin konas, kaj observas Lian vor-
+estos, kiel vi, mensoganto; sed mi Lnas, kaj observas Lian vor-
 
 ton. 56 Via patro Abraham ĝojegis vidi mian tagon, kaj li vidis kaj
 
@@ -11320,7 +10913,7 @@ ra, kaj ĉu vi vidis Abrahamon? 58 Jesuo diris al ili: Vere, vere, mi di-
 
 ras al vi: Antaŭ ol naskiĝis Abraham, mi ekzistas. 59 Tiam ili prenis
 
-ŝtonojn, por ĵeti sur lin; sed Jesuo sin kaŝis, kaj eliris el la templo. 
+ŝtonojn, por ĵeti sur lin; sed Jesuo sin kaŝis, kaj eliris el la templo.
 
 ĉapitro 9
 
@@ -11340,9 +10933,9 @@ do, mi estas la lumo de la mondo. 6 Dirinte tion, li kraĉis sur la te-
 
 ron, kaj faris el la kraĉaĵo koton, kaj ŝmiris per la koto la okulojn de
 
-la blindulo, 7 kaj diris al li: Iru, lavu vin en la lageto de ŝiloa˛ \(tio
+la blindulo, 7 kaj diris al li: Iru, lavu vin en la lageto de ŝiloa˛ (tio
 
-estas, Sendito\). Li do foriris, kaj sin lavis, kaj revenis vidanta. 8 La
+estas, Sendito). Li do foriris, kaj sin lavis, kaj revenis vidanta. 8 La
 
 najbaroj do, kaj tiuj, kiuj antaŭe vidis lin, ke li estas almozulo, di-
 
@@ -11354,13 +10947,11 @@ tas. 10 Ili do diris al li: Kiamaniere viaj okuloj malfermiĝis? 11 Li re-
 
 spondis kaj diris: La homo, nomata Jesuo, faris koton kaj ŝmiris
 
-191
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-miajn okulojn, kaj diris al mi: Iru al ŝiloa˛, kaj vin lavu; kaj mi iris, 
+miajn okulojn, kaj diris al mi: Iru al ŝiloa˛, kaj vin lavu; kaj mi iris,
 
 kaj lavis min, kaj mi ricevis vidpovon. 12 Tiam ili diris al li: Kie li
 
@@ -11404,7 +10995,7 @@ gita el la sinagogo. 23 Tial la gepatroj diris: Li havas plenaĝon, de-
 
 mandu lin. 24 Ili do denove alvokis la viron, kiu estis blinda, kaj di-
 
-ris al li: Donu gloron al Dio; ni certe scias, ke tiu homo estas pekulo. 
+ris al li: Donu gloron al Dio; ni certe scias, ke tiu homo estas pekulo.
 
 25 Li do respondis: ĉu li estas pekulo, mi ne scias; unu aferon mi
 
@@ -11416,15 +11007,13 @@ spondis al ili: Mi ĵus diris al vi, kaj vi ne atentis; kial vi volas deno-
 
 ve ĝin aŭdi? ĉu vi ankaŭ volas fariĝi liaj disĉiploj? 28 Tiam ili insul-
 
-tis lin, kaj diris: Vi estas lia disĉiplo, sed ni estas disĉiploj de Moseo. 
+tis lin, kaj diris: Vi estas lia disĉiplo, sed ni estas disĉiploj de Moseo.
 
 29 Ni scias, ke Dio parolis al Moseo; sed pri ĉi tiu, ni ne scias, de kie
 
-192
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 li estas. 30 La viro respondis kaj diris al ili: Jen la mirindaĵo, ke vi ne scias, de kie li estas, kaj tamen li malfermis miajn okulojn. 31 Ni scias, ke Dio ne atentas pekulojn; sed se iu estas adoranto de Dio kaj
 
@@ -11432,27 +11021,27 @@ plenumas Lian volon, tiun Li atentas. 32 De la komenco de la mon-
 
 do oni neniam aŭdis, ke iu malfermis la okulojn de homo, kiu nask-
 
-iĝis blinda. 33 Se ĉi tiu homo ne estus de Dio, li nenion povus fari. 
+iĝis blinda. 33 Se ĉi tiu homo ne estus de Dio, li nenion povus fari.
 
 34 Ili respondis kaj diris al li: Vi tute naskiĝis en pekoj, kaj ĉu vi nin
 
-instruas? Kaj ili forpelis lin eksteren. 
+instruas? Kaj ili forpelis lin eksteren.
 
 35 Jesuo aŭdis, ke ili forpelis lin; kaj trovinte lin, li diris al li: ĉu
 
 vi kredas al la Filo de Dio? 36 Li respondis kaj diris: Kiu li estas, Sinj-
 
-oro, por ke mi kredu al li? 37 Jesuo diris al li: Vi lin vidis; kaj li estas tiu, kiu parolas kun vi. 38 Kaj li diris: Sinjoro, mi kredas. Kaj li adorkliniĝis al li. 39 Kaj Jesuo diris: Por juĝo mi venis en ĉi tiun mondon, 
+oro, por ke mi kredu al li? 37 Jesuo diris al li: Vi lin vidis; kaj li estas tiu, kiu parolas kun vi. 38 Kaj li diris: Sinjoro, mi kredas. Kaj li adorkliniĝis al li. 39 Kaj Jesuo diris: Por juĝo mi venis en ĉi tiun mondon,
 
 por ke la nevidantoj vidu, kaj ke la vidantoj fariĝu blindaj. 40 Kaj tion
 
 aŭdis tiuj el la Fariseoj, kiuj estis kun li; kaj ili diris al li: ĉu ni an-kaŭ estas blindaj? 41 Jesuo diris al ili: Se vi estus blindaj, vi ne havus
 
-pekon; sed nun vi diras: Ni vidas; via peko do restas. 
+pekon; sed nun vi diras: Ni vidas; via peko do restas.
 
 ĉapitro 10
 
-1 Vere, vere, mi diras al vi: Kiu eniras en la ŝafejon ne tra la pordo, 
+1 Vere, vere, mi diras al vi: Kiu eniras en la ŝafejon ne tra la pordo,
 
 sed aliloke suprengrimpas, tiu estas ŝtelisto kaj rabisto. 2 Sed kiu
 
@@ -11464,21 +11053,19 @@ ili konas lian voĉon. 5 Kaj fremdulon ili ne sekvos, sed forkuros de
 
 li, ĉar ili ne konas la voĉon de la fremduloj. 6 Tiun alegorion Jesuo
 
-diris al ili; sed ili ne komprenis, kiajn aferojn li parolas al ili. 
+diris al ili; sed ili ne komprenis, kiajn aferojn li parolas al ili.
 
 7 Jesuo do diris denove al ili: Vere, vere, mi diras al vi: Mi estas
 
-193
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la pordo de la ŝafoj. 8 ĉiuj, kiuj venis pli frue ol mi, estas ŝtelistoj kaj rabistoj; sed la ŝafoj ne aŭskultis ilin. 9 Mi estas la pordo; se iu tra
 
-mi eniras, tiu estos savita; kaj li eniros kaj eliros, kaj trovos paŝtaĵon. 
+mi eniras, tiu estos savita; kaj li eniros kaj eliros, kaj trovos paŝtaĵon.
 
-10 La ŝtelisto ne venas, krom por ŝteli kaj buĉi kaj pereigi; mi venis, 
+10 La ŝtelisto ne venas, krom por ŝteli kaj buĉi kaj pereigi; mi venis,
 
 por ke ili havu vivon, kaj havu ĝin abunde. 11 Mi estas la bona paŝ-
 
@@ -11490,15 +11077,15 @@ vidas la lupon venanta kaj lasas la ŝafojn kaj forkuras; kaj la lupo ilin
 
 kaptas kaj dispelas; 13 li forkuras tial, ke li estas dungito kaj ne zor-
 
-gas pri la ŝafoj. 14 Mi estas la bona paŝtisto, kaj mi konas la miajn, 
+gas pri la ŝafoj. 14 Mi estas la bona paŝtisto, kaj mi konas la miajn,
 
-kaj la miaj min konas 15 tiel same, kiel la Patro min konas, kaj mi
+kaj la miaj mnas 15 tiel same, kiel la Patro mnas, kaj mi
 
 konas la Patron; kaj mi demetas mian vivon por la ŝafoj. 16 Kaj ali-
 
 ajn ŝafojn mi havas, kiuj ne estas de ĉi tiu gregejo; ilin ankaŭ mi
 
-devas alkonduki, kaj ili aŭskultos mian voĉon; kaj estos unu grego, 
+devas alkonduki, kaj ili aŭskultos mian voĉon; kaj estos unu grego,
 
 unu paŝtisto. 17 Pro tio la Patro min amas, ke mi demetas mian vi-
 
@@ -11506,7 +11093,7 @@ von, por ke mi ĝin reprenu. 18 Neniu ĝin forprenas de mi, sed mi ĝin
 
 demetas memvole. Mi havas la rajton ĝin demeti, kaj mi havas la
 
-rajton ĝin repreni. ĉi tiun ordonon mi ricevis de mia Patro. 
+rajton ĝin repreni. ĉi tiun ordonon mi ricevis de mia Patro.
 
 19 Denove fariĝis malkonsento inter la Judoj pro tiuj diroj. 20 Kaj
 
@@ -11514,13 +11101,13 @@ multaj el ili diris: Li havas demonon kaj estas freneza; kial vi lin
 
 aŭskultas? 21 Aliaj diris: Tiuj ne estas diroj de demonhavanto. ĉu
 
-demono povas malfermi la okulojn de blinduloj? 
+demono povas malfermi la okulojn de blinduloj?
 
 22 Okazis la festo de inaŭguro en Jerusalem, kaj estis vintro; 23 kaj
 
 Jesuo promenis en la templo, en la portiko de Salomono. 24 La Ju-
 
-doj do ĉirkaŭis lin, kaj diris al li: ¯is kiam vi tenas en dubo nian ani-
+doj do ĉirkaŭis lin, kaj diris al li: is kiam vi tenas en dubo nian ani-
 
 mon? Se vi estas la Kristo, diru al ni malkaŝe. 25 Jesuo respondis al
 
@@ -11528,15 +11115,13 @@ ili: Mi diris al vi, kaj vi ne kredas; la faroj, kiujn mi faras en la nomo
 
 de mia Patro, atestas pri mi. 26 Sed vi ne kredas, ĉar vi ne estas el
 
-miaj ŝafoj. 27 Miaj ŝafoj aŭskultas mian voĉon, kaj mi ilin konas, kaj
+miaj ŝafoj. 27 Miaj ŝafoj aŭskultas mian voĉon, kaj mi ilnas, kaj
 
 ili min sekvas; 28 kaj mi donas al ili eternan vivon; kaj ili neniam
 
-194
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pereos, kaj neniu ilin forkaptos el mia mano. 29 Mia Patro, kiu do-
 
@@ -11556,27 +11141,27 @@ das esti Dio. 34 Jesuo respondis: ĉu ne estas skribite en via leĝo: Mi
 
 diris: Vi estas dioj? 35 Se li nomis dioj tiujn, al kiuj venis la vorto de
 
-Dio \(kaj la Skribo ne povas esti nuligita\), 36 ĉu vi diras pri tiu, kiun
+Dio (kaj la Skribo ne povas esti nuligita), 36 ĉu vi diras pri tiu, kiun
 
 la Patro konsekris kaj sendis en la mondon: Vi blasfemas; ĉar vi
 
-diris: Mi estas Filo de Dio? 37 Se mi ne faras la farojn de mia Patro, 
+diris: Mi estas Filo de Dio? 37 Se mi ne faras la farojn de mia Patro,
 
-ne kredu al mi. 38 Sed se mi faras ilin, kvankam vi ne kredas al mi, 
+ne kredu al mi. 38 Sed se mi faras ilin, kvankam vi ne kredas al mi,
 
 kredu la farojn, por ke vi sciu kaj kaj komprenu, ke la Patro estas en
 
 mi, kaj mi en la Patro. 39 Ili denove celis kapti lin, sed li iris for de
 
-ilia mano. 
+ilia mano.
 
-40 Li foriris denove trans Jordanon tien, kie Johano unue baptis, 
+40 Li foriris denove trans Jordanon tien, kie Johano unue baptis,
 
 kaj tie li restadis. 41 Kaj multaj venis al li, kaj diris: Johano ja ne fa-
 
 ris signon; sed ĉio, kion Johano diris pri ĉi tiu, estis vera. 42 Kaj tie
 
-multaj kredis al li. 
+multaj kredis al li.
 
 ĉapitro 11
 
@@ -11588,19 +11173,17 @@ sana, estis tiu sama, kiu ŝmiris la Sinjoron per ŝmiraĵo kaj viŝis li-
 
 ajn piedojn per siaj haroj. 3 La fratinoj do sendis al li, dirante: Sinj-
 
-oro, jen tiu, kiun vi amas, estas malsana. 4 Sed Jesuo, aŭdinte tion, 
+oro, jen tiu, kiun vi amas, estas malsana. 4 Sed Jesuo, aŭdinte tion,
 
-diris: ĉi tiu malsano estas ne por la morto, sed por la gloro de Dio, 
+diris: ĉi tiu malsano estas ne por la morto, sed por la gloro de Dio,
 
 por ke la Filo de Dio estu per ĝi glorata. 5 Kaj Jesuo amis Martan kaj
 
-195
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-ŝian fratinon kaj Lazaron. 6 Kaj kiam li sciiĝis, ke tiu estas malasana, 
+ŝian fratinon kaj Lazaron. 6 Kaj kiam li sciiĝis, ke tiu estas malasana,
 
 li restis ankoraŭ du tagojn en la loko, kie li estis. 7 Poste li diris al la disĉiploj: Ni iru returne en Judujon. 8 La disĉiploj diris al li: Rabeno, la Judoj ĵus celis ŝtonmortigi vin; kaj ĉu vi denove iras tien? 9
 
@@ -11622,9 +11205,9 @@ re: Lazaro jam mortis. 15 Kaj pro vi mi ĝojas, ke mi ne ĉeestis tie, por
 
 ke vi kredu; tamen ni iru al li. 16 Tiam Tomaso, nomata Didimo, diris
 
-al siaj kundisĉiploj: Ni ankaŭ iru, por ke ni mortu kun li. 
+al siaj kundisĉiploj: Ni ankaŭ iru, por ke ni mortu kun li.
 
-17 Kiam Jesuo alvenis, li trovis lin jam kvar tagojn entombigita. 
+17 Kiam Jesuo alvenis, li trovis lin jam kvar tagojn entombigita.
 
 18 Kaj Betania estis proksime de Jerusalem, en la distanco de ĉirkaŭ
 
@@ -11638,7 +11221,7 @@ domo. 21 Tiam diris Marta al Jesuo: Sinjoro, se vi estus ĉi tie, mia
 
 frato ne estus mortinta. 22 Sed eĉ nun mi scias, ke kion ajn vi petos
 
-de Dio, tion Dio donos al vi. 23 Jesuo diris al ŝi: Via frato releviĝos. 
+de Dio, tion Dio donos al vi. 23 Jesuo diris al ŝi: Via frato releviĝos.
 
 24 Marta diris al li: Mi scias, ke li releviĝos ĉe la releviĝo en la lasta
 
@@ -11646,7 +11229,7 @@ tago. 25 Jesuo diris al ŝi: Mi estas la releviĝo kaj la vivo; kiu kredas
 
 al mi, eĉ se li estos mortinta, tiu vivos, 26 kaj ĉiu, kiu vivas kaj kre-
 
-das al mi, por ĉiam ne mortos. ĉu vi tion kredas? 27 ŝi diris al li: Jes, 
+das al mi, por ĉiam ne mortos. ĉu vi tion kredas? 27 ŝi diris al li: Jes,
 
 Sinjoro, mi jam kredas, ke vi estas la Kristo, la Filo de Dio, la ven-
 
@@ -11654,15 +11237,13 @@ anta en la mondon. 28 Kaj dirinte tion, ŝi foriris, kaj vokis sekrete
 
 sian fratinon Maria, dirante: La Majstro ĉeestas, kaj vokas vin. 29 Kaj
 
-ŝi, aŭdinte tion, leviĝis rapide kaj iris al li. 30 \(Sed Jesuo ankoraŭ ne
+ŝi, aŭdinte tion, leviĝis rapide kaj iris al li. 30 (Sed Jesuo ankoraŭ ne
 
-196
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-eniris en la vilaĝon, sed estis en la loko, kie Marta lin renkontis.\) 31
+eniris en la vilaĝon, sed estis en la loko, kie Marta lin renkontis.) 31
 
 La Judoj do, kiuj estis kun ŝi en la domo kaj konsolis ŝin, vidinte, ke
 
@@ -11674,13 +11255,13 @@ lin vidis, ŝi falis antaŭ liaj piedoj, dirante: Sinjoro, se vi estus ĉi tie, 
 
 la Judojn ankaŭ, kiuj venis kun ŝi, plorantaj, li ĝemis en la spirito kaj
 
-maltrankviliĝis, 34 kaj diris: Kie vi lin kuŝigis? Ili diris al li: Sinjoro, venu kaj vidu. 35 Jesuo larmis. 36 La Judoj do diris: Jen kiel li lin amis\! 
+maltrankviliĝis, 34 kaj diris: Kie vi lin kuŝigis? Ili diris al li: Sinjoro, venu kaj vidu. 35 Jesuo larmis. 36 La Judoj do diris: Jen kiel li lin amis!
 
 37 Sed kelkaj el ili diris: ĉu ĉi tiu, kiu malfermis la okulojn de la blin-
 
 dulo, ne povus kaŭzi ankaŭ, ke ĉi tiu homo ne mortu? 38 Tiam Je-
 
-suo, denove ĝemante en si, venis al la tombo. ¯i estis kaverno, kaj
+suo, denove ĝemante en si, venis al la tombo. i estis kaverno, kaj
 
 sur ĝi kuŝis ŝtono. 39 Jesuo diris: Forprenu la ŝtonon. Marta, la fra-
 
@@ -11692,17 +11273,17 @@ Jesuo levis siajn okulojn, kaj diris: Patro, mi dankas Vin, ke Vi min
 
 aŭskultis. 42 Kaj mi sciis, ke Vi ĉiam aŭskultas min; sed pro la ĉirkaŭ-
 
-staranta homamaso mi tion diris, por ke ili kredu, ke Vi min sendis. 
+staranta homamaso mi tion diris, por ke ili kredu, ke Vi min sendis.
 
 43 Kaj dirinte tion, li kriis per laŭta voĉo: Lazaro, elvenu. 44 Kaj la
 
 mortinto elvenis, kun la manoj kaj piedoj ligitaj per tombotukoj; kaj
 
-lia vizaĝo estis ĉirkaŭligita per viŝtuko. Jesuo diris al ili: Malligu lin, kaj lasu lin iri. 
+lia vizaĝo estis ĉirkaŭligita per viŝtuko. Jesuo diris al ili: Malligu lin, kaj lasu lin iri.
 
 45 Tiam multaj el la Judoj, kiuj venis al Maria, kaj vidis, kion li
 
-faris, kredis al li. 46 Sed kelkaj el ili foriris al la Fariseoj, kaj rakontis al ili tion, kion Jesuo faris. 
+faris, kredis al li. 46 Sed kelkaj el ili foriris al la Fariseoj, kaj rakontis al ili tion, kion Jesuo faris.
 
 47 Tial la ĉefpastroj kaj la Fariseoj kunvenigis sinedrion, kaj di-
 
@@ -11712,11 +11293,9 @@ sos lin tiel, ĉiuj kredos al li, kaj la Romanoj venos kaj forigos nian
 
 lokon kaj nian nacion. 49 Sed unu el ili, Kajafas, ĉefpastro en tiu sa-
 
-197
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ma jaro, diris al ili: Vi scias nenion, 50 nek konsideras, ke bone es-
 
@@ -11728,7 +11307,7 @@ tiu jaro, li profetis, ke Jesuo mortos por la nacio; 52 kaj ne nur por
 
 la nacio, sed ankaŭ por ke li kunvenigu en unu la ĉie disĵetitajn fi-
 
-lojn de Dio. 53 De post tiu tago do ili konsiliĝis, por lin mortigi. 
+lojn de Dio. 53 De post tiu tago do ili konsiliĝis, por lin mortigi.
 
 54 Tial Jesuo ne plu iris publike inter la Judoj, sed foriris de tie en
 
@@ -11742,9 +11321,9 @@ sanktigi. 56 Ili do serĉis Jesuon, kaj parolis inter si, starante en la
 
 templo: Kion vi pensas? ĉu ke li ne venos al la festo? 57 Kaj la ĉef-
 
-pastroj kaj la Fariseoj jam antaŭe ordonis, ke se iu scias, kie li estas, 
+pastroj kaj la Fariseoj jam antaŭe ordonis, ke se iu scias, kie li estas,
 
-tiu montru tion, por ke oni lin kaptu. 
+tiu montru tion, por ke oni lin kaptu.
 
 ĉapitro 12
 
@@ -11752,7 +11331,7 @@ tiu montru tion, por ke oni lin kaptu.
 
 zaro, kiun Jesuo relevis el inter la mortintoj. 2 Oni do pretigis por li
 
-tie vespermanĝon, kaj Marta servadis; sed Lazaro estis unu el tiuj, 
+tie vespermanĝon, kaj Marta servadis; sed Lazaro estis unu el tiuj,
 
 kiuj sidis kun li ĉe manĝo. 3 Tiam Maria prenis funton da pura nar-
 
@@ -11764,37 +11343,35 @@ aĵo. 4 Sed diris Judas Iskariota, unu el liaj disĉiploj, kiu estis lin per-
 
 fidonta: 5 Kial oni ne vendis ĉi tiun ŝmiraĵon por tricent denaroj kaj
 
-donis al malriĉuloj? 6 Tion li diris, ne ĉar li zorgis pri la malriĉuloj; 
+donis al malriĉuloj? 6 Tion li diris, ne ĉar li zorgis pri la malriĉuloj;
 
-sed ĉar li estis ŝtelisto, kaj havis la monujon kaj forprenadis tion, 
+sed ĉar li estis ŝtelisto, kaj havis la monujon kaj forprenadis tion,
 
-kion oni metis en ĝin. 7 Sed Jesuo diris: Lasu ŝin konservi ĝin por la
+kion oni metis en ĝin. 7 Sed Jesuo diris: Lasu ŝnservi ĝin por la
 
-tago de mia entombigo. 8 ĉar la malriĉulojn vi ĉiam havas kun vi, 
+tago de mia entombigo. 8 ĉar la malriĉulojn vi ĉiam havas kun vi,
 
-sed min vi ne ĉiam havas. 
+sed min vi ne ĉiam havas.
 
-198
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 9 La amaso de la Judoj do sciiĝis, ke li estas tie; kaj ili venis ne nur
 
-pro Jesuo, sed ankaŭ por vidi Lazaron, kiun li levis el la mortintoj. 
+pro Jesuo, sed ankaŭ por vidi Lazaron, kiun li levis el la mortintoj.
 
 10 Sed la ĉefpastroj konsiliĝis, ke ili mortigu ankaŭ Lazaron; 11 ĉar
 
-pro li multaj Judoj foriris, kaj kredis al Jesuo. 
+pro li multaj Judoj foriris, kaj kredis al Jesuo.
 
 12 En la sekvanta tago granda homamaso, veninte al la festo, kaj
 
-sciiĝinte, ke Jesuo venas al Jerusalem, 13 prenis branĉojn de la palmoj, 
+sciiĝinte, ke Jesuo venas al Jerusalem, 13 prenis branĉojn de la palmoj,
 
-kaj iris al li renkonte, kaj kriis: Hosana\! Estu benata la Reĝo de Izra-
+kaj iris al li renkonte, kaj kriis: Hosana! Estu benata la Reĝo de Izra-
 
-el, kiu venas en la nomo de la Eternulo\! 14 Kaj Jesuo, trovinte junan
+el, kiu venas en la nomo de la Eternulo! 14 Kaj Jesuo, trovinte junan
 
 azenon, sidis sur ĝi, kiel estas skribite: 15 Ne timu, filino de Cion: jen
 
@@ -11802,7 +11379,7 @@ via Reĝo venas, sidanta sur ido de azeno. 16 Tion la disĉiploj unue ne
 
 komprenis; sed post la gloriĝo de Jesuo ili rememoris, ke tio estis skri-
 
-bita pri li kaj ke oni faris al li tion. 17 La homamaso do, kiu ĉeestis kun li, kiam li elvokis Lazaron el la tombo, kaj levis lin el la mortintoj, atestis pri li. 18 Pro tio ankaŭ la homamaso iris al li renkonte, ĉar ili sciiĝis, ke li faris tiun signon. 19 La Fariseoj do diris inter si: Vidu, kiel nenio prosperis al vi; jen la mondo eliris post li. 
+bita pri li kaj ke oni faris al li tion. 17 La homamaso do, kiu ĉeestis kun li, kiam li elvokis Lazaron el la tombo, kaj levis lin el la mortintoj, atestis pri li. 18 Pro tio ankaŭ la homamaso iris al li renkonte, ĉar ili sciiĝis, ke li faris tiun signon. 19 La Fariseoj do diris inter si: Vidu, kiel nenio prosperis al vi; jen la mondo eliris post li.
 
 20 Kaj inter tiuj, kiuj alvojaĝis por adorkliniĝi ĉe la festo, estis iuj
 
@@ -11818,13 +11395,13 @@ de homo estu glorata. 24 Vere, vere, mi diras al vi: Se la tritika gre-
 
 nero ne falas en la teron kaj ne mortas, ĝi restas sola; sed se ĝi mor-
 
-tas, ĝi donas multe da frukto. 25 Kiu amas sian vivon, tiu ĝin perdas; 
+tas, ĝi donas multe da frukto. 25 Kiu amas sian vivon, tiu ĝin perdas;
 
-kaj kiu malamas sian vivon en ĉi tiu mondo, tiu ĝin konservos ĝis
+kaj kiu malamas sian vivon en ĉi tiu mondo, tiu ĝnservos ĝis
 
 eterna vivo. 26 Se iu min servas, tiu sekvu min; kaj kie mi estas, tie
 
-ankaŭ estos mia servanto; se iu min servas, tiun la Patro honoros. 
+ankaŭ estos mia servanto; se iu min servas, tiun la Patro honoros.
 
 27 Nun maltrankviliĝas mia animo; kaj kion mi diru? Patro, savu min
 
@@ -11832,13 +11409,11 @@ el ĉi tiu horo. Sed por tio mi venis ĝis ĉi tiu horo. 28 Patro, gloru Vian
 
 nomon. Tiam voĉo venis el la ĉielo: Mi jam gloris ĝin kaj denove
 
-199
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-gloros. 29 Do la apudstaranta homamaso, aŭdinte, diris, ke tondris; 
+gloros. 29 Do la apudstaranta homamaso, aŭdinte, diris, ke tondris;
 
 aliaj diris: Anĝelo parolis al li. 30 Jesuo respondis kaj diris: Ne por mi
 
@@ -11862,7 +11437,7 @@ venu sur vin; ĉar tiu, kiu iradas en mallumo, ne scias, kien li iras. 36
 
 Dum vi havas lumon, kredu al la lumo, por ke vi fariĝu filoj de lu-
 
-mo. 
+mo.
 
 Tion parolis Jesuo, kaj li foriris, kaj sin kaŝis for de ili. 37 Sed kvan-
 
@@ -11870,37 +11445,35 @@ kam li jam faris tiom da signoj antaŭ ili, tamen ili ne kredis al li; 38
 
 por ke plenumiĝu la vorto de la profeto Jesaja, kiun li parolis:
 
-Ho Eternulo, kiu kredis nian raporton? 
+Ho Eternulo, kiu kredis nian raporton?
 
-Kaj super kiu malkaŝiĝis la brako de la Eternulo? 
+Kaj super kiu malkaŝiĝis la brako de la Eternulo?
 
 39 Pro tio ili ne povis kredi, ĉar Jesaja diris plue:
 
-40 Li blindigis iliajn okulojn kaj sensentigis ilian koron, 
+40 Li blindigis iliajn okulojn kaj sensentigis ilian koron,
 
 Por ke ili ne vidu per siaj okuloj, kaj ke ili ne komprenu per sia
 
-koro, 
+koro,
 
-Kaj ke ili ne konvertiĝu, 
+Kaj ke ili ne konvertiĝu,
 
-Kaj ke Mi ilin ne sanigu. 
+Kaj ke Mi ilin ne sanigu.
 
 41 Tion diris Jesaja, ĉar li vidis lian gloron kaj parolis pri li. 42 Ta-
 
 men eĉ el la regantoj multaj kredis al li; sed pro la Fariseoj ili ne
 
-konfesis lin, por ke ili ne estu elpelitaj el la sinagogo; 43 ĉar ili ŝatis la laŭdon de homoj pli, ol la gloron de Dio. 
+konfesis lin, por ke ili ne estu elpelitaj el la sinagogo; 43 ĉar ili ŝatis la laŭdon de homoj pli, ol la gloron de Dio.
 
-44 Kaj Jesuo kriis kaj diris: Kiu kredas al mi, tiu kredas ne al mi, 
+44 Kaj Jesuo kriis kaj diris: Kiu kredas al mi, tiu kredas ne al mi,
 
-sed al Tiu, kiu min sendis. 45 Kaj kiu vidas min, tiu vidas ankaŭ Tiun, 
+sed al Tiu, kiu min sendis. 45 Kaj kiu vidas min, tiu vidas ankaŭ Tiun,
 
-200
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiu min sendis. 46 Mi venis lumo en la mondon, por ke ĉiu, kiu kre-
 
@@ -11916,9 +11489,9 @@ en la lasta tago. 49 ĉar mi ne parolis de mi mem; sed la Patro, kiu
 
 sendis min, mem ordonis al mi, kion mi parolu, kaj kion mi diru. 50
 
-Kaj mi scias, ke Lia ordono estas eterna vivo; kion do mi parolas, 
+Kaj mi scias, ke Lia ordono estas eterna vivo; kion do mi parolas,
 
-ĝuste kiel la Patro diris al mi, tiel mi parolas. 
+ĝuste kiel la Patro diris al mi, tiel mi parolas.
 
 ĉapitro 13
 
@@ -11926,7 +11499,7 @@ Kaj mi scias, ke Lia ordono estas eterna vivo; kion do mi parolas,
 
 transiru el ĉi tiu mondo al la Patro, aminte siajn proprulojn, kiuj
 
-estis en la mondo, amis ilin ĝis la fino. 2 Kaj dum la vespermanĝo, 
+estis en la mondo, amis ilin ĝis la fino. 2 Kaj dum la vespermanĝo,
 
 kiam la diablo jam metis en la koron de Judas Iskariota, filo de Si-
 
@@ -11956,13 +11529,11 @@ jam banis, tiu bezonas nur, ke oni lavu la piedojn, kaj li estas tute
 
 pura; kaj vi estas puraj, tamen ne ĉiuj. 11 ĉar li konis tiun, kiu per-
 
-fidos lin; tial li diris: Vi ne ĉiuj estas puraj. 
+fidos lin; tial li diris: Vi ne ĉiuj estas puraj.
 
-201
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 12 Kiam do li jam lavis iliajn piedojn kaj surmetis siajn vestojn kaj
 
@@ -11980,13 +11551,13 @@ granda ol la sendinto. 17 Se ĉi tion vi scias, vi estas feliĉaj, se tion vi fa
 
 ke plenumiĝu la Skribo: Tiu, kiu manĝas mian panon, levis kontraŭ
 
-min la piedon. 19 De nun mi parolas al vi pri tio, antaŭ ol ĝi okazos, 
+min la piedon. 19 De nun mi parolas al vi pri tio, antaŭ ol ĝi okazos,
 
 por ke, kiam ĝi okazos, vi kredu, ke mi estas. 20 Vere, vere, mi diras
 
 al vi: Kiu akceptas tiun, kiun mi sendas, tiu akceptas min; kaj kiu
 
-min akceptas, tiu akceptas Tiun, kiu min sendis. 
+min akceptas, tiu akceptas Tiun, kiu min sendis.
 
 21 Dirinte tion, Jesuo maltrankviliĝis en spirito, kaj ateste paro-
 
@@ -11996,11 +11567,11 @@ Tiam la disĉiploj rigardis unu la alian, dubante pri kiu li parolas. 23
 
 Estis apud la sino de Jesuo unu el liaj disĉiploj, kiun Jesuo amis. 24
 
-Simon Petro do faris signon al li, ke li demandu, pri kiu li parolas. 
+Simon Petro do faris signon al li, ke li demandu, pri kiu li parolas.
 
 25 Tiu do, kliniĝante al la brusto de Jesuo, diris al li: Sinjoro, kiu ĝi
 
-estas? 26 Jesuo respondis: ¯i estas tiu, por kiu mi trempos la pecon
+estas? 26 Jesuo respondis: i estas tiu, por kiu mi trempos la pecon
 
 kaj donos al li. Kaj trempinte la pecon, li donis ĝin al Judas Iskari-
 
@@ -12014,17 +11585,15 @@ das havis la monujon, ke Jesuo diris al li: Aĉetu tion, kion ni bezo-
 
 nas por la festo; aŭ ke li donu ion al la malriĉuloj. 30 Li do, ricevin-
 
-te la pecon, tuj eliris; kaj estis nokto. 
+te la pecon, tuj eliris; kaj estis nokto.
 
 31 Kiam li eliris, Jesuo diris: Nun la Filo de homo estas glorata, kaj
 
 Dio estas glorata en li; 32 kaj Dio gloros lin en Si mem, kaj tuj Li glo-
 
-202
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ros lin. 33 Infanoj, ankoraŭ mallongan tempon mi estas kun vi. Vi
 
@@ -12036,7 +11605,7 @@ al vi, ke vi amu unu alian; kiel mi amis vin, tiel vi ankaŭ amu unu
 
 alian. 35 Per tio ĉiuj homoj scios, ke vi estas miaj disĉiploj, se vi ha-
 
-vos amon unu al alia. 
+vos amon unu al alia.
 
 36 Simon Petro diris al li: Sinjoro, kien vi iras? Jesuo respondis:
 
@@ -12048,7 +11617,7 @@ tos por vi mian vivon. 38 Jesuo respondis al li: ĉu vi demetos por mi
 
 vian vivon? Vere, vere, mi diras al vi: La koko ne krios, antaŭ ol vi
 
-min malkonfesos tri fojojn. 
+min malkonfesos tri fojojn.
 
 ĉapitro 14
 
@@ -12064,11 +11633,11 @@ ankaŭ estu tie, kie mi estas. 4 Kaj kien mi iras, vi scias, kaj vi konas
 
 la vojon. 5 Tomaso diris al li: Sinjoro, ni ne scias, kien vi iras; kiel ni konas la vojon? 6 Jeuso diris al li: Mi estas la vojo kaj la vero kaj la
 
-vivo; neniu venas al la Patro krom per mi. 7 Se vi min konus, vi ko-
+vivo; neniu venas al la Patro krom per mi. 7 Se vi mnus, vi ko-
 
 nus ankaŭ mian Patron; kaj de nun vi konas Lin kaj Lin vidis. 8 Fi-
 
-lipo diris al li: Sinjoro, montru al ni la Patron, kaj por ni tio sufiĉos. 
+lipo diris al li: Sinjoro, montru al ni la Patron, kaj por ni tio sufiĉos.
 
 9 Jesuo diris al li: ĉu mi estas kun vi tiel longan tempon, kaj vi min
 
@@ -12080,11 +11649,9 @@ Patro kaj la Patro en mi? la vortojn, kiujn mi parolas al vi, mi parolas
 
 ne de mi mem; sed la Patro, restanta en mi, faras Siajn farojn. 11
 
-203
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Kredu al mi, ke mi estas en la Patro, kaj la Patro en mi; aŭ almenaŭ
 
@@ -12104,7 +11671,7 @@ vi alian Parakleton, por ke li restadu kun vi por ĉiam; 17 tiu estas la
 
 Spirito de la vero, kiun la mondo ne povas akcepti, ĉar ĝi lin ne vi-
 
-das nek konas; vi lin konas, ĉar li restadas kun vi kaj estos en vi. 18
+das nek konas; vi lnas, ĉar li restadas kun vi kaj estos en vi. 18
 
 Mi ne lasos vin orfaj; mi venas al vi. 19 Ankoraŭ iom da tempo, kaj
 
@@ -12112,13 +11679,13 @@ la mondo ne plu vidos min, sed vi vidos min; ĉar mi vivas, tial vi
 
 ankaŭ vivos. 20 En tiu tago vi scios, ke mi estas en mia Patro, kaj vi
 
-en mi, kaj mi en vi. 21 Kiu havas miajn ordonojn kaj observas ilin, 
+en mi, kaj mi en vi. 21 Kiu havas miajn ordonojn kaj observas ilin,
 
 tiu estas, kiu min amas; kaj kiu min amas, tiu estos amata de mia
 
-Patro, kaj mi amos lin, kaj elmontros min al li. 22 Judas \(ne la Iska-
+Patro, kaj mi amos lin, kaj elmontros min al li. 22 Judas (ne la Iska-
 
-riota\) diris al li: Sinjoro, kio okazis, ke vi elmontros vin al ni, kaj ne
+riota) diris al li: Sinjoro, kio okazis, ke vi elmontros vin al ni, kaj ne
 
 al la mondo? 23 Jesuo respondis kaj diris al li: Se iu min amas, tiu ob-
 
@@ -12128,9 +11695,9 @@ faros loĝon kun li. 24 Kiu min ne amas, tiu ne observas miajn vor-
 
 tojn; kaj la vorto, kiun vi aŭdas, estas ne mia, sed de la Patro, kiu
 
-min sendis. 
+min sendis.
 
-25 Tion mi parolis al vi, dum mi ĉe vi restas. 26 Sed la Parakleto, 
+25 Tion mi parolis al vi, dum mi ĉe vi restas. 26 Sed la Parakleto,
 
 la Sankta Spirito, kiun la Patro sendos en mia nomo, instruos vin pri
 
@@ -12140,25 +11707,23 @@ sas al vi; mian pacon mi donas al vi; ne kiel la mondo donas, mi
 
 donas al vi. Ne maltrankviliĝu via koro, nek senkuraĝiĝu. 28 Vi aŭ-
 
-dis, ke mi diris al vi: Mi foriras, kaj mi revenas al vi. Se vi min amus, 
+dis, ke mi diris al vi: Mi foriras, kaj mi revenas al vi. Se vi min amus,
 
 vi ĝojus pro tio, ke mi iras al la Patro, ĉar la Patro estas pli granda
 
-ol mi. 29 Kaj nun mi diris al vi, antaŭ ol ĝi okazos, por ke vi kredu, 
+ol mi. 29 Kaj nun mi diris al vi, antaŭ ol ĝi okazos, por ke vi kredu,
 
-204
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiam ĝi okazos. 30 De nun mi jam ne multe parolos kun vi; ĉar la
 
 estro de la mondo venas; kaj li havas nenion en mi; 31 sed por ke la
 
-mondo sciu, ke mi amas la Patron, kaj kiel la Patro ordonis al mi, 
+mondo sciu, ke mi amas la Patron, kaj kiel la Patro ordonis al mi,
 
-tiel mi faras. Leviĝu; ni foriru de ĉi tie. 
+tiel mi faras. Leviĝu; ni foriru de ĉi tie.
 
 ĉapitro 15
 
@@ -12168,7 +11733,7 @@ nefruktodonan branĉon en mi Li forprenas; kaj ĉiun fruktodonan
 
 branĉon Li purigas, por ke ĝi donu pli da frukto. 3 Jam vi estas pu-
 
-raj pro la vorto, kiun mi parolis al vi. 4 Restadu en mi, kaj mi en vi. 
+raj pro la vorto, kiun mi parolis al vi. 4 Restadu en mi, kaj mi en vi.
 
 Kiel la branĉo ne povas de si mem doni frukton, se ĝi ne restas en
 
@@ -12180,7 +11745,7 @@ li, tiu donas multe da frukto; ĉar sen mi vi nenion povas fari. 6 Se iu
 
 ne restas en mi, tiu estas elĵetita, kiel la branĉo, kaj sekiĝas; kaj oni
 
-ilin kolektas kaj ĵetas en fajron, kaj ili brulas. 7 Se vi restadas en mi, 
+illektas kaj ĵetas en fajron, kaj ili brulas. 7 Se vi restadas en mi,
 
 kaj miaj vortoj restadas en vi, petu kion ajn vi volos, kaj tio estos
 
@@ -12208,11 +11773,9 @@ faras; sed mi nomis vin amikoj, ĉar ĉion, kion mi aŭdis de mia Pa-
 
 tro, mi sciigis al vi. 16 Vi ne elektis min, sed mi elektis vin, kaj stari-
 
-205
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 gis vin, por ke vi iru kaj donu frukton, kaj ke via frukto daŭru; por
 
@@ -12248,9 +11811,9 @@ ke plenumiĝu la vorto skribita en ilia leĝo: Ili malamis min sen-
 
 kaŭze. 26 Sed kiam venos la Parakleto, kiun mi sendos de la Patro al
 
-vi, la Spirito de la vero, kiu devenas de la Patro, tiu pri mi atestos; 
+vi, la Spirito de la vero, kiu devenas de la Patro, tiu pri mi atestos;
 
-27 kaj vi ankaŭ atestas, ĉar vi estis kun mi de la komenco. 
+27 kaj vi ankaŭ atestas, ĉar vi estis kun mi de la komenco.
 
 ĉapitro 16
 
@@ -12268,11 +11831,9 @@ min sendis; kaj neniu el vi demandas min: Kien vi iras? 6 Sed ĉar mi
 
 tiel parolis al vi, malĝojo plenigis vian koron. 7 Tamen mi diras al vi
 
-206
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la veron: Estas bone por vi, ke mi foriros; ĉar se mi ne foriros, la Pa-
 
@@ -12316,25 +11877,23 @@ la mondo ĝojos; vi estos malĝojaj, sed via malĝojo fariĝos ĝojo. 21
 
 Virino, kiam ŝi akuŝas, havas malĝojon, ĉar ŝia horo venis; sed kiam
 
-ŝi naskis la infaneton, ŝi jam ne memoras sian doloregon, pro ĝojo, 
+ŝi naskis la infaneton, ŝi jam ne memoras sian doloregon, pro ĝojo,
 
-ĉar homo naskiĝis en la mondon. 22 Vi do ankaŭ havas nun malĝojon; 
+ĉar homo naskiĝis en la mondon. 22 Vi do ankaŭ havas nun malĝojon;
 
 sed mi revidos vin, kaj via koro ĝojos, kaj neniu forprenos de vi vian
 
 ĝojon. 23 Kaj en tiu tago vi demandos min pri nenio. Vere, vere, mi
 
-diras al vi, se vi petos ion de la Patro, Li donos ĝin al vi en mia nomo. 
+diras al vi, se vi petos ion de la Patro, Li donos ĝin al vi en mia nomo.
 
-24 ¯is nun vi petis nenion en mia nomo; petu, kaj vi ricevos, por ke
+24 is nun vi petis nenion en mia nomo; petu, kaj vi ricevos, por ke
 
-via ĝojo estu plena. 
+via ĝojo estu plena.
 
-207
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 25 ĉi tion mi parolis al vi alegorie; sed venas la horo, kiam mi jam
 
@@ -12362,11 +11921,11 @@ sola, ĉar la Patro estas kun mi. 33 Tion mi parolis al vi, por ke en mi
 
 vi havu pacon. En la mondo vi havos suferadon; sed kuraĝu; mi ven-
 
-kis la mondon. 
+kis la mondon.
 
 ĉapitro 17
 
-1 Tion Jesuo parolis; kaj levinte la okulojn al la ĉielo, li diris: Patro, 
+1 Tion Jesuo parolis; kaj levinte la okulojn al la ĉielo, li diris: Patro,
 
 la horo venis; gloru Vian Filon, por ke la Filo Vin gloru; 2 kiel Vi
 
@@ -12378,7 +11937,7 @@ konu Vin, la sole veran Dion, kaj tiun, kiun Vi sendis, Jesuon Kris-
 
 ton. 4 Mi gloris Vin sur la tero, plenuminte la faron, kiun Vi donis
 
-al mi por fari. 5 Kaj nun, ho Patro, gloru min kun Vi, per la gloro, 
+al mi por fari. 5 Kaj nun, ho Patro, gloru min kun Vi, per la gloro,
 
 kiun mi havis kun Vi, antaŭ ol la mondo ekzistis. 6 Mi elmontris
 
@@ -12390,11 +11949,9 @@ scias, ke ĉio ajn, kion Vi donis al mi, estas de Vi; 8 ĉar mi donis al
 
 ili la vortojn, kiujn Vi donis al mi; kaj ili akceptis ilin, kaj scias vere, ke mi elvenis de Vi; kaj ili kredas, ke Vi min sendis. 9 Mi preĝas por
 
-208
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ili; mi preĝas ne por la mondo, sed por tiuj, kiujn Vi donis al mi, ĉar
 
@@ -12402,37 +11959,37 @@ ili estas Viaj; 10 kaj ĉio mia estas Via, kaj Via estas mia; kaj mi estas
 
 glorita per ili. 11 Mi jam ne estas en la mondo, kaj ĉi tiuj estas en la
 
-mondo, kaj mi venas al Vi. Patro Sankta, gardu en Via nomo tiujn, 
+mondo, kaj mi venas al Vi. Patro Sankta, gardu en Via nomo tiujn,
 
 kiujn Vi donis al mi, por ke ili estu unu tiel same, kiel ni. 12 Dum mi
 
-estis kun ili, mi konservis en Via nomo tiujn, kiujn Vi donis al mi; 
+estis kun ili, mi konservis en Via nomo tiujn, kiujn Vi donis al mi;
 
 kaj mi gardis ilin, kaj neniu el ili pereis, krom la filo de perdiĝo, por
 
 ke plenumiĝu la Skribo. 13 Sed nun mi venas al Vi; kaj tion mi paro-
 
-las en la mondo, por ke ili havu mian ĝojon ĝis pleneco en si mem. 
+las en la mondo, por ke ili havu mian ĝojon ĝis pleneco en si mem.
 
 14 Mi donis al ili Vian vorton; kaj la mondo malamis ilin, ĉar ili ne
 
 estas el la mondo, kiel mi ne estas el la mondo. 15 Mi petas, ne ke Vi
 
-forigu ilin el la mondo, sed ke Vi gardu ilin kontraŭ la malbono. 16
+forigu ilin el la mondo, sed ke Vi gardu ilntraŭ la malbono. 16
 
 Ili ne estas el la mondo, kiel mi ne estas el la mondo. 17 Konsekru ilin
 
-en la vero; Via vorto estas vero. 18 Kiel Vi min sendis en la mondon, 
+en la vero; Via vorto estas vero. 18 Kiel Vi min sendis en la mondon,
 
 tiel ankaŭ mi ilin sendis en la mondon. 19 Kaj por ili mi konsekras
 
 min, por ke ili mem ankaŭ estu konsekritaj en la vero. 20 Kaj mi pre-
 
-ĝas ne nur por ili, sed ankaŭ por tiuj, kiuj kredos al mi pro ilia vorto; 
+ĝas ne nur por ili, sed ankaŭ por tiuj, kiuj kredos al mi pro ilia vorto;
 
-21 por ke ili ĉiuj estu unu; kiel Vi, Patro, estas en mi, kaj mi en Vi, 
+21 por ke ili ĉiuj estu unu; kiel Vi, Patro, estas en mi, kaj mi en Vi,
 
-tiel ili ankaŭ estu en ni; por ke la mondo kredu, ke Vi min sendis. 
+tiel ili ankaŭ estu en ni; por ke la mondo kredu, ke Vi min sendis.
 
 22 Kaj la gloron, kiun Vi donis al mi, mi donis al ili; por ke ili estu
 
@@ -12440,25 +11997,21 @@ unu tiel same, kiel ni estas unu; 23 mi en ili, kaj Vi en mi, por ke ili
 
 perfektiĝu en unu; por ke la mondo sciu, ke Vi min sendis, kaj ke
 
-Vi ilin amis, kiel Vi min amis. 24 Patro, pri tiuj, kiujn Vi donis al mi, 
+Vi ilin amis, kiel Vi min amis. 24 Patro, pri tiuj, kiujn Vi donis al mi,
 
 mi volas, ke ili ankaŭ estu kun mi tie, kie mi estas; por ke ili vidu
 
 mian gloron, kiun Vi donis al mi; ĉar Vi amis min antaŭ la fondo de
 
-la mondo. 25 Ho Patro justa, la mondo Vin ne konis, tamen mi Vin
+la mondo. 25 Ho Patro justa, la mondo Vin ne konis, tamen mi Vnis; kaj ĉi tiuj scias, ke Vi min sendis; 26 kaj al ili Vian nomon mi
 
-konis; kaj ĉi tiuj scias, ke Vi min sendis; 26 kaj al ili Vian nomon mi
+konigis kaj ankoraŭ konigos, por ke la amo, per kiu Vi amis min,
 
-konigis kaj ankoraŭ konigos, por ke la amo, per kiu Vi amis min, 
+estu en ili, kaj mi en ili.
 
-estu en ili, kaj mi en ili. 
-
-209
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 18
 
@@ -12472,7 +12025,7 @@ nis tien kun siaj disĉiploj. 3 Judas do, ricevinte la kohorton kaj ofi-
 
 cistojn, senditajn de la ĉefpastroj kaj Fariseoj, venis tien kun lanter-
 
-noj kaj torĉoj kaj bataliloj. 4 Jesuo do, sciante ĉion, kio venos al li, 
+noj kaj torĉoj kaj bataliloj. 4 Jesuo do, sciante ĉion, kio venos al li,
 
 paŝis antaŭen, kaj diris al ili: Kiun vi serĉas? 5 Ili respondis al li: Je-
 
@@ -12486,7 +12039,7 @@ Kiun vi serĉas? Ili diris: Jesuon Nazaretan. 8 Jesuo respondis: Mi ĵus
 
 diris al vi, ke mi estas tiu; se do vi min serĉas, lasu ĉi tiujn foriri; 9
 
-por ke plenumiĝu la vorto, kiun li diris: El tiuj, kiujn Vi donis al mi, 
+por ke plenumiĝu la vorto, kiun li diris: El tiuj, kiujn Vi donis al mi,
 
 mi perdis neniun. 10 Simon Petro do, havante glavon, eltiris ĝin, kaj
 
@@ -12496,17 +12049,17 @@ nomo de la sklavo estis Mal˛o. 11 Jesuo do diris al Petro: Metu la
 
 glavon en ĝian ingon; la kalikon, kiun la Patro donis al mi, ĉu mi ne
 
-trinkos? 
+trs?
 
 12 La kohorto kaj la milestro kaj la oficistoj de la Judoj kaptis do
 
 Jesuon kaj ligis lin, 13 kaj kondukis lin unue al Anas; ĉar ĉi tiu estis
 
-bopatro de Kajafas, kiu estis ĉefpastro en tiu jaro. 14 Kajafas estis tiu, 
+bopatro de Kajafas, kiu estis ĉefpastro en tiu jaro. 14 Kajafas estis tiu,
 
 kiu donis konsilon al la Judoj, ke estos bone, ke unu homo mortu
 
-por la popolo. 
+por la popolo.
 
 15 Kaj Simon Petro sekvis Jesuon, kaj ankaŭ alia disĉiplo. ĉi tiu
 
@@ -12520,17 +12073,15 @@ la pordistino, kaj enirigis Petron. 17 La sklavino pordistino diris al
 
 Petro: ĉu vi ne estas ankaŭ el la disĉiploj de tiu homo? Li diris: Mi
 
-210
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-ne estas. 18 La sklavoj kaj la oficistoj, farinte karban fajron \(ĉar es-
+ne estas. 18 La sklavoj kaj la oficistoj, farinte karban fajron (ĉar es-
 
-tis malvarme\), staris kaj sin varmigis; Petro ankaŭ estis kun ili, star-
+tis malvarme), staris kaj sin varmigis; Petro ankaŭ estis kun ili, star-
 
-ante kaj sin varmigante. 
+ante kaj sin varmigante.
 
 19 La ĉefpastro demandis Jesuon pri liaj disĉiploj kaj pri lia instru-
 
@@ -12540,17 +12091,17 @@ ado. 20 Jesuo respondis al li: Mi parolis malkaŝe al la mondo; mi
 
 nas; kaj sekrete mi nenion parolis. 21 Kial vi min demandas? deman-
 
-du tiujn, kiuj aŭdis, kion mi parolis al ili; ili ja scias, kion mi diris. 
+du tiujn, kiuj aŭdis, kion mi parolis al ili; ili ja scias, kion mi diris.
 
 22 Kaj kiam li parolis tion, unu el la apude starantaj oficistoj per la
 
-manplato frapis Jesuon, dirante: ĉu tiel vi respondas al la ĉefpastro? 
+manplato frapis Jesuon, dirante: ĉu tiel vi respondas al la ĉefpastro?
 
 23 Respondis Jesuo al li: Se mi malbone parolis, atestu pri la malbo-
 
 no; sed se bone, kial vi min frapas? 24 Anas sendis lin ligitan al la
 
-ĉefpastro Kajafas. 
+ĉefpastro Kajafas.
 
 25 Simon Petro staris kaj sin varmigis. Oni do diris al li: ĉu vi estas
 
@@ -12560,7 +12111,7 @@ voj de la ĉefpastro, estante parenco de tiu, kies orelon Petro de-
 
 tranĉis, diris: ĉu mi ne vidis vin kun li en la ĝardeno? 27 Petro do
 
-denove neis; kaj tuj la koko ekkriis. 
+denove neis; kaj tuj la koko ekkriis.
 
 28 Kaj oni kondukis Jesuon de Kajafas en la palacon; estis frumat-
 
@@ -12576,7 +12127,7 @@ ili: Vi mem prenu lin, kaj juĝu lin laŭ via leĝo. La Judoj diris al li: Ne
 
 estas permesate al ni mortigi homon; 32 por ke plenumiĝu la vorto
 
-de Jesuo, kiun li parolis, montrante, per kia morto li mortos. 
+de Jesuo, kiun li parolis, montrante, per kia morto li mortos.
 
 33 Pilato do reeniris en la palacon, kaj alvokis Jesuon, kaj diris al
 
@@ -12586,11 +12137,9 @@ ras de vi mem, aŭ ĉu aliaj diris ĝin al vi pri mi? 35 Pilato respondis:
 
 ĉu mi estas Judo? Via propra nacio kaj la ĉefpastroj transdonis vin
 
-211
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 al mi; kion vi faris? 36 Jesuo respondis: Mia regno ne estas el ĉi tiu
 
@@ -12604,7 +12153,7 @@ spondis: Vi diras, ke mi estas reĝo. Por tio mi naskiĝis kaj venis en
 
 la mondon, ke mi atestu pri la vero. ĉiu, kiu estas el la vero, aŭskul-
 
-tas mian voĉon. 38 Pilato diris al li: Kio estas la vero? 
+tas mian voĉon. 38 Pilato diris al li: Kio estas la vero?
 
 Kaj dirinte tion, li eliris denove al la Judoj, kaj diris al ili: Mi tro-
 
@@ -12612,9 +12161,9 @@ vas en li nenian kulpon. 39 Sed estas ĉe vi kutime, ke mi liberigu al
 
 vi unu dum la Pasko: ĉu vi do volas, ke mi liberigu al vi la Reĝon de
 
-la Judoj? 40 Kaj ili kriis denove, dirante: Ne ĉi tiun, sed Barabason. 
+la Judoj? 40 Kaj ili kriis denove, dirante: Ne ĉi tiun, sed Barabason.
 
-Barabas estis rabisto. 
+Barabas estis rabisto.
 
 ĉapitro 19
 
@@ -12624,13 +12173,13 @@ plektis kronon el dornoj kaj metis ĝin sur lian kapon, kaj vestis lin
 
 per purpura mantelo; 3 kaj venis al li, kaj diris: Saluton, Reĝo de la
 
-Judoj\! kaj ili frapis lin per la manplatoj. 4 Pilato do denove eliris, kaj
+Judoj! kaj ili frapis lin per la manplatoj. 4 Pilato do denove eliris, kaj
 
 diris al ili: Jen mi elkondukas lin al vi, por ke vi sciu, ke mi trovas
 
 en li nenian kulpon. 5 Jesuo do eliris, portante la dornan kronon kaj
 
-la purpuran mantelon. Pilato diris al ili: Jen la homo\! 6 Kiam do la
+la purpuran mantelon. Pilato diris al ili: Jen la homo! 6 Kiam do la
 
 ĉefpastroj kaj oficistoj lin vidis, ili kriis: Krucumu, krucumu lin. Pi-
 
@@ -12640,7 +12189,7 @@ nenian kulpon. 7 La Judoj respondis al li: Ni havas leĝon, kaj laŭ tiu
 
 leĝo li devas morti tial, ke li pretendis esti Filo de Dio. 8 Kiam do
 
-Pilato aŭdis tiun diron, li des pli timis; 9 kaj reenirinte en la palacon, 
+Pilato aŭdis tiun diron, li des pli timis; 9 kaj reenirinte en la palacon,
 
 li diris al Jesuo: De kie vi estas? Sed Jesuo nenion respondis. 10 Tiam
 
@@ -12648,11 +12197,9 @@ diris Pilato al li: ĉu vi ne parolas al mi? ĉu vi ne scias, ke mi havas
 
 povon krucumi vin, kaj povon liberigi vin? 11 Jesuo respondis: Vi
 
-212
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 havus nenian povon kontraŭ mi, se ĝi ne estus donita al vi de su-
 
@@ -12660,7 +12207,7 @@ pre; tial tiu, kiu transdonis min al vi, havas la pli grandan pekon. 12
 
 ĉe tio Pilato penis liberigi lin; sed la Judoj kriis, dirante: Se vi libe-
 
-rigos tiun, vi ne estas amiko de Cezaro; ĉiu, kiu pretendas esti reĝo, 
+rigos tiun, vi ne estas amiko de Cezaro; ĉiu, kiu pretendas esti reĝo,
 
 parolas kontraŭ Cezaro. 13 Kiam do Pilato aŭdis tiun vorton, li el-
 
@@ -12668,13 +12215,13 @@ kondukis Jesuon, kaj sidiĝis sur tribunala seĝo en loko nomata La
 
 Pavimo, sed en la Hebrea lingvo Gabata. 14 Estis la Preparado de la
 
-Pasko, ĉirkaŭ la sesa horo. Kaj li diris al la Judoj: Jen via Reĝo\! 15 Ili
+Pasko, ĉirkaŭ la sesa horo. Kaj li diris al la Judoj: Jen via Reĝo! 15 Ili
 
 kriegis: Forigu, forigu, krucumu lin. Pilato diris al ili: ĉu mi krucu-
 
 mu vian Reĝon? La ĉefpastroj respondis: Ni ne havas reĝon krom
 
-Cezaro. 16 Tiam do li transdonis lin al ili, por esti krucumita. 
+Cezaro. 16 Tiam do li transdonis lin al ili, por esti krucumita.
 
 17 Kaj ili prenis Jesuon; kaj li eliris, portante sian krucon, al la
 
@@ -12684,9 +12231,9 @@ ta; 18 tie ili krucumis lin, kaj kun li du aliajn, ĉiuflanke po unu, kaj
 
 Jesuon meze. 19 Kaj Pilato ankaŭ skribis titolon, kaj surmetis ĝin sur
 
-la krucon. Kaj estis skribite: JESUO NAZARETA, LA RE¯O DE LA
+la krucon. Kaj estis skribite: JESUO NAZARETA, LA REO DE LA
 
-JUDOJ. 
+JUDOJ.
 
 20 Tiun titolon multaj el la Judoj legis; ĉar la loko, kie Jesuo es-
 
@@ -12696,9 +12243,9 @@ kaj Latine kaj Greke. 21 Tiam la ĉefpastroj de la Judoj diris al Pilato:
 
 Ne skribu: La Reĝo de la Judoj; sed, ke li diris: Mi estas Reĝo de la
 
-Judoj. 22 Respondis Pilato: Kion mi skribis, tion mi skribis. 
+Judoj. 22 Respondis Pilato: Kion mi skribis, tion mi skribis.
 
-23 Kaj la soldatoj, kiam ili krucumis Jesuon, prenis liajn vestojn, 
+23 Kaj la soldatoj, kiam ili krucumis Jesuon, prenis liajn vestojn,
 
 kaj dividis ilin en kvar partojn, po unu parto por ĉiu soldato; kaj la
 
@@ -12708,17 +12255,15 @@ Ili do diris unu al alia: Ni ne disŝiru ĝin, sed lotu pri ĝi, kies ĝi es-
 
 tos; por ke plenumiĝu la Skribo, kiu diras:
 
-Ili dividis miajn vestojn inter si, 
+Ili dividis miajn vestojn inter si,
 
-Pri mia tuniko ili lotis. 
+Pri mia tuniko ili lotis.
 
 Tion la soldatoj faris. 25 Sed apud la kruco de Jesuo staris lia pa-
 
-213
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 trino, kaj la fratino de lia patrino, Maria, la edzino de Klopas, kaj
 
@@ -12726,21 +12271,21 @@ Maria Magdalena. 26 Jesuo, rigardante sian patrinon, kaj la apud-
 
 starantan disĉiplon, kiun li amis, diris al sia patrino: Virino, jen via
 
-filo\! 27 Tiam li diris al la disĉiplo: Jen via patrino\! Kaj de post tiu horo la disĉiplo akceptis ŝin en sian domon. 
+filo! 27 Tiam li diris al la disĉiplo: Jen via patrino! Kaj de post tiu horo la disĉiplo akceptis ŝin en sian domon.
 
-28 Jesuo, sciante, ke ĉio jam finiĝis, por ke plenumiĝu la Skribo, 
+28 Jesuo, sciante, ke ĉio jam finiĝis, por ke plenumiĝu la Skribo,
 
 diris: Mi soifas. 29 Kuŝis tie vazo plena de vinagro; oni do metis
 
 spongon, plenigitan per la vinagro, sur hisopon, kaj levis ĝin al lia
 
-buŝo. 30 Kiam do Jesuo ricevis la vinagron, li diris: Estas finite; kaj, 
+buŝo. 30 Kiam do Jesuo ricevis la vinagron, li diris: Estas finite; kaj,
 
-klininte sian kapon, li ellasis for la spiriton. 
+klininte sian kapon, li ellasis for la spiriton.
 
 31 La Judoj, ĉar estis la Preparado, por ke la korpoj ne restadu sur
 
-la krucoj dum la sabato \(ĉar la tago de tiu sabato estis granda tago\), 
+la krucoj dum la sabato (ĉar la tago de tiu sabato estis granda tago),
 
 petis Pilaton, ke oni rompu iliajn krurojn, kaj forportu ilin. 32 Tiam
 
@@ -12756,7 +12301,7 @@ to atestis, kaj vera estas lia atesto; kaj li scias, ke li diras la veron, ke vi
 
 en li ne estos rompita. 37 Kaj ankoraŭ alia Skribo diras: Ili rigardos
 
-tiun, kiun ili trapikis. 
+tiun, kiun ili trapikis.
 
 38 Post tio, Jozef el Arimateo, kiu estis disĉiplo de Jesuo, sed se-
 
@@ -12764,9 +12309,9 @@ krete pro timo antaŭ la Judoj, petis Pilaton, ke li povu forpreni la
 
 korpon de Jesuo; kaj Pilato permesis. Li do venis kaj forprenis lian
 
-korpon. 39 Venis ankaŭ Nikodemo \(tiu, kiu unue venis al Jesuo nok-
+korpon. 39 Venis ankaŭ Nikodemo (tiu, kiu unue venis al Jesuo nok-
 
-te\), portanta miksaĵon de mirho kaj aloo, ĉirkaŭ cent funtoj. 40 Ili do
+te), portanta miksaĵon de mirho kaj aloo, ĉirkaŭ cent funtoj. 40 Ili do
 
 prenis la korpon de Jesuo, kaj ĉirkaŭvindis ĝin per tolaĵoj kaj arom-
 
@@ -12774,15 +12319,13 @@ aĵoj, laŭ la kutimo de la Judoj por entombigo. 41 Kaj estis ĝardeno
 
 en la loko, kie li estis krucumita, kaj en la ĝardeno nova tombo, en
 
-214
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiu ankoraŭ neniu estis metita. 42 Tien do, pro la Preparado de la Ju-
 
-doj \(ĉar la tombo estis proksima\) ili enmetis Jesuon. 
+doj (ĉar la tombo estis proksima) ili enmetis Jesuon.
 
 ĉapitro 20
 
@@ -12802,7 +12345,7 @@ bo; 5 kaj kliniĝinte, li enrigardis, kaj vidis la tolaĵojn kuŝantajn; ta-
 
 men li ne eniris. 6 Kaj poste venis Simon Petro, sekvante lin, kaj eni-
 
-ris en la tombon; kaj li vidis la tolaĵojn kuŝantajn, 7 kaj la viŝtukon, 
+ris en la tombon; kaj li vidis la tolaĵojn kuŝantajn, 7 kaj la viŝtukon,
 
 kiu estis sur lia kapo, ne kuŝantan kun la tolaĵoj, sed kunvolvitan en
 
@@ -12812,7 +12355,7 @@ tombo, kaj li vidis kaj kredis. 9 ĉar ili ankoraŭ ne komprenis la Skri-
 
 bon, ke li devas releviĝi el la mortintoj. 10 Kaj la disĉiploj iris retur-
 
-ne hejmen. 
+ne hejmen.
 
 11 Sed Maria staris ekstere apud la tombo, plorante; kaj dum ŝi
 
@@ -12822,7 +12365,7 @@ lojn en blankaj vestoj, sidantajn, unu ĉe la kaploko kaj unu ĉe la
 
 piedloko, kie la korpo de Jesuo antaŭe kuŝis. 13 Kaj ili diris al ŝi: Vi-
 
-rino, kial vi ploras? ŝi respondis: ĉar oni forprenis mian Sinjoron, 
+rino, kial vi ploras? ŝi respondis: ĉar oni forprenis mian Sinjoron,
 
 kaj mi ne scias, kien oni lin metis. 14 Dirinte tion, ŝi sin turnis mal-
 
@@ -12830,15 +12373,13 @@ antaŭen, kaj vidis Jesuon staranta, kaj ne sciis, ke ĝi estas Jesuo. 15
 
 Jesuo diris al ŝi: Virino, kial vi ploras? kiun vi serĉas? ŝi, supozan-
 
-te, ke li estas la ĝardenisto, diris al li: Sinjoro, se vi forportis lin, 
+te, ke li estas la ĝardenisto, diris al li: Sinjoro, se vi forportis lin,
 
 sciigu min, kien vi metis lin, kaj mi lin forprenos. 16 Jesuo diris al ŝi:
 
-215
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Maria. ŝi sin turnis, kaj diris al li Hebrelingve: Raboni; tio estas Maj-
 
@@ -12848,7 +12389,7 @@ al la Patro; sed iru al miaj fratoj, kaj diru al ili: Mi supreniras al mia
 
 Patro kaj via Patro, kaj al mia Dio kaj via Dio. 18 Maria Magdalena
 
-venis al la disĉiploj, sciigante: Mi vidis la Sinjoron; kaj ke li tion diris al ŝi. 
+venis al la disĉiploj, sciigante: Mi vidis la Sinjoron; kaj ke li tion diris al ŝi.
 
 19 Kiam do estis vespero en tiu sama tago, la unua de la semaj-
 
@@ -12860,13 +12401,13 @@ al vi. 20 Kaj dirinte tion, li montris al ili siajn manojn kaj sian flan-
 
 kon. La disĉiploj do ĝojis, vidante la Sinjoron. 21 Jesuo denove diris
 
-al ili: Paco al vi; kiel la Patro sendis min, tiel ankaŭ mi vin sendas. 
+al ili: Paco al vi; kiel la Patro sendis min, tiel ankaŭ mi vin sendas.
 
 22 Kaj dirinte tion, li elspiris sur ilin, kaj diris: Ricevu la Sanktan
 
 Spiriton: 23 kies pekojn vi pardonos, al tiuj ili estas pardonitaj; kies
 
-vi retenos, ili estas retenitaj. 
+vi retenos, ili estas retenitaj.
 
 24 Sed Tomaso, unu el la dek du, nomata Didimo, ne ĉeestis kun
 
@@ -12874,7 +12415,7 @@ ili, kiam Jesuo venis. 25 La aliaj disĉiploj do diris al li: Ni vidis la Sinjor
 
 najloj, kaj se mi ne metos mian fingron en la lokon de la najloj, kaj
 
-ne metos mian manon en lian flankon, mi tute ne kredos. 
+ne metos mian manon en lian flankon, mi tute ne kredos.
 
 26 Kaj post ok tagoj la disĉiploj denove estis interne, kaj Toma-
 
@@ -12886,9 +12427,9 @@ tien vian fingron kaj vidu miajn manojn; kaj etendu vian manon kaj
 
 enmetu ĝin en mian flankon; kaj ne estu nekredema, sed estu kre-
 
-danta. 28 Tomaso respondis al li kaj diris: Mia Sinjoro kaj mia Dio. 
+danta. 28 Tomaso respondis al li kaj diris: Mia Sinjoro kaj mia Dio.
 
-29 Jesuo diris al li: ĉar vi vidis min, vi kredas; feliĉaj estas tiuj, kiuj ne vidis, kaj tamen kredas. 
+29 Jesuo diris al li: ĉar vi vidis min, vi kredas; feliĉaj estas tiuj, kiuj ne vidis, kaj tamen kredas.
 
 30 Jesuo faris antaŭ la disĉiploj multajn aliajn signojn, kiuj ne es-
 
@@ -12896,11 +12437,10 @@ tas skribitaj en ĉi tiu libro; 31 sed ĉi tiuj estas skribitaj, por ke vi kre-2
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 du, ke Jesuo estas la Kristo, la Filo de Dio, kaj ke kredante, vi havu
 
-vivon en lia nomo. 
+vivon en lia nomo.
 
 ĉapitro 21
 
@@ -12912,7 +12452,7 @@ so, nomata Didimo, kaj Natanael el Kana Galilea, kaj la filoj de Ze-
 
 bedeo, kaj aliaj du el liaj disĉiploj. 3 Simon Petro diris al ili: Mi iras, por fiŝkapti. Ili diris al li: Ni ankaŭ iras kun vi. Ili do eliris, kaj iris sur la ŝipon; kaj tiun nokton ili nenion kaptis. 4 Sed ĉe la tagiĝo Jesuo
 
-staris sur la marbordo; tamen la disĉiploj ne sciis, ke ĝi estas Jesuo. 
+staris sur la marbordo; tamen la disĉiploj ne sciis, ke ĝi estas Jesuo.
 
 5 Tiam Jesuo diris al ili: Infanoj, ĉu vi havas ian manĝaĵon? Ili re-
 
@@ -12922,33 +12462,31 @@ ko de la ŝipo, kaj vi trovos. Ili do ĝin elĵetis; kaj pro la multeco de la
 
 fiŝoj ili ne plu povis ĝin treni. 7 Tiu disĉiplo, kiun Jesuo amis, diris
 
-al Petro: ¯i estas la Sinjoro. Kiam do Simon Petro aŭdis, ke ĝi estas
+al Petro: i estas la Sinjoro. Kiam do Simon Petro aŭdis, ke ĝi estas
 
-la Sinjoro, li alzonis al si sian kitelon \(ĉar li estis nuda\) kaj ĵetis sin en la maron. 8 Sed la aliaj disĉiploj venis en la ŝipeto \(ĉar ili estis ne
+la Sinjoro, li alzonis al si sian kitelon (ĉar li estis nuda) kaj ĵetis sin en la maron. 8 Sed la aliaj disĉiploj venis en la ŝipeto (ĉar ili estis ne
 
-malproksime de la tero, sed nur ĉirkaŭ ducent ulnoj\), trenante la
+malproksime de la tero, sed nur ĉirkaŭ ducent ulnoj), trenante la
 
 reton plenan de fiŝoj. 9 Kaj kiam ili eliris sur la teron, ili vidis fajron karban aranĝitan tie, kaj fiŝon kuŝantan sur ĝi, kaj panon. 10 Jesuo
 
 diris al ili: Alportu el la fiŝoj, kiujn vi ĵus kaptis. 11 Simon Petro iris sur la ŝipon, kaj tiris la reton al la tero, plenan de grandaj fiŝoj, cent
 
-kvindek tri; kaj kvankam estis tiel multaj, tamen la reto ne disŝiriĝis. 
+kvindek tri; kaj kvankam estis tiel multaj, tamen la reto ne disŝiriĝis.
 
 12 Jesuo diris al ili: Venu, matenmanĝu. Kaj neniu el la disĉiploj ku-
 
 raĝis lin demandi: Kiu vi estas? sciante, ke ĝi estas la Sinjoro. 13 Je-
 
-suo venis kaj prenis la panon kaj donis al li, kaj tiel same la fiŝon. 
+suo venis kaj prenis la panon kaj donis al li, kaj tiel same la fiŝon.
 
 14 Tiu estas jam la tria fojo, kiam aperis Jesuo al siaj disĉiploj, post
 
-sia releviĝo el la mortintoj. 
+sia releviĝo el la mortintoj.
 
-217
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 15 Post la matenmanĝo Jesuo diris al Simon Petro: Simon, filo de
 
@@ -12956,7 +12494,7 @@ Jona, ĉu vi amas min pli, ol tiuj? Li diris al li: Jes, Sinjoro; vi scias, ke m
 
 Jes, Sinjoro; vi scias, ke mi vin amas. Li diris al li: Zorgu pri miaj ŝa-
 
-foj. 17 Li diris al li la trian fojon: Simon, filo de Jona, ĉu vi min amas? 
+foj. 17 Li diris al li la trian fojon: Simon, filo de Jona, ĉu vi min amas?
 
 Petro ĉagreniĝis, ke li diris al li la trian fojon: ĉu vi min amas? kaj
 
@@ -12964,37 +12502,35 @@ respondis al li: Sinjoro, vi scias ĉion; vi scias, ke mi vin amas. Jesuo
 
 diris al li: Paŝtu miajn ŝafojn. 18 Vere, vere, mi diras al vi: Kiam vi
 
-estis juna, vi zonis vin, kaj iris, kien vi volis; sed kiam vi maljuniĝos, 
+estis juna, vi zonis vin, kaj iris, kien vi volis; sed kiam vi maljuniĝos,
 
 vi etendos viajn manojn, kaj alia vin zonos, kaj portos vin, kien vi
 
 ne volos. 19 Tion li diris, montrante per aludo, per kia morto li glo-
 
-ros Dion. Kaj dirinte tion, li diris al li: Sekvu min. 20 Petro, sin turnin-te, vidis malantaŭe la disĉiplon, kiun Jesuo amis \(kiu ankaŭ klinis
+ros Dion. Kaj dirinte tion, li diris al li: Sekvu min. 20 Petro, sin turnin-te, vidis malantaŭe la disĉiplon, kiun Jesuo amis (kiu ankaŭ klinis
 
 sin al lia brusto dum la vespermanĝo, kun la diro: Sinjoro, kiu es-
 
-tas la perfidanta vin?\). 21 Petro do, vidinte lin, diris al Jesuo: Sinjoro, kaj kion pri ĉi tiu? 22 Jesuo diris al li: Se mi volas, ke li restu, ĝis mi venos, kio estas al vi? vi sekvu min. 23 Tial inter la fratoj disiris la
+tas la perfidanta vin?). 21 Petro do, vidinte lin, diris al Jesuo: Sinjoro, kaj kion pri ĉi tiu? 22 Jesuo diris al li: Se mi volas, ke li restu, ĝis mi venos, kio estas al vi? vi sekvu min. 23 Tial inter la fratoj disiris la
 
 famo, ke tiu disĉiplo ne mortos; tamen Jesuo ne diris al li, ke li ne
 
-mortos, sed: Se mi volas, ke li restu, ĝis mi venos, kio estas al vi? 
+mortos, sed: Se mi volas, ke li restu, ĝis mi venos, kio estas al vi?
 
 24 Tiu estas la disĉiplo, kiu atestas pri tio kaj skribis tion: kaj ni
 
-scias, ke lia atesto estas vera. 
+scias, ke lia atesto estas vera.
 
-25 Estas ankaŭ multaj aliaj faroj, kiujn Jesuo faris; kaj mi supozas, 
+25 Estas ankaŭ multaj aliaj faroj, kiujn Jesuo faris; kaj mi supozas,
 
 ke se ĉiu el ili estus skribita detale, la tuta mondo ne havus lokon
 
-por la skribotaj libroj. 
+por la skribotaj libroj.
 
-218
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La agoj de la apostoloj
 
@@ -13002,7 +12538,7 @@ La agoj de la apostoloj
 
 1 La unuan historion mi faris, ho Teofilo, pri ĉio, kion Jesuo kom-
 
-encis fari kaj instrui, 2 ĝis la tago, kiam li estis akceptita supren, 
+encis fari kaj instrui, 2 ĝis la tago, kiam li estis akceptita supren,
 
 doninte ordonon per la Sankta Spirito al la apostoloj, kiujn li elek-
 
@@ -13012,11 +12548,11 @@ pruvoj, dum kvardek tagoj aperante al ili kaj parolante pri la aferoj
 
 de la regno de Dio; 4 kaj kunestante, li admonis ilin ne foriri el Je-
 
-rusalem, sed atendi tiun promeson de la Patro, pri kiu \(li diris\) vi
+rusalem, sed atendi tiun promeson de la Patro, pri kiu (li diris) vi
 
 aŭdis de mi; 5 ĉar kiel Johano baptis per akvo, vi baptiĝos per la
 
-Sankta Spirito post ne multe da tagoj. 
+Sankta Spirito post ne multe da tagoj.
 
 6 Ili do, kunveninte, demandis lin, dirante: Sinjoro, ĉu en ĉi tiu
 
@@ -13034,33 +12570,31 @@ dirinte, li suprenleviĝis, ankoraŭ dum ili rigardis, kaj nubo ricevis
 
 lin for de iliaj okuloj. 10 Kaj dum ili fikse rigardis al la ĉielo, kiam li foriris, jen staris apud ili du viroj blanke vestitaj; 11 kiuj ankaŭ diris: Viroj Galileanoj, kial vi staras rigardantaj al la ĉielo? ĉi tiu Jesuo, kiu estas prenita supren for de vi en la ĉielon, tiel same revenos, kiel
 
-vi vidis lin iranta en la ĉielon. 
+vi vidis lin iranta en la ĉielon.
 
 12 Tiam ili iris returne al Jerusalem de la monteto nomata Olivar-
 
 ba, kiu estas proksime de Jerusalem, en la distanco de sabata vo-
 
-219
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 jaĝo. 13 Kaj kiam ili envenis, ili supreniris en la supran ĉambron, kie
 
-loĝis Petro kaj Johano kaj Jakobo kaj Andreo, Filipo kaj Tomaso, 
+loĝis Petro kaj Johano kaj Jakobo kaj Andreo, Filipo kaj Tomaso,
 
 Bartolomeo kaj Mateo, Jakobo, filo de Alfeo, kaj Simon, la Fervo-
 
 rulo, kaj Judas, filo de Jakobo. 14 ĉiuj ĉi tiuj unuanime persistis en
 
-preĝado kaj petado, kun la virinoj, kaj Maria, la patrino de Jesuo, 
+preĝado kaj petado, kun la virinoj, kaj Maria, la patrino de Jesuo,
 
-kaj kun liaj fratoj. 
+kaj kun liaj fratoj.
 
-15 Kaj en tiuj tagoj Petro, stariĝinte meze de la fratoj, diris \(kaj
+15 Kaj en tiuj tagoj Petro, stariĝinte meze de la fratoj, diris (kaj
 
-multego da personoj estis kune, ĉirkaŭ cent dudek\): 16 Fratoj, estis
+multego da personoj estis kune, ĉirkaŭ cent dudek): 16 Fratoj, estis
 
 necese, ke plenumiĝu tiu Skribo, kiun la Sankta Spirito antaŭparolis
 
@@ -13068,21 +12602,21 @@ per la buŝo de David pri Judas, kiu fariĝis gvidanto al tiuj, kiuj kaptis
 
 Jesuon. 17 ĉar li estis kalkulita inter ni kaj ricevis sian parton en ĉi
 
-tiu servado. 18 \(Tiu ja akiris kampon per la rekompenco de sia mal-
+tiu servado. 18 (Tiu ja akiris kampon per la rekompenco de sia mal-
 
 justeco, kaj falinte kapantaŭe, li diskrevis meze, kaj ĉiuj liaj inter-
 
-naĵoj elŝutiĝis. 19 Kaj tio fariĝis sciata al ĉiuj loĝantoj en Jerusalem, 
+naĵoj elŝutiĝis. 19 Kaj tio fariĝis sciata al ĉiuj loĝantoj en Jerusalem,
 
-tiel ke en ilia dialekto tiu kampo estas nomita Akeldama, tio estas, 
+tiel ke en ilia dialekto tiu kampo estas nomita Akeldama, tio estas,
 
-Kampo de Sango.\) 20 ĉar estas skribite en la Psalmaro:
+Kampo de Sango.) 20 ĉar estas skribite en la Psalmaro:
 
-Lia loĝejo dezertiĝu, 
+Lia loĝejo dezertiĝu,
 
 Kaj en ĝi ne ekzistu loĝanto; kaj:
 
-Lian oficon ricevu alia. 
+Lian oficon ricevu alia.
 
 21 El tiuj viroj do, kiuj nin akompanis dum la tuta tempo, en kiu
 
@@ -13094,19 +12628,17 @@ devas esti atestanto kun ni pri lia releviĝo. 23 Kaj ili starigis du: Jo-
 
 zefon, nomatan Barsabas, kies alnomo estis Justo, kaj Mattiason. 24
 
-Kaj preĝante, ili diris: Vi, ho Sinjoro, kiu konas la korojn de ĉiuj, 
+Kaj preĝante, ili diris: Vi, ho Sinjoro, kiu konas la korojn de ĉiuj,
 
 elmontru, kiun el ĉi tiuj du Vi elektis, 25 por ricevi la parton en ĉi tiu
 
 servado kaj apostoleco, de kiu Judas forfalis, por iri al sia propra
 
-loko. 26 Kaj ili lotis pri tio, kaj la loto falis por Mattias; kaj li estis alkalkulita al la dek unu apostoloj. 
+loko. 26 Kaj ili lotis pri tio, kaj la loto falis por Mattias; kaj li estis alkalkulita al la dek unu apostoloj.
 
-220
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 2
 
@@ -13120,21 +12652,21 @@ sirantaj langoj kvazaŭ el fajro, kaj sidiĝis sur ĉiun el ili. 4 Kaj ĉiuj
 
 pleniĝis de la Sankta Spirito, kaj komencis paroli aliajn lingvojn, kiel
 
-la Spirito donis al ili parolpovon. 
+la Spirito donis al ili parolpovon.
 
-5 Kaj en Jerusalem tiam loĝis piaj Judoj el ĉiu nacio sub la ĉielo. 
+5 Kaj en Jerusalem tiam loĝis piaj Judoj el ĉiu nacio sub la ĉielo.
 
 6 Kaj kiam aŭdiĝis tiu sono, la homamaso kunvenis kaj miregis, ĉar
 
 ĉiu aparte aŭdis ilin paroli per lia propra dialekto. 7 Kaj ĉiuj kon-
 
-fuziĝis kaj miris, dirante unu al alia: Rigardu\! ĉu ne estas Galileanoj
+fuziĝis kaj miris, dirante unu al alia: Rigardu! ĉu ne estas Galileanoj
 
 ĉiuj tiuj parolantoj? 8 Kiel do ni aŭdas ĉiu en sia dialekto, en kiu ni
 
 naskiĝis? 9 Partoj kaj Medoj kaj Elamanoj, kaj loĝantoj en Mezopo-
 
-tamio, Judujo, Kapadokio, Ponto kaj Azio, 10 Frigio kaj Pamfilio, 
+tamio, Judujo, Kapadokio, Ponto kaj Azio, 10 Frigio kaj Pamfilio,
 
 Egiptujo kaj la partoj de Libio apud Kireno, kaj pasloĝantaj Ro-
 
@@ -13144,49 +12676,47 @@ paroli en niaj lingvoj la mirindaĵojn de Dio. 12 Kaj ĉiuj konfuziĝis kaj
 
 embarasiĝis, dirante unu al alia: Kion ĉi tio signifas? 13 Sed aliaj
 
-moke diris: Ili estas plenaj de mosto. 
+moke diris: Ili estas plenaj de mosto.
 
 14 Sed Petro, stariĝinte kun la dek unu, levis sian voĉon kaj pa-
 
 rolis al ili, dirante: Ho Judoj kaj ĉiuj loĝantoj en Jerusalem, ĉi tio estu al vi sciata, kaj aŭskultu miajn vortojn. 15 ĉar ĉi tiuj ne estas ebri-aj, kiel vi supozas, ĉar estas la tria horo de la tago; 16 sed jen tio, kio estis dirita per la profeto Joel:
 
-17 Kaj en la lasta tempo, diras Dio, 
+17 Kaj en la lasta tempo, diras Dio,
 
-Mi elverŝos Mian spiriton sur ĉiun karnon; 
+Mi elverŝos Mian spiriton sur ĉiun karnon;
 
-Kaj viaj filoj kaj viaj filinoj profetos, 
+Kaj viaj filoj kaj viaj filinoj profetos,
 
-Kaj viaj junuloj havos viziojn, 
+Kaj viaj junuloj havos viziojn,
 
-Kaj viaj maljunuloj havos sonĝojn; 
+Kaj viaj maljunuloj havos sonĝojn;
 
 18 Kaj eĉ sur Miajn sklavojn kaj Miajn sklavinojn en tiu tempo
 
-221
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Mi elverŝos Mian spiriton, 
+Mi elverŝos Mian spiriton,
 
-Kaj ili profetos. 
+Kaj ili profetos.
 
-19 Kaj Mi donos miraklojn en la ĉielo supre, 
+19 Kaj Mi donos miraklojn en la ĉielo supre,
 
 Kaj signojn sur la tero malsupre:
 
-Sangon, fajron, kaj vaporon de fumo; 
+Sangon, fajron, kaj vaporon de fumo;
 
-20 La suno fariĝos malluma, 
+20 La suno fariĝos malluma,
 
-Kaj la luno fariĝos sanga, 
+Kaj la luno fariĝos sanga,
 
-Antaŭ ol venos la granda kaj majesta tago de la Eternulo; 
+Antaŭ ol venos la granda kaj majesta tago de la Eternulo;
 
-21 Kaj ĉiu, kiu vokos la nomon de la Eternulo, saviĝos. 
+21 Kaj ĉiu, kiu vokos la nomon de la Eternulo, saviĝos.
 
-22 Izraelidoj, aŭskultu la jenajn vortojn: Jesuon, la Nazaretanon, 
+22 Izraelidoj, aŭskultu la jenajn vortojn: Jesuon, la Nazaretanon,
 
 viron de Dio, elmontritan al vi per potencaĵoj kaj mirakloj kaj sig-
 
@@ -13200,25 +12730,25 @@ suferojn de morto, ĉar estis neeble, ke li estu tenata de ĝi. 25 ĉar
 
 David diris pri li:
 
-ĉiam mi vidis la Eternulon antaŭ mi, 
+ĉiam mi vidis la Eternulon antaŭ mi,
 
-ĉar Li estas ĉe mia dekstra mano, por ke mi ne falu; 
+ĉar Li estas ĉe mia dekstra mano, por ke mi ne falu;
 
-26 Tial ĝojis mia koro, raviĝis mia lango, 
+26 Tial ĝojis mia koro, raviĝis mia lango,
 
-Eĉ mia karno ripozas en espero; 
+Eĉ mia karno ripozas en espero;
 
-27 ĉar Vi ne lasos mian animon al ˘eol, 
+27 ĉar Vi ne lasos mian animon al ˘eol,
 
-Vi ne permesos, ke Via sanktulo forputru. 
+Vi ne permesos, ke Via sanktulo forputru.
 
-28 Vi konigis al mi la vojojn de la vivo, 
+28 Vi konigis al mi la vojojn de la vivo,
 
-Vi plenigos min per ĝojo antaŭ Vi. 
+Vi plenigos min per ĝojo antaŭ Vi.
 
 29 Fratoj, mi povas libere paroli al vi pri la patriarko David, ke li
 
-mortis kaj estis enterigita, kaj lia tombo estas ĉe ni ĝis la nuna tago. 
+mortis kaj estis enterigita, kaj lia tombo estas ĉe ni ĝis la nuna tago.
 
 30 Estante do profeto, kaj sciante, ke Dio ĵuris al li per ĵuro, sidigi sur lia trono iun el la frukto de liaj lumboj, 31 li, antaŭvidante, parolis
 
@@ -13226,11 +12756,9 @@ pri la relevo de la Kristo, ke li ne estos lasita al ˘eol, kaj lia karno
 
 ne forputros. 32 ĉi tiun Jesuon relevis Dio, pri kio ni ĉiuj estas ates-
 
-222
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tantoj. 33 Levite do ĝis dekstre de Dio, kaj ricevinte de la Patro la
 
@@ -13238,13 +12766,13 @@ promeson de la Sankta Spirito, li elverŝis tion, kion ni vidas kaj aŭ-
 
 das. 34 ĉar David ne supreniris en la ĉielojn; sed li mem diris:
 
-La Eternulo diris al mia Sinjoro; Sidu dekstre de Mi, 35 ¯is Mi
+La Eternulo diris al mia Sinjoro; Sidu dekstre de Mi, 35 is Mi
 
-faros viajn malamikojn benketo por viaj piedoj. 
+faros viajn malamikojn benketo por viaj piedoj.
 
-36 Kun certeco do sciu la tuta domo de Izrael, ke tiun Jesuon, 
+36 Kun certeco do sciu la tuta domo de Izrael, ke tiun Jesuon,
 
-kiun vi krucumis, Dio faris Sinjoro kaj Kristo. 
+kiun vi krucumis, Dio faris Sinjoro kaj Kristo.
 
 37 Kaj aŭdinte tion, ili estis pikitaj en la koro, kaj diris al Petro kaj
 
@@ -13254,17 +12782,17 @@ tu, kaj baptiĝu ĉiu el vi en la nomo de Jesuo Kristo por forigo de
 
 pekoj, kaj vi ricevos la donacon de la Sankta Spirito. 39 ĉar la pro-
 
-meso estas por vi kaj por viaj infanoj, kaj por ĉiuj ĝis malproksime, 
+meso estas por vi kaj por viaj infanoj, kaj por ĉiuj ĝis malproksime,
 
 kiujn alvokos la Eternulo, nia Dio. 40 Kaj per multaj aliaj paroloj li
 
-atestis kaj alvokis ilin, dirante: Savu vin el ĉi tiu perversa generacio. 
+atestis kaj alvokis ilin, dirante: Savu vin el ĉi tiu perversa generacio.
 
 41 Tiuj do, kiuj akceptis lian parolon, baptiĝis, kaj en tiu tago aldon-
 
 iĝis ĉirkaŭ tri mil animoj. 42 Kaj ili persistis en la instruo de la apos-
 
-toloj kaj en la kunuleco, en la dispecigo de pano kaj en preĝoj. 
+toloj kaj en la kunuleco, en la dispecigo de pano kaj en preĝoj.
 
 43 Kaj ĉiu animo havis timon, kaj multaj mirakloj kaj signoj far-
 
@@ -13280,7 +12808,7 @@ kun ĝojo kaj unueco de koro, 47 laŭdante Dion kaj havante favoron
 
 ĉe la tuta popolo. Kaj la Sinjoro aldonis ĉiutage al la eklezio la sa-
 
-vatojn. 
+vatojn.
 
 ĉapitro 3
 
@@ -13288,11 +12816,9 @@ vatojn.
 
 de preĝado, la naŭa. 2 Kaj unu viro, lama de la patrina ventro, es-
 
-223
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tis portata; oni lin metis ĉiutage apud tiu pordego de la templo, kiu
 
@@ -13300,7 +12826,7 @@ estas nomata La Bela, por ke li petu pri almozoj la enirantojn en la
 
 templon; 3 tiu, vidante Petron kaj Johanon enirontajn en la temp-
 
-lon, petis almozon. 4 Kaj Petro, fikse rigardante lin, kun Johano, 
+lon, petis almozon. 4 Kaj Petro, fikse rigardante lin, kun Johano,
 
 diris: Rigardu nin. 5 Kaj li atentis ilin, atendante ricevi ion de ili. 6
 
@@ -13308,7 +12834,7 @@ Kaj Petro diris: Nek arĝentaĵon nek oraĵon mi havas, sed kion mi
 
 havas, tion mi donas al vi. En la nomo de Jesuo Kristo, la Naza-
 
-retano, piediru. 7 Kaj li prenis lin per la dekstra mano kaj lin levis; 
+retano, piediru. 7 Kaj li prenis lin per la dekstra mano kaj lin levis;
 
 kaj tuj liaj plandoj kaj liaj maleolostoj fortiĝis. 8 Kaj li suprensalte
 
@@ -13318,19 +12844,19 @@ kaj laŭdantan Dion; 10 kaj ili rekonis lin, ke li estas tiu, kiu sidis por
 
 almozo apud la Bela Pordego de la templo, kaj ili pleniĝis de mir-
 
-ego kaj konfuziĝo pri tio, kio okazis al li. 
+ego kaj konfuziĝo pri tio, kio okazis al li.
 
 11 Kaj dum li tenis Petron kaj Johanon, la tuta popolo kunkuris
 
 al ili en la portiko nomata Salomona, miregante. 12 Kaj Petro, vid-
 
-ante tion, respondis al la popolo: Izraelidoj, kial vi miras pri ĉi tio? 
+ante tion, respondis al la popolo: Izraelidoj, kial vi miras pri ĉi tio?
 
 kaj kial vi fikse rigardas nin, kvazaŭ per propra potenco aŭ pieco ni
 
 igis lin piediri? 13 La Dio de Abraham kaj de Isaak kaj de Jakob, la
 
-Dio de niaj patroj, gloris Sian Servanton Jesuo, kiun vi transdonis, 
+Dio de niaj patroj, gloris Sian Servanton Jesuo, kiun vi transdonis,
 
 kaj malkonfesis antaŭ la vizaĝo de Pilato, kiam ĉi tiu decidis libe-
 
@@ -13338,7 +12864,7 @@ rigi lin. 14 Sed vi malkonfesis la Sanktulon kaj Justulon, kaj petis, ke
 
 mortiginto estu donita al vi, 15 kaj mortigis la Estron de la vivo, kiun
 
-Dio relevis el la mortintoj, pri kio ni estas atestantoj. 16 Kaj lia nomo, 
+Dio relevis el la mortintoj, pri kio ni estas atestantoj. 16 Kaj lia nomo,
 
 per fido en lia nomo, fortigis ĉi tiun, kiun vi vidas kaj konas; kaj la
 
@@ -13348,15 +12874,13 @@ Kaj nun, fratoj, mi scias, ke vi agis de nescio, kiel ankaŭ viaj regan-
 
 toj. 18 Sed tiel Dio plenumis tion, kion Li antaŭanoncis per la buŝo
 
-de ĉiuj profetoj, ke Lia Kristo suferos. 19 Pentu do, kaj konvertiĝu, 
+de ĉiuj profetoj, ke Lia Kristo suferos. 19 Pentu do, kaj konvertiĝu,
 
 por ke viaj pekoj estu forviŝitaj, por ke venu tempoj de refreŝiĝo de
 
-224
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la vizaĝo de la Eternulo, 20 kaj por ke Li sendu la por vi difinitan
 
@@ -13364,7 +12888,7 @@ Kriston, Jesuon, 21 kiun la ĉielo devas ricevi ĝis la tempoj de resta-
 
 rigo de ĉio, pri kiuj parolis Dio per la buŝo de Siaj sanktaj profetoj
 
-jam de antikva tempo. 22 ĉar Moseo diris: Profeton el viaj fratoj, 
+jam de antikva tempo. 22 ĉar Moseo diris: Profeton el viaj fratoj,
 
 similan al mi, starigos por vi la Eternulo, via Dio; lin aŭskultu pri ĉio
 
@@ -13378,7 +12902,7 @@ estas la filoj de la profetoj, kaj de la interligo, kiun Dio faris kun viaj patr
 
 la tero. 26 Al vi unue Dio, relevinte Sian Servanton, sendis lin, por
 
-vin beni, deturnante ĉiun el vi for de liaj pekoj. 
+vin beni, deturnante ĉiun el vi for de liaj pekoj.
 
 ĉapitro 4
 
@@ -13392,7 +12916,7 @@ ili metis sur ilin la manojn, kaj metis ilin en gardejon ĝis la sekvanta
 
 tago; ĉar estis jam vespero. 4 Tamen multaj el tiuj, kiuj aŭdis la vor-
 
-ton, kredis; kaj la nombro de la viroj estis proksimume kvin mil. 
+ton, kredis; kaj la nombro de la viroj estis proksimume kvin mil.
 
 5 Kaj en la sekvanta tago kunvenis en Jerusalem la regantoj kaj
 
@@ -13412,11 +12936,9 @@ estu sciate al vi ĉiuj kaj al la tuta popolo Izraela, ke en la nomo de
 
 Jesuo Kristo, la Nazaretano, kiun vi krucumis, kiun Dio levis el la
 
-225
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mortintoj, ĉi tiu staras sana antaŭ vi. 11 Tiu estas la ŝtono, kiun vi
 
@@ -13424,7 +12946,7 @@ konstruantoj malŝatis, kaj kiu fariĝis ŝtono bazangula. 12 Kaj en ne-
 
 niu alia estas savo; ĉar ne estas sub la ĉielo alia nomo, donita inter
 
-homoj, per kiu ne devas esti savitaj. 
+homoj, per kiu ne devas esti savitaj.
 
 13 Sed kiam ili rimarkis la kuraĝon de Petro kaj Johano, kaj kom-
 
@@ -13452,7 +12974,7 @@ kio ili povus ilin puni, pro la popolo; ĉar ĉiuj gloris Dion pro la farit-
 
 aĵo. 22 ĉar estis pli ol kvardekjara la viro, sur kiu fariĝis ĉi tiu signo
 
-resaniga. 
+resaniga.
 
 23 Kaj liberigite, ili venis al siaj kunuloj kaj rakontis ĉion, kion la
 
@@ -13462,21 +12984,19 @@ teron kaj la maron, kaj ĉion, kio estas en ili, 25 kaj kiu per la Sank-
 
 ta Spirito, per la buŝo de nia patro David, Via servanto, diris:
 
-Kiel tumultas popoloj, 
+Kiel tumultas popoloj,
 
-Kaj gentoj pripensas vanaĵon? 
+Kaj gentoj pripensas vanaĵon?
 
-26 Leviĝis la reĝoj de la tero, 
+26 Leviĝis la reĝoj de la tero,
 
-Kaj la regantoj kolektiĝis kune, 
+Kaj la regantoj kolektiĝis kune,
 
-Kontraŭ la Eternulo kaj kontraŭ Lia Sanktoleito; 
+Kontraŭ la Eternulo kaj kontraŭ Lia Sanktoleito;
 
-226
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 27 ĉar vere en ĉi tiu urbo kolektiĝis kontraŭ Via sankta Servan-
 
@@ -13494,7 +13014,7 @@ rakloj fariĝos per la nomo de Via sankta Servanto Jesuo. 31 Kaj post
 
 ilia preĝado skuiĝis la loko, en kiu ili kolektiĝis; kaj ili ĉiuj pleniĝis
 
-de la Sankta Spirito, kaj parolis kuraĝe la vorton de Dio. 
+de la Sankta Spirito, kaj parolis kuraĝe la vorton de Dio.
 
 32 Kaj la anaro de la kredantoj estis unukora kaj unuanima, kaj
 
@@ -13510,15 +13030,15 @@ dis ilin, kaj alportis la prezon de la venditaĵoj 35 kaj metis ĝin antaŭ
 
 la piedoj de la apostoloj; kaj estis disdonate al ĉiu laŭ ĉies aparta
 
-bezono. 
+bezono.
 
-36 Kaj Jozef, kiu de la apostoloj estis alnomita Barnabas \(tio es-
+36 Kaj Jozef, kiu de la apostoloj estis alnomita Barnabas (tio es-
 
-tas, Filo de Konsolo\), Levido, Kiprano laŭ sia naskiĝo, 37 posedan-
+tas, Filo de Konsolo), Levido, Kiprano laŭ sia naskiĝo, 37 posedan-
 
 te kampon, vendis ĝin, kaj alportis la prezon kaj metis ĝin antaŭ la
 
-piedoj de la apostoloj. 
+piedoj de la apostoloj.
 
 ĉapitro 5
 
@@ -13526,7 +13046,7 @@ piedoj de la apostoloj.
 
 sedaĵon, 2 kaj retenis iom el la prezo, kun la konsento de sia edzi-
 
-no, kaj iun parton alportis kaj metis antaŭ la piedoj de la apostoloj. 
+no, kaj iun parton alportis kaj metis antaŭ la piedoj de la apostoloj.
 
 3 Sed Petro diris: Ananias, kial Satano plenigis vian koron tiel, ke vi
 
@@ -13534,11 +13054,9 @@ mensogas al la Sankta Spirito kaj retenas iom el la prezo de la bie-
 
 no? 4 Dum ĝi restis, ĉu ĝi ne estis via? kaj post la vendo, ĉu ĝi ne
 
-227
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estis en via rajto? Kial do ĉi tiun faron vi celis en via koro? vi men-
 
@@ -13546,7 +13064,7 @@ sogis ne al homoj, sed al Dio. 5 Kaj aŭdante ĉi tiujn vortojn, Ananias
 
 falis kaj senspiriĝis; kaj granda timo venis sur ĉiujn aŭdantojn. 6 Kaj
 
-la junuloj leviĝis, kaj lin ĉirkaŭvindis, kaj forportis kaj enterigis. 
+la junuloj leviĝis, kaj lin ĉirkaŭvindis, kaj forportis kaj enterigis.
 
 7 Kaj post paso de ĉirkaŭ tri horoj eniris lia edzino, ne sciante, kio
 
@@ -13564,7 +13082,7 @@ senspiriĝis; kaj la junuloj eniris, kaj trovis ŝin mortinta, kaj ŝin for-
 
 portis kaj enterigis apud ŝia edzo. 11 Kaj granda timo venis sur la
 
-tutan eklezion kaj sur ĉiujn aŭdantajn pri tio. 
+tutan eklezion kaj sur ĉiujn aŭdantajn pri tio.
 
 12 Kaj per la mano de la apostoloj estis faritaj multaj signoj kaj
 
@@ -13584,11 +13102,11 @@ venis ankaŭ en Jerusalemon la amaso el la ĉirkaŭaj urboj, portan-
 
 te malsanulojn kaj la turmentatajn de malpuraj spiritoj, kaj ĉiuj estis
 
-sanigitaj. 
+sanigitaj.
 
-17 Sed stariĝis la ĉefpastro, kaj ĉiuj, kiuj estis kun li \(tio estas la
+17 Sed stariĝis la ĉefpastro, kaj ĉiuj, kiuj estis kun li (tio estas la
 
-sekto de la Sadukeoj\), kaj ili pleniĝis de ĵaluzo, 18 kaj ĵetis manojn
+sekto de la Sadukeoj), kaj ili pleniĝis de ĵaluzo, 18 kaj ĵetis manojn
 
 sur la apostolojn, kaj metis ilin en la publikan gardejon. 19 Sed an-
 
@@ -13598,13 +13116,11 @@ kondukis ilin, kaj diris: 20 Iru, kaj staru kaj parolu en la templo al la
 
 popolo ĉiujn vortojn pri ĉi tiu Vivo. 21 Kaj tion aŭdinte, ili eniris ĉe
 
-la tagiĝo en la templon kaj ekinstruis. Sed venis la ĉefpastro, kaj tiuj, 
+la tagiĝo en la templon kaj ekinstruis. Sed venis la ĉefpastro, kaj tiuj,
 
-228
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiuj estis kun li, kaj kunvokis la sinedrion kaj la tutan senaton de la
 
@@ -13618,11 +13134,11 @@ gardistojn starantaj antaŭ la pordoj; sed malferminte, ni trovis in-
 
 terne neniun. 24 Kiam do la kapitano de la templo kaj la ĉefpastroj
 
-aŭdis ĉi tiujn vortojn, ili embarasiĝis pri ili, kio fariĝos el tiu afero. 
+aŭdis ĉi tiujn vortojn, ili embarasiĝis pri ili, kio fariĝos el tiu afero.
 
 25 Tiam iu venis, kaj sciigis al ili: Jen la viroj, kiujn vi metis en la karceron, estas en la templo, kaj staras kaj instruas la popolon. 26 Tiam
 
-foriris la kapitano kun la oficistoj, kaj alkondukis ilin sen perforto; 
+foriris la kapitano kun la oficistoj, kaj alkondukis ilin sen perforto;
 
 ĉar ili timis la popolon, por ke ili ne estu priĵetitaj per ŝtonoj. 27 Kaj
 
@@ -13634,7 +13150,7 @@ en ĉi tiu nomo; kaj jen vi plenigis Jerusalemon per via instruado, kaj
 
 intencas survenigi sur nin la sangon de tiu homo. 29 Tiam Petro kaj
 
-la apostoloj responde diris: Oni devas obei Dion prefere ol homojn. 
+la apostoloj responde diris: Oni devas obei Dion prefere ol homojn.
 
 30 La Dio de niaj patroj levis Jesuon, kiun vi pereigis, pendigante lin
 
@@ -13644,25 +13160,23 @@ Savanto, por doni al Izrael penton kaj pardonadon de pekoj. 32 Kaj
 
 ni estas atestantoj de ĉi tiuj vortoj, kiel ankaŭ estas la Sankta Spi-
 
-rito, kiun Dio donis al tiuj, kiuj Lin obeas. 
+rito, kiun Dio donis al tiuj, kiuj Lin obeas.
 
 33 Kaj ili, aŭdinte tion, estis pikitaj en la koro, kaj ili konsiliĝis, por pereigi ilin. 34 Sed unu Fariseo, nomata Gamaliel, leĝinstruisto honorata ĉe la tuta popolo, ekstaris en la sinedrio, kaj ordonis, ke oni
 
 eksteren forigu la homojn por kelka tempo. 35 Kaj li diris al ili: Izra-
 
-elidoj, estu singardaj rilate al ĉi tiuj homoj pri tio, kion vi celas fari. 
+elidoj, estu singardaj rilate al ĉi tiuj homoj pri tio, kion vi celas fari.
 
 36 ĉar antaŭ ĉi tiuj tagoj leviĝis Teŭdas, dirante, ke li estas ia per-
 
-sono; kaj al li aliĝis nombro da viroj, ĉirkaŭ kvarcent; kaj li pereis; 
+sono; kaj al li aliĝis nombro da viroj, ĉirkaŭ kvarcent; kaj li pereis;
 
 kaj ĉiuj, kiuj lin obeis, dispeliĝis kaj nuliĝis. 37 Post tiu leviĝis Judas, Galileano, en la tagoj de la registrado, kaj fortiris post si homojn; li
 
-229
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ankaŭ pereis, kaj ĉiuj, kiuj lin obeis, dispeliĝis. 38 Kaj nun mi diras
 
@@ -13678,7 +13192,7 @@ kaj batinte ilin, ili ordonis, ke ili ne parolu en la nomo de Jesuo, kaj
 
 liberigis ilin. 41 Sed ili foriris de antaŭ la sinedrio, ĝojante, ke ili estis juĝitaj indaj suferi malhonoron pro la Nomo. 42 Kaj ĉiutage en
 
-la templo kaj dome ili ne ĉesis instrui kaj prediki Jesuon, la Kriston. 
+la templo kaj dome ili ne ĉesis instrui kaj prediki Jesuon, la Kriston.
 
 ĉapitro 6
 
@@ -13686,7 +13200,7 @@ la templo kaj dome ili ne ĉesis instrui kaj prediki Jesuon, la Kriston.
 
 murmurado de la Grekaj Judoj kontraŭ la Hebreaj pro tio, ke iliaj
 
-vidvinoj estas preterlasataj en la ĉiutaga servado. 2 Kaj la dek du, 
+vidvinoj estas preterlasataj en la ĉiutaga servado. 2 Kaj la dek du,
 
 alvokinte la amason de la disĉiploj, diris: Ne estas dezirinde, ke ni
 
@@ -13700,15 +13214,15 @@ la servado de la Vorto. 5 Kaj tiu diro plaĉis al la tuta amaso; kaj ili
 
 elektis Stefanon, viron plenan de fido kaj de la Sankta Spirito, kaj
 
-Filipon kaj Pro˛oron kaj Nikanoron kaj Timonon kaj Parmenason, 
+Filipon kaj Pro˛oron kaj Nikanoron kaj Timonon kaj Parmenason,
 
 kaj Nikolaon, prozeliton el Antio˛ia; 6 tiujn ili starigis antaŭ la apo-
 
-stoloj; kaj ĉi tiuj, preĝinte, metis sur ilin la manojn. 
+stoloj; kaj ĉi tiuj, preĝinte, metis sur ilin la manojn.
 
 7 Kaj la vorto de Dio kreskis, kaj la nombro de la disĉiploj mul-
 
-tiĝis treege en Jerusalem, kaj granda aro el la pastroj obeis al la fido. 
+tiĝis treege en Jerusalem, kaj granda aro el la pastroj obeis al la fido.
 
 8 Kaj Stefano, plena de graco kaj potenco, faris grandajn mir-
 
@@ -13718,11 +13232,9 @@ nomata la Sinagogo de la Liberigitoj, kaj el la Kirenanoj kaj el la
 
 Aleksandrianoj kaj el la homoj el Kilikio kaj Azio; kaj ili diskutis kun
 
-230
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Stefano. 10 Kaj ili ne povis rezisti al la saĝeco kaj la Spirito, per kiu
 
@@ -13738,11 +13250,11 @@ gajn atestantojn, kiuj diris: ĉi tiu homo ne ĉesas paroli vortojn kon-
 
 traŭ ĉi tiu sankta loko kaj la leĝo; 14 ĉar ni aŭdis lin diri, ke ĉi tiu
 
-Jesuo, la Nazaretano, detruos ĉi tiun lokon, kaj ŝanĝos la kutimojn, 
+Jesuo, la Nazaretano, detruos ĉi tiun lokon, kaj ŝanĝos la kutimojn,
 
-kiujn Moseo transdonis al ni. 15 Kaj ĉiuj, kiuj sidis en la sinedrio, 
+kiujn Moseo transdonis al ni. 15 Kaj ĉiuj, kiuj sidis en la sinedrio,
 
-fikse rigardante lin, vidis lian vizaĝon kvazaŭ vizaĝon de anĝelo. 
+fikse rigardante lin, vidis lian vizaĝon kvazaŭ vizaĝon de anĝelo.
 
 ĉapitro 7
 
@@ -13750,11 +13262,11 @@ fikse rigardante lin, vidis lian vizaĝon kvazaŭ vizaĝon de anĝelo.
 
 Fratoj kaj patroj, aŭskultu. La Dio de gloro aperis al nia patro
 
-Abraham, kiam li estis en Mezopotamio, antaŭ ol li loĝis en ˘aran, 
+Abraham, kiam li estis en Mezopotamio, antaŭ ol li loĝis en ˘aran,
 
 3 kaj diris al li: Iru el via lando kaj de via parencaro, kaj venu en tiun
 
-landon, kiun Mi montros al vi. 4 Tiam li iris el la lando de la ˘aldeoj, 
+landon, kiun Mi montros al vi. 4 Tiam li iris el la lando de la ˘aldeoj,
 
 kaj loĝis en ˘aran; kaj el tie, post la morto de lia patro, Li trans-
 
@@ -13782,9 +13294,8 @@ Egiptujon; kaj Dio estis kun li, 10 kaj liberigis lin el ĉiuj liaj suferoj, 231
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-kaj donis al li favoron kaj saĝecon antaŭ Faraono, reĝo de Egiptujo; 
+kaj donis al li favoron kaj saĝecon antaŭ Faraono, reĝo de Egiptujo;
 
 kaj ĉi tiu estrigis lin super Egiptujo kaj super lia tuta domo. 11 Kaj
 
@@ -13806,9 +13317,9 @@ transportitaj al ˘eęm kaj metitaj en la tombon, kiun Abraham
 
 aĉetis por prezo arĝenta de la filoj de ˘amor en ˘eęm. 17 Sed kiam
 
-alproksimiĝis la tempo de la promeso, kiun Dio ĵuris al Abraham, 
+alproksimiĝis la tempo de la promeso, kiun Dio ĵuris al Abraham,
 
-la popolo diskreskis kaj multiĝis en Egiptujo, 18 ĝis aperis alia reĝo, 
+la popolo diskreskis kaj multiĝis en Egiptujo, 18 ĝis aperis alia reĝo,
 
 kiu ne konis Jozefon. 19 Tiu agis ruze kontraŭ nia gento, kaj premis
 
@@ -13818,13 +13329,13 @@ En tiu tempo Moseo naskiĝis, kaj estis eksterordinare bela; kaj li
 
 estis nutrata tri monatojn en la domo de sia patro; 21 kaj kiam oni
 
-lin elĵetis, prenis lin la filino de Faraono kaj lin nutris kiel sian filon. 
+lin elĵetis, prenis lin la filino de Faraono kaj lin nutris kiel sian filon.
 
 22 Kaj Moseo estis instruita en la tuta saĝeco de la Egiptoj, kaj es-
 
 tis potenca per siaj vortoj kaj agoj. 23 Sed kiam li jam havis la aĝon
 
-de kvardek jaroj, venis en lian korpon la penso viziti siajn fratojn, 
+de kvardek jaroj, venis en lian korpon la penso viziti siajn fratojn,
 
 la Izraelidojn. 24 Kaj vidinte unu el ili suferi maljustecon, li defen-
 
@@ -13842,11 +13353,9 @@ vi celas mortigi min, kiel vi mortigis la Egipton hieraŭ? 29 Kaj ĉe tiu
 
 parolo Moseo forkuris kaj ekloĝis en la lando Midjana, kie li nas-
 
-232
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kigis du filojn. 30 Kaj post paso de kvardek jaroj anĝelo aperis al li
 
@@ -13876,7 +13385,7 @@ anĝelo, kiu aperis al li en la arbetaĵo. 36 Tiu elkondukis ilin, farinte
 
 mirindaĵojn kaj signojn en Egiptujo, kaj en la Ruĝa Maro, kaj en la
 
-dezerto dum kvardek jaroj. 37 ¯i estis tiu Moseo, kiu diris al la Izra-
+dezerto dum kvardek jaroj. 37 i estis tiu Moseo, kiu diris al la Izra-
 
 elidoj: Profeton el viaj fratoj, similan al mi, starigos por vi la Eter-
 
@@ -13900,25 +13409,23 @@ Tiam Dio turniĝis, kaj lasis ilin servi al la armeo de la ĉielo, kiel estas sk
 
 ĉu vi alportis al Mi buĉitajn bestojn kaj oferojn
 
-Dum kvardek jaroj en la dezerto, ho domo de Izrael? 
+Dum kvardek jaroj en la dezerto, ho domo de Izrael?
 
 43 Kaj vi portis la tabernaklon de Mole˛
 
-Kaj la stelon de la dio Refan, 
+Kaj la stelon de la dio Refan,
 
-233
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-La figuraĵojn, kiujn vi faris, por adorkliniĝi al ili; 
+La figuraĵojn, kiujn vi faris, por adorkliniĝi al ili;
 
 Kaj Mi elpatrujigos vin preter Babelon. 44 Kun niaj patroj en la
 
 dezerto estis la tabernaklo de atesto, kiel ordonis Tiu, kiu parolis al
 
-Moseo, ke li konstruu ĝin laŭ la modelo, kiun li vidis. 45 ¯in ankaŭ
+Moseo, ke li konstruu ĝin laŭ la modelo, kiun li vidis. 45 in ankaŭ
 
 niaj patroj siavice enportis kun Josuo, kiam ili eniris en la posedaĵon
 
@@ -13930,15 +13437,15 @@ de Jakob. 47 Sed Salomono konstruis por Li domon. 48 Tamen la
 
 Plejaltulo ne loĝas en manfaritaj temploj, kiel diris la profeto:
 
-49 La ĉielo estas Mia trono, 
+49 La ĉielo estas Mia trono,
 
-Kaj la tero estas Mia piedbenketo; 
+Kaj la tero estas Mia piedbenketo;
 
-Kian domon vi konstruos por Mi? diras la Eternulo; 
+Kian domon vi konstruos por Mi? diras la Eternulo;
 
 Kaj kia estas la loko por Mia ripozo? 50 ĉu ne faris Mia mano
 
-ĉion tion? 
+ĉion tion?
 
 51 Vi malmolnukaj, vi necirkumciditaj je koro kaj oreloj, vi ĉiam
 
@@ -13950,7 +13457,7 @@ taŭmontris pri la alveno de la Justulo, de kiu vi nun fariĝis la per-
 
 fidintoj kaj mortigintoj; 53 vi, kiuj ricevis la leĝon, kiel anoncitan per
 
-anĝeloj, sed ĝin ne observis. 
+anĝeloj, sed ĝin ne observis.
 
 54 Kaj aŭdante tion, ili koleriĝis en la koro, kaj grincigis kontraŭ
 
@@ -13970,19 +13477,17 @@ vestojn apud la piedoj de junulo, nomata Saŭlo. 59 Kaj ili ŝtonmor-
 
 tigis Stefanon, vokantan kaj dirantan: Jesuo, Sinjoro, akceptu mian
 
-234
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 spiriton. 60 Kaj li genuiĝis, kaj kriis per laŭta voĉo: Sinjoro, ne metu
 
-sur ilin ĉi tiun pekon. Kaj tion dirinte, li endormiĝis. 
+sur ilin ĉi tiun pekon. Kaj tion dirinte, li endormiĝis.
 
 ĉapitro 8
 
-1 Kaj Saŭlo konsentis al lia mortigo. 
+1 Kaj Saŭlo konsentis al lia mortigo.
 
 Kaj en tiu tago komenciĝis granda persekutado kontraŭ la ekle-
 
@@ -13992,9 +13497,9 @@ Judujo kaj Samario, kun escepto de la apostolaro. 2 Kaj piuloj ente-
 
 rigis Stefanon, kaj faris pri li grandan funebron. 3 Sed Saŭlo atakis
 
-la eklezion, enirante en ĉiun domon, kaj li trenis virojn kaj virinojn, 
+la eklezion, enirante en ĉiun domon, kaj li trenis virojn kaj virinojn,
 
-kaj transdonis ilin en malliberejon. 
+kaj transdonis ilin en malliberejon.
 
 4 Sed la dispelitoj trairis, predikante la vorton. 5 Kaj Filipo, mal-
 
@@ -14004,7 +13509,7 @@ la homamaso unuanime atentis la parolojn de Filipo, kiam ili lin
 
 aŭdis kaj vidis la signojn, kiujn li faris. 7 ĉar el multaj el ili, kiuj havis malpurajn spiritojn, ĉi tiuj elvenis, kriante per laŭta voĉo; kaj multaj
 
-paralizuloj kaj lamuloj resaniĝis. 8 Kaj estis granda ĝojo en tiu urbo. 
+paralizuloj kaj lamuloj resaniĝis. 8 Kaj estis granda ĝojo en tiu urbo.
 
 9 Sed unu viro, nome Simon, jam antaŭe faradis magion en la
 
@@ -14022,21 +13527,19 @@ mo de Jesuo Kristo, ili baptiĝis, viroj kaj virinoj. 13 Kaj Simon mem
 
 ankaŭ kredis; kaj kiam li baptiĝis, li forte aliĝis al Filipo, kaj vidan-
 
-te signojn kaj grandajn miraklojn farataj, li konfuziĝis. 
+te signojn kaj grandajn miraklojn farataj, li konfuziĝis.
 
 14 Kaj la apostoloj en Jerusalem, aŭdinte, ke Samario akceptis la
 
-vorton de Dio, sendis al ili Petron kaj Johanon; 15 kiuj, alveninte, 
+vorton de Dio, sendis al ili Petron kaj Johanon; 15 kiuj, alveninte,
 
 preĝis por ili, ke ili ricevu la Sanktan Spiriton, 16 ĉar ankoraŭ sur
 
-235
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-neniun el ili li falis; ili nur baptiĝis en la nomon de la Sinjoro Jesuo. 
+neniun el ili li falis; ili nur baptiĝis en la nomon de la Sinjoro Jesuo.
 
 17 Tiam ili metis la manojn sur ilin, kaj ili ricevis la Sanktan Spiri-
 
@@ -14062,13 +13565,13 @@ co kaj en la kateno de maljusteco. 24 Kaj Simon responde diris: Pre-
 
 ĝu vi al la Eternulo por mi, ke trafu min neniom el tio, pri kio vi
 
-parolis. 
+parolis.
 
 25 Ili do, atestinte kaj parolinte la vorton de la Sinjoro, revenis al
 
 Jerusalem, kaj predikis la evangelion al multaj vilaĝoj de la Sama-
 
-rianoj. 
+rianoj.
 
 26 Sed anĝelo de la Eternulo parolis al Filipo, dirante: Leviĝu, kaj
 
@@ -14092,23 +13595,21 @@ das? Kaj li petis Filipon, ke li supreniru kaj sidiĝu kun li. 32 La peco
 
 de la Skribo, kiun li legis, estis jena:
 
-Li estis kondukata kiel ŝafo al la buĉo; 
+Li estis kondukata kiel ŝafo al la buĉo;
 
-Kaj kiel ŝafido muta antaŭ sia tondanto, 
+Kaj kiel ŝafido muta antaŭ sia tondanto,
 
-236
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Li ne malfermis sian buŝon; 33 En lia humiliĝo lia juĝo estis de-
 
-prenita; 
+prenita;
 
-Pri lia generacio kiu rakontos? 
+Pri lia generacio kiu rakontos?
 
-ĉar lia vivo estas prenita for de la tero. 
+ĉar lia vivo estas prenita for de la tero.
 
 34 Kaj la eŭnuko responde al Filipo diris: Mi petas vin, pri kiu
 
@@ -14124,7 +13625,7 @@ diris: Se vi kredas per via tuta koro, tio estas permesata. Kaj li re-
 
 spondis: Mi kredas, ke Jesuo Kristo estas la Filo de Dio. 38 Kaj li
 
-ordonis, ke la ĉaro haltu, kaj ili ambaŭ malsupreniris en la akvon, 
+ordonis, ke la ĉaro haltu, kaj ili ambaŭ malsupreniris en la akvon,
 
 Filipo kaj la eŭnuko; kaj li baptis lin. 39 Kaj kiam ili supreniris el la
 
@@ -14134,7 +13635,7 @@ lin vidis, kaj li iris sian vojon, ĝojante. 40 Sed Filipo troviĝis en Aŝ-
 
 dod; kaj trapasante, li predikis la evangelion en ĉiuj urboj, ĝis li al-
 
-venis en Cezarean. 
+venis en Cezarean.
 
 ĉapitro 9
 
@@ -14152,23 +13653,21 @@ dis voĉon dirantan al li: Saŭlo, Saŭlo, kial vi min persekutas? 5 Kaj
 
 li diris: Kiu vi estas, ho Sinjoro? Kaj tiu diris: Mi estas Jesuo, kiun vi
 
-persekutas; 6 sed leviĝu, kaj eniru en la urbon, kaj estos dirite al vi, 
+persekutas; 6 sed leviĝu, kaj eniru en la urbon, kaj estos dirite al vi,
 
 kion vi devas fari. 7 Kaj liaj kunvojaĝantoj staris mutaj, aŭdante la
 
-237
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 voĉon, sed vidante neniun. 8 Kaj Saŭlo leviĝis de la tero; kaj kiam liaj
 
-okuloj malfermiĝis, li vidis nenion; kaj ili kondukis lin je la mano, 
+okuloj malfermiĝis, li vidis nenion; kaj ili kondukis lin je la mano,
 
 kaj venigis lin en Damaskon. 9 Kaj li estis sen vidpovo tri tagojn; kaj
 
-ne manĝis, nek trinkis. 
+ne manĝis, nek trinkis.
 
 10 Kaj en Damasko estis unu disĉiplo nomata Ananias; kaj la Sinj-
 
@@ -14182,7 +13681,7 @@ Tarso; ĉar jen li preĝas; 12 kaj li vidis viron, nomatan Ananias, enir-
 
 antan kaj metantan sur lin la manojn, por ke li ricevu vidpovon. 13
 
-Sed Ananias respondis: Sinjoro, mi aŭdis de multaj pri ĉi tiu viro, 
+Sed Ananias respondis: Sinjoro, mi aŭdis de multaj pri ĉi tiu viro,
 
 kiom da malbono li faris kontraŭ viaj sanktuloj en Jerusalem; 14 kaj
 
@@ -14202,11 +13701,11 @@ pleniĝu de la Sankta Spirito. 18 Kaj tuj falis de liaj okuloj kvazaŭ
 
 skvamoj; kaj li tuj ricevis vidpovon, kaj leviĝis kaj baptiĝis; 19 kaj
 
-preninte nutraĵon, li refortiĝis. 
+preninte nutraĵon, li refortiĝis.
 
 Kaj dum kelke da tagoj li restis kun la disĉiploj en Damasko. 20
 
-Kaj en la sinagogoj li tuj proklamis Jesuon, ke li estas la Filo de Dio. 
+Kaj en la sinagogoj li tuj proklamis Jesuon, ke li estas la Filo de Dio.
 
 21 Kaj miregis ĉiuj, kiuj lin aŭdis, kaj ili diris: ĉu li ne estas tiu, kiu en Jerusalem pereigis tiujn, kiuj vokis ĉi tiun nomon? kaj li venis ĉi
 
@@ -14214,15 +13713,13 @@ tien por tio, ke li konduku ilin katenitajn antaŭ la ĉefpastrojn. 22 Sed
 
 Saŭlo des pli fortiĝis, kaj li konfuzis la Judojn loĝantajn en Dama-
 
-sko, pruvante, ke tiu estas la Kristo. 
+sko, pruvante, ke tiu estas la Kristo.
 
 23 Kaj post la paso de multaj tagoj, la Judoj kune konsiliĝis, por
 
-238
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 lin mortigi; 24 sed ilia konspiro sciiĝis al Saŭlo. Kaj ili observadis la
 
@@ -14230,9 +13727,9 @@ pordegojn tage kaj nokte, por lin mortigi; 25 sed liaj disĉiploj pre-
 
 nis lin nokte, kaj mallevis lin tra la urba muro, malsupren lasante
 
-lin en korbego. 
+lin en korbego.
 
-26 Kaj kiam li venis en Jerusalemon, li provis aliĝi al la disĉiploj; 
+26 Kaj kiam li venis en Jerusalemon, li provis aliĝi al la disĉiploj;
 
 kaj ĉiuj lin timis, ne kredante, ke li estas disĉiplo. 27 Sed Barnabas
 
@@ -14240,33 +13737,33 @@ prenis lin, kaj kondukis lin al la apostoloj, kaj rakontis al ili, kiel li
 
 sur la vojo vidis la Sinjoron, kiu ankaŭ parolis al li, kaj kiel en Da-
 
-masko li sentime parolis en la nomo de Jesuo. 28 Kaj li estis kun ili, 
+masko li sentime parolis en la nomo de Jesuo. 28 Kaj li estis kun ili,
 
 enirante kaj elirante en Jerusalem, 20 kaj sentime predikante en la
 
 nomo de la Sinjoro; kaj li parolis kaj disputadis kontraŭ la Grekaj
 
-Judoj; sed ili entreprenis mortigi lin. 30 Kaj la fratoj, eksciinte tion, 
+Judoj; sed ili entreprenis mortigi lin. 30 Kaj la fratoj, eksciinte tion,
 
-kondukis lin al Cezarea, kaj forsendis lin al Tarso. 
+kondukis lin al Cezarea, kaj forsendis lin al Tarso.
 
 31 Kaj la eklezio tra la tuta Judujo kaj Galileo kaj Samario havis
 
 pacon kaj ricevis edifon; kaj iradante en la timo de la Sinjoro kaj en
 
-la konsolo de la Sankta Spirito, ĝi kreskis. 
+la konsolo de la Sankta Spirito, ĝi kreskis.
 
 32 Kaj dum Petro trairis ĉiujn regionojn, li ankaŭ malsupreniris
 
 al la sanktuloj loĝantaj en Lida. 33 Kaj tie li trovis unu viron, noma-
 
-tan Eneas, kiu kuŝadis en sia lito jam ok jarojn; ĉar li estis paralizulo. 
+tan Eneas, kiu kuŝadis en sia lito jam ok jarojn; ĉar li estis paralizulo.
 
 34 Kaj Petro diris al li: Eneas, Jesuo Kristo vin sanigas; leviĝu, kaj or-
 
 digu vian liton. Kaj li tuj leviĝis. 35 Kaj ĉiuj loĝantoj en Lida kaj en
 
-˘aron lin vidis, kaj turniĝis al la Sinjoro. 
+˘aron lin vidis, kaj turniĝis al la Sinjoro.
 
 36 Kaj estis en Jafo unu disĉiplino, nomata Tabita, kiu laŭ traduko
 
@@ -14274,21 +13771,19 @@ estas nomata Dorkas; ŝi estis plena de bonfaroj kaj almozoj, kiujn
 
 ŝi faris. 37 Kaj en tiu tempo ŝi malsaniĝis, kaj mortis; kaj ili ŝin lavis
 
-kaj metis en supran ĉambron. 38 Kaj ĉar Lida estis proksime de Jafo, 
+kaj metis en supran ĉambron. 38 Kaj ĉar Lida estis proksime de Jafo,
 
 la disĉiploj, aŭdinte, ke Petro estas tie, sendis al li du virojn, por
 
-petegi lin: Ne prokrastu veni al ni. 39 Kaj Petro leviĝis kaj iris kun ili. 
+petegi lin: Ne prokrastu veni al ni. 39 Kaj Petro leviĝis kaj iris kun ili.
 
-Kaj kiam li alvenis, ili lin kondukis en la supran ĉambron; kaj ales-
+Kaj kiam li alvenis, ili lndukis en la supran ĉambron; kaj ales-
 
-tis apud li ĉiuj vidvinoj, plorante kaj montrante tunikojn kaj vestojn, 
+tis apud li ĉiuj vidvinoj, plorante kaj montrante tunikojn kaj vestojn,
 
-239
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiujn Dorkas faris, kiam ŝi estis ankoraŭ kun ili. 40 Sed Petro, for-
 
@@ -14300,7 +13795,7 @@ ron, ŝi side leviĝis. 41 Kaj li donis al ŝi la manon kaj starigis ŝin, kaj, 
 
 fariĝis sciata tra la tuta Jafo, kaj multaj kredis al la Sinjoro. 43 Kaj
 
-dum multe da tagoj li loĝis en Jafo ĉe unu Simon, tanisto. 
+dum multe da tagoj li loĝis en Jafo ĉe unu Simon, tanisto.
 
 ĉapitro 10
 
@@ -14310,7 +13805,7 @@ to nomata la Itala, 2 viro pia, kiu timis Dion, kune kun sia tuta fa-
 
 milio, kaj donis multajn almozojn al la popolo, kaj preĝis al Dio
 
-konstante. 3 Tiu vidis klare en vizio, ĉirkaŭ la naŭa horo de la tago, 
+konstante. 3 Tiu vidis klare en vizio, ĉirkaŭ la naŭa horo de la tago,
 
 anĝelon de Dio, alvenantan al li, kaj dirantan al li: Kornelio. 4 Kaj ĉi
 
@@ -14322,11 +13817,11 @@ taŭ Dio. 5 Kaj nun sendu virojn al Jafo, kaj venigu Simonon, kiu es-
 
 tas alnomata Petro; 6 li gastas ĉe unu Simon, tanisto, kies domo es-
 
-tas apud la marbordo. 7 Kaj kiam foriris la anĝelo, kiu parolis al li, 
+tas apud la marbordo. 7 Kaj kiam foriris la anĝelo, kiu parolis al li,
 
 li alvokis du el siaj domservantoj, kaj pian soldaton el tiuj, kiuj ĉiam
 
-deĵoris apud li; 8 kaj klariginte ĉion al ili, li sendis ilin al Jafo. 
+deĵoris apud li; 8 kaj klariginte ĉion al ili, li sendis ilin al Jafo.
 
 9 Kaj en la sekvanta tago, kiam ili vojaĝis kaj alproksimiĝis al la
 
@@ -14344,17 +13839,15 @@ kaj rampaĵoj de la tero kaj birdoj de la ĉielo. 13 Kaj venis voĉo al li:
 
 Leviĝu, Petro; buĉu kaj manĝu. 14 Sed Petro diris: Ho ne, Sinjoro, ĉar
 
-240
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi neniam manĝis ion profanan aŭ malpuran. 15 Kaj voĉo venis al
 
 li denove duan fojon: Kion Dio purigis, tion vi ne nomu profana. 16
 
-Kaj tio estis farita trifoje; kaj la ujo estis tuj prenita for en la ĉielon. 
+Kaj tio estis farita trifoje; kaj la ujo estis tuj prenita for en la ĉielon.
 
 17 Kaj dum Petro spirite embarasiĝis, kia povas esti la vizio, kiun
 
@@ -14392,7 +13885,7 @@ li diris al ili: Vi mem scias, kiel kontraŭleĝe estas por Judo
 
 kamaradiĝi aŭ aliri al alinaciano; sed Dio min admonis, ke mi ne
 
-nomu ian homon profana aŭ malpura; 29 tial, kiam mi estis vokita, 
+nomu ian homon profana aŭ malpura; 29 tial, kiam mi estis vokita,
 
 mi alvenis sen kontraŭdiro. Mi do demandas, por kio vi min veni-
 
@@ -14404,13 +13897,11 @@ vestita, 31 kaj diris: Kornelio, via preĝo estas aŭdita, kaj viaj almo-
 
 zoj estas memoritaj antaŭ Dio. 32 Sendu do al Jafo, kaj invitu al vi
 
-Simonon, kiu estas alnomata Petro; li gastas en la domo de Simon, 
+Simonon, kiu estas alnomata Petro; li gastas en la domo de Simon,
 
-241
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tanisto, apud la marbordo. 33 Tial mi tuj sendis al vi; kaj vi bone
 
@@ -14426,7 +13917,7 @@ Vere mi ekkomprenas, ke Dio ne privilegias personojn; 35 sed en
 
 Vi konas tiun vorton, kiun Li sendis al la Izraelidoj, predikante la
 
-evangelion de paco per Jesuo Kristo \(li estas Sinjoro de ĉiuj\); 37 vi
+evangelion de paco per Jesuo Kristo (li estas Sinjoro de ĉiuj); 37 vi
 
 konas tiun diron, kiu estas disvastigita tra la tuta Judujo, komencan-
 
@@ -14448,7 +13939,7 @@ ti, ke li estas la difinito de Dio, por esti la juĝisto de la vivantoj kaj
 
 de la mortintoj. 43 Pri li ĉiuj profetoj atestas, ke per lia nomo ĉiu kre-
 
-danta al li ricevos pardonadon de pekoj. 
+danta al li ricevos pardonadon de pekoj.
 
 44 Dum Petro parolis tiujn vortojn, la Sankta Spirito falis sur ĉi-
 
@@ -14464,13 +13955,11 @@ mesi la akvon, ke ne baptiĝu ĉi tiuj, kiuj ricevis la Sanktan Spiriton
 
 tiel same, kiel ni? 48 Kaj li ordonis, ke ili baptiĝu en la nomo de Je-
 
-suo Kristo. Tiam ili petis, ke li restu ankoraŭ kelkajn tagojn. 
+suo Kristo. Tiam ili petis, ke li restu ankoraŭ kelkajn tagojn.
 
-242
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 11
 
@@ -14482,17 +13971,17 @@ rusalem, tiuj, kiuj estis el la cirkumcido, disputis kun li, 3 dirante: Vi
 
 eniris al viroj ne cirkumciditaj, kaj manĝis kun ili. 4 Sed Petro kla-
 
-rigis la aferon al ili orde, dirante: 5 Dum mi preĝis en la urbo Jafo, 
+rigis la aferon al ili orde, dirante: 5 Dum mi preĝis en la urbo Jafo,
 
 en ekstazo mi vidis vizion, ujon malsuprenirantan, kvazaŭ grandan
 
-tukon, mallevatan el la ĉielo per la kvar anguloj; kaj ĝi venis ĝis mi; 
+tukon, mallevatan el la ĉielo per la kvar anguloj; kaj ĝi venis ĝis mi;
 
 6 kun fiksa rigardo mi ĝin observis, kaj vidis kvarpiedajn bestojn de
 
 la tero kaj sovaĝajn bestojn kaj rampaĵojn kaj birdojn de la ĉielo. 7
 
-Kaj mi aŭdis voĉon dirantan al mi: Leviĝu, Petro; buĉu kaj manĝu. 
+Kaj mi aŭdis voĉon dirantan al mi: Leviĝu, Petro; buĉu kaj manĝu.
 
 8 Sed mi diris: Ho ne, Sinjoro, ĉar nenio profana aŭ malpura eniris
 
@@ -14528,15 +14017,13 @@ mi povus kontraŭstari al Dio? 18 Kiam ili tion aŭdis, ili silentiĝis, kaj
 
 gloris Dion, dirante: Ankaŭ do al la nacianoj Dio donacis penton
 
-por vivo. 
+por vivo.
 
-243
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-19 Tiuj do, kiuj dispeliĝis pro la suferado, kiu okazis pro Stefano, 
+19 Tiuj do, kiuj dispeliĝis pro la suferado, kiu okazis pro Stefano,
 
 vojaĝis ĝis Fenikio kaj Kipro kaj Antio˛ia, priparolante la vorton al
 
@@ -14562,7 +14049,7 @@ serĉi Saŭlon; 26 kaj trovinte, li kondukis lin al Antio˛ia. Kaj dum tuta
 
 jaro ili kunvenadis kun la eklezio, kaj instruis grandan aron da ho-
 
-moj; kaj en Antio˛ia la disĉiploj unue nomiĝis Kristanoj. 
+moj; kaj en Antio˛ia la disĉiploj unue nomiĝis Kristanoj.
 
 27 Kaj en tiuj tagoj profetoj el Jerusalem vojaĝis al Antio˛ia. 28 Kaj
 
@@ -14574,7 +14061,7 @@ Klaŭdio. 29 Kaj la disĉiploj decidis, ke ĉiu laŭ sia bonstato sendu
 
 helpon al la fratoj, kiuj loĝis en Judujo; 30 tion ankaŭ ili faris, sen-
 
-dante al la presbiteroj per la manoj de Barnabas kaj Saŭlo. 
+dante al la presbiteroj per la manoj de Barnabas kaj Saŭlo.
 
 ĉapitro 12
 
@@ -14592,11 +14079,9 @@ roj da soldatoj, por gardi lin, intencante elkonduki lin post la Pas-
 
 ko al la popolo. 5 Tial Petro estis gardata en la malliberejo; sed preĝo
 
-244
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 por li estis fervore farata de la eklezio al Dio. 6 Kaj kiam Herodo in-
 
@@ -14606,11 +14091,11 @@ datoj, ligite per du katenoj; kaj gardistoj antaŭ la pordoj gardis la
 
 malliberejon. 7 Kaj jen apudstaris anĝelo de la Eternulo, kaj lumo
 
-ekbrilis en la ĉambro; kaj li frapis la flankon de Petro, kaj vekis lin, 
+ekbrilis en la ĉambro; kaj li frapis la flankon de Petro, kaj vekis lin,
 
 dirante: Leviĝu rapide. Kaj liaj katenoj defalis de liaj manoj. 8 Kaj la
 
-anĝelo diris al li: Zonu vin, kaj alligu viajn sandalojn. Kaj li faris tion. 
+anĝelo diris al li: Zonu vin, kaj alligu viajn sandalojn. Kaj li faris tion.
 
 Kaj li diris al li: ĵetu ĉirkaŭ vin vian mantelon kaj sekvu min. 9 Kaj
 
@@ -14636,13 +14121,13 @@ venintaj kaj preĝantaj. 13 Kaj kiam li frapis ĉe la pordo de la por-
 
 dego, venis knabino nomata Roda, por aŭskulti, 14 kaj rekonante la
 
-voĉon de Petro, ŝi pro ĝojo ne malfermis la pordegon, sed enkuris, 
+voĉon de Petro, ŝi pro ĝojo ne malfermis la pordegon, sed enkuris,
 
 kaj diris, ke Petro staras antaŭ la pordego. 15 Kaj oni diris al ŝi: Vi
 
-frenezas. Sed ŝi persiste certigis, ke tiel estas. Kaj ili diris: ¯i estas
+frenezas. Sed ŝi persiste certigis, ke tiel estas. Kaj ili diris: i estas
 
-lia anĝelo. 16 Sed Petro daŭrigis la frapadon; kaj ili, malferminte, 
+lia anĝelo. 16 Sed Petro daŭrigis la frapadon; kaj ili, malferminte,
 
 vidis lin, kaj miregis. 17 Sed li gestis per la mano, ke ili silentu, kaj
 
@@ -14652,15 +14137,13 @@ rejo. Kaj li diris: Sciigu pri tio Jakobon kaj la fratojn. Kaj li foriris, kaj i
 
 ne trovinte lin, ekzamenis la gardistojn, kaj ordonis forkonduki ilin
 
-245
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 al morto. Kaj li vojaĝis el Judujo al Cezarea, kaj tie restis iom da
 
-tempo. 
+tempo.
 
 20 Kaj li estis tre kolera kontraŭ la homoj de Tiro kaj Cidon; kaj
 
@@ -14670,23 +14153,23 @@ ili venis unuanime al li, kaj, akirinte la favoron de Blasto, la reĝa
 
 la reĝo. 21 Kaj en difinita tago Herodo, vestita en reĝaj vestoj, sidis
 
-sur tribunala seĝo kaj deklamis al ili. 22 Kaj la popolo kriis: ¯i estas
+sur tribunala seĝo kaj deklamis al ili. 22 Kaj la popolo kriis: i estas
 
 voĉo de dio, kaj ne de homo. 23 Kaj anĝelo de la Eternulo tuj frapis
 
-lin, pro tio, ke li ne donis al Dio la gloron; kaj manĝate de vermoj, 
+lin, pro tio, ke li ne donis al Dio la gloron; kaj manĝate de vermoj,
 
-li senspiriĝis. 
+li senspiriĝis.
 
-24 Sed la vorto de Dio kreskis kaj pligrandiĝis. 
+24 Sed la vorto de Dio kreskis kaj pligrandiĝis.
 
 25 Kaj Barnabas kaj Saŭlo revenis de Jerusalem, plenuminte sian
 
-servadon, kondukante kun si Johanon, kiu estis alnomata Marko. 
+servadon, kondukante kun si Johanon, kiu estis alnomata Marko.
 
 ĉapitro 13
 
-1 Kaj en Antio˛ia, en la tiea eklezio, estis profetoj kaj instruistoj, 
+1 Kaj en Antio˛ia, en la tiea eklezio, estis profetoj kaj instruistoj,
 
 Barnabas, kaj Simeon, nomata Niger, kaj Lucio, la Kirenano, kaj
 
@@ -14698,7 +14181,7 @@ al mi Barnabason kaj Saŭlon por tiu laboro, al kiu mi ilin vokis. 3
 
 Tiam, fastinte kaj preĝinte kaj metinte sur ilin la manojn, ili forsen-
 
-dis ilin. 
+dis ilin.
 
 4 Kaj ĉi tiuj, forkondukite de la Sankta Spirito, malsupreniris al
 
@@ -14714,15 +14197,13 @@ Jesuo, 7 kiu estis kun la prokonsulo Sergio Paŭlo, prudenta viro. ĉi
 
 tiu venigis al si Barnabason kaj Saŭlon, kaj deziris aŭdi la vorton de
 
-246
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Dio. 8 Sed kontraŭstaris al ili Elimas, la magiisto \(ĉar tion signifas
+Dio. 8 Sed kontraŭstaris al ili Elimas, la magiisto (ĉar tion signifas
 
-lia nomo\), penante deturni la prokonsulon for de la fido. 9 Sed Saŭ-
+lia nomo), penante deturni la prokonsulon for de la fido. 9 Sed Saŭ-
 
 lo, kiu estas Paŭlo, plenigite de la Sankta Spirito kaj fikse rigardante
 
@@ -14730,15 +14211,15 @@ lin, 10 diris: Ho vi, plena de ĉia trompo kaj ruzemeco, filo de diab-
 
 lo, malamiko de ĉia justeco, ĉu vi ne ĉesos defleksi la rektajn voj-
 
-ojn de la Sinjoro? 11 Kaj nun jen la mano de la Sinjoro estas sur vi, 
+ojn de la Sinjoro? 11 Kaj nun jen la mano de la Sinjoro estas sur vi,
 
 kaj vi estos blinda, ne vidante la sunon dum kelka tempo. Kaj tuj
 
 falis sur lin nebulo kaj mallumo, kaj ĉirkaŭvagante, li serĉis man-
 
-kondukantojn. 12 Tiam la prokonsulo, vidinte la okazintaĵon, kredis, 
+kondukantojn. 12 Tiam la prokonsulo, vidinte la okazintaĵon, kredis,
 
-mirigite de la instruado de la Sinjoro. 
+mirigite de la instruado de la Sinjoro.
 
 13 Sed Paŭlo kaj liaj akompanantoj ekŝipiris de Pafos kaj venis al
 
@@ -14748,11 +14229,10 @@ Sed ili, trapasante de Perga venis al Antio˛ia en Pisidio; kaj en la
 
 sabato ili eniris en la sinagogon, kaj sidiĝis. 15 Kaj post la legado de
 
-la leĝo kaj la profetoj, la sinagogestroj sendis al ili, dirante: Fratoj, 
+la leĝo kaj la profetoj, la sinagogestroj sendis al ili, dirante: Fratoj,
 
 
-
-se estas ĉe vi vorto de admono por la popolo, parolu. 16 Kaj Paŭlo, 
+se estas ĉe vi vorto de admono por la popolo, parolu. 16 Kaj Paŭlo,
 
 stariĝinte kaj gestinte per la mano, diris:
 
@@ -14782,11 +14262,9 @@ tutan volon. 23 El lia idaro Dio laŭ promeso venigis al Izrael Savan-
 
 ton, Jesuon, 24 kiam Johano jam predikis antaŭ lia alveno la bapton
 
-247
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 de pento al la tuta popolo Izrael. 25 Kaj dum Johano plenumis sian
 
@@ -14814,7 +14292,7 @@ li el Galileo en Jerusalemon, kaj ili nun estas liaj atestantoj ĉe la
 
 popolo. 32 Kaj ni alportas al vi bonan sciigon pri la promeso farita
 
-al la patroj, 33 ke Dio plenumis tion al ni, la filoj, relevinte Jesuon, 
+al la patroj, 33 ke Dio plenumis tion al ni, la filoj, relevinte Jesuon,
 
 kiel ankaŭ estas skribite en la dua psalmo: Vi estas Mia Filo, hodiaŭ
 
@@ -14838,27 +14316,25 @@ vi pardonado de pekoj; 39 kaj ĉiu kredanto al li estas pravigita pri
 
 du vin do, ke ne venu sur vin tio, kio estas dirita en la profetoj:
 
-41 Rigardu, vi malestimantoj, kaj miru, kaj malaperu, 
+41 Rigardu, vi malestimantoj, kaj miru, kaj malaperu,
 
-ĉar en via tempo Mi faras ion, 
+ĉar en via tempo Mi faras ion,
 
-Kion vi ne kredus, se oni rakontus al vi. 
+Kion vi ne kredus, se oni rakontus al vi.
 
 42 Kaj dum ili eliris el la sinagogo, oni petegis, ke ĉi tiuj vortoj
 
 estu parolataj al ili la venontan sabaton. 43 Kaj kiam la sinagogo
 
-248
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 disiĝis, multaj el la Judoj kaj el la piaj prozelitoj sekvis Paŭlon kaj
 
 Barnabason, kiuj, alparolante ilin, urĝe admonis ilin persisti en la
 
-graco de Dio. 
+graco de Dio.
 
 44 En la sekvanta sabato preskaŭ la tuta urbo kolektiĝis, por aŭdi
 
@@ -14874,11 +14350,11 @@ eterna vivo, jen ni turnas nin al la nacianoj. 47 ĉar tiel ordonis al ni
 
 la Sinjoro:
 
-Mi vin metis kiel lumon por la nacioj, 
+Mi vin metis kiel lumon por la nacioj,
 
-Por ke vi estu por savi ĝis la plej malproksima parto de la tero. 
+Por ke vi estu por savi ĝis la plej malproksima parto de la tero.
 
-48 Kaj aŭdinte tion, la nacianoj ĝojis, kaj gloris la vorton de Dio; 
+48 Kaj aŭdinte tion, la nacianoj ĝojis, kaj gloris la vorton de Dio;
 
 kaj el ili kredis ĉiuj, kiuj estis difinitaj por eterna vivo. 49 Kaj la vorto de la Sinjoro estis disportata tra la tuta regiono. 50 Sed la Judoj incitis la piajn virinojn bonfamajn kaj la ĉefojn de la urbo, kaj insti-
 
@@ -14888,7 +14364,7 @@ limoj. 51 Sed ili forskuis la polvon de siaj piedoj kontraŭ ili, kaj iris
 
 al Ikonio. 52 Kaj la disĉiploj pleniĝis de ĝojo kaj de la Sankta Spiri-
 
-to. 
+to.
 
 ĉapitro 14
 
@@ -14900,23 +14376,21 @@ redantaj Judoj ekscitis kaj malbonigis la animojn de la nacianoj
 
 kontraŭ la fratoj. 3 Tial ili restis longan tempon tie, sentime paro-
 
-lante en la Sinjoro, kiu atestadis pri la vorto de Sia graco, lasante, 
+lante en la Sinjoro, kiu atestadis pri la vorto de Sia graco, lasante,
 
 ke signoj kaj mirakloj fariĝu per iliaj manoj. 4 Sed la loĝantaro de la
 
 urbo dividiĝis; unuj estis kun la Judoj, kaj aliaj kun la apostoloj. 5 Kaj
 
-249
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiam fariĝis atenco de la nacianoj kaj ankaŭ de la Judoj kun iliaj re-
 
 gantoj, por ataki kaj ŝtonmortigi ilin, 6 sciiĝinte pri ĝi, ili forsavis sin en la urbojn de Likaonio—Listran kaj Derben kaj la ĉirkaŭaĵon; 7 kaj
 
-tie ili proklamis la evangelion. 
+tie ili proklamis la evangelion.
 
 8 Kaj en Listra sidadis unu viro senforta en la piedoj, kiu estis
 
@@ -14926,7 +14400,7 @@ paroli; kaj ĉi tiu, fikse rigardante lin, kaj vidante, ke ili havas fidon
 
 por esti sanigita, 10 diris per laŭta voĉo: Stariĝu rekte sur viaj pie-
 
-doj. Kaj li salte leviĝis kaj piediris. 11 Kaj la homamaso, vidinte tion, 
+doj. Kaj li salte leviĝis kaj piediris. 11 Kaj la homamaso, vidinte tion,
 
 kion Paŭlo faris, levis sian voĉon, kaj diris en la Likaonia lingvo: La
 
@@ -14944,7 +14418,7 @@ antaŭensaltis en la amason, kriante, 15 kaj dirante: Ho viroj, kial vi
 
 tion faras? Ni ankaŭ estas homoj, samsentaj kiel vi, kaj ni alportas
 
-al vi evangelion, por turni vin de ĉi tiuj vantaĵoj al la vivanta Dio, 
+al vi evangelion, por turni vin de ĉi tiuj vantaĵoj al la vivanta Dio,
 
 kiu faris la ĉielon kaj la teron kaj la maron kaj ĉion en ili; 16 kaj kiu
 
@@ -14956,11 +14430,11 @@ al vi pluvojn el la ĉielo kaj fruktoportajn sezonojn, plenigante viajn
 
 korojn per nutraĵo kaj feliĉo. 18 Kaj tiel dirante, ili apenaŭ retenis la
 
-amasojn de oferado al ili. 
+amasojn de oferado al ili.
 
 19 Sed alvenis Judoj el Antio˛ia kaj Ikonio, kaj, instiginte la ama-
 
-sojn, ili priĵetis Paŭlon per ŝtonoj, kaj trenis lin ekster la urbon, 
+sojn, ili priĵetis Paŭlon per ŝtonoj, kaj trenis lin ekster la urbon,
 
 pensante, ke li mortis. 20 Sed kiam la disĉiploj staris ĉirkaŭ li, li lev-
 
@@ -14970,11 +14444,9 @@ nabas al Derbe. 21 Kaj proklaminte la evangelion al tiu urbo, kaj
 
 varbinte multajn disĉiplojn, ili revenis al Listra kaj Ikonio kaj Anti-
 
-250
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 o˛ia, 22 firmigante la animojn de la disĉiploj, kaj admonante, ke ili
 
@@ -14982,21 +14454,21 @@ restu en la fido, kaj ke tra multaj suferoj ni devas eniri en la regnon
 
 de Dio. 23 Kaj elektinte presbiterojn por ili en ĉiu eklezio, kaj preĝ-
 
-inte kun fastado, ili rekomendis ilin al la Sinjoro, al kiu ili ekkredis. 
+inte kun fastado, ili rekomendis ilin al la Sinjoro, al kiu ili ekkredis.
 
 24 Kaj trairinte Pisidion, ili venis en Pamfilion. 25 Kaj parolinte la
 
 vorton en Perga, ili malsupreniris al Atalia; 26 kaj de tie ili ŝipiris al
 
-Antio˛ia, de kie ili estis konfiditaj al la graco de Dio por la laboro, 
+Antio˛ia, de kie ili estis konfiditaj al la graco de Dio por la laboro,
 
-kiun ili plenumis. 27 Kaj kiam ili alvenis, ili kunvenigis la eklezion, 
+kiun ili plenumis. 27 Kaj kiam ili alvenis, ili kunvenigis la eklezion,
 
 kaj rakontis ĉion, kion Dio per ili faris, kaj ke Li malfermis al la na-
 
 cianoj pordon de fido. 28 Kaj ili restis kelkan tempon kun la dis-
 
-ĉiploj. 
+ĉiploj.
 
 ĉapitro 15
 
@@ -15008,9 +14480,9 @@ Paŭlo kaj Barnabas havis ne malgrandan malkonsenton kaj disku-
 
 tadon kontraŭ ili, oni aranĝis, ke Paŭlo kaj Barnabas kaj aliaj tieu-
 
-loj iru Jerusalemon al la apostoloj kaj presbiteroj pri tiu demando. 
+loj iru Jerusalemon al la apostoloj kaj presbiteroj pri tiu demando.
 
-3 Ili do, forkondukite de la eklezio, trairis Fenikion kaj Samarion, 
+3 Ili do, forkondukite de la eklezio, trairis Fenikion kaj Samarion,
 
 anoncante la konvertadon de la nacianoj, kaj faris grandan ĝojon al
 
@@ -15020,7 +14492,7 @@ eklezio kaj apostoloj kaj presbiteroj, kaj raportis ĉion, kion Dio fa-
 
 ris per ili. 5 Sed leviĝis iuj kredantoj el la sekto de la Fariseoj, dirante: Estas necese cirkumcidi ilin, kaj ordoni, ke ili observu la leĝon de
 
-Moseo. 
+Moseo.
 
 6 Kaj kunvenis la apostoloj kaj presbiteroj, por esplori tiun afe-
 
@@ -15030,11 +14502,9 @@ Fratoj, vi scias, ke jam antaŭ longe Dio elektis min el inter vi, por
 
 ke per mia buŝo la nacianoj aŭdu la vorton de la evangelio kaj kre-
 
-251
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 du. 8 Kaj Dio, kiu konas la korojn, atestis al ili, donante al ili la Sank-
 
@@ -15060,21 +14530,21 @@ nacianojn, por elekti el ili popolon por Sia nomo. 15 Kaj al tio kon-
 
 sentas la vortoj de la profetoj, kiel estas skribite:
 
-16 Post tio Mi revenos, 
+16 Post tio Mi revenos,
 
-Kaj Mi restarigos la falintan tabernaklon de David, 
+Kaj Mi restarigos la falintan tabernaklon de David,
 
-Mi restarigos la detruitaĵojn, 
+Mi restarigos la detruitaĵojn,
 
-Kaj Mi rekonstruos ĝin; 
+Kaj Mi rekonstruos ĝin;
 
 17 Por ke strebu al la Eternulo la ceteraj homoj
 
-Kaj ĉiuj nacioj, inter kiuj estas proklamata Mia nomo, 
+Kaj ĉiuj nacioj, inter kiuj estas proklamata Mia nomo,
 
-Diras la Eternulo, 
+Diras la Eternulo,
 
-18 Kiu tion faras jam de la tempo antikva. 
+18 Kiu tion faras jam de la tempo antikva.
 
 19 Tial mi decidas, ke ni ne ĝenu tiujn el la nacianoj, kiuj turniĝas
 
@@ -15084,7 +14554,7 @@ loj kaj de malĉasteco kaj de sufokitaĵoj kaj de sango. 21 ĉar de post
 
 antikvaj generacioj Moseo havas en ĉiuj urboj tiujn, kiuj lin predi-
 
-kas, legate en la sinagogoj ĉiusabate. 
+kas, legate en la sinagogoj ĉiusabate.
 
 22 Tiam al la apostoloj kaj presbiteroj kun la tuta eklezio ŝajnis
 
@@ -15096,11 +14566,9 @@ inter la fratoj; 23 kaj ili sendis per ili la jenan leteron: La apostoloj
 
 kaj presbiteroj, al la fratoj, kiuj estas el la nacianoj en Antio˛ia kaj
 
-252
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Sirio kaj Kilikio, kun saluto: 24 ĉar ni aŭdis, ke iuj el ni ĝenis vin per
 
@@ -15120,9 +14588,9 @@ la jenaj necesaj aferoj: 29 ke oni sin detenu de idoloferitaĵoj kaj de
 
 sango kaj de sufokitaĵoj kaj de malĉasteco; se vi vin gardos kontraŭ
 
-tio, vi bone agos. Adiaŭ\! 
+tio, vi bone agos. Adiaŭ!
 
-30 Ili do, forsendite, iris al Antio˛ia; kaj kunveniginte la amason, 
+30 Ili do, forsendite, iris al Antio˛ia; kaj kunveniginte la amason,
 
 ili transdonis la leteron. 31 Kaj leginte ĝin, ili ĝojis pro la konsolo. 32
 
@@ -15130,13 +14598,13 @@ Kaj Judas kaj Silas, kiuj estis ankaŭ mem profetoj, konsolis la fra-
 
 tojn per multe da parolo kaj firmigis ilin. 33 Kaj pasiginte kelkan
 
-tempon, ili kun paco foriris de la fratoj al siaj forsendintoj. \(34 Ta-
+tempon, ili kun paco foriris de la fratoj al siaj forsendintoj. (34 Ta-
 
-men plaĉis al Silas tie restadi.\) 35 Sed Paŭlo kaj Barnabas restis en
+men plaĉis al Silas tie restadi.) 35 Sed Paŭlo kaj Barnabas restis en
 
 Antio˛ia, instruante kaj predikante, kun multaj aliaj, la vorton de
 
-la Sinjoro. 
+la Sinjoro.
 
 36 Kaj post kelke da tagoj Paŭlo diris al Barnabas: Ni reiru, kaj
 
@@ -15152,21 +14620,19 @@ iĝis disputo, tiel ke ili disiĝis unu de la alia; kaj Barnabas, kunpre-
 
 nante Markon, ŝipiris al Kipro; 40 sed Paŭlo, elektinte Silason, for-
 
-iris, konfidite de la fratoj al la graco de Dio. 41 Kaj li iris tra Sirio kaj Kilikio, firmigante la ekleziojn. 
+iris, konfidite de la fratoj al la graco de Dio. 41 Kaj li iris tra Sirio kaj Kilikio, firmigante la ekleziojn.
 
 ĉapitro 16
 
-253
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 1 Kaj li venis al Derbe kaj Listra; kaj jen tie estis unu disĉiplo, no-
 
 mata Timoteo, filo de kredanta Judino kaj de Greka patro. 2 Tiu estis
 
-bone atestata de la fratoj en Listra kaj Ikonio. 3 Tiun Paŭlo deziris, 
+bone atestata de la fratoj en Listra kaj Ikonio. 3 Tiun Paŭlo deziris,
 
 ke li foriru kun li, kaj li prenis kaj cirkumcidis lin pro la Judoj, kiuj
 
@@ -15176,7 +14642,7 @@ dum ili trapasis la urbojn, ili transdonis al ili por observado la de-
 
 kretojn, deciditajn de la apostoloj kaj presbiteroj en Jerusalem. 5 Tiel
 
-la eklezioj firmiĝis en la fido, kaj kreskis laŭnombre ĉiutage. 
+la eklezioj firmiĝis en la fido, kaj kreskis laŭnombre ĉiutage.
 
 6 Kaj ili trairis la Frigian kaj Galatujan regionon, malpermesite de
 
@@ -15188,11 +14654,11 @@ mesis al ili; 8 kaj pasinte preter Misia, ili malsupreniris al Troas. 9 Kaj vizi
 
 kiam li vidis la vizion, ni tuj penis foriri en Makedonujon, konklu-
 
-dinte, ke Dio vokis nin, por prediki al ili la evangelion. 
+dinte, ke Dio vokis nin, por prediki al ili la evangelion.
 
 11 Tial, ekŝipirinte de Troas, ni rekte veturis al Samotrake, kaj la
 
-sekvantan tagon al Neapolis; 12 kaj de tie al Filipi, kiu estas kolonio, 
+sekvantan tagon al Neapolis; 12 kaj de tie al Filipi, kiu estas kolonio,
 
 ĉefurbo de la Makedonuja provinco; kaj en tiu urbo ni restis dum
 
@@ -15200,7 +14666,7 @@ kelke da tagoj. 13 Kaj en la sabato ni eliris ekster la pordegon apud
 
 rivero, kie, ni supozis, estis kunvenejo por preĝado; kaj ni sidiĝis, kaj
 
-parolis al la virinoj kunvenintaj. 14 Kaj unu virino, nomata Lidia, 
+parolis al la virinoj kunvenintaj. 14 Kaj unu virino, nomata Lidia,
 
 vendistino de purpuro, el la urbo Tiatira, adorantino de Dio, nin
 
@@ -15210,7 +14676,7 @@ Paŭlo. 15 Kaj kiam ŝi estis baptita, kun sia familio, ŝi nin petegis, dir-
 
 ante: Se vi juĝas min fidela al la Sinjoro, venu, kaj loĝu en mia do-
 
-mo. Kaj ŝi devigis nin. 
+mo. Kaj ŝi devigis nin.
 
 16 Kaj kiam ni iris al la kunvenejo por preĝado, renkontis nin unu
 
@@ -15218,15 +14684,13 @@ knabino, kiu havis orakolan spiriton kaj kiu per aŭgurado alportis
 
 al siaj mastroj multan gajnon. 17 ˘i sekvis Paŭlon kaj nin, kaj kria-
 
-254
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dis, dirante: Tiuj homoj estas servistoj de Dio la Plejalta, kiuj pro-
 
-klamas al vi vojon de savo. 18 Kaj tion ŝi faris dum multe da tagoj. 
+klamas al vi vojon de savo. 18 Kaj tion ŝi faris dum multe da tagoj.
 
 Sed Paŭlo, ĉagrenite, turnis sin, kaj diris al la spirito: Mi ordonas al
 
@@ -15242,7 +14706,7 @@ maltrankviligas nian urbon, estante Judoj, 21 kaj ili proklamas mo-
 
 rojn, kiujn ne decas akcepti nek fari por ni, kiuj estas Romanoj. 22
 
-Kaj la popolo amase sin kolektis kontraŭ ili; kaj la urbestroj, for-
+Kaj la popolo amase slektis kontraŭ ili; kaj la urbestroj, for-
 
 ŝirinte de ili la vestojn, ordonis, ke oni vergobatu ilin. 23 Kaj metinte
 
@@ -15258,7 +14722,7 @@ nis al Dio, kaj la katenitoj aŭskultis ilin; 26 kaj subite fariĝis granda
 
 tertremo, tiel ke la fundamentoj de la malliberejo skuiĝis; kaj tuj ĉiuj
 
-pordoj malfermiĝis, kaj ĉies katenoj falis. 27 Kaj la malliberejestro, 
+pordoj malfermiĝis, kaj ĉies katenoj falis. 27 Kaj la malliberejestro,
 
 vekiĝinte, kaj vidante la pordojn de la karcero malfermitaj, eltiris
 
@@ -15280,13 +14744,11 @@ al ili la batovundojn; kaj baptiĝis senprokraste li kaj ĉiuj liaj do-
 
 manoj. 34 Kaj li kondukis ilin en sian domon, kaj aranĝis por ili man-
 
-ĝotablon, kaj tre ĝojis kun sia tuta domanaro, ekkredinte al Dio. 
+ĝotablon, kaj tre ĝojis kun sia tuta domanaro, ekkredinte al Dio.
 
-255
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 35 Sed kiam tagiĝis, la urbestroj sendis la liktorojn, por diri: For-
 
@@ -15304,11 +14766,11 @@ forkonduku nin. 38 Kaj la liktoroj raportis tiujn vortojn al la urbe-
 
 stroj; kaj ĉi tiuj timis, aŭdante, ke ili estas Romanoj; 39 kaj ili venis
 
-kaj petegis ilin, kaj, elkondukinte ilin, petis, ke ili foriru de la urbo. 
+kaj petegis ilin, kaj, elkondukinte ilin, petis, ke ili foriru de la urbo.
 
 40 Kaj ili eliris el la malliberejo, kaj eniris en la domon de Lidia; kaj
 
-vidinte kaj konsolinte la fratojn, ili foriris. 
+vidinte kaj konsolinte la fratojn, ili foriris.
 
 ĉapitro 17
 
@@ -15316,15 +14778,15 @@ vidinte kaj konsolinte la fratojn, ili foriris.
 
 kon, kie estis sinagogo de la Judoj; 2 kaj laŭ sia kutimo Paŭlo eniris
 
-al ili, kaj dum tri sabatoj li rezonadis kun ili el la Skriboj, 3 klarigante kaj montrante, ke la Kristo devis suferi kaj releviĝi el la mortintoj, 
+al ili, kaj dum tri sabatoj li rezonadis kun ili el la Skriboj, 3 klarigante kaj montrante, ke la Kristo devis suferi kaj releviĝi el la mortintoj,
 
 kaj dirante: ĉi tiu Jesuo, kiun mi predikas al vi, estas la Kristo. 4 Kaj
 
 unuj el ili estis konvinkitaj, kaj kunsortiĝis kun Paŭlo kaj Silas; kaj
 
-el la piaj Grekoj granda amaso, kaj el la ĉefaj virinoj ne malmultaj. 
+el la piaj Grekoj granda amaso, kaj el la ĉefaj virinoj ne malmultaj.
 
-5 Sed la Judoj, enviante, varbis kelkajn malnoblulojn el la popolaĉo, 
+5 Sed la Judoj, enviante, varbis kelkajn malnoblulojn el la popolaĉo,
 
 kaj, kolektinte homamason, entumultigis la urbon; kaj atakinte la
 
@@ -15338,15 +14800,13 @@ ankaŭ ĉi tie; 7 ilin Jason akceptis; kaj ili ĉiuj agas kontraŭ la dekre-
 
 toj de Cezaro, dirante, ke estas alia reĝo, Jesuo. 8 Kaj ili maltrankvi-
 
-ligis la homamason kaj la urbestrojn, kiuj tion aŭdis. 9 Kaj ĉi tiuj, 
+ligis la homamason kaj la urbestrojn, kiuj tion aŭdis. 9 Kaj ĉi tiuj,
 
-ricevinte garantiaĵon de Jason kaj la aliaj, liberigis ilin. 
+ricevinte garantiaĵon de Jason kaj la aliaj, liberigis ilin.
 
-256
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 10 Kaj la fratoj tuj forsendis Paŭlon kaj Silason nokte al Berea; kaj
 
@@ -15370,7 +14830,7 @@ la marbordo; sed Silas kaj Timoteo restis ankoraŭ tie. 15 Kaj la gvid-
 
 antoj de Paŭlo kondukis lin ĝis Ateno, kaj ricevinte komision al Silas
 
-kaj Timoteo, ke ili venu al li kiel eble plej rapide, ili foriris. 
+kaj Timoteo, ke ili venu al li kiel eble plej rapide, ili foriris.
 
 16 Kaj dum Paŭlo atendis ilin en Ateno, lia spirito ĉagreniĝis en
 
@@ -15390,13 +14850,13 @@ go, dirante: ĉu ni povas scii, kio estas tiu nova instruo, priparolata
 
 de vi? 20 ĉar fremdaĵojn vi portas al niaj oreloj; ni do volas scii, kion
 
-signifas tiuj aferoj. 21 \(ĉiuj Atenanoj kaj la tie loĝantaj fremduloj
+signifas tiuj aferoj. 21 (ĉiuj Atenanoj kaj la tie loĝantaj fremduloj
 
 pasigadis la tempon ĉe nenio alia, krom diri aŭ aŭdi ion plej nov-
 
-an.\) 22 Kaj Paŭlo staris meze de la Areopago, kaj diris:
+an.) 22 Kaj Paŭlo staris meze de la Areopago, kaj diris:
 
-Atenanoj, mi rimarkas, ke vi estas ĉiurilate tro servemaj al diaĵoj. 
+Atenanoj, mi rimarkas, ke vi estas ĉiurilate tro servemaj al diaĵoj.
 
 23 ĉar preterpasante kaj rigardante viajn adorataĵojn, mi trovis an-
 
@@ -15408,11 +14868,9 @@ mondon kaj ĉion, kio estas en ĝi, estante per Si mem Sinjoro de la
 
 ĉielo kaj la tero, ne loĝas en manfaritaj temploj; 25 kaj ne estas ser-
 
-257
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vata de homaj manoj, kvazaŭ Li ion bezonus, ĉar Li mem donas al
 
@@ -15438,13 +14896,13 @@ mas al ĉiuj homoj, ke ili pentu; 31 tial Li difinis tagon, en kiu Li juĝos
 
 la mondon en justeco per tiu viro, kiun Li elektis, doninte garantion
 
-pri tio al ĉiuj homoj per tio, ke Li relevis lin el la mortintoj. 
+pri tio al ĉiuj homoj per tio, ke Li relevis lin el la mortintoj.
 
 32 Kaj aŭdinte pri releviĝo de la mortintoj, unuj mokis; sed aliaj
 
 diris: Ni aŭskultos vin denove pri tio. 33 Kaj tiel Paŭlo eliris el inter
 
-ili. 34 Sed iuj viroj aliĝis al li kaj kredis, inter kiuj estis Dionisio, Are-opagano, kaj virino, nomata Damaris, kaj aliaj kun ili. 
+ili. 34 Sed iuj viroj aliĝis al li kaj kredis, inter kiuj estis Dionisio, Are-opagano, kaj virino, nomata Damaris, kaj aliaj kun ili.
 
 ĉapitro 18
 
@@ -15452,13 +14910,13 @@ ili. 34 Sed iuj viroj aliĝis al li kaj kredis, inter kiuj estis Dionisio, Are-o
 
 Judon, nomatan Akvila, Pontanon laŭ gento, antaŭ ne longe venin-
 
-tan el Italujo, kaj Priskilan, lian edzinon, ĉar Klaŭdio jam ordonis, 
+tan el Italujo, kaj Priskilan, lian edzinon, ĉar Klaŭdio jam ordonis,
 
 ke ĉiuj Judoj foriru el Romo; kaj li iris al ili; 3 kaj, ĉar li estis sam-
 
 metiisto, li loĝis ĉe ili, kaj ili laboris, ĉar ili estis laŭ metio tendofaristoj. 4 Kaj li diskutadis en la sinagogo ĉiusabate, kaj penis konvinki
 
-Judojn kaj Grekojn. 
+Judojn kaj Grekojn.
 
 5 Kiam do Silas kaj Timoteo alvenis el Makedonujo, Paŭlo estis
 
@@ -15466,11 +14924,9 @@ premata per la predikado, atestante al la Judoj, ke Jesuo estas la
 
 Kristo. 6 Sed kiam ili kontraŭstaris kaj blasfemis, li elskuis siajn ve-
 
-258
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 stojn, kaj diris al ili: Via sango estu sur viaj kapoj; mi estas pura; de
 
@@ -15482,7 +14938,7 @@ apud la sinagogo. 8 Kaj Krispo, la sinagogestro, kredis al la Sinjoro
 
 kune kun ĉiuj siaj domanoj; kaj multaj Korintanoj, aŭdinte, kredis
 
-kaj baptiĝis. 9 Kaj la Sinjoro diris per vizio nokte al Paŭlo: Ne timu, 
+kaj baptiĝis. 9 Kaj la Sinjoro diris per vizio nokte al Paŭlo: Ne timu,
 
 sed parolu, kaj ne silentu; 10 ĉar mi estas kun vi, kaj neniu vin ata-
 
@@ -15490,13 +14946,13 @@ kos, por fari al vi malbonon; ĉar mi havas multe da homoj en ĉi tiu
 
 urbo. 11 Kaj li loĝis tie jaron kaj ses monatojn, instruante inter ili la
 
-vorton de Dio. 
+vorton de Dio.
 
 12 Sed kiam Galiono estis prokonsulo de la Aąja lando, la Judoj
 
 leviĝis unuanime kontraŭ Paŭlo, kaj kondukis lin al la tribunala
 
-seĝo, 13 dirante: Kontraŭ la leĝo ĉi tiu instigas homojn adori Dion. 
+seĝo, 13 dirante: Kontraŭ la leĝo ĉi tiu instigas homojn adori Dion.
 
 14 Sed kiam Paŭlo estis malfermonta la buŝon, Galiono diris al la
 
@@ -15510,13 +14966,13 @@ aferoj mi ne volas esti juĝanto. 16 Kaj li forpelis ilin de la tribunala
 
 seĝo. 17 Kaj ili ĉiuj ekkaptis Sosteneson, la sinagogestron, kaj batis
 
-lin antaŭ la tribunala seĝo. Kaj Galiono atentis nenion el tio. 
+lin antaŭ la tribunala seĝo. Kaj Galiono atentis nenion el tio.
 
 18 Kaj Paŭlo, restinte post tio ankoraŭ dum multe da tagoj, adi-
 
 aŭis la fratojn, kaj de tie ŝipiris al Sirio, kaj kun li Priskila kaj Akvi-
 
-la; sed li razis sian kapon en Kenkrea, ĉar li faris sanktan promeson. 
+la; sed li razis sian kapon en Kenkrea, ĉar li faris sanktan promeson.
 
 19 Kaj ili alvenis en Efeson, kaj li lasis ilin tie; sed li mem eniris en
 
@@ -15530,15 +14986,13 @@ en Cezarea, li supreniris kaj salutis la eklezion, kaj poste vojaĝis al
 
 Antio˛ia. 23 Kaj pasiginte iom da tempo tie, li foriris, kaj trapasis
 
-259
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 laŭvice la Galatujan kaj Frigian regionon, fortikigante ĉiujn disĉi-
 
-plojn. 
+plojn.
 
 24 Kaj unu Judo, nomata Apolos, Aleksandriano laŭ gento, viro
 
@@ -15556,7 +15010,7 @@ lin; kaj alveninte, li multe helpis tiujn, kiuj kredis per graco; 28 ĉar
 
 konvinke li refutis la Judojn publike, pruvante per la Skriboj, ke
 
-Jesuo estas la Kristo. 
+Jesuo estas la Kristo.
 
 ĉapitro 19
 
@@ -15574,7 +15028,7 @@ ili kredu al tiu, kiu venos post li, tio estas al Jesuo. 5 Kaj tion aŭdinte, il
 
 parolis per lingvoj kaj ekprofetis. 7 Kaj ili ĉiuj estis ĉirkaŭ dek du
 
-viroj. 
+viroj.
 
 8 Kaj li eniris en la sinagogon, kaj parolis sentime en la daŭro de
 
@@ -15582,19 +15036,17 @@ tri monatoj, diskutante kaj rezonante rilate la regnon de Dio. 9 Sed
 
 kiam kelkaj obstiniĝis kaj malobeis, kalumniante la Vojon antaŭ la
 
-260
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 homamaso, li foriris de ili, kaj forigis la disĉiplojn, kaj diskutis ĉiu-
 
 tage en la lernejo de Tiranos. 10 Kaj tio daŭris dum du jaroj; tiel ke
 
-ĉiuj loĝantoj en Azio, Judoj kaj Grekoj, aŭdis la vorton de la Sinjoro. 
+ĉiuj loĝantoj en Azio, Judoj kaj Grekoj, aŭdis la vorton de la Sinjoro.
 
-11 Kaj Dio faris per la manoj de Paŭlo eksterordinarajn miraklojn; 
+11 Kaj Dio faris per la manoj de Paŭlo eksterordinarajn miraklojn;
 
 12 tiel ke al la malsanuloj oni alportis de lia korpo viŝtukojn aŭ ve-
 
@@ -15626,7 +15078,7 @@ bruligis ilin antaŭ la okuloj de ĉiuj; kaj oni kalkulis ilian valoron, kaj
 
 trovis ĝin kvindek miloj da moneroj arĝentaj. 20 Tiel forte kreskis la
 
-vorto de la Sinjoro kaj sukcesis. 
+vorto de la Sinjoro kaj sukcesis.
 
 21 Kaj kiam tio finiĝis, Paŭlo intencis en la spirito, trapasinte Ma-
 
@@ -15636,21 +15088,19 @@ kiam mi iros tien, mi devos ankaŭ vidi Romon. 22 Kaj sendinte en
 
 Makedonujon du el siaj helpservantoj, Timoteon kaj Eraston, li
 
-mem restis iom da tempo en Azio. 
+mem restis iom da tempo en Azio.
 
-23 Kaj ĉirkaŭ tiu tempo leviĝis ne malgranda ekscitiĝo pri la Vojo. 
+23 Kaj ĉirkaŭ tiu tempo leviĝis ne malgranda ekscitiĝo pri la Vojo.
 
 24 ĉar unu viro, nomata Demetrio, arĝentaĵisto, kiu faradis arĝen-
 
-tajn templetojn de Artemis, liveris al la metiistoj multe da okupo; 
+tajn templetojn de Artemis, liveris al la metiistoj multe da okupo;
 
 25 kaj li kunvenigis ilin, kune kun la samokupaj laboristoj, kaj diris:
 
-261
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Ho viroj, vi scias, ke per ĉi tiu metio ni havas bonajn enspezojn. 26
 
@@ -15658,7 +15108,7 @@ Kaj vi vidas kaj aŭdas, ke ne sole en Efeso, sed ankaŭ tra preskaŭ la
 
 tuta Azio, ĉi tiu Paŭlo jam influis kaj forturnis multe da homoj, dir-
 
-ante, ke tio, kio estas manfarita, estas ne-dioj; 27 kaj estas danĝero, 
+ante, ke tio, kio estas manfarita, estas ne-dioj; 27 kaj estas danĝero,
 
 ne sole ke ĉi tiu nia metio estos malestimata, sed ankaŭ ke la templo
 
@@ -15688,7 +15138,7 @@ pledi antaŭ la popolo. 34 Sed sciiĝinte, ke li estas Judo, ĉiuj unuvoĉe
 
 en la daŭro de ĉirkaŭ du horoj kriadis: Granda estas Artemis de la
 
-Efesanoj\! 35 Kaj kiam la urboskribisto kvietigis la amason, li diris:
+Efesanoj! 35 Kaj kiam la urboskribisto kvietigis la amason, li diris:
 
 Ho Efesanoj, ĉu do ekzistas homo nescianta, ke la urbo de la Efe-
 
@@ -15696,7 +15146,7 @@ sanoj estas templogardanto de Artemis la granda kaj de la elĉiela
 
 falintaĵo? 36 ĉar tio do ne estas kontraŭdirebla, vi devas esti trankvi-
 
-laj, kaj fari nenion senpripense. 37 ĉar vi alkondukis ĉi tiujn virojn, 
+laj, kaj fari nenion senpripense. 37 ĉar vi alkondukis ĉi tiujn virojn,
 
 kiuj estas nek templorabistoj nek blasfemantoj de nia diino. 38 Se do
 
@@ -15708,17 +15158,15 @@ kontraŭ alia. 39 Sed se vi faras esploron pri io alia, tio decidiĝos en
 
 la laŭleĝa kunveno. 40 ĉar estas danĝero, ke oni akuzos nin pri tu-
 
-multo rilate la hodiaŭan aferon, pro manko de motivo; kaj rilate ĝin, 
+multo rilate la hodiaŭan aferon, pro manko de motivo; kaj rilate ĝin,
 
-262
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ni ne povos pravigi ĉi tiun homamasiĝon. 41 Kaj tion dirinte, li dis-
 
-sendis la kunvenintojn. 
+sendis la kunvenintojn.
 
 ĉapitro 20
 
@@ -15734,13 +15182,13 @@ spiro farita de la Judoj kontraŭ li, kiam li volis ŝipiri al Sirio, li decidis
 
 Berea, la filo de Pirho; kaj el la Tesalonikanoj, Aristar˛o kaj Sekun-
 
-do; kaj Gajo el Derbe, kaj Timoteo; kaj Ti˛iko kaj Trofimo, Azianoj. 
+do; kaj Gajo el Derbe, kaj Timoteo; kaj Ti˛iko kaj Trofimo, Azianoj.
 
 5 Sed ĉi tiuj, antaŭirinte, atendis nin en Troas. 6 Kaj ni ŝipiris de Fi-
 
-lipi post la tagoj de macoj, kaj alvenis al ili en Troas post kvin tagoj, 
+lipi post la tagoj de macoj, kaj alvenis al ili en Troas post kvin tagoj,
 
-kaj tie ni restis sep tagojn. 
+kaj tie ni restis sep tagojn.
 
 7 Kaj en la unua tago de la semajno, kiam ni kunvenis, por dis-
 
@@ -15750,9 +15198,9 @@ ta tago; kaj li daŭrigis sian paroladon ĝis noktomezo. 8 Kaj estis
 
 multaj lumiloj en la supra ĉambro, kie ni kunvenis. 9 Kaj sur la fe-
 
-nestro sidis junulo, nomata Eŭti˛o, premegata de profunda dormo; 
+nestro sidis junulo, nomata Eŭti˛o, premegata de profunda dormo;
 
-kaj dum Paŭlo ankoraŭ longe paroladis, tiu, venkite de la dormo, 
+kaj dum Paŭlo ankoraŭ longe paroladis, tiu, venkite de la dormo,
 
 falis malsupren de la tria etaĝo, kaj estis levita malviva. 10 Kaj Paŭlo
 
@@ -15764,17 +15212,15 @@ ginte la panon, kaj manĝinte, kaj parolinte kun ili longe, ĝis la tag-
 
 iĝo, fine li foriris. 12 Kaj ili alkondukis la knabon vivantan, kaj multe
 
-konsoliĝis. 
+konsoliĝis.
 
 13 Sed ni, irinte pli frue al la ŝipo, ekveturis al Asos, por tie enŝi-
 
 pigi Paŭlon; ĉar tiel li aranĝis, intencante mem piediri. 14 Kaj kiam
 
-263
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 li renkontis nin en Asos, ni enŝipigis lin, kaj venis al Mitilene. 15 Kaj
 
@@ -15786,7 +15232,7 @@ leton. 16 ĉar Paŭlo decidis preterveturi Efeson, por ne perdi tempon
 
 en Azio; ĉar li rapidis, por esti en Jerusalem, se li nur povos, en la
 
-Pentekosta tago. 
+Pentekosta tago.
 
 17 Kaj de Mileto li sendis al Efeso, kaj alvokis al si la presbiterojn
 
@@ -15808,7 +15254,7 @@ to. 22 Kaj nun jen, enkatenite en spirito, mi iras al Jerusalem, ne
 
 sciante, kio okazos al mi tie, 23 krom tio, ke la Sankta Spirito ates-
 
-tas al mi en ĉiu urbo, dirante, ke katenoj kaj afliktoj min atendas. 
+tas al mi en ĉiu urbo, dirante, ke katenoj kaj afliktoj min atendas.
 
 24 Sed mi taksas je nenio mian vivon kiel al mi mem karan, se nur
 
@@ -15836,11 +15282,9 @@ post si la disĉiplojn. 31 Tial gardu vin, memorante, ke dum tri jaroj
 
 mi ne ĉesis admoni ĉiun nokte kaj tage kun larmoj. 32 Kaj nun mi
 
-264
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vin rekomendas al Dio kaj al la vorto de Lia graco, kiu povas vin
 
@@ -15852,9 +15296,9 @@ noj servadis al miaj bezonoj kaj al miaj kunuloj. 35 En ĉio mi montris
 
 al vi, ke tiel laborante, vi devas helpi la malfortulojn, kaj memori la
 
-vortojn de la Sinjoro Jesuo, kiujn li mem diris: Pli feliĉe estas doni, 
+vortojn de la Sinjoro Jesuo, kiujn li mem diris: Pli feliĉe estas doni,
 
-ol ricevi. 
+ol ricevi.
 
 36 Kaj tiel dirinte, li genuiĝis, kaj preĝis kun ili ĉiuj. 37 Kaj ĉiuj plo-
 
@@ -15862,7 +15306,7 @@ regis, kaj falis sur la kolon de Paŭlo kaj lin kisis, 38 malĝojante pre-
 
 cipe pro la vorto, kiun li diris, ke ili ne plu vidos lian vizaĝon. Kaj
 
-ili akompanis lin ĝis la ŝipo. 
+ili akompanis lin ĝis la ŝipo.
 
 ĉapitro 21
 
@@ -15878,11 +15322,11 @@ Tiro; ĉar tie la ŝipo devis senŝarĝiĝi. 4 Kaj trovinte la disĉiplojn, ni
 
 restis tie sep tagojn; kaj tiuj diris al Paŭlo per la Spirito, ke li ne aliru Jerusalemon. 5 Kaj pasiginte la tagojn, ni eliris kaj ekvojaĝis; kaj ili
 
-ĉiuj kune kun edzinoj kaj infanoj akompanis nin ĝis ekster la urbo; 
+ĉiuj kune kun edzinoj kaj infanoj akompanis nin ĝis ekster la urbo;
 
 kaj genuiĝinte sur la marbordo, ni preĝis; 6 kaj adiaŭinte unuj ali-
 
-ajn, ni enŝipiĝis, kaj ili returne iris hejmen. 
+ajn, ni enŝipiĝis, kaj ili returne iris hejmen.
 
 7 Kaj fininte la marvojaĝon de Tiro, ni alvenis ĉe Ptolemais; kaj
 
@@ -15894,15 +15338,13 @@ de la evangeliisto Filipo, kiu estis unu el la sepo, ni restis ĉe li. 9 ĉi
 
 tiu havis kvar filinojn virgulinojn, kiuj profetadis. 10 Kaj dum ni res-
 
-tis tie ankoraŭ dum kelke da tagoj, unu profeto, nomata Agabo, 
+tis tie ankoraŭ dum kelke da tagoj, unu profeto, nomata Agabo,
 
-265
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-alvojaĝis el Judujo. 11 Kaj veninte al ni, li prenis la zonon de Paŭlo, 
+alvojaĝis el Judujo. 11 Kaj veninte al ni, li prenis la zonon de Paŭlo,
 
 kaj ligis siajn piedojn kaj manojn, kaj diris: Tiele diras la Sankta
 
@@ -15918,17 +15360,17 @@ koron? ĉar mi estas preta ne nur esti ligita, sed ankaŭ morti en Je-
 
 rusalem pro la nomo de la Sinjoro Jesuo. 14 Kaj kiam li ne konsen-
 
-tis, ni silentis, dirante: Plenumiĝu la volo de la Sinjoro. 
+tis, ni silentis, dirante: Plenumiĝu la volo de la Sinjoro.
 
 15 Kaj post tiuj tagoj ni pretigis niajn pakaĵojn, kaj supreniris al
 
-Jerusalem. 16 Kaj iris ankaŭ kun ni kelkaj el la disĉiploj el Cezarea, 
+Jerusalem. 16 Kaj iris ankaŭ kun ni kelkaj el la disĉiploj el Cezarea,
 
 kunkondukante Mnasonon, Kipranon, unuatempan disĉiplon, ĉe
 
-kiu ni devis loĝadi. 
+kiu ni devis loĝadi.
 
-17 Kaj kiam ni alvenis en Jerusalemon, la fratoj nin ĝoje akceptis. 
+17 Kaj kiam ni alvenis en Jerusalemon, la fratoj nin ĝoje akceptis.
 
 18 Kaj la sekvantan tagon Paŭlo akompanis nin al Jakobo, kaj ĉiuj
 
@@ -15954,23 +15396,21 @@ pagu iliajn elspezojn, por ke ili razu sian kapon; kaj ĉiuj scios, ke
 
 nenia vero estas en tio, kion oni raportis pri vi, sed ke vi mem an-
 
-kaŭ iradas orde, observante la leĝon. 25 Sed koncerne la nacianojn, 
+kaŭ iradas orde, observante la leĝon. 25 Sed koncerne la nacianojn,
 
-kiuj ekkredis, ni jam skribis, decidante, ke ili gardu sin kontraŭ idol-
+kiuj ekkredis, ni jam skribis, decidante, ke ili gardu sntraŭ idol-
 
 oferitaĵoj kaj sango kaj sufokitaĵo kaj malĉasteco. 26 Tiam Paŭlo al-
 
 prenis al si la virojn, kaj, sanktiginte sin kun ili, en la sekvanta tago
 
-266
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 li eniris en la templon, kaj deklaris la plenumon de la tagoj de la
 
-purigado, ĝis la oferaĵo estos alportita por ĉiu el ili. 
+purigado, ĝis la oferaĵo estos alportita por ĉiu el ili.
 
 27 Kaj kiam la sep tagoj preskaŭ finiĝis, la Judoj el Azio, vidinte
 
@@ -15988,19 +15428,19 @@ Paŭlo kondukis lin en la templon. 30 Kaj la tuta urbo ekscitiĝis, kaj
 
 la popolo kunkuris; kaj preninte Paŭlon, oni trenis lin ekster la tem-
 
-plon; kaj tuj la pordoj estis ŝlositaj. 31 Kaj dum ili penis lin mortigi, 
+plon; kaj tuj la pordoj estis ŝlositaj. 31 Kaj dum ili penis lin mortigi,
 
 famo venis al la ĉefkapitano de la kohorto, ke la tuta Jerusalem tu-
 
 multas. 32 Kaj li tuj kunvokis soldatojn kaj centestrojn, kaj kuris
 
-malsupren sur ilin; kaj ĉi tiuj, vidinte la ĉefkapitanon kaj soldatojn, 
+malsupren sur ilin; kaj ĉi tiuj, vidinte la ĉefkapitanon kaj soldatojn,
 
 ĉesis bati Paŭlon. 33 Tiam la ĉefkapitano alproksimiĝis, kaj arestis
 
 lin, kaj ordonis, ke oni ligu lin per du katenoj, kaj demandis, kiu li
 
-estas, kaj kion li faris. 34 Kaj la amaso kriadis diverse ion kaj alion; 
+estas, kaj kion li faris. 34 Kaj la amaso kriadis diverse ion kaj alion;
 
 kaj, ne povante konstati la ĝuston pro la tumulto, li ordonis, ke oni
 
@@ -16008,7 +15448,7 @@ konduku lin en la fortikaĵon. 35 Kaj kiam li venis sur la ŝtuparon, li
 
 estis portata de la soldatoj pro la perforto de la amaso; 36 ĉar la mul-
 
-tego de la popolo sekvis, kriante: Forigu lin\! 
+tego de la popolo sekvis, kriante: Forigu lin!
 
 37 Kaj Paŭlo, jam enkondukota en la fortikaĵon, diris al la ĉefka-
 
@@ -16024,19 +15464,17 @@ la Sikarioj? 39 Sed Paŭlo diris: Mi estas Judo el Tarso en Kilikio, bur-
 
 la popolo. 40 Kaj kiam li tion permesis, Paŭlo, starante sur la ŝtupa-
 
-ro, gestis per la mano al la popolo; kaj kiam fariĝis granda silento, 
+ro, gestis per la mano al la popolo; kaj kiam fariĝis granda silento,
 
 li parolis al ili en la Hebrea lingvo, dirante:
 
-267
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 22
 
-1 Fratoj kaj patroj, aŭskultu la pledon, kiun mi faras nun antaŭ vi. 
+1 Fratoj kaj patroj, aŭskultu la pledon, kiun mi faras nun antaŭ vi.
 
 2 Kaj kiam ili aŭdis, ke li parolas al ili en la Hebrea lingvo, ili des
 
@@ -16080,7 +15518,7 @@ eniris en Damaskon mane kondukata de tiuj, kiuj estis kun mi. 12
 
 Kaj unu Ananias, piulo laŭ la leĝo, bone atestata de ĉiuj Judoj tie
 
-loĝantaj, 13 venis al mi, kaj apudstarante, diris al mi: Frato Saŭlo, 
+loĝantaj, 13 venis al mi, kaj apudstarante, diris al mi: Frato Saŭlo,
 
 ricevu vian vidpovon. Kaj en tiu sama horo mi ekvidis, kaj lin rigar-
 
@@ -16088,7 +15526,6 @@ dis. 14 Kaj li diris: La Dio de niaj patroj difinis vin, por ke vi sciu Lian 268
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vojon kaj vidu la Justulon kaj aŭdu voĉon el lia buŝo. 15 ĉar vi es-
 
@@ -16108,7 +15545,7 @@ tis en ĉiuj sinagogoj tiujn, kiuj kredas al vi; 20 kaj kiam estis verŝa-
 
 ta la sango de via martiro Stefano, mi ankaŭ staris apude kaj kon-
 
-sentis, kaj gardis la vestojn de tiuj, kiuj lin mortigis. 21 Kaj li diris al mi: Foriru; ĉar mi vin sendos malproksimen al la nacianoj. 
+sentis, kaj gardis la vestojn de tiuj, kiuj lin mortigis. 21 Kaj li diris al mi: Foriru; ĉar mi vin sendos malproksimen al la nacianoj.
 
 22 Ili aŭskultis lin ĝis tiu vorto, sed tiam ili levis sian voĉon, dir-
 
@@ -16126,7 +15563,7 @@ staranta centestro: ĉu estas laŭleĝe por vi skurĝi Romanon ne kon-
 
 damnitan? 26 Kaj kiam la centestro tion aŭdis, li iris al la ĉefkapitano
 
-kaj raportis, dirante: Kion vi celas fari? ĉar ĉi tiu viro estas Romano. 
+kaj raportis, dirante: Kion vi celas fari? ĉar ĉi tiu viro estas Romano.
 
 27 Kaj la ĉefkapitano venis, kaj diris al li: Diru al mi, ĉu vi estas Ro-
 
@@ -16138,7 +15575,7 @@ skiĝis tia. 29 Tiuj do, kiuj devis ekzameni lin, tuj foriris de li; kaj la
 
 ĉefkapitano ankaŭ timis, konstatinte, ke tiu estas Romano, kaj ke li
 
-lin ligis. 
+lin ligis.
 
 30 Sed en la sekvanta tago, ĉar li volis certiĝi, pri kio la Judoj lin
 
@@ -16146,13 +15583,11 @@ akuzis, li malligis al li la katenojn, kaj ordonis, ke la ĉefpastroj kaj
 
 la tuta sinedrio kunvenu; kaj li kondukis Paŭlon malsupren, kaj sta-
 
-rigis lin antaŭ ili. 
+rigis lin antaŭ ili.
 
-269
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 23
 
@@ -16190,23 +15625,21 @@ pitano, timante, ke Paŭlo estos disŝirita de ili, ordonis al la solda-
 
 taro malsupreniri kaj forkapti lin perforte el la mezo de ili, kaj kon-
 
-duki lin en la fortikaĵon. 
+duki lin en la fortikaĵon.
 
 11 Kaj la sekvantan nokton la Sinjoro staris apud li, kaj diris: Ku-
 
 raĝu; ĉar kiel vi jam atestis pri mi en Jerusalem, tiel vi devas atesti
 
-ankaŭ en Romo. 
+ankaŭ en Romo.
 
-12 Kaj je la tagiĝo la Judoj konspiris, kaj per solena ĵuro sin ligis, 
+12 Kaj je la tagiĝo la Judoj konspiris, kaj per solena ĵuro sin ligis,
 
-dirante, ke ili nek manĝos nek trinkos, ĝis ili mortigos Paŭlon. 13 Kaj
+dirante, ke ili nek manĝos nek trs, ĝis ili mortigos Paŭlon. 13 Kaj
 
-270
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pli ol kvardek estis la tiel kunĵurintaj. 14 Kaj ili venis al la ĉefpastroj kaj la pliaĝuloj, kaj diris: Ni per solena ĵuro ligis nin gustumi nenion, ĝis ni mortigos Paŭlon. 15 Nun do vi kune kun la sinedrio instigu
 
@@ -16258,11 +15691,9 @@ ton. 27 ĉi tiu viro estis kaptita de la Judoj, kaj ili volis mortigi lin; sed m
 
 enkondukis en ilian sinedrion; 29 kaj mi trovis lin akuzata pri de-
 
-271
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mandoj rilatantaj al ilia leĝo, sed havanta nenian akuzon meritan-
 
@@ -16270,13 +15701,13 @@ tan morton aŭ katenojn. 30 Kaj ĉar oni montris al mi, ke estos kon-
 
 spiro kontraŭ la viro, mi tuj sendis lin al vi, ordonante ankaŭ, ke liaj
 
-akuzantoj atestu kontraŭ li antaŭ vi. 
+akuzantoj atestu kontraŭ li antaŭ vi.
 
 31 Tial la soldatoj, kiel estis ordonite al ili, prenis Paŭlon kaj kon-
 
 dukis lin nokte al Antipatris. 32 Kaj en la sekvanta tago ili lasis la
 
-rajdistojn iri kun li, kaj ili ekiris returne al la fortikaĵo; 33 sed tiuj, enirinte en Cezarean kaj transdoninte la leteron al la provincestro, 
+rajdistojn iri kun li, kaj ili ekiris returne al la fortikaĵo; 33 sed tiuj, enirinte en Cezarean kaj transdoninte la leteron al la provincestro,
 
 enkondukis ankaŭ Paŭlon antaŭ lin. 34 Kaj kiam li ĝin legis, li de-
 
@@ -16286,7 +15717,7 @@ likio, 35 li diris: Mi aŭskultos vian proceson, kiam viaj akuzantoj
 
 ankaŭ ĉeestos; kaj li ordonis, ke oni gardu lin en la palaco de He-
 
-rodo. 
+rodo.
 
 ĉapitro 24
 
@@ -16300,11 +15731,11 @@ vokita, Tertulo komencis akuzi lin, dirante:
 
 ĉar ni ĝuadas grandan trankvilecon per vi, kaj malbonaĵoj estas
 
-ĝustigitaj por ĉi tiu nacio per via antaŭzorgeco, 3 ni akceptas tion, 
+ĝustigitaj por ĉi tiu nacio per via antaŭzorgeco, 3 ni akceptas tion,
 
-ĉiel kaj ĉie, plej nobla Felikso, kun plena dankemeco. 4 Sed \(por ke
+ĉiel kaj ĉie, plej nobla Felikso, kun plena dankemeco. 4 Sed (por ke
 
-mi vin ne tro tedu\) mi vin petegas aŭskulti nin mallonge, laŭ via
+mi vin ne tro tedu) mi vin petegas aŭskulti nin mallonge, laŭ via
 
 bonkoreco. 5 ĉar ni trovis ĉi tiun viron pestulo, kaj incitanta al ri-
 
@@ -16318,15 +15749,13 @@ granda perforto forprenis lin el niaj manoj, 8 kaj ordonis al liaj aku-
 
 zantoj veni antaŭ vin; kaj nun, ekzamenante lin, vi mem povos cer-
 
-272
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tiĝi pri ĉio, pro kio ni lin akuzas. 9 Kaj la Judoj ankaŭ konsentis, dir-
 
-ante, ke ĉi tio estas vera. 
+ante, ke ĉi tio estas vera.
 
 10 Tiam Paŭlo, kiam la provincestro signis, ke li parolu, respon-
 
@@ -16336,7 +15765,7 @@ Sciante, ke jam de multaj jaroj vi estas juĝisto por ĉi tiu nacio, mi
 
 des pli volonte min defendas; 11 ĉar vi povas certiĝi, ke pasis ne pli
 
-ol dek du tagoj, de kiam mi supreniris al Jerusalem, por adorkliniĝi; 
+ol dek du tagoj, de kiam mi supreniris al Jerusalem, por adorkliniĝi;
 
 12 kaj ili ne trovis min disputanta kun iu aŭ incitanta la popolon en
 
@@ -16368,27 +15797,25 @@ mem diru, kian malbonfaron ili trovis en mi, kiam mi staris antaŭ
 
 la sinedrio, 21 krom eble pri unu vorto, kiun mi jene kriis, starante
 
-inter ili: Pri la releviĝo de la mortintoj mi estas juĝata de vi hodiaŭ. 
+inter ili: Pri la releviĝo de la mortintoj mi estas juĝata de vi hodiaŭ.
 
-22 Sed Felikso, konante iom precize la Vojon, prokrastis rilate ilin, 
+22 Sed Felikso, konante iom precize la Vojon, prokrastis rilate ilin,
 
 kaj diris: Kiam alvenos la ĉefkapitano Lisias, tiam mi decidos vian
 
 aferon. 23 Kaj li ordonis al la centestro gardi Paŭlon kun malseve-
 
-reco, kaj ne malpermesi al iu ajn el liaj amikoj lin viziti kaj helpi. 
+reco, kaj ne malpermesi al iu ajn el liaj amikoj lin viziti kaj helpi.
 
-24 Kaj post kelke da tagoj, Felikso venis kun sia edzino Drusila, 
+24 Kaj post kelke da tagoj, Felikso venis kun sia edzino Drusila,
 
 kiu estis Judino, kaj li venigis al si Paŭlon kaj aŭskultis lin pri la fido al Kristo Jesuo. 25 Kaj dum Paŭlo rezonis pri justeco, sinregado, kaj
 
-273
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-la juĝo estonta, Felikso timiĝis, kaj respondis: La nunan fojon foriru; 
+la juĝo estonta, Felikso timiĝis, kaj respondis: La nunan fojon foriru;
 
 kiam mi havos oportunan tempon, mi alvokos vin al mi. 26 Li ankaŭ
 
@@ -16398,7 +15825,7 @@ li des pli ofte venigis Paŭlon kaj interparoladis kun li. 27 Sed post du
 
 jaroj Felikso estis anstataŭita de Porcio Festo; kaj Felikso, deziran-
 
-te akiri favoron ĉe la Judoj, lasis Paŭlon ligita. 
+te akiri favoron ĉe la Judoj, lasis Paŭlon ligita.
 
 ĉapitro 25
 
@@ -16416,11 +15843,11 @@ estas gardata en Cezarea, kaj ke li mem baldaŭ iros tien. 5 Tial, li
 
 diris, la eminentuloj el vi tien iru kun mi, kaj se estas io krima en la
 
-viro, ili lin akuzu. 
+viro, ili lin akuzu.
 
-6 Kaj restinte inter ili ne pli ol ok aŭ dek tagojn, li iris al Cezarea; 
+6 Kaj restinte inter ili ne pli ol ok aŭ dek tagojn, li iris al Cezarea;
 
-kaj en la sekvanta tago li sidiĝis sur la tribunala seĝo, kaj ordonis, 
+kaj en la sekvanta tago li sidiĝis sur la tribunala seĝo, kaj ordonis,
 
 ke oni alkonduku Paŭlon. 7 Kaj kiam li alestis, la Judoj, kiuj malsup-
 
@@ -16436,7 +15863,7 @@ la Judoj, respondis al Paŭlo, dirante: ĉu vi volas supreniri al Jeru-
 
 salem, kaj tie esti juĝata antaŭ mi pri ĉi tiuj aferoj? 10 Sed Paŭlo di-
 
-ris: Mi staras antaŭ la tribunalo de Cezaro, kie mi devas esti juĝata; 
+ris: Mi staras antaŭ la tribunalo de Cezaro, kie mi devas esti juĝata;
 
 kontraŭ la Judoj mi faris nenian malbonon, kiel ankaŭ vi tre bone
 
@@ -16444,17 +15871,15 @@ scias. 11 Se do mi estas krimulo, kaj faris ion meritantan morton, mi
 
 ne rifuzas morti; sed se estas vera nenio el tiuj aferoj, pri kiuj ili min
 
-274
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 akuzas, neniu povas cedi min al ili. Mi apelacias al Cezaro. 12 Tiam
 
 Festo, kunparolinte kun la konsilantaro, respondis: Vi apelaciis al
 
-Cezaro; al Cezaro vi devos iri. 
+Cezaro; al Cezaro vi devos iri.
 
 13 Kaj post paso de kelke da tagoj, la reĝo Agripo kaj Bernike ve-
 
@@ -16492,7 +15917,7 @@ la decido de lia Imperiestra Moŝto, mi ordonis gardi lin, ĝis mi po-
 
 vos lin sendi al Cezaro. 22 Kaj Agripo diris al Festo: Volonte ankaŭ
 
-mi aŭskultus tiun viron. Morgaŭ, li diris, vi lin aŭskultos. 
+mi aŭskultus tiun viron. Morgaŭ, li diris, vi lin aŭskultos.
 
 23 Tial en la sekvanta tago, kiam venis Agripo kaj Bernike kun
 
@@ -16510,11 +15935,9 @@ mi trovis, ke li ne faris ion meritantan morton; kaj ĉar li mem ape-
 
 laciis al lia Imperiestra Moŝto, mi decidis sendi lin. 26 Sed pri li mi
 
-275
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 havas nenion precizan por skribi al mia sinjoro. Tial mi elkondukis
 
@@ -16522,11 +15945,11 @@ lin antaŭ vin ĉiujn, kaj precipe antaŭ vin, reĝo Agripo, por ke post
 
 ekzameno mi havu ion por skribi. 27 ĉar ŝajnas al mi senracie, sendi
 
-arestiton, kaj ne klarigi la akuzojn kontraŭ li metitajn. 
+arestiton, kaj ne klarigi la akuzojn kontraŭ li metitajn.
 
 ĉapitro 26
 
-1 Kaj Agripo diris al Paŭlo: Estas permesate al vi paroli por vi mem. 
+1 Kaj Agripo diris al Paŭlo: Estas permesate al vi paroli por vi mem.
 
 Tiam Paŭlo, etendinte sian manon, responde pledis:
 
@@ -16534,15 +15957,15 @@ Tiam Paŭlo, etendinte sian manon, responde pledis:
 
 hodiaŭ rilate ĉion, pri kio mi estas akuzita de la Judoj; 3 precipe ĉar
 
-vi estas klera pri ĉiuj moroj kaj demandoj, kiuj ekzistas ĉe la Judoj; 
+vi estas klera pri ĉiuj moroj kaj demandoj, kiuj ekzistas ĉe la Judoj;
 
 tial mi petegas vin aŭskulti min pacience. 4 Mian vivmanieron de
 
 post mia juneco, kiu estis de la komenco en mia nacio, en Jerusa-
 
-lem, ĉiuj Judoj scias, 5 konante min jam longe, kaj sciante \(se ili
+lem, ĉiuj Judoj scias, 5 konante min jam longe, kaj sciante (se ili
 
-volus atesti\), ke laŭ la plej severa sekto de nia religio mi vivis Fari-
+volus atesti), ke laŭ la plej severa sekto de nia religio mi vivis Fari-
 
 seo. 6 Kaj nun mi staras ĉi tie juĝota pro la espero de la promeso
 
@@ -16550,7 +15973,7 @@ farita de Dio al niaj patroj, 7 al kiu promeso niaj dek du triboj, fer-
 
 vore servante Dion nokte kaj tage, esperas atingi. Kaj pri tiu espe-
 
-ro mi estas akuzita de la Judoj, ho reĝo\! 8 Kial oni ĉe vi opinias ne-
+ro mi estas akuzita de la Judoj, ho reĝo! 8 Kial oni ĉe vi opinias ne-
 
 kredinde, ke Dio levos la mortintojn? 9 Mi mem ja pensis en mi, ke
 
@@ -16572,15 +15995,13 @@ komisio de la ĉefpastroj, 13 mi vidis tagmeze, ho reĝo, sur la vojo
 
 lumon el la ĉielo, superantan la helecon de la suno, brilantan ĉir-
 
-kaŭ mi kaj miaj kunvojaĝantoj. 14 Kaj kiam ni ĉiuj falis sur la teron, 
+kaŭ mi kaj miaj kunvojaĝantoj. 14 Kaj kiam ni ĉiuj falis sur la teron,
 
-mi aŭdis voĉon, dirantan al mi en la Hebrea lingvo: Saŭlo, Saŭlo, 
+mi aŭdis voĉon, dirantan al mi en la Hebrea lingvo: Saŭlo, Saŭlo,
 
-276
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kial vi min persekutas? estas malfacile por vi piedbati kontraŭ la
 
@@ -16594,15 +16015,15 @@ kaj atestanton pri la cirkonstancoj, en kiuj vi jam vidis min, kaj an-
 
 kaŭ en kiuj mi poste aperos al vi; 17 liberigante vin de la popolo kaj
 
-de la nacianoj, al kiuj mi vin sendas, 18 por malfermi iliajn okulojn, 
+de la nacianoj, al kiuj mi vin sendas, 18 por malfermi iliajn okulojn,
 
 ke ili sin turnu de mallumo al lumo, kaj de la aŭtoritato de Satano
 
-al Dio, por ke ili ricevu pardonon de pekoj, kaj heredaĵon inter tiuj, 
+al Dio, por ke ili ricevu pardonon de pekoj, kaj heredaĵon inter tiuj,
 
 kiuj sanktiĝis per fido al mi. 19 Tial, ho reĝo Agripo, mi ne iĝis ma-
 
-lobeema al la ĉiela vizio; 20 sed proklamis unue al la Damaskanoj, 
+lobeema al la ĉiela vizio; 20 sed proklamis unue al la Damaskanoj,
 
 kaj en Jerusalem, kaj tra la tuta regiono de Judujo, kaj ankaŭ al la
 
@@ -16618,7 +16039,7 @@ krom tio, kion la profetoj kaj Moseo anoncis kiel venontan: 23 ke la
 
 Kristo devas suferi, kaj ke li unua per la revivigado de mortintoj
 
-proklamos lumon al la popolo kaj al la nacianoj. 
+proklamos lumon al la popolo kaj al la nacianoj.
 
 24 Kaj dum li tiel pledis, Festo diris per laŭta voĉo: Paŭlo, vi fre-
 
@@ -16634,25 +16055,23 @@ for de li, ĉar ĉi tio ne estas farita en angulo. 27 Reĝo Agripo, ĉu vi
 
 kredas la profetojn? mi ja scias, ke vi kredas. 28 Kaj Agripo diris al
 
-Paŭlo: En mallonga tempo vi konvinkos min fariĝi Kristano. 29 Kaj
+Paŭlo: En mallonga tempo vi konvs min fariĝi Kristano. 29 Kaj
 
-Paŭlo diris: Mi volus preĝi al Dio, ke, ĉu en mallonga aŭ en longa, 
+Paŭlo diris: Mi volus preĝi al Dio, ke, ĉu en mallonga aŭ en longa,
 
 ne nur vi, sed ankaŭ tiuj, kiuj aŭskultas min hodiaŭ, fariĝu tiaj, kia
 
-mi estas, krom ĉi tiuj katenoj. 
+mi estas, krom ĉi tiuj katenoj.
 
-277
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 30 Kaj stariĝis la reĝo kaj la provincestro kaj Bernike kaj la kun-
 
 sidantoj; 31 kaj apartiĝinte, ili parolis inter si, dirante: Tiu viro faris nenion meritantan morton aŭ katenojn. 32 Kaj Agripo diris al Festo:
 
-Tiu viro povus esti tuj liberigita, se li ne apelacius al Cezaro. 
+Tiu viro povus esti tuj liberigita, se li ne apelacius al Cezaro.
 
 ĉapitro 27
 
@@ -16666,11 +16085,11 @@ al la lokoj ĉe la marbordo de Azio, ni ekveturis sur la maron, hav-
 
 ante kun ni Aristar˛on, Makedonon el Tesaloniko. 3 Kaj la sekvan-
 
-tan tagon ni vizitis Cidonon; kaj Julio kondutis afable rilate Paŭlon, 
+tan tagon ni vizitis Cidonon; kaj Julio kondutis afable rilate Paŭlon,
 
 kaj permesis al li iri al siaj amikoj kaj refreŝiĝi. 4 Kaj irinte de tie sur la maron, ni preterveturis sub la ŝirmo de Kipro, ĉar la ventoj estis
 
-kontraŭaj. 5 Kaj transveturinte la maron apud Kilikio kaj Pamfilio, 
+kontraŭaj. 5 Kaj transveturinte la maron apud Kilikio kaj Pamfilio,
 
 ni alvenis al Mira en Likio. 6 Kaj la centestro, trovinte tie ŝipon Alek-
 
@@ -16678,13 +16097,13 @@ sandrian veturontan al Italujo, enirigis nin en ĝin. 7 Kaj veturante
 
 malrapide dum multe da tagoj kaj venkinte kun malfacileco prok-
 
-sime al Knido \(ĉar la vento ne permesis al ni atingi ĝin\), ni veturis
+sime al Knido (ĉar la vento ne permesis al ni atingi ĝin), ni veturis
 
 sub la ŝirmo de Kreto, apud Salmone; 8 kaj kun malfacileco vetur-
 
-inte preter la marbordo, ni alvenis al loko, nomata Belaj Havenoj, 
+inte preter la marbordo, ni alvenis al loko, nomata Belaj Havenoj,
 
-proksime de kiu estas la urbo Lasaja. 
+proksime de kiu estas la urbo Lasaja.
 
 9 Kaj kiam pasis multe da tempo, kaj la vojaĝo jam fariĝis dan-
 
@@ -16696,7 +16115,7 @@ nur de la ŝarĝo kaj de la ŝipo, sed ankaŭ de niaj vivoj. 11 Sed la cent-
 
 estro atentis pli la konsilon de la direktilisto kaj la posedanto de la
 
-ŝipo, ol la parolon de Paŭlo. 12 Kaj ĉar la haveno ne estis sufiĉe vasta, 
+ŝipo, ol la parolon de Paŭlo. 12 Kaj ĉar la haveno ne estis sufiĉe vasta,
 
 por tie travintri, la plimulto konsilis ŝipiri de tie, se eble ili povos
 
@@ -16704,15 +16123,13 @@ atingi Fenikson, havenon de Kreto, kiu rigardas en la direkto al la
 
 nordokcidenta kaj la sudokcidenta ventoj, por tie travintri. 13 Kaj
 
-278
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiam la suda vento blovis malpli forte, ili supozis, ke ili atingis sian
 
-celon, kaj levinte la ankrojn, ili preterveturis Kreton tre proksime. 
+celon, kaj levinte la ankrojn, ili preterveturis Kreton tre proksime.
 
 14 Sed post mallonga tempo atakis nin el ĝi uragana vento, kiu es-
 
@@ -16754,7 +16171,7 @@ al vi ĉiujn, kiuj marveturas kun vi. 25 Tial, viroj, kuraĝu; ĉar mi kre-
 
 das al Dio, ke la afero estos tiel, kiel estas dirite al mi. 26 Tamen ni
 
-devas esti ĵetitaj sur ian insulon. 
+devas esti ĵetitaj sur ian insulon.
 
 27 Sed kiam venis la dek-kvara nokto, kaj ni estis ĉirkaŭpelataj en
 
@@ -16770,11 +16187,9 @@ timante, ke ni falos sur malmolajn lokojn, ili ĵetis kvar ankrojn el la
 
 rimedon forkuri el la ŝipo, kaj jam mallevis la boaton en la maron
 
-279
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sub preteksto, ke ili demetos ankrojn el la antaŭo, 31 Paŭlo diris al
 
@@ -16788,7 +16203,7 @@ kiu vi daŭre atendas kaj fastadas, preninte nenion. 34 Tial mi petas
 
 vin preni nutraĵon, ĉar ĉi tio koncernas vian savon; ĉar eĉ unu haro
 
-ne pereos el la kapo al vi ĉiuj. 35 Kaj dirinte tion kaj preninte panon, 
+ne pereos el la kapo al vi ĉiuj. 35 Kaj dirinte tion kaj preninte panon,
 
 li donis dankon al Dio antaŭ ĉiuj; kaj dispeciginte ĝin, li komencis
 
@@ -16808,7 +16223,7 @@ samtempe malligis la ŝnurojn de la direktiloj; kaj suprenlevinte la
 
 antaŭvelon kontraŭ la vento, ili sin direktis al la sablaĵo. 41 Sed tra-
 
-finte lokon, kie du marmovoj sin renkontas, ili surterigis la ŝipon; 
+finte lokon, kie du marmovoj sin renkontas, ili surterigis la ŝipon;
 
 kaj la antaŭo fiksiĝis kaj restis nemovebla, sed la malantaŭo rompi-
 
@@ -16818,11 +16233,11 @@ tigi la malliberulojn, por ke neniu el ili elnaĝu kaj forkuru. 43 Sed la
 
 centestro, dezirante savi Paŭlon, malhelpis ilin de tiu decido, kaj
 
-ordonis, ke tiuj, kiuj povas naĝi, forĵetu sin unuaj kaj iru al la tero; 
+ordonis, ke tiuj, kiuj povas naĝi, forĵetu sin unuaj kaj iru al la tero;
 
 44 kaj ke la ceteraj sin savu, jen sur tabuloj, jen sur diversaj objek-
 
-toj el la ŝipo. Kaj tiamaniere ĉiuj saviĝis sur la teron. 
+toj el la ŝipo. Kaj tiamaniere ĉiuj saviĝis sur la teron.
 
 ĉapitro 28
 
@@ -16830,11 +16245,9 @@ toj el la ŝipo. Kaj tiamaniere ĉiuj saviĝis sur la teron.
 
 lita. 2 Kaj la barbaroj montris al ni neordinaran bonecon; ĉar ili ek-
 
-280
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 bruligis fajron kaj akceptis nin ĉiujn pro la tiama pluvo kaj pro la
 
@@ -16850,11 +16263,11 @@ kam li saviĝis de la maro, tamen Justeco ne permesas vivi. 5 Sed li
 
 forskuis la beston en la fajron, kaj ne suferis malbonon. 6 Sed ili
 
-atendis, ke li ŝvelos aŭ falos subite mortinta; sed longe atendinte, 
+atendis, ke li ŝvelos aŭ falos subite mortinta; sed longe atendinte,
 
 kaj vidinte, ke nenia malbono okazas al li, ili ŝanĝis sian opinion, kaj
 
-diris, ke li estas dio. 
+diris, ke li estas dio.
 
 7 Proksime de tiu loko estis bieno, apartenanta al la estro de la
 
@@ -16862,7 +16275,7 @@ insulo; lia nomo estis Publio; li akceptis nin kaj amike gastigis nin
 
 tri tagojn. 8 Kaj la patro de Publio kuŝis malsana de febro kaj disen-
 
-terio; al li Paŭlo eniris, kaj preĝis, kaj, metinte la manojn sur lin, 
+terio; al li Paŭlo eniris, kaj preĝis, kaj, metinte la manojn sur lin,
 
 sanigis lin. 9 Kaj post tiu faro, ankaŭ ceteraj insulanoj, kiuj havis
 
@@ -16870,11 +16283,11 @@ malsanojn, venis kaj estis sanigitaj; 10 ĉi tiuj ankaŭ honoris nin per
 
 multaj honoroj; kaj kiam ni ekveturis, ili surŝipigis ĉion, kion ni
 
-bezonis. 
+bezonis.
 
 11 Kaj post tri monatoj ni ekveturis en ŝipo Aleksandria, kiu tra-
 
-vintris ĉe la insulo; kaj ĝia insigno estis la ¯emeloj. 12 Kaj albord-
+vintris ĉe la insulo; kaj ĝia insigno estis la emeloj. 12 Kaj albord-
 
 iĝinte ĉe Sirakuso, ni restis tie tri tagojn. 13 Kaj de tie ni ĉirkaŭiris
 
@@ -16886,23 +16299,21 @@ resti ĉe ili sep tagojn, kaj tiel poste ni vojaĝis al Romo. 15 Kaj de tie
 
 la fratoj, aŭdinte pri ni, venis al ni renkonte ĝis la Vendejo de Apio
 
-kaj la Tri Gastejoj; kaj vidante ilin, Paŭlo dankis Dion, kaj kuraĝiĝis. 
+kaj la Tri Gastejoj; kaj vidante ilin, Paŭlo dankis Dion, kaj kuraĝiĝis.
 
 16 Kaj kiam ni eniris en Romon, al Paŭlo estis permesate loĝi sola
 
-kun la soldato, kiu lin gardis. 
+kun la soldato, kiu lin gardis.
 
 17 Kaj post tri tagoj, li kunvokis tiujn, kiuj estis eminentuloj in-
 
 ter la Judoj; kaj kiam ili kunvenis, li diris al ili: Fratoj, kvankam mi
 
-281
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-faris nenion kontraŭ la popolo nek kontraŭ la moroj de niaj patroj, 
+faris nenion kontraŭ la popolo nek kontraŭ la moroj de niaj patroj,
 
 tamen mi estis transdonita kiel malliberulo el Jerusalem en la ma-
 
@@ -16914,7 +16325,7 @@ parolis, tiam mi estis devigata apelacii al Cezaro; ne kvazaŭ mi havis
 
 ion, pri kio akuzi mian nacion. 20 Pro tio do mi petis vin viziti min
 
-kaj kunparoli, ĉar pro la espero de Izrael mi portas ĉi tiun katenon. 
+kaj kunparoli, ĉar pro la espero de Izrael mi portas ĉi tiun katenon.
 
 21 Kaj ili diris al li: Ni ne ricevis el Judujo leterojn pri vi, kaj neniu
 
@@ -16922,7 +16333,7 @@ el la fratoj, alveninte, raportis aŭ parolis pri vi ion malbonan. 22 Sed
 
 ni deziras aŭdi de vi, kion vi opinias; ĉar pri tiu sekto ni scias, ke ĉie
 
-oni kontraŭparolas al ĝi. 
+oni kontraŭparolas al ĝi.
 
 23 Kaj difininte tagon por li, ili grandnombre venis al li en lian
 
@@ -16940,35 +16351,33 @@ Jesaja al viaj patroj, 26 dirante:
 
 Iru al tiu popolo, kaj diru:
 
-Aŭdante, vi aŭdos, sed ne komprenos; 
+Aŭdante, vi aŭdos, sed ne komprenos;
 
-Kaj vidante, vi vidos, sed ne rimarkos; 
+Kaj vidante, vi vidos, sed ne rimarkos;
 
-27 ĉar la koro de tiu popolo grasiĝis, 
+27 ĉar la koro de tiu popolo grasiĝis,
 
-Kaj iliaj oreloj aŭdas malklare, 
+Kaj iliaj oreloj aŭdas malklare,
 
-Kaj siajn okulojn ili fermis, 
+Kaj siajn okulojn ili fermis,
 
-Por ke ili ne vidu per siaj okuloj, 
+Por ke ili ne vidu per siaj okuloj,
 
-Kaj por ke ili ne aŭdu per siaj oreloj, 
+Kaj por ke ili ne aŭdu per siaj oreloj,
 
-Kaj por ke ili ne komprenu per sia koro, 
+Kaj por ke ili ne komprenu per sia koro,
 
-Kaj por ke ili ne konvertiĝu, 
+Kaj por ke ili ne konvertiĝu,
 
-Kaj por ke Mi ne sanigu ilin. 
+Kaj por ke Mi ne sanigu ilin.
 
 28 Certiĝu do al vi, ke ĉi tiu savado de Dio estas sendata al la na-
 
-282
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-cianoj, kaj ili aŭskultos. 29 Kaj kiam li diris tion, la Judoj foriris, havante inter si multe da disputado. 
+cianoj, kaj ili aŭskultos. 29 Kaj kiam li diris tion, la Judoj foriris, havante inter si multe da disputado.
 
 30 Kaj li loĝadis tutajn du jarojn en sia propra loĝejo, kaj li akcep-
 
@@ -16976,13 +16385,11 @@ tis ĉiujn, kiuj eniris al li, 31 predikante la regnon de Dio, kaj instru-
 
 ante la aferojn pri la Sinjoro Jesuo Kristo kun plena maltimo, mal-
 
-helpate de neniu. 
+helpate de neniu.
 
-283
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -17008,7 +16415,7 @@ sto; 7 al ĉiuj, kiuj estas en Romo, amataj de Dio, vokitaj sanktuloj:
 
 Graco al vi kaj paco de Dio, nia Patro, kaj de la Sinjoro Jesuo Kris-
 
-to. 
+to.
 
 8 Unue mi dankas al mia Dio per Jesuo Kristo por vi ĉiuj, ke via
 
@@ -17022,13 +16429,13 @@ mi jam fine prosperos veni al vi per la volo de Dio. 11 ĉar mi sopi-
 
 ras vin vidi, por ke mi transdonu al vi ian spiritan donacon, por ke
 
-vi estu firmigitaj; 12 tio estas, por ke estu inter ni reciproka kuraĝigo, 
+vi estu firmigitaj; 12 tio estas, por ke estu inter ni reciproka kuraĝigo,
 
 per la komuna fido, egale via kaj mia. 13 Kaj mi ne volas, ke vi nes-
 
-ciu, fratoj, ke ofte mi celis veni al vi \(sed mi estas malhelpita ĝis
+ciu, fratoj, ke ofte mi celis veni al vi (sed mi estas malhelpita ĝis
 
-nun\), por ke mi havu iom da frukto ĉe vi, kiel ankaŭ ĉe la aliaj na-
+nun), por ke mi havu iom da frukto ĉe vi, kiel ankaŭ ĉe la aliaj na-
 
 cioj. 14 Mi estas ŝuldanto al Grekoj kaj al Barbaroj, al saĝuloj kaj al
 
@@ -17036,19 +16443,17 @@ senprudentuloj. 15 Tial laŭ mia eblo mi estas fervora prediki la evan-
 
 gelion ankaŭ al vi, kiuj estas en Romo. 16 ĉar mi ne hontas pri la
 
-284
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-evangelio; ĉar ĝi estas la potenco de Dio al savo por ĉiu, kiu kredas, 
+evangelio; ĉar ĝi estas la potenco de Dio al savo por ĉiu, kiu kredas,
 
 al la Judoj unue, kaj ankaŭ al la Grekoj. 17 ĉar la justeco de Dio mal-
 
 kaŝiĝas en ĝi de fido al fido, kiel estas skribite: La virtulo vivos per
 
-sia fideleco. 
+sia fideleco.
 
 18 ĉar la kolero de Dio malkaŝiĝas el la ĉielo kontraŭ ĉia malpieco
 
@@ -17058,7 +16463,7 @@ la scio pri Dio estas elmontrita ĉe ili, ĉar Dio elmontris ĝin al ili. 20
 
 ĉar Liaj nevideblaj ecoj de post la kreado de la mondo fariĝas vide-
 
-blaj, sentate per Liaj faritaĵoj, nome, Lia eterna potenco kaj dieco; 
+blaj, sentate per Liaj faritaĵoj, nome, Lia eterna potenco kaj dieco;
 
 tial al ili mankas defenda pledo; 21 ĉar konante Dion, ili ne gloris Lin
 
@@ -17068,7 +16473,7 @@ sensaĝa koro mallumiĝis. 22 Pretendante esti saĝaj, ili malsaĝiĝis, 23
 
 kaj ŝanĝis la gloron de la senmorta Dio en bildon de morta homo
 
-kaj de birdoj kaj kvarpiedaj bestoj kaj rampaĵoj. 
+kaj de birdoj kaj kvarpiedaj bestoj kaj rampaĵoj.
 
 24 Tial Dio fordonis ilin al la voluptoj de iliaj koroj, al malpure-
 
@@ -17076,7 +16481,7 @@ co, por ke iliaj korpoj malhonoriĝu inter ili mem; 25 kiuj ŝanĝis la ve-
 
 ron de Dio en mensogon, kaj adoris kaj servis la kreitaĵojn prefere
 
-ol la Kreinton, kiu estas eterne benata. Amen. 
+ol la Kreinton, kiu estas eterne benata. Amen.
 
 26 Tial Dio fordonis ilin al malhonoraj pasioj; ĉar iliaj virinoj ŝan-
 
@@ -17086,13 +16491,13 @@ viroj, forlasante la naturan uzadon de la virino, brulis en sia volupto
 
 unu al alia, kaj viroj kun viroj faris hontindaĵon kaj ricevis en si
 
-mem la taŭgan rekompencon de sia malvirto. 
+mem la taŭgan rekompencon de sia malvirto.
 
 28 Kaj ĉar ili malŝatis teni Dion en sia konado, Dio fordonis ilin
 
 al malaprobinda menso, por ke ili faru nedecaĵojn; 29 plenigite de
 
-ĉia maljusteco, malvirteco, avideco, malboneco; plenaj de envio, 
+ĉia maljusteco, malvirteco, avideco, malboneco; plenaj de envio,
 
 mortigo, malpaco, ruzo, malico; flustrantaj, 30 kalumniantaj, Dima-
 
@@ -17102,15 +16507,13 @@ bonaĵojn, malobeemaj al gepatroj, 31 senprudentaj, nefidindaj, ne-
 
 parencamaj, senkompataj; 32 kiuj, sciante pri la juĝo de Dio, ke la
 
-285
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 farantoj de tiaj agoj meritas morton, ne nur mem faras ilin, sed an-
 
-kaŭ konsentas al la farantoj de ili. 
+kaŭ konsentas al la farantoj de ili.
 
 ĉapitro 2
 
@@ -17130,7 +16533,7 @@ co kaj pacienco, ne sciante, ke la boneco de Dio alkondukas vin al
 
 pento? 5 sed laŭ via obstineco kaj senpenta koro vi amasigas por vi
 
-koleron en la tago de kolero kaj malkaŝigo de la justa juĝo de Dio, 
+koleron en la tago de kolero kaj malkaŝigo de la justa juĝo de Dio,
 
 6 kiu redonos al ĉiu homo laŭ liaj faroj; 7 al tiuj, kiuj per pacienco
 
@@ -17152,7 +16555,7 @@ rado ĉe Dio. 12 ĉar ĉiu, kiu pekis sen leĝo, ankaŭ pereos sen leĝo; kaj
 
 antoj de leĝo estos justaj antaŭ Dio, sed la plenumantoj de leĝo
 
-estos pravigitaj \(14 ĉar kiam la nacianoj, kiuj ne havas la leĝon, fa-
+estos pravigitaj (14 ĉar kiam la nacianoj, kiuj ne havas la leĝon, fa-
 
 ras nature la aferojn de la leĝo, ĉi tiuj, ne havante leĝon, estas leĝo
 
@@ -17160,23 +16563,21 @@ por si mem; 15 kiuj elmontras la faradon de la leĝo skribita en iliaj
 
 koroj, kiam ilia konscienco kunatestas, kaj iliaj rezonadoj inter si
 
-akuzas aŭ defendas ilin.\) 16 en la tago, kiam Dio juĝos la sekretojn
+akuzas aŭ defendas ilin.) 16 en la tago, kiam Dio juĝos la sekretojn
 
-de homoj, laŭ mia evangelio, per Jesuo Kristo. 
+de homoj, laŭ mia evangelio, per Jesuo Kristo.
 
-286
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 17 Sed se vi estas nomata Judo, kaj apogas vin sur la leĝon, kaj
 
-fieras pri Dio, 18 kaj konas Lian volon, kaj aprobas la aprobindaĵojn, 
+fieras pri Dio, 18 kaj konas Lian volon, kaj aprobas la aprobindaĵojn,
 
 kaj estas instruita el la leĝo, 19 kaj estas konvinkita, ke vi mem es-
 
-tas gvidanto por la blinduloj, lumo por tiuj, kiuj estas en mallumo, 
+tas gvidanto por la blinduloj, lumo por tiuj, kiuj estas en mallumo,
 
 20 edukanto por la senprudentuloj, instruanto por infanoj, havan-
 
@@ -17210,7 +16611,7 @@ la karno; 29 sed Judo estas tiu, kiu estas interne tia, kaj cirkumcido
 
 estas en la koro, laŭ la spirito, ne laŭ la litero, kies laŭdo estas ne de
 
-homoj, sed de Dio. 
+homoj, sed de Dio.
 
 ĉapitro 3
 
@@ -17220,51 +16621,49 @@ kumcido? 2 Multa en ĉiu rilato: unue, ke al ili estis konfiditaj la ora-
 
 koloj de Dio. 3 ĉu do estas grave, se kelkaj ne fidis? ĉu ilia senfide-
 
-co vantigos la fidelecon de Dio? 4 Nepre ne\! Dio montriĝu vera, sed
+co vantigos la fidelecon de Dio? 4 Nepre ne! Dio montriĝu vera, sed
 
 ĉiu homo mensoganto, kiel estas skribite:
 
 Ke Vi estu justa en Via vorto
 
-287
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Kaj pura en Via juĝo. 
+Kaj pura en Via juĝo.
 
 5 Sed se nia maljusteco rekomendas la justecon de Dio, kion ni
 
-diros? ĉu maljusta estas Dio, kiu alportas koleron? \(Mi parolas kiel
+diros? ĉu maljusta estas Dio, kiu alportas koleron? (Mi parolas kiel
 
-homo.\) 6 Nepre ne\! ĉar kiel Dio juĝus la mondon? 7 ĉar se la vero
+homo.) 6 Nepre ne! ĉar kiel Dio juĝus la mondon? 7 ĉar se la vero
 
 de Dio per mia mensogo abundis al Lia gloro, kial mi estas anko-
 
-raŭ juĝata, kiel pekinto? 8 kaj kial ne \(kiel ni estas kalumniataj, kaj
+raŭ juĝata, kiel pekinto? 8 kaj kial ne (kiel ni estas kalumniataj, kaj
 
-kelkaj asertas, ke ni diras\): Ni faru malbonon, por ke venu bono? ilia
+kelkaj asertas, ke ni diras): Ni faru malbonon, por ke venu bono? ilia
 
-kondamno estas justa. 
+kondamno estas justa.
 
 9 Kio do? ĉu ni nin senkulpigas? Tute ne: ĉar ni jam akuzis ega-
 
 le Judojn kaj Grekojn, ke ĉiuj estas sub peko; 10 kiel estas skribite:
 
-Ne ekzistas justulo, ne eĉ unu; 
+Ne ekzistas justulo, ne eĉ unu;
 
-11 Ne ekzistas prudentulo, 
+11 Ne ekzistas prudentulo,
 
-Ne ekzistas iu, kiu serĉas Dion; 
+Ne ekzistas iu, kiu serĉas Dion;
 
-12 ĉiuj devojiĝis, ĉiuj senutiliĝis; 
+12 ĉiuj devojiĝis, ĉiuj senutiliĝis;
 
-Ekzistas neniu, kiu faras bonon, ne eĉ unu; 
+Ekzistas neniu, kiu faras bonon, ne eĉ unu;
 
-13 Malfermita tombo estas ilia gorĝo; 
+13 Malfermita tombo estas ilia gorĝo;
 
-Per sia lango ili hipokritis; 
+Per sia lango ili hipokritis;
 
 Veneno de vipuro estas sub iliaj lipoj; 14 Ilia buŝo estas plena de
 
@@ -17272,9 +16671,9 @@ malbenado kaj malico; 15 Iliaj piedoj rapidas, por verŝi sangon; 16
 
 Ruinigo kaj pereigo estas sur iliaj vojoj; 17 Kaj vojon de paco ili ne
 
-konas; 18 Antaŭ iliaj okuloj ne ekzistas timo antaŭ Dio. 
+konas; 18 Antaŭ iliaj okuloj ne ekzistas timo antaŭ Dio.
 
-19 Sed ni scias, ke ĉion ajn, kion la leĝo diras, ĝi parolas al tiuj, 
+19 Sed ni scias, ke ĉion ajn, kion la leĝo diras, ĝi parolas al tiuj,
 
 kiuj estas sub la leĝo; ke ĉiu buŝo fermiĝu, kaj ke la tuta mondo
 
@@ -17284,7 +16683,7 @@ karno praviĝos antaŭ Li; ĉar per la leĝo venas konscio pri peko. 21
 
 Sed nun, ekster la leĝo, justeco de Dio montriĝis, atestata per la leĝo
 
-kaj la profetoj; 22 nome, la justeco de Dio, per fido al Jesuo Kristo, 
+kaj la profetoj; 22 nome, la justeco de Dio, per fido al Jesuo Kristo,
 
 por ĉiuj kredantoj, ĉar ne ekzistas diferencigo; 23 ĉar ĉiuj pekis kaj
 
@@ -17292,11 +16691,9 @@ maltrafis la gloron de Dio; 24 pravigite donace de Lia graco, per la
 
 elaĉeto, kiu estas en Kristo Jesuo; 25 kiun Dio antaŭdifinis kiel repa-
 
-288
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 cigilon per fido en lia sango, por la elmontrado de Sia justeco per
 
@@ -17304,9 +16701,9 @@ la pardono de la pekoj, antaŭe faritaj laŭ la toleremeco de Dio; 26
 
 por la elmontrado de Lia justeco en la nuna tempo, kaj ke Li estas
 
-mem justa, kaj estas la praviganto de tiu, kiu havas fidon en Jesuo. 
+mem justa, kaj estas la praviganto de tiu, kiu havas fidon en Jesuo.
 
-27 Kie do estas la fanfaronado? ¯i estas esceptita. Per kia leĝo? de
+27 Kie do estas la fanfaronado? i estas esceptita. Per kia leĝo? de
 
 faroj? Ne; sed per la leĝo de fido. 28 Ni do konkludas, ke homo pra-
 
@@ -17318,7 +16715,7 @@ Dio estas unu, kaj Li pravigos la cirkumcidularon pro fido kaj la ne-
 
 cirkumcidularon per fido. 31 ĉu ni do per fido vantigas la leĝon? Ne-
 
-pre ne\! sed ni firmigas la leĝon. 
+pre ne! sed ni firmigas la leĝon.
 
 ĉapitro 4
 
@@ -17328,7 +16725,7 @@ se Abraham praviĝis per faroj, li havas ion, pri kio fieri, sed ne an-
 
 taŭ Dio. 3 ĉar kion diras la Skribo? Kaj Abraham kredis al Dio, kaj
 
-tio estis kalkulita al li kiel virto. 4 Al tiu, kiu laboras, la salajro estas kalkulata ne kiel favoro, sed kiel ŝuldo. 5 Sed al tiu, kiu ne laboras, 
+tio estis kalkulita al li kiel virto. 4 Al tiu, kiu laboras, la salajro estas kalkulata ne kiel favoro, sed kiel ŝuldo. 5 Sed al tiu, kiu ne laboras,
 
 sed kredas al Tiu, kiu pravigas la malpiulon, lia fido estas kalkula-
 
@@ -17336,11 +16733,11 @@ ta kiel virto. 6 Kiel David ankaŭ pridiras la feliĉon de la homo, al kiu
 
 Dio kalkulas virton ekster faroj, 7 dirante:
 
-Feliĉaj estas tiuj, kies krimoj estas pardonitaj, 
+Feliĉaj estas tiuj, kies krimoj estas pardonitaj,
 
-Kies pekoj estas kovritaj. 
+Kies pekoj estas kovritaj.
 
-8 Feliĉa estas la homo, al kiu la Eternulo ne kalkulas lian kulpon. 
+8 Feliĉa estas la homo, al kiu la Eternulo ne kalkulas lian kulpon.
 
 9 ĉu do ĉi tiu feliĉo apartenas al la cirkumcidularo, aŭ al la ne-
 
@@ -17352,11 +16749,9 @@ cido, aŭ en necirkumcido? Ne en cirkumcido, sed en necirkumci-
 
 do; 11 kaj li ricevis la signon de cirkumcido, kiel sigelon de la virto
 
-289
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 de la fido, kiu ekzistis en lia necirkumcido; por ke li estu la patro de
 
@@ -17372,19 +16767,19 @@ leĝo fariĝis la promeso al Abraham aŭ al lia idaro, ke li estos here-
 
 danto de la mondo, sed per la virto el fido. 14 ĉar se tiuj, kiuj estas
 
-laŭ la leĝo, estas heredantoj, la fido nuliĝis, kaj la promeso vantiĝis; 
+laŭ la leĝo, estas heredantoj, la fido nuliĝis, kaj la promeso vantiĝis;
 
 15 ĉar la leĝo elfaras koleron; sed kie ne ekzistas leĝo, tie ankaŭ ne
 
-ekzistas transpaŝo. 16 ¯i do estas el fido por tio, ke ĝi estu laŭ gra-
+ekzistas transpaŝo. 16 i do estas el fido por tio, ke ĝi estu laŭ gra-
 
 co; por ke la promeso estu firma al la tuta idaro, ne nur al tiu, kiu
 
 estas el la leĝo, sed ankaŭ al tiu, kiu estas el la fido de Abraham, kiu
 
-estas la patro de ni ĉiuj 17 \(kiel estas skribite: Mi faris vin patro de
+estas la patro de ni ĉiuj 17 (kiel estas skribite: Mi faris vin patro de
 
-multe da popoloj\) antaŭ Tiu, al kiu li kredis, nome Dio, kiu vivigas
+multe da popoloj) antaŭ Tiu, al kiu li kredis, nome Dio, kiu vivigas
 
 la mortintojn, kaj vokas la neekzistantaĵojn, kvazaŭ ili ekzistus. 18 Li
 
@@ -17392,11 +16787,11 @@ ekster espero kredis en espero, por ke li fariĝu patro de multe da
 
 popoloj, laŭ la diritaĵo: Tiel estos via idaro. 19 Kaj ne senfortigite en
 
-fido, li pripensis sian propran korpon jam pereintan \(estante pre-
+fido, li pripensis sian propran korpon jam pereintan (estante pre-
 
-skaŭ centjara\), kaj la senvivecon de la utero de Sara; 20 tamen pri la
+skaŭ centjara), kaj la senvivecon de la utero de Sara; 20 tamen pri la
 
-promeso de Dio li ne ŝanceliĝis en nekredemo, sed fortiĝis per fido, 
+promeso de Dio li ne ŝanceliĝis en nekredemo, sed fortiĝis per fido,
 
 donante la gloron al Dio, 21 kaj plene certigite, ke tion, kion Li pro-
 
@@ -17408,13 +16803,11 @@ kaŭ por ni, al kiuj ĝi estos kalkulata, kaj kiuj kredas al Tiu, kiu le-
 
 vis el la mortintoj Jesuon, nian Sinjoron, 25 kiu estis transdonita pro
 
-niaj pekoj kaj estis relevita por nia pravigo. 
+niaj pekoj kaj estis relevita por nia pravigo.
 
-290
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 5
 
@@ -17422,7 +16815,7 @@ eLIBRO
 
 suo Kristo, 2 per kiu ankaŭ ni ricevis enkondukon per fido en ĉi tiun
 
-gracon, en kiu ni staras; kaj ni ĝoju pro espero de la gloro de Dio. 
+gracon, en kiu ni staras; kaj ni ĝoju pro espero de la gloro de Dio.
 
 3 Kaj krome ni ĝoju ankaŭ pro la afliktoj, sciante, ke aflikto faras pa-
 
@@ -17448,7 +16841,7 @@ te, repacigite, ni estos savitaj per lia vivo; 11 kaj krom tio ni fieras
 
 ankaŭ en Dio pro nia Sinjoro Jesuo Kristo, per kiu ni jam ricevis la
 
-repacigon. 
+repacigon.
 
 12 Pro tio, kiel per unu homo peko eniris en la mondon, kaj mor-
 
@@ -17470,17 +16863,15 @@ de la unu homo Jesuo Kristo. 16 Kaj la donaco ne estis laŭ la unu
 
 pekinta; ĉar la juĝo venis el unu ĝis kondamno, sed la donaco ve-
 
-nis el multaj eraroj ĝis pravigo. 17 ĉar se, per la eraro de la unu, 
+nis el multaj eraroj ĝis pravigo. 17 ĉar se, per la eraro de la unu,
 
 morto reĝis per unu, des plimulte reĝos en vivo per la unu Jesuo
 
 Kristo tiuj, kiuj ricevis abundon de la graco kaj de la donaco de jus-
 
-291
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 teco. 18 Tial, kiel per unu eraro venis juĝo al ĉiuj homoj ĝis kondam-
 
@@ -17496,15 +16887,15 @@ multe pli superabundis, 21 por ke tiel same, kiel la peko reĝis en
 
 morto, la graco reĝu per justeco ĝis eterna vivo per Jesuo Kristo, nia
 
-Sinjoro. 
+Sinjoro.
 
 ĉapitro 6
 
 1 Kion do ni diru? ĉu ni restu en peko, por ke graco abundu? 2 Ne-
 
-pre ne\! ĉu ni, kiuj mortis al peko, ankoraŭ vivus en ĝi? 3 ĉu vi ne
+pre ne! ĉu ni, kiuj mortis al peko, ankoraŭ vivus en ĝi? 3 ĉu vi ne
 
-scias, ke ni ĉiuj, kiuj baptiĝis al Jesuo Kristo, baptiĝis al lia morto? 
+scias, ke ni ĉiuj, kiuj baptiĝis al Jesuo Kristo, baptiĝis al lia morto?
 
 4 Ni do estas entombigitaj kun li per bapto al morto, por ke, kiel
 
@@ -17512,11 +16903,11 @@ Kristo estas levita el la mortintoj per la gloro de la Patro, tiel same
 
 ni ankaŭ iradu en noveco de vivo. 5 ĉar se ni jam kuniĝis al la simi-
 
-leco de lia morto, ni tiel same kuniĝos al la simileco de lia releviĝo, 
+leco de lia morto, ni tiel same kuniĝos al la simileco de lia releviĝo,
 
 6 sciante, ke nia malnova homo estas kun li krucumita, por ke la
 
-korpo de peko estu neniigita, por ke ni jam ne estu sklavoj al peko; 
+korpo de peko estu neniigita, por ke ni jam ne estu sklavoj al peko;
 
 7 ĉar tiu, kiu mortis, estas pravigita pri peko. 8 Sed se ni mortis kun
 
@@ -17524,11 +16915,11 @@ Kristo, ni kredas, ke ni ankaŭ vivos kun li; 9 sciante, ke Kristo, levite
 
 el la mortintoj, ne plu mortas; la morto ne plu lin regas. 10 ĉar mort-
 
-ante, li mortis al peko unufoje por ĉiam; sed vivante, li vivas al Dio. 
+ante, li mortis al peko unufoje por ĉiam; sed vivante, li vivas al Dio.
 
 11 Tial ankaŭ vi vin kalkulu mortintoj al peko, sed vivantoj al Dio en
 
-Kristo Jesuo. 
+Kristo Jesuo.
 
 12 Tial peko ne reĝu en via morta korpo tiel, ke vi obeu al ĝiaj
 
@@ -17536,19 +16927,17 @@ deziroj; 13 ankaŭ ne prezentu viajn membrojn iloj de maljusteco al
 
 peko, sed prezentu vin al Dio vivantoj el la mortintoj, kaj viajn
 
-292
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 membrojn iloj de justeco por Dio. 14 ĉar peko ne regos vin, ĉar vi
 
-estas ne sub la leĝo, sed sub graco. 
+estas ne sub la leĝo, sed sub graco.
 
 15 Kio do? ĉu ni peku, pro tio, ke ni estas ne sub leĝo, sed sub
 
-graco? Nepre ne\! 16 ĉu vi ne scias, ke kiam vi vin prezentas, kiel
+graco? Nepre ne! 16 ĉu vi ne scias, ke kiam vi vin prezentas, kiel
 
 sklavoj al iu por obeado, vi estas sklavoj de tiu, al kiu vi obeas, ĉu
 
@@ -17568,7 +16957,7 @@ tu viajn membrojn sklavoj al justeco ĝis sanktigo. 20 ĉar kiam vi es-
 
 tis sklavoj de peko, vi estis liberaj de justeco. 21 Kian frukton do vi
 
-havis tiam el tio, pri kio vi nun hontas? ĉar la fino de tio estas morto. 
+havis tiam el tio, pri kio vi nun hontas? ĉar la fino de tio estas morto.
 
 22 Sed nun, liberigite el peko, kaj sklaviĝinte al Dio, vi havas vian
 
@@ -17576,11 +16965,11 @@ frukton ĝis sanktiĝo, kaj por fino eternan vivon. 23 ĉar la salajro de
 
 peko estas morto; sed la donaco de Dio estas eterna vivo en Kristo
 
-Jesuo, nia Sinjoro. 
+Jesuo, nia Sinjoro.
 
 ĉapitro 7
 
-1 Aŭ ĉu vi ne scias, fratoj \(ĉar mi parolas al konantoj de la leĝo\), ke
+1 Aŭ ĉu vi ne scias, fratoj (ĉar mi parolas al konantoj de la leĝo), ke
 
 la leĝo regas la homon tiel longe, kiel li vivas? 2 ĉar la edzinigita
 
@@ -17598,21 +16987,19 @@ per la korpo de Kristo, por kuniĝi kun alia, nome kun tiu, kiu leviĝis
 
 el la mortintoj, por ke ni donu frukton al Dio. 5 ĉar dum ni estis en
 
-293
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 karno, la laŭpekaj pasioj, kiuj estis per la leĝo, energiis en niaj mem-
 
-broj, por doni frukton al morto. 6 Sed ni jam liberiĝis el la leĝo, 
+broj, por doni frukton al morto. 6 Sed ni jam liberiĝis el la leĝo,
 
 mortinte rilate tion, en kio ni estis tenataj, por ke ni servu en no-
 
-veco de spirito, kaj ne en malnoveco de litero. 
+veco de spirito, kaj ne en malnoveco de litero.
 
-7 Kion do ni diru? ĉu la leĝo estas peko? Nepre ne\! Tamen mi ne
+7 Kion do ni diru? ĉu la leĝo estas peko? Nepre ne! Tamen mi ne
 
 konus pekon, krom per la leĝo; ĉar mi ne konus deziron, se la leĝo
 
@@ -17622,7 +17009,7 @@ per la ordono ĉian deziremon, ĉar ekster leĝo la peko estas senvi-
 
 va. 9 Kaj iam mi vivadis ekster la leĝo; sed kiam la ordono venis, la
 
-peko viviĝis, kaj mi mortis; 10 kaj tiun ordonon, kiu estas por vivo, 
+peko viviĝis, kaj mi mortis; 10 kaj tiun ordonon, kiu estas por vivo,
 
 mi trovis por morto; 11 ĉar la peko, trovinte pretekston, per la or-
 
@@ -17630,7 +17017,7 @@ dono min trompis, kaj per ĝi min mortigis. 12 Tiel la leĝo estas sank-
 
 ta, kaj la ordono estas sankta kaj justa kaj bona. 13 ĉu do tio, kio
 
-estas bona, fariĝis morto por mi? Nepre ne\! Sed la peko, por ke ĝi
+estas bona, fariĝis morto por mi? Nepre ne! Sed la peko, por ke ĝi
 
 montriĝu peko, estigante morton en mi per la bono—por ke per la
 
@@ -17640,13 +17027,13 @@ spirita; sed mi estas karna, vendite sub pekon. 15 ĉar mi ne havas
 
 certecon pri tio, kion mi faradas; ĉar mi ne agas laŭ tio, kion mi
 
-volas; sed kion mi malamas, tion mi faras. 16 Sed se mi faras tion, 
+volas; sed kion mi malamas, tion mi faras. 16 Sed se mi faras tion,
 
 kion mi ne volas fari, mi konsentas al la leĝo, ke ĝi estas bona. 17 La
 
 faranto do estas jam ne mi, sed la peko, loĝanta en mi. 18 ĉar mi
 
-scias, ke en mi \(tio estas, en mia karno\) bono ne loĝas; ĉar ĉe mi
+scias, ke en mi (tio estas, en mia karno) bono ne loĝas; ĉar ĉe mi
 
 estas la volo, sed ne la elfaro de la bono. 19 ĉar la bonon, kiun mi
 
@@ -17664,17 +17051,15 @@ membroj, militantan kontraŭ la leĝo de mia menso, kaj forkaptan-
 
 tan min sub la leĝon de la peko, kiu estas en miaj membroj. 24 Ho
 
-294
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-ve, mi malfeliĉulo\! kiu min liberigos el la korpo de ĉi tiu morto? 25
+ve, mi malfeliĉulo! kiu min liberigos el la korpo de ĉi tiu morto? 25
 
 Danko estu al Dio, per Jesuo Kristo, nia Sinjoro. Per la menso do mi
 
-mem servas al la leĝo de Dio, sed per la karno al la leĝo de peko. 
+mem servas al la leĝo de Dio, sed per la karno al la leĝo de peko.
 
 ĉapitro 8
 
@@ -17714,7 +17099,7 @@ la Spirito de Tiu, kiu levis Jesuon el la mortintoj, loĝas en vi, tiam
 
 la Levinto de Kristo Jesuo el la mortintoj vivigos eĉ viajn mortajn
 
-korpojn per Sia Spirito, loĝanta en vi. 
+korpojn per Sia Spirito, loĝanta en vi.
 
 12 Tial do, fratoj, ni estas ŝuldantoj, ne al la karno, por vivi laŭ la
 
@@ -17726,11 +17111,9 @@ kondukataj de la Spirito de Dio, estas filoj de Dio. 15 ĉar vi ne ricevis
 
 la spiriton de sklaveco denove al timo; sed vi ricevis la spiriton de
 
-295
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 adopto, per kiu ni krias: Aba, Patro. 16 La Spirito mem kunatestas
 
@@ -17738,7 +17121,7 @@ kun nia spirito, ke ni estas idoj de Dio; 17 kaj se idoj, tial heredan-
 
 toj, heredantoj de Dio, kunheredantoj kun Kristo, se vere ni sufe-
 
-ras kun li, por ke ni estu glorataj kun li. 
+ras kun li, por ke ni estu glorataj kun li.
 
 18 ĉar mi kalkulas, ke la suferoj de la nuna tempo ne indas kom-
 
@@ -17760,9 +17143,9 @@ dante nian adopton, nome la elaĉeton de nia korpo. 24 ĉar per es-
 
 pero ni estas savitaj; sed la espero, kiu estas vidata, ne estas espe-
 
-ro; ĉar kiu esperas al tio, kion li vidas? 25 Sed, se ni esperas al tio, 
+ro; ĉar kiu esperas al tio, kion li vidas? 25 Sed, se ni esperas al tio,
 
-kion ni ne vidas, tiam ni ĝin atendas pacience. 
+kion ni ne vidas, tiam ni ĝin atendas pacience.
 
 26 Kaj tiel same la Spirito ankaŭ helpas nian malfortecon; ĉar ni
 
@@ -17782,7 +17165,7 @@ Filo, por ke ĉi tiu estu la unuenaskita inter multaj fratoj; 30 kaj kiu-
 
 jn Li antaŭdifinis, tiujn Li ankaŭ vokis; kaj kiujn Li vokis, tiujn Li
 
-ankaŭ justigis; kaj kiujn Li justigis, tiujn Li ankaŭ gloris. 
+ankaŭ justigis; kaj kiujn Li justigis, tiujn Li ankaŭ gloris.
 
 31 Kion do ni diru pri ĉi tio? Se Dio estas por ni, kiu estas kontraŭ
 
@@ -17790,35 +17173,33 @@ ni? 32 ĉu Tiu, kiu ne indulgis Sian propran Filon, sed fordonis lin
 
 por ni ĉiuj, ne donos al ni libere ĉion kun li? 33 Kiu akuzos la elek-
 
-titojn de Dio? Dio estas la justiganto; 34 kiu estas la kondamnanto? 
+titojn de Dio? Dio estas la justiganto; 34 kiu estas la kondamnanto?
 
-296
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Kristo estas tiu, kiu mortis, sed leviĝis el la mortintoj, kiu estas dek-
 
 stre de Dio, kaj ankaŭ propetadas por ni. 35 Kiu apartigos nin de la
 
-amo de Kristo? ĉu aflikto, aŭ turmento, aŭ persekutado, aŭ malsato, 
+amo de Kristo? ĉu aflikto, aŭ turmento, aŭ persekutado, aŭ malsato,
 
 aŭ nudeco, aŭ danĝero, aŭ glavo? 36 Kiel estas skribite:
 
-Pro Vi ni estas mortigataj ĉiutage; 
+Pro Vi ni estas mortigataj ĉiutage;
 
-Oni rigardas nin kiel ŝafojn por buĉo. 
+Oni rigardas nin kiel ŝafojn por buĉo.
 
 37 Sed en ĉio tio ni supervenkas per tiu, kiu nin amis. 38 ĉar mi
 
-konvinkinĝis, ke nek morto, nek vivo, nek anĝeloj, nek aŭtoritatoj, 
+konvinkinĝis, ke nek morto, nek vivo, nek anĝeloj, nek aŭtoritatoj,
 
 nek estantaĵoj, nek estontaĵoj, nek potencoj, 39 nek alteco, nek pro-
 
-fundeco, nek iu alia kreitaĵo povos apartigi nin de la amo de Dio, 
+fundeco, nek iu alia kreitaĵo povos apartigi nin de la amo de Dio,
 
-kiu estas en Kristo Jesuo, nia Sinjoro. 
+kiu estas en Kristo Jesuo, nia Sinjoro.
 
 ĉapitro 9
 
@@ -17828,7 +17209,7 @@ atestas kun mi per la Sankta Spirito, 2 ke mi havas grandan mal-
 
 ĝojon kaj senĉesan doloron en la koro. 3 ĉar mi volus, ke mi estu
 
-anatemita for de Kristo por miaj fratoj, miaj parencoj laŭ la karno; 
+anatemita for de Kristo por miaj fratoj, miaj parencoj laŭ la karno;
 
 4 kiuj estas Izraelidoj, kies estas la adopto kaj la gloro kaj la inter-
 
@@ -17838,7 +17219,7 @@ troj, kaj el kiuj laŭ la karno estas Kristo, kiu estas super ĉiuj, Dio
 
 benata eterne. Amen. 6 Sed la afero ne estas, kvazaŭ la vorto de Dio
 
-estus neniiĝinta. ĉar ne ĉiuj estas Izrael, kiuj estas el Izrael; 7 nek, 
+estus neniiĝinta. ĉar ne ĉiuj estas Izrael, kiuj estas el Izrael; 7 nek,
 
 ĉar ili estas idoj de Abraham, ĉiuj estas filoj, sed: Per Isaak oni no-
 
@@ -17848,39 +17229,37 @@ Dio, sed la filoj de la promeso estas rigardataj kiel idaro. 9 ĉar jen
 
 estas la vorto de promeso: En la sama jartempo Mi venos, kaj es-
 
-tos filo ĉe Sara. 10 Kaj plue, kiam Rebeka ankaŭ gravediĝis per unu, 
+tos filo ĉe Sara. 10 Kaj plue, kiam Rebeka ankaŭ gravediĝis per unu,
 
-nia patro Isaak 11 \(ĉar la infanoj ankoraŭ ne naskiĝis, nek faris ion
+nia patro Isaak 11 (ĉar la infanoj ankoraŭ ne naskiĝis, nek faris ion
 
 bonan aŭ malbonan, por ke la intenco de Dio restu laŭ elekto, ne
 
-297
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-pro faroj, sed pro la alvokanto\), 12 estis dirite al ŝi: La pli granda
+pro faroj, sed pro la alvokanto), 12 estis dirite al ŝi: La pli granda
 
-servos la malpli grandan. 13 Kiel estas skribite: Mi ekamis Jakobon, 
+servos la malpli grandan. 13 Kiel estas skribite: Mi ekamis Jakobon,
 
-sed Esavon Mi malamis. 
+sed Esavon Mi malamis.
 
-14 Kion do ni diru? ĉu estas maljusteco ĉe Dio? Nepre ne\! 15 ĉar
+14 Kion do ni diru? ĉu estas maljusteco ĉe Dio? Nepre ne! 15 ĉar
 
 li diris al Moseo: Mi favorkoros tiun, kiun Mi favorkoros, kaj Mi
 
-kompatos tiun, kiun Mi kompatos. 16 Tial do tio apartenas ne al tiu, 
+kompatos tiun, kiun Mi kompatos. 16 Tial do tio apartenas ne al tiu,
 
 kiu volas, nek al tiu, kiu kuras, sed al Dio, kiu kompatas. 17 ĉar la
 
-Skribo diras al Faraono: Nur por tio Mi vin konservis, ke Mi montru
+Skribo diras al Faraono: Nur por tio Mi vnservis, ke Mi montru
 
 sur vi Mian forton, kaj por ke oni rakontu pri Mia nomo sur la tuta
 
 tero. 18 Tial Li favorkoras ĉiun, kiun Li volas; kaj ĉiun, kiun Li vo-
 
-las, Li obstinigas. 
+las, Li obstinigas.
 
 19 Vi do diras al mi: Kial Li ankoraŭ riproĉas? ĉar kiu rezistas al
 
@@ -17904,33 +17283,31 @@ nur el la Judoj, sed ankaŭ el la nacianoj? 25 Kiel Li diras ankaŭ en
 
 Hoŝea:
 
-La popolon ne Mian Mi nomos Mia popolo, 
+La popolon ne Mian Mi nomos Mia popolo,
 
-Kaj la neamatinon amatino. 
+Kaj la neamatinon amatino.
 
 26 Kaj sur la sama loko, kie estis al ili dirite:
 
-Vi ne estas Mia popolo, 
+Vi ne estas Mia popolo,
 
-Tie oni nomos ilin infanoj de la vivanta Dio. 
+Tie oni nomos ilin infanoj de la vivanta Dio.
 
 27 Kaj Jesaja krias pri Izrael: Se la nombro de la filoj de Izrael eĉ
 
 estos kiel la apudmara sablo, la restintoj saviĝos; 28 ĉar la Sinjoro
 
-298
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 efektivigos Sian vorton en la mondo, akcelante kaj tranĉe mallong-
 
 igante ĝin. 29 Kiel Jesaja diris antaŭe:
 
-Se la Eternulo Cebaot ne lasus al ni restaĵon, 
+Se la Eternulo Cebaot ne lasus al ni restaĵon,
 
-Ni fariĝus kiel Sodom, ni similiĝus al Gomora. 
+Ni fariĝus kiel Sodom, ni similiĝus al Gomora.
 
 30 Kion do ni diru? Ke la nacianoj, kiuj ne sekvis justecon, atingis
 
@@ -17938,15 +17315,15 @@ justecon, la justecon, kiu estas el fido; 31 sed ke Izrael, sekvante la
 
 leĝon de justeco, ne atingis tiun leĝon. 32 Kial? ĉar ili sekvis ĝin ne
 
-per fido, sed kvazaŭ per faroj. Ili falpuŝiĝis ĉe la ŝtono de falpuŝiĝo; 
+per fido, sed kvazaŭ per faroj. Ili falpuŝiĝis ĉe la ŝtono de falpuŝiĝo;
 
 33 kiel estas skribite:
 
 Jen Mi kuŝigas en Cion ŝtonon de falpuŝiĝo kaj rokon de alfrap-
 
-iĝo; 
+iĝo;
 
-Kaj tiu, kiu fidos al li, ne estos hontigita. 
+Kaj tiu, kiu fidos al li, ne estos hontigita.
 
 ĉapitro 10
 
@@ -17964,11 +17341,11 @@ skribis, ke tiu, kiu plenumas la justecon de la leĝo, vivos per ĝi. 6 Sed
 
 la justeco, kiu estas el fido, diras jene: Ne diru en via koro: Kiu sup-
 
-renirus en la ĉielon? \(tio estas, por malsuprenigi Kriston\), 7 nek: Kiu
+renirus en la ĉielon? (tio estas, por malsuprenigi Kriston), 7 nek: Kiu
 
-malsuprenirus en la abismon? \(tio estas, por suprenkonduki Kris-
+malsuprenirus en la abismon? (tio estas, por suprenkonduki Kris-
 
-ton el la mortintoj\). 8 Sed kion ĝi diras? La afero estas proksime de
+ton el la mortintoj). 8 Sed kion ĝi diras? La afero estas proksime de
 
 vi, en via buŝo kaj en via koro; tio estas, la vorto de fido, kiun ni
 
@@ -17976,15 +17353,13 @@ predikas; 9 ĉar se vi per via buŝo konfesas Jesuon Sinjoro, kaj kre-
 
 das en via koro, ke Dio lin levis el la mortintoj, vi saviĝos; 10 ĉar per
 
-la koro la homo kredas ĝis justeco, kaj per la buŝo konfesas ĝis savo. 
+la koro la homo kredas ĝis justeco, kaj per la buŝo konfesas ĝis savo.
 
 11 ĉar la Skribo diras: ĉiu, kiu fidas al li, ne estos hontigita. 12 ĉar
 
-299
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estas nenia diferencigo inter Judo kaj Greko, ĉar unu sama estas
 
@@ -17994,41 +17369,41 @@ vokos la nomon de la Eternulo, saviĝos. 14 Kiel do ili vokos Tiun, al
 
 kiu ili ne kredis? kaj kiel ili kredos al Tiu, pri kiu ili ne aŭdis? kaj kiel ili aŭdos sen predikanto? 15 kaj kiel oni predikos, se ili ne estos senditaj? kiel estas skribite: Kiel ĉarmaj estas la piedoj de la anoncan-
 
-toj de la evangelio de bono\! 
+toj de la evangelio de bono!
 
 16 Sed ne ĉiuj aŭskultis la evangelion. ĉar Jesuo diris: Ho Eternu-
 
-lo\! kiu kredus al tio, kion ni aŭdis? 17 La fido venas do per aŭdado, 
+lo! kiu kredus al tio, kion ni aŭdis? 17 La fido venas do per aŭdado,
 
-kaj aŭdado per la vorto de Kristo. 18 Sed mi diras: ĉu ili ne aŭdis? 
+kaj aŭdado per la vorto de Kristo. 18 Sed mi diras: ĉu ili ne aŭdis?
 
 Certe:
 
-Tra la tuta mondo iris ilia sono, 
+Tra la tuta mondo iris ilia sono,
 
-Kaj ĝis la finoj de la tero iris iliaj vortoj. 
+Kaj ĝis la finoj de la tero iris iliaj vortoj.
 
 19 Sed mi diras: ĉu Izrael ne sciis? Unue Moseo diris:
 
-Mi incitos vin per ne-popolo, 
+Mi incitos vin per ne-popolo,
 
-Per popolo malnobla Mi vin kolerigos. 
+Per popolo malnobla Mi vlerigos.
 
 20 Kaj Jesaja estis tre kuraĝa, kaj diris:
 
-Mi estas trovebla por tiuj, kiuj Min ne serĉis; 
+Mi estas trovebla por tiuj, kiuj Min ne serĉis;
 
-Mi montris Min al tiuj, kiuj pri Mi ne demandis. 
+Mi montris Min al tiuj, kiuj pri Mi ne demandis.
 
 21 Sed pri Izrael li diris: ĉiutage Mi etendis Miajn manojn al po-
 
-polo malobeema kaj obstina. 
+polo malobeema kaj obstina.
 
 ĉapitro 11
 
-1 Mi do diras: ĉu Dio forpuŝis Sian popolon? Nepre ne\! ĉar ankaŭ
+1 Mi do diras: ĉu Dio forpuŝis Sian popolon? Nepre ne! ĉar ankaŭ
 
-mi estas Izraelido, el la idoj de Abraham, el la tribo de Benjamen. 
+mi estas Izraelido, el la idoj de Abraham, el la tribo de Benjamen.
 
 2 Dio ne forpuŝis Sian popolon, kiun Li antaŭkonis. Aŭ ĉu vi ne sci-
 
@@ -18038,17 +17413,15 @@ el: 3 Ho Eternulo, oni mortigis Viajn profetojn, detruis Viajn alta-
 
 rojn; kaj mi sola restis, kaj oni serĉas mian animon. 4 Sed kion di-
 
-300
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ras al li la orakolo de Dio? Mi restigis por Mi sep mil virojn, kies ge-
 
 nuoj ne fleksiĝis antaŭ Baal. 5 Tiel same do estas ankaŭ nuntempe
 
-restaĵo laŭ la elektado de graco. 6 Sed se per graco, ne plu el faroj; 
+restaĵo laŭ la elektado de graco. 6 Sed se per graco, ne plu el faroj;
 
 alie graco jam ne estus graco. 7 Kion do? Kion Izrael serĉadas, tion
 
@@ -18062,17 +17435,17 @@ nuna tago. 9 Kaj David diris:
 
 Ilia tablo fariĝu por ili reto kaj kaptilo
 
-Kaj falpuŝilo kaj repago; 10 Mallumiĝu iliaj okuloj, ke ili ne vidu; 
+Kaj falpuŝilo kaj repago; 10 Mallumiĝu iliaj okuloj, ke ili ne vidu;
 
-Kaj iliajn lumbojn malfortigu por ĉiam. 
+Kaj iliajn lumbojn malfortigu por ĉiam.
 
-11 Mi do diras: ĉu ili falpuŝiĝis, por ke ili falu? Nepre ne\! sed per
+11 Mi do diras: ĉu ili falpuŝiĝis, por ke ili falu? Nepre ne! sed per
 
 ilia eraro venis savo al la nacianoj, por ĵaluzigi ilin. 12 Se do ilia er-
 
-aro riĉigis la mondon, kaj ilia perdo estas la gajno de la nacianoj, 
+aro riĉigis la mondon, kaj ilia perdo estas la gajno de la nacianoj,
 
-kiom pli ilia pleneco? 
+kiom pli ilia pleneco?
 
 13 Sed mi parolas al vi, nacianoj. Laŭ tio, kiom mi estas aposto-
 
@@ -18082,21 +17455,21 @@ zigi tiujn, kiuj estas mia karno, kaj savi kelkajn el ili. 15 ĉar se la
 
 forĵetado de ili estas la repacigo de la mondo, kio estos la akcepto
 
-de ili, se ne vivo el la mortintoj? 16 Kaj se la unuaaĵo estas sankta, 
+de ili, se ne vivo el la mortintoj? 16 Kaj se la unuaaĵo estas sankta,
 
 la maso ankaŭ estas sankta; kaj se la radiko estas sankta, la branĉoj
 
-ankaŭ estas sanktaj. 17 Sed se kelkaj el la branĉoj derompiĝis, kaj vi, 
+ankaŭ estas sanktaj. 17 Sed se kelkaj el la branĉoj derompiĝis, kaj vi,
 
 estante sovaĝa olivarbo, engreftiĝis inter ili kaj fariĝis partoprenan-
 
-to en la radiko kaj graso de la olivarbo, 18 ne fieru super la branĉoj; 
+to en la radiko kaj graso de la olivarbo, 18 ne fieru super la branĉoj;
 
 sed se vi fieras, ne vi portas la radikon, sed la radiko portas vin. 19
 
 Vi do diros: Branĉoj estis derompitaj, por ke mi estu engreftita. 20
 
-Bone; pro nekredemeco ili estis derompitaj, kaj vi staras per via fido. 
+Bone; pro nekredemeco ili estis derompitaj, kaj vi staras per via fido.
 
 Ne tenu vin alte, sed timu; 21 ĉar se Dio ne indulgis la naturajn
 
@@ -18104,11 +17477,9 @@ branĉojn, Li ankaŭ vin ne indulgos. 22 Vidu do la bonecon kaj seve-
 
 recon de Dio: al la falintoj severecon, sed al vi bonecon, se vi resta-
 
-301
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dos en Lia boneco; alie vi ankaŭ detranĉiĝos. 23 Kaj ili ankaŭ, se ili
 
@@ -18120,23 +17491,23 @@ arbo, kaj kontraŭnature engreftiĝis en bonan olivarbon, kiom pli ĉi
 
 tiuj, kiuj estas la naturaj branĉoj, engreftiĝos en sian propran oliv-
 
-arbon? 
+arbon?
 
 25 ĉar mi ne volas, fratoj, ke vi ne sciu ĉi tiun misteron, por ke vi
 
 ne opiniu vin saĝaj, ke laŭparta obstiniĝo okazis al Izrael, ĝis la ple-
 
-neco de la nacianoj envenos; 26 kaj tiamaniere la tuta Izrael saviĝos, 
+neco de la nacianoj envenos; 26 kaj tiamaniere la tuta Izrael saviĝos,
 
 kiel estas skribite:
 
-El Cion venos la Liberiganto; 
+El Cion venos la Liberiganto;
 
-Li deturnos de Jakob malpiecon; 
+Li deturnos de Jakob malpiecon;
 
-27 Kaj ĉi tio estos Mia interligo kun ili, 
+27 Kaj ĉi tio estos Mia interligo kun ili,
 
-Kiam Mi forigos iliajn pekojn. 
+Kiam Mi forigos iliajn pekojn.
 
 28 Rilate al la evangelio, ili estas malamikoj pro vi; sed rilate al la
 
@@ -18150,23 +17521,21 @@ Dio, sed jam ricevis kompaton per ilia malobeo, 31 tiel same ankaŭ
 
 nun ricevu kompaton. 32 ĉar Dio kunŝlosis ĉiujn en malobeo, por
 
-ke Li kompatu ĉiujn. 
+ke Li kompatu ĉiujn.
 
-33 Ho, profundo de riĉeco kaj saĝeco kaj scio de Dio\! kiel nees-
+33 Ho, profundo de riĉeco kaj saĝeco kaj scio de Dio! kiel nees-
 
-ploreblaj estas Liaj juĝoj, kaj nesekveblaj Liaj vojoj\! 34 ĉar kiu sciis
+ploreblaj estas Liaj juĝoj, kaj nesekveblaj Liaj vojoj! 34 ĉar kiu sciis
 
 la spiriton de la Eternulo? aŭ kiu estis Lia konsilanto? 35 aŭ kiu an-
 
 taŭe al Li donis ion, poste redonotan al li? 36 ĉar el Li kaj per Li kaj
 
-al Li estas ĉio. Al Li estu la gloro por ĉiam. Amen. 
+al Li estas ĉio. Al Li estu la gloro por ĉiam. Amen.
 
-302
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 12
 
@@ -18178,11 +17547,11 @@ tas via racia servo. 2 Kaj ne konformiĝu al ĉi tiu mondo; sed ali-
 
 formiĝu per renovigado de via menso, por ke vi provu, kio estas la
 
-bona kaj aprobinda kaj perfekta volo de Dio. 
+bona kaj aprobinda kaj perfekta volo de Dio.
 
 3 ĉar mi diras al ĉiu el vi, per la graco al mi donita, ke li ne tro
 
-estimu sin, sed estimu sin kun modereco, laŭ mezuro de la fido, 
+estimu sin, sed estimu sin kun modereco, laŭ mezuro de la fido,
 
 kiun Dio disdonis al ĉiu. 4 ĉar kiel ni havas multajn membrojn en
 
@@ -18206,19 +17575,19 @@ la bona. 10 En fratamo estu kore unuigitaj unu al alia, honore pre-
 
 ferantaj unu la alian; 11 en diligenteco ne malviglaj, en spirito fer-
 
-voraj, servantaj la Sinjoron; 12 en espero ĝojaj, en aflikto paciencaj, 
+voraj, servantaj la Sinjoron; 12 en espero ĝojaj, en aflikto paciencaj,
 
-en preĝado persistaj; 13 kotizantaj por la bezonoj de la sanktuloj, 
+en preĝado persistaj; 13 kotizantaj por la bezonoj de la sanktuloj,
 
 sekvantaj gastamecon. 14 Benu tiujn, kiuj vin persekutas; benu, kaj
 
-ne malbenu. 15 ¯oju kun ĝojantoj, ploru kun plorantoj. 16 Estu sim-
+ne malbenu. 15 oju kun ĝojantoj, ploru kun plorantoj. 16 Estu sim-
 
 patiaj unu al alia. Ne pripensadu altajn aferojn, sed klinadu vin al
 
 humilaj aferoj. Ne opiniu vin saĝaj. 17 Redonu al neniu malbonon
 
-pro malbono. Celu aprobindaĵojn antaŭ ĉiuj homoj. 18 Se estos eble, 
+pro malbono. Celu aprobindaĵojn antaŭ ĉiuj homoj. 18 Se estos eble,
 
 restu pacaj viaparte kun ĉiuj homoj. 19 Ne venĝu vin, amataj, sed
 
@@ -18228,21 +17597,19 @@ pagos, diras la Sinjoro. 20 Sed se via malamiko malsatas, donu al li
 
 manĝi; se li soifas, donu al li trinki; ĉar tion farante, fajrajn karbojn
 
-303
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vi kolektos sur lia kapo. 21 Ne venkiĝu de malbono, sed venku mal-
 
-bonon per bono. 
+bonon per bono.
 
 ĉapitro 13
 
 1 ĉiu animo submetiĝu al la superaj aŭtoritatoj, ĉar ne ekzistas aŭ-
 
-toritato, krom de Dio; kaj tiuj, kiuj ekzistas, estas starigitaj de Dio. 
+toritato, krom de Dio; kaj tiuj, kiuj ekzistas, estas starigitaj de Dio.
 
 2 Tiu do, kiu kontraŭstaras al aŭtoritato, rezistas al la ordono de
 
@@ -18256,7 +17623,7 @@ to de Dio al vi por bono. Sed timu, se vi faras malbonon; ĉar ne vane
 
 li portas la glavon, ĉar li estas servanto de Dio, venĝanto por kole-
 
-ro kontraŭ tiu, kiu faras malbonon. 5 Sekve estas necese submetiĝi, 
+ro kontraŭ tiu, kiu faras malbonon. 5 Sekve estas necese submetiĝi,
 
 ne nur pro la kolero, sed ankaŭ pro konscienco. 6 ĉar pro tio vi an-
 
@@ -18266,7 +17633,7 @@ kaŭ pagas tributon, ĉar ili estas servantoj de Dio, klopodantaj por
 
 ŝuldata; imposton, al kiu imposto; timon, al kiu timo; honoron, al
 
-kiu honoro. 
+kiu honoro.
 
 8 Al neniu ŝuldu ion, krom la reciproka amo; ĉar amante sian
 
@@ -18276,7 +17643,7 @@ mortigu, Ne ŝtelu, Ne deziru, kaj ĉiu alia ordono, estas resumitaj en
 
 la jena parolo: Amu vian proksimulon kiel vin mem. 10 Amo ne fa-
 
-ras malbonon al proksimulo; amo do estas la plenumado de la leĝo. 
+ras malbonon al proksimulo; amo do estas la plenumado de la leĝo.
 
 11 Kaj tion faru, sciante la ĝustan tempon, ke nun estas la horo
 
@@ -18290,19 +17657,17 @@ Ni iradu dece, kiel en la tago, ne en diboĉado kaj drinkado, nek en
 
 volupto kaj senbrideco, nek en malpaco kaj ĵaluzo. 14 Sed surmetu
 
-304
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la Sinjoron Jesuo Kristo, kaj ne sekvu la intencojn de la karno al
 
-voluptoj. 
+voluptoj.
 
 ĉapitro 14
 
-1 Sed akceptu malfortulon en fido, tamen ne por dubaj disputadoj. 
+1 Sed akceptu malfortulon en fido, tamen ne por dubaj disputadoj.
 
 2 Unu homo kredas, ke li povas ĉion manĝi; sed alia, estante mal-
 
@@ -18336,11 +17701,11 @@ fraton? kaj vi, kial vi malestimas vian fraton? ĉar ni ĉiuj staros an-
 
 taŭ la tribunala seĝo de Dio. 11 ĉar estas skribite:
 
-Kiel Mi vivas, diras la Eternulo, antaŭ Mi kliniĝos ĉiu genuo, 
+Kiel Mi vivas, diras la Eternulo, antaŭ Mi kliniĝos ĉiu genuo,
 
-Kaj ĉiu lango gloros Dion. 
+Kaj ĉiu lango gloros Dion.
 
-12 Tial do ĉiu el ni respondos al Dio pri si mem. 
+12 Tial do ĉiu el ni respondos al Dio pri si mem.
 
 13 Tial ni ne plu juĝu unu alian; sed prefere ni juĝu, ke neniu me-
 
@@ -18350,17 +17715,15 @@ konvinkiĝis en la Sinjoro Jesuo, ke nenio estas malpura per si; sed
 
 por tiu, kiu opinias ion malpura, ĝi estas malpura. 15 ĉar se pro
 
-305
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 manĝaĵo via frato ĉagreniĝas, vi jam ne iradas en amo. Ne pereigu
 
 per via manĝaĵo tiun, por kiu Kristo mortis. 16 Via bono do ne estu
 
-kalumniita; 17 ĉar la regno de Dio estas ne manĝado kaj trinkado, 
+kalumniita; 17 ĉar la regno de Dio estas ne manĝado kaj trinkado,
 
 sed justeco kaj paco kaj ĝojo en la Sankta Spirito. 18 ĉar tiu, kiu en
 
@@ -18378,19 +17741,19 @@ Tiun fidon, kiun vi havas, havu por vi mem antaŭ Dio. Feliĉa estas
 
 tiu, kiu ne juĝas sin mem per tio, kion li aprobas. 23 Sed tiu, kiu estas
 
-sendecida, estas kondamnita, se li manĝas; ĉar li manĝas ne el fido, 
+sendecida, estas kondamnita, se li manĝas; ĉar li manĝas ne el fido,
 
-kaj ĉio, kio ne estas el fido, estas peko. 
+kaj ĉio, kio ne estas el fido, estas peko.
 
 ĉapitro 15
 
 1 Ni, kiuj estas fortaj, devas porti la malfortaĵojn de la nefortaj, kaj
 
-ne plaĉi al ni mem. 2 ĉiu el ni plaĉu al sia proksimulo per tia bono, 
+ne plaĉi al ni mem. 2 ĉiu el ni plaĉu al sia proksimulo per tia bono,
 
 kia taŭgas, por edifi. 3 ĉar Kristo ankaŭ ne plaĉis al si mem, sed, kiel
 
-estas skribite: La insultoj de Viaj insultantoj falis sur min. 4 ĉar ĉio, 
+estas skribite: La insultoj de Viaj insultantoj falis sur min. 4 ĉar ĉio,
 
 kio estas antaŭe skribita, estas skribita por nia instruado, por ke per
 
@@ -18410,41 +17773,38 @@ firmi la promesojn al la patroj, 9 kaj ke la nacianoj pro lia kompa-
 
 to gloru Dion, kiel estas skribite:
 
-Tial mi gloros Vin inter la popoloj, 
+Tial mi gloros Vin inter la popoloj,
 
-306
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Kaj pri Via nomo mi kantos. 
+Kaj pri Via nomo mi kantos.
 
 10 Kaj ankaŭ oni diras:
 
-¯oju, ho gentoj, kun Lia popolo. 
+oju, ho gentoj, kun Lia popolo.
 
 11 Kaj ankaŭ:
 
-Gloru la Eternulon ĉiuj popoloj, 
+Gloru la Eternulon ĉiuj popoloj,
 
-Kaj laŭdu Lin ĉiuj gentoj. 
+Kaj laŭdu Lin ĉiuj gentoj.
 
 12 Kaj ankaŭ Jesaja diras:
 
-Estos radiko de Jiŝaj, 
+Estos radiko de Jiŝaj,
 
-Kaj la stariĝanto por regi la naciojn. 
+Kaj la stariĝanto por regi la naciojn.
 
-Al li celados la nacioj. 
-
+Al li celados la nacioj.
 
 
 13 Kaj la Dio de espero plenigu vin per ĉia ĝojo kaj paco en kre-
 
 dado, por ke vi abunde havu esperon, laŭ la potenco de la Sankta
 
-Spirito. 
+Spirito.
 
 14 Kaj, ho miaj fratoj, mi mem konvinkiĝis pri vi, ke vi mem es-
 
@@ -18464,7 +17824,7 @@ rilatas al Dio. 18 ĉar mi ne kuraĝos priparoli ion, krom tio, kion Kri-
 
 sto faris per mi, por obeigi la nacianojn, vorte kaj fare, 19 en la po-
 
-tenco de signoj kaj mirindaĵoj, en la potenco de la Sankta Spirito; 
+tenco de signoj kaj mirindaĵoj, en la potenco de la Sankta Spirito;
 
 tiel, ke de Jerusalem kaj ĉirkaŭe ĝis Iliriko mi plene predikis la evan-
 
@@ -18474,25 +17834,23 @@ tie, kie Kristo jam estis priparolita, ke mi ne konstruu sur la funda-
 
 mento de alia; 21 sed kiel estas skribite:
 
-Vidos tiuj, al kiuj ne estis dirite pri li, 
+Vidos tiuj, al kiuj ne estis dirite pri li,
 
-Kaj komprenos tiuj, kiuj ne aŭdis. 
+Kaj komprenos tiuj, kiuj ne aŭdis.
 
 22 Pro tio ankaŭ mi ofte estis malhelpita veni al vi; 23 sed jam ne
 
-307
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 havante lokon en ĉi tiuj regionoj, kaj dum multe da jaroj sopiran-
 
-te veni al vi, 24 kiam mi veturos al Hispanujo, mi venos al vi \(ĉar mi
+te veni al vi, 24 kiam mi veturos al Hispanujo, mi venos al vi (ĉar mi
 
 esperas vin viziti travojaĝante, kaj esti helpata de vi sur la vojo, se
 
-antaŭe mi estos sufiĉe gastinta ĉe vi\); 25 sed nun mi veturas al Jeru-
+antaŭe mi estos sufiĉe gastinta ĉe vi); 25 sed nun mi veturas al Jeru-
 
 salem, farante servon al la sanktuloj. 26 ĉar Makedonujo kaj la Aą-
 
@@ -18508,7 +17866,7 @@ inte por ili ĉi tiun frukton, mi ekiros Hispanujon, kaj vizitos vin sur-
 
 voje. 29 Kaj mi scias, ke venante al vi, mi venos en la pleneco de la
 
-beno de Kristo. 
+beno de Kristo.
 
 30 Sed mi petas vin, fratoj, pro nia Sinjoro Jesuo Kristo kaj pro la
 
@@ -18520,7 +17878,7 @@ vo al Jerusalem estu akceptebla al la sanktuloj; 32 por ke mi venu
 
 ĝoje al vi per la volo de Dio kaj trovu ripozon ĉe vi. 33 Kaj la Dio de
 
-paco estu kun vi ĉiuj. Amen. 
+paco estu kun vi ĉiuj. Amen.
 
 ĉapitro 16
 
@@ -18530,11 +17888,11 @@ eklezio en Kenkrea; 2 por ke vi akceptu ŝin en la Sinjoro, kiel kon-
 
 venas al sanktuloj, kaj ke vi helpu ŝin, en ĉiuj aferoj, pri kiuj ŝi be-
 
-zonos vin; ĉar ŝi ankaŭ estis helpantino de multaj, kaj de mi mem. 
+zonos vin; ĉar ŝi ankaŭ estis helpantino de multaj, kaj de mi mem.
 
 3 Salutu Priskilan kaj Akvilan, miajn kunlaborantojn en Kristo
 
-Jesuo, 4 kiuj pro mia vivo riskis siajn kolojn; ilin dankas ne nur mi, 
+Jesuo, 4 kiuj pro mia vivo riskis siajn kolojn; ilin dankas ne nur mi,
 
 sed ankaŭ ĉiuj eklezioj de la nacianoj; 5 kaj salutu la eklezion en ilia
 
@@ -18542,11 +17900,9 @@ domo. Salutu mian amatan Epajneton, kiu estas la unuaaĵo de Azio
 
 por Kristo. 6 Salutu Marian, kiu multe laboris por vi. 7 Salutu And-
 
-308
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ronikon kaj Junion, miajn parencojn kaj miajn kunkaptitojn, kiuj
 
@@ -18574,7 +17930,7 @@ ian, Nereon kaj lian fratinon, kaj Olimpason, kaj ĉiujn sanktulojn
 
 kun ili. 16 Salutu unu la alian per sankta kiso. ĉiuj eklezioj de Kris-
 
-to vin salutas. 
+to vin salutas.
 
 17 Nun mi vin petas, fratoj, observi tiujn, kiuj kaŭzas la malkon-
 
@@ -18590,13 +17946,13 @@ naivuloj. 19 ĉar via obeemeco estas sciigita al ĉiuj homoj. Tial mi
 
 kleraj rilate la malbonon. 20 Kaj la Dio de paco baldaŭ subpremos
 
-Satanon sub viaj piedoj. 
+Satanon sub viaj piedoj.
 
-La graco de nia Sinjoro Jesuo Kristo estu kun vi. 
+La graco de nia Sinjoro Jesuo Kristo estu kun vi.
 
 21 Salutas vin Timoteo, mia kunlaboranto, kaj Lucio kaj Jason kaj
 
-Sosipatro, miaj parencoj. 22 Mi, Tertio, kiu skribis ĉi tiun epistolon, 
+Sosipatro, miaj parencoj. 22 Mi, Tertio, kiu skribis ĉi tiun epistolon,
 
 salutas vin en la Sinjoro. 23 Vin salutas Gajo, la gastiganto de mi kaj
 
@@ -18604,31 +17960,27 @@ de la tuta eklezio. Vin salutas Erasto, la ekonomo de la urbo, kaj
 
 Kvarto, la frato. 24 La graco de nia Sinjoro Jesuo Kristo estu kun vi
 
-ĉiuj. Amen. 
+ĉiuj. Amen.
 
 25 Al Tiu, kiu povas fortikigi vin, laŭ mia evangelio kaj la predi-
 
-309
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kado de Jesuo Kristo, laŭ la malkaŝo de la mistero, silentigita tra
 
 eternaj tempoj, 26 sed nun elmontrita, kaj per la profetaj skriboj laŭ
 
-la ordono de la eterna Dio sciigita al ĉiuj nacioj por obeado de fido; 
+la ordono de la eterna Dio sciigita al ĉiuj nacioj por obeado de fido;
 
 27 al la sola saĝa Dio, per Jesuo Kristo estu la gloro por ĉiam kaj eter-
 
-ne. Amen. 
+ne. Amen.
 
-310
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La unua epistolo de la apostolo
 
@@ -18636,17 +17988,17 @@ Paŭlo al la Korintanoj
 
 ĉapitro 1
 
-1 Paŭlo, vokita por esti apostolo de Jesuo Kristo per la volo de Dio, 
+1 Paŭlo, vokita por esti apostolo de Jesuo Kristo per la volo de Dio,
 
-kaj Sostenes, nia frato, 2 al tiu eklezio de Dio, kiu estas en Korinto, 
+kaj Sostenes, nia frato, 2 al tiu eklezio de Dio, kiu estas en Korinto,
 
 al tiuj, kiuj estas sanktigitaj en Kristo Jesuo, vokitaj por esti sanktu-
 
 loj, kune kun ĉiuj, kiuj en ĉiu loko vokas la nomon de nia Sinjoro
 
-Jesuo Kristo, ilia Sinjoro kaj nia: 3 Graco estu al vi kaj paco de Dio, 
+Jesuo Kristo, ilia Sinjoro kaj nia: 3 Graco estu al vi kaj paco de Dio,
 
-nia Patro, kaj de la Sinjoro Jesuo Kristo. 
+nia Patro, kaj de la Sinjoro Jesuo Kristo.
 
 4 Mi ĉiam dankas mian Dion pri vi, pro la graco de Dio al vi do-
 
@@ -18662,11 +18014,11 @@ neriproĉeblaj en la tago de nia Sinjoro Jesuo Kristo. 9 Fidela estas
 
 Dio, per kiu vi estas alvokitaj en la kunulecon de Lia Filo Jesuo Kri-
 
-sto, nia Sinjoro. 
+sto, nia Sinjoro.
 
 10 Mi petegas vin, fratoj, per la nomo de nia Sinjoro Jesuo Kris-
 
-to, ke vi ĉiuj parolu tion saman, kaj ke estu neniaj skismoj inter vi; 
+to, ke vi ĉiuj parolu tion saman, kaj ke estu neniaj skismoj inter vi;
 
 sed ke vi estu perfekte kunigitaj en la sama spirito kaj en la sama
 
@@ -18674,19 +18026,17 @@ juĝo. 11 ĉar pri vi, miaj fratoj, estas sciigite al mi de la domanoj de
 
 ˘loe, ke ekzistas inter vi malpacoj. 12 Kaj la jenon mi volas diri, ke
 
-ĉiu el vi diras: Mi estas de Paŭlo; kaj mi de Apolos; kaj mi de Kefas; 
+ĉiu el vi diras: Mi estas de Paŭlo; kaj mi de Apolos; kaj mi de Kefas;
 
 kaj mi de Kristo. 13 ĉu Kristo estas dividita? ĉu Paŭlo krucumiĝis por
 
 vi? aŭ ĉu vi baptiĝis en la nomon de Paŭlo? 14 Mi dankas Dion, ke
 
-mi baptis neniun el vi krom Krispo kaj Gajo; 15 por ke neniu diru, 
+mi baptis neniun el vi krom Krispo kaj Gajo; 15 por ke neniu diru,
 
-311
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ke vi baptiĝis en mian nomon. 16 Kaj mi baptis ankaŭ la familion de
 
@@ -18694,17 +18044,17 @@ Stefanas; krom tio mi ne scias, ĉu mi baptis iun alian. 17 ĉar Kristo
 
 sendis min, ne por bapti, sed por prediki la evangelion; ne en saĝ-
 
-eco de vortoj, por ke la kruco de Kristo ne vantiĝu. 
+eco de vortoj, por ke la kruco de Kristo ne vantiĝu.
 
-18 ĉar la priparolo de la kruco estas por la pereantoj malsaĝeco; 
+18 ĉar la priparolo de la kruco estas por la pereantoj malsaĝeco;
 
 sed por ni, la savatoj, ĝi estas la potenco de Dio. 19 ĉar estas skri-
 
 bite:
 
-Mi pereigos la saĝecon de la saĝuloj, 
+Mi pereigos la saĝecon de la saĝuloj,
 
-Kaj la kompetentecon de la kompetentuloj Mi malaperigos. 
+Kaj la kompetentecon de la kompetentuloj Mi malaperigos.
 
 20 Kie estas la saĝulo? kie estas la skribisto? kie estas la diskuti-
 
@@ -18714,17 +18064,17 @@ do? 21 ĉar pro tio, ke en la saĝeco de Dio la mondo per sia saĝeco
 
 ne konis Dion, bonvolis Dio per la malsaĝeco de la prediko savi la
 
-kredantojn. 22 ĉar Judoj postulas signojn, kaj Grekoj serĉas saĝecon; 
+kredantojn. 22 ĉar Judoj postulas signojn, kaj Grekoj serĉas saĝecon;
 
 23 sed ni predikas Kriston krucumitan, por Judoj falilon, kaj por
 
-Grekoj malsaĝon; 24 sed por la vokitoj mem, ĉu Judoj aŭ Grekoj, 
+Grekoj malsaĝon; 24 sed por la vokitoj mem, ĉu Judoj aŭ Grekoj,
 
 Kriston la potencon de Dio, kaj la saĝecon de Dio. 25 ĉar la mal-
 
 saĝeco de Dio estas pli saĝa ol homoj; kaj la malforteco de Dio es-
 
-tas pli forta ol homoj. 
+tas pli forta ol homoj.
 
 26 ĉar rigardu vian vokon, fratoj, ke ne multaj saĝuloj laŭ la kar-
 
@@ -18742,13 +18092,11 @@ por ke neniu karno fieru antaŭ Dio. 30 Sed el Li vi estas en Kristo Je-
 
 suo, kiu fariĝis al ni saĝeco el Dio, kaj justeco kaj sanktigo, kaj elaĉe-
 
-to; 31 por ke, kiel estas skribite: Kiu fieras, tiu fieru en la Eternulo. 
+to; 31 por ke, kiel estas skribite: Kiu fieras, tiu fieru en la Eternulo.
 
-312
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 2
 
@@ -18764,7 +18112,7 @@ kaj mia prediko estis ne en allogaj paroloj de saĝeco, sed en elmon-
 
 tro de la Spirito kaj potenco, 5 por ke via fido estu ne laŭ la saĝeco
 
-de homoj, sed laŭ la potenco de Dio. 
+de homoj, sed laŭ la potenco de Dio.
 
 6 Tamen ni parolas saĝecon inter plenaĝuloj, sed saĝecon ne de
 
@@ -18778,11 +18126,11 @@ scias neniu el la regantoj de ĉe tiu mondo; ĉar se ili ĝin scius, ili ne
 
 krucumus la Sinjoron de gloro; 9 sed kiel estas skribite:
 
-Tion, kion okulo ne vidis kaj orelo ne aŭdis, 
+Tion, kion okulo ne vidis kaj orelo ne aŭdis,
 
-Kaj kio en la koron de homo ne eniris, 
+Kaj kio en la koron de homo ne eniris,
 
-Dio preparis por tiuj, kiuj Lin amas. 
+Dio preparis por tiuj, kiuj Lin amas.
 
 10 Sed al ni Dio malkaŝis ilin per la Spirito; ĉar la Spirito esplo-
 
@@ -18792,7 +18140,7 @@ aferojn de iu homo, krom la spirito de la homo, kiu estas en li? tiel
 
 same la aferojn de Dio scias neniu, krom la Spirito de Dio. 12 Sed ni
 
-ricevis ne la spiriton de la mondo, sed la spiriton, kiu estas de Dio; 
+ricevis ne la spiriton de la mondo, sed la spiriton, kiu estas de Dio;
 
 por ke ni sciu tion, al ni donacitan de Dio. 13 Pri kio ankaŭ ni parolas
 
@@ -18806,27 +18154,25 @@ eco; kaj li ne povas ilin scii, pro tio, ke ili estas juĝataj spirite. 15 Sed l
 
 kiu sciis la menson de la Eternulo, ke li instruu Lin? Sed ni havas la
 
-menson de Kristo. 
+menson de Kristo.
 
-313
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 3
 
 1 Kaj mi, fratoj, ne povis paroli al vi kiel al spirituloj, sed kiel al karnuloj, kiel al infanetoj en Kristo. 2 Mi nutris vin per lakto, ne per
 
-manĝaĵoj; ĉar vi ankoraŭ tion ne kapablis; kaj eĉ nun vi ne kapablas; 
+manĝaĵoj; ĉar vi ankoraŭ tion ne kapablis; kaj eĉ nun vi ne kapablas;
 
 3 ĉar vi estas ankoraŭ karnaj; ĉar dum ekzistas inter vi ĵaluzo kaj
 
-malpaco, ĉu vi ne estas karnaj kaj iradas laŭ la maniero de homoj? 
+malpaco, ĉu vi ne estas karnaj kaj iradas laŭ la maniero de homoj?
 
 4 ĉar kiam unu diras: Mi estas de Paŭlo; kaj alia: Mi estas de Apo-
 
-los; ĉu vi ne estas homoj? 5 Kio do estas Apolos? kaj kio estas Paŭlo? 
+los; ĉu vi ne estas homoj? 5 Kio do estas Apolos? kaj kio estas Paŭlo?
 
 Servantoj, per kiuj vi ekkredis; kaj ĉiu, kiel la Sinjoro al li donis. 6 Mi plantis, Apolos akvumis; sed Dio kreskigis. 7 Tial nek la plantanto
 
@@ -18836,33 +18182,33 @@ tanto kaj la akvumanto estas unu; sed ĉiu ricevos sian propran re-
 
 kompencon laŭ sia laboro. 9 ĉar ni estas kunlaborantoj kun Dio: vi
 
-estas la kultivotaĵo de Dio, la konstruotaĵo de Dio. 
+estas la kultivotaĵo de Dio, la konstruotaĵo de Dio.
 
 10 Laŭ la graco de Dio al mi donita, kiel saĝa majstromasonisto
 
 mi metis fundamenton; kaj aliaj surkonstruas. Sed ĉiu zorgu, kiel li
 
-surkonstruas. 11 ĉar neniu povas meti alian fundamenton krom tiu, 
+surkonstruas. 11 ĉar neniu povas meti alian fundamenton krom tiu,
 
 kiu estas metita, tio estas Jesuo Kristo. 12 Sed se iu konstruas sur la
 
-fundamento oron, arĝenton, multekostajn ŝtonojn, lignon, fojnon, 
+fundamento oron, arĝenton, multekostajn ŝtonojn, lignon, fojnon,
 
-pajlon, 13 ĉies laboraĵo evidentiĝos; ĉar la tago ĝin montros, pro tio, 
+pajlon, 13 ĉies laboraĵo evidentiĝos; ĉar la tago ĝin montros, pro tio,
 
 ke ĝi estas malkaŝita en fajro; kaj la fajro mem provos ĉies labor-
 
 aĵon, kia ĝi estas. 14 Se restos ies laboraĵo, kiun li surkonstruis, li
 
-ricevos rekompencon. 15 Se ies laboraĵo forbrulos, li suferos perdon; 
+ricevos rekompencon. 15 Se ies laboraĵo forbrulos, li suferos perdon;
 
-sed li mem saviĝos; tamen kiel tra fajro. 
+sed li mem saviĝos; tamen kiel tra fajro.
 
 16 ĉu vi ne scias, ke vi estas templo de Dio kaj ke en vi loĝas la
 
-Spirito de Dio? 17 Se iu detruas la templon de Dio, tiun detruos Dio; 
+Spirito de Dio? 17 Se iu detruas la templon de Dio, tiun detruos Dio;
 
-ĉar la templo de Dio estas sankta, kaj vi estas tio. 
+ĉar la templo de Dio estas sankta, kaj vi estas tio.
 
 18 Neniu sin trompu. Se iu el vi opinias sin saĝa en ĉi tiu mon-
 
@@ -18870,11 +18216,9 @@ do, li fariĝu malsaĝulo, por ke li saĝiĝu. 19 ĉar la saĝeco de ĉi tiu
 
 mondo estas malsaĝeco ĉe Dio. ĉar estas skribite: Li kaptas la saĝu-
 
-314
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 lojn per ilia ruzaĵo; 20 kaj ankaŭ: La Eternulo scias la pensojn de
 
@@ -18884,7 +18228,7 @@ apartenas al vi, 22 ĉu Paŭlo, aŭ Apolos, aŭ Kefas, aŭ la mondo, aŭ la
 
 vivo, aŭ la morto, aŭ estantaĵoj aŭ estontaĵoj: ĉio apartenas al vi, 23
 
-kaj vi al Kristo, kaj Kristo al Dio. 
+kaj vi al Kristo, kaj Kristo al Dio.
 
 ĉapitro 4
 
@@ -18904,7 +18248,7 @@ po, ĝis venos la Sinjoro, kiu enlumigos la kaŝitaĵojn de la mallumo
 
 kaj klarigos la intencojn de la koroj; kaj tiam ĉiu ricevos de Dio sian
 
-propran laŭdon. 
+propran laŭdon.
 
 6 Tion do, fratoj, mi alifigure rilatigis al mi kaj Apolos pro vi; por
 
@@ -18912,7 +18256,7 @@ ke vi en ni lernu ne preterpasi la skribitaĵojn; por ke neniu el vi blo-
 
 veŝvelu por unu kontraŭ la alia. 7 ĉar kiu vin diferencigas? kaj kion
 
-vi havas, kion vi ne ricevis? sed se vi ĝin ricevis, kial vi fanfaronas, 
+vi havas, kion vi ne ricevis? sed se vi ĝin ricevis, kial vi fanfaronas,
 
 kvazaŭ vi ĝin ne ricevus? 8 Jam vi estas plenigitaj, jam vi riĉiĝis, vi
 
@@ -18928,19 +18272,17 @@ vi estas saĝaj en Kristo; ni estas malfortaj, sed vi estas fortaj; vi es-
 
 tas gloraj, sed ni estas senhonoraj. 11 Eĉ ĝis la nuna horo ni malsa-
 
-tas kaj soifas, kaj ni estas nudaj, kaj ni estas batataj kaj senhejmaj; 
+tas kaj soifas, kaj ni estas nudaj, kaj ni estas batataj kaj senhejmaj;
 
 12 kaj ni penadas, laborante per niaj propraj manoj; insultate, ni
 
-315
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 benas; persekutate, ni eltenas; 13 kalumniate, ni petegas; ni fariĝas
 
-kiel la balaaĵo de la mondo, la forĵetaĵo de ĉio, eĉ ĝis nun. 
+kiel la balaaĵo de la mondo, la forĵetaĵo de ĉio, eĉ ĝis nun.
 
 14 Ne por hontigi vin mi tion skribas, sed, kiel miajn amatajn fi-
 
@@ -18956,7 +18298,7 @@ amata kaj fidela filo en la Sinjoro, kaj kiu vin memorigos pri miaj
 
 vojoj en Kristo, ĝuste kiel mi instruas ĉie en ĉiu eklezio. 18 Kelkaj
 
-bloveŝvelas, kvazaŭ mi ne venus al vi. 19 Sed mi venos al vi baldaŭ, 
+bloveŝvelas, kvazaŭ mi ne venus al vi. 19 Sed mi venos al vi baldaŭ,
 
 se la Sinjoro tion volos; kaj mi ekscios, ne la parolon de la bloveŝ-
 
@@ -18964,7 +18306,7 @@ velintoj, sed la potencon. 20 ĉar la regno de Dio estas ne en paro-
 
 lo, sed en potenco. 21 Kion vi volas? ĉu kun vergo mi venu al vi, aŭ
 
-en amo kaj en spirito de humileco? 
+en amo kaj en spirito de humileco?
 
 ĉapitro 5
 
@@ -18976,7 +18318,7 @@ patro. 2 Kaj vi bloveŝvelis, kaj ne prefere ploregis, por ke tiu, kiu fa-
 
 ris tion, foriĝu el inter vi. 3 ĉar mi vere, korpe forestante, sed spi-
 
-rite ĉeestante, jam juĝis, kvazaŭ ĉeestante, tiun, kiu tiel faris tion, 
+rite ĉeestante, jam juĝis, kvazaŭ ĉeestante, tiun, kiu tiel faris tion,
 
 4 en la nomo de nia Sinjoro Jesuo Kristo, en kunveno de vi kaj de
 
@@ -18986,7 +18328,7 @@ mon al Satano por la detruo de la karno, por ke la spirito saviĝu en
 
 la tago de la Sinjoro Jesuo. 6 Ne bona estas via fanfaronado. ĉu vi
 
-ne scias, ke malmulto da fermentaĵo fermentigas la tutan mason? 
+ne scias, ke malmulto da fermentaĵo fermentigas la tutan mason?
 
 7 Forpurigu la malnovan fermentaĵon, por ke vi estu nova maso, kiel
 
@@ -18994,15 +18336,13 @@ vi estas nefermentintaj. ĉar por ni ankaŭ Pasko estas oferita, nome
 
 Kristo; 8 tial ni festu, ne per malnova fermentaĵo, nek per fermen-
 
-316
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 taĵo de malico kaj malboneco, sed per la senfermenta pano de sin-
 
-cereco kaj vereco. 
+cereco kaj vereco.
 
 9 En mia epistolo mi skribis al vi, ke vi ne intermiksu vin kun
 
@@ -19016,17 +18356,17 @@ termiksu vin, se iu, nomata frato, eble estas malĉastulo, aŭ avidu-
 
 lo, aŭ idolano, aŭ insultanto, aŭ drinkulo, aŭ rabemulo; kun tia ho-
 
-mo eĉ ne kunmanĝu. 12 ĉar kiel koncernas min juĝi la eksterulojn? 
+mo eĉ ne kunmanĝu. 12 ĉar kiel koncernas min juĝi la eksterulojn?
 
 ĉu vi ne juĝas la internulojn, 13 dum la eksterulojn juĝas Dio? Fo-
 
-rigu el inter vi la malvirtulon. 
+rigu el inter vi la malvirtulon.
 
 ĉapitro 6
 
 1 ĉu iu el vi, havante aferon kontraŭ sia proksimulo, kuraĝas pro-
 
-cesi antaŭ la malpiuloj, kaj ne antaŭ la sanktuloj? 2 Aŭ ĉu vi ne scias, 
+cesi antaŭ la malpiuloj, kaj ne antaŭ la sanktuloj? 2 Aŭ ĉu vi ne scias,
 
 ke la sanktuloj juĝos la mondon? kaj se la mondon vi juĝos, ĉu vi ne
 
@@ -19054,19 +18394,17 @@ maljustuloj ne heredos la regnon de Dio? Ne trompiĝu: nek mal-
 
 ĉastuloj, nek idolanoj, nek adultuloj, nek molmoruloj, nek viruza-
 
-ĉantoj, 10 nek ŝtelistoj, nek aviduloj, nek drinkuloj, nek insultantoj, 
+ĉantoj, 10 nek ŝtelistoj, nek aviduloj, nek drinkuloj, nek insultantoj,
 
-317
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 nek rabemuloj, heredos la regnon de Dio. 11 Kaj tiaj estis kelkaj el
 
 vi; sed vi laviĝis, sed vi sanktiĝis, sed vi justiĝis en la nomo de la
 
-Sinjoro Jesuo Kristo kaj en la Spirito de nia Dio. 
+Sinjoro Jesuo Kristo kaj en la Spirito de nia Dio.
 
 12 ĉio estas por mi permesata, sed ne ĉio estas oportuna. ĉio es-
 
@@ -19074,7 +18412,7 @@ tas por mi permesata; sed mi ne volas sub io submetiĝi. 13 Manĝ-
 
 aĵoj por la ventro, kaj la ventro por manĝaĵoj; sed Dio neniigos kune
 
-ĝin kaj ilin. Sed la korpo estas ne por malĉasteco, sed por la Sinjoro; 
+ĝin kaj ilin. Sed la korpo estas ne por malĉasteco, sed por la Sinjoro;
 
 kaj la Sinjoro por la korpo; 14 kaj Dio levis la Sinjoron, kaj levos
 
@@ -19082,13 +18420,13 @@ ankaŭ nin per Sia potenco. 15 ĉu vi ne scias, ke viaj korpoj estas
 
 membroj de Kristo? ĉu mi do prenos la membrojn de Kristo, kaj
 
-faros ilin membroj de malĉastistino? Nepre ne\! 16 Aŭ ĉu vi ne sci-
+faros ilin membroj de malĉastistino? Nepre ne! 16 Aŭ ĉu vi ne sci-
 
-as, ke tiu, kiu kuniĝas kun malĉastistino, estas kun ŝi unu korpo? 
+as, ke tiu, kiu kuniĝas kun malĉastistino, estas kun ŝi unu korpo?
 
 ĉar: Ili, Li diris, estos unu karno. 17 Sed tiu, kiu kuniĝas kun la Sinj-
 
-oro, estas kun li unu spirito. 18 Forkuru de malĉasteco. ĉiu peko, 
+oro, estas kun li unu spirito. 18 Forkuru de malĉasteco. ĉiu peko,
 
 kiun homo faras, estas ekster la korpo; sed tiu, kiu malĉastas, pe-
 
@@ -19098,13 +18436,13 @@ tas templo de la Sankta Spirito, kiu estas en vi kaj kiun vi havas de
 
 Dio? kaj vi ne apartenas al vi mem, 20 ĉar vi estas aĉetitaj per pre-
 
-zo; gloru do Dion en via korpo. 
+zo; gloru do Dion en via korpo.
 
 ĉapitro 7
 
 1 Nun rilate al la aferoj, pri kiuj vi skribis: Estas bone por viro, ne
 
-tuŝi virinon. 2 Sed pro malĉastaĵoj ĉiu viro havu propran edzinon, 
+tuŝi virinon. 2 Sed pro malĉastaĵoj ĉiu viro havu propran edzinon,
 
 kaj ĉiu virino havu propran edzon. 3 La edzo donu al la edzino ŝian
 
@@ -19118,27 +18456,25 @@ to por kelka tempo, por ke vi dediĉu vin al preĝado, kaj kuniĝu de-
 
 nove, por ke Satano vin ne tentu pro manko de sinregado. 6 Sed tion
 
-318
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi diras kiel permeson, ne kiel ordonon. 7 Sed mi volus, ke ĉiuj ho-
 
 moj estu kiel mi mem. Tamen ĉiu havas sian propran donacon de
 
-Dio, unu tiel, alia alie. 
+Dio, unu tiel, alia alie.
 
 8 Sed mi diras al senedzinuloj kaj al vidvinoj: Estas bone por ili
 
 resti kiel mi. 9 Sed se ili ne povas sin deteni, ili edziĝu; ĉar estas pli
 
-bone edziĝi, ol bruladi. 10 Sed al geedzoj mi ordonas \(tamen ne mi, 
+bone edziĝi, ol bruladi. 10 Sed al geedzoj mi ordonas (tamen ne mi,
 
-sed la Sinjoro\): Ke edzino ne foriĝu de sia edzo 11 \(tamen, se ŝi for-
+sed la Sinjoro): Ke edzino ne foriĝu de sia edzo 11 (tamen, se ŝi for-
 
-iĝas, ŝi restu senedza, aŭ denove konsentiĝu kun sia edzo\); kaj ke
+iĝas, ŝi restu senedza, aŭ denove konsentiĝu kun sia edzo); kaj ke
 
 la edzo ne forsendu sian edzinon. 12 Sed al la ceteraj diras mi, ne la
 
@@ -19168,7 +18504,7 @@ kumcidiĝu. 19 Cirkumcido estas nenio, kaj necirkumcido estas ne-
 
 nio; sed la plenumado de la ordonoj de Dio. 20 ĉiu restadu en tiu
 
-voksorto, en kiu li estas vokita. 21 ĉu vi estas vokita, estante sklavo? 
+voksorto, en kiu li estas vokita. 21 ĉu vi estas vokita, estante sklavo?
 
 ne ĉagreniĝu pro tio; sed se vi povas liberiĝi, tion uzu prefere. 22 ĉar
 
@@ -19178,15 +18514,13 @@ Sinjoro; tiel same tiu, kiu estas vokita, estante libera, estas sklavo de
 
 Kristo. 23 Vi estas aĉetitaj per prezo; ne fariĝu sklavoj de homoj. 24
 
-Fratoj, ĉiu, kie li estas vokita, tie restadu kun Dio. 
+Fratoj, ĉiu, kie li estas vokita, tie restadu kun Dio.
 
 25 Sed rilate al virgulinoj, mi ne havas ordonon de la Sinjoro; sed
 
-319
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi donas mian opinion, kiel ricevinta de la Sinjoro indulgon, por
 
@@ -19202,7 +18536,7 @@ lino edziniĝas, ŝi ne pekas. Sed tiaj personoj havos maltrankvilon en
 
 la karno; kaj mi volas indulgi vin. 29 Sed la jenon mi diras, fratoj: La
 
-tempo estas mallongigita, por ke de nun tiuj, kiuj havas edzinojn, 
+tempo estas mallongigita, por ke de nun tiuj, kiuj havas edzinojn,
 
 estu kvazaŭ ili ne havus; 30 kaj la plorantoj, kvazaŭ ne plorantaj; kaj
 
@@ -19236,31 +18570,29 @@ faru tion, kion li volas; li ne pekas; ili geedziĝu. 37 Sed tiu, kiu sta-
 
 ras firma en sia koro, havante nenian neceson, sed regas sian pro-
 
-pran volon, kaj decidis en sia koro gardi sian virgulinon, faras bone. 
+pran volon, kaj decidis en sia koro gardi sian virgulinon, faras bone.
 
 38 Tiel tiu, kiu lasas sian virgulinon edziniĝi, faras bone; kaj tiu, kiu
 
-ne lasas ŝin edziniĝi, faros pli bone. 39 Edzino estas ligita tiel longe, 
+ne lasas ŝin edziniĝi, faros pli bone. 39 Edzino estas ligita tiel longe,
 
 kiel vivas ŝia edzo; sed se la edzo mortis, ŝi estas libera edziniĝi kun
 
 iu, kun kiu ŝi volas; nur en la Sinjoro. 40 Sed laŭ mia opinio ŝi estas
 
-320
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pli feliĉa, se ŝi restas samstate; kaj mi opinias, ke mi ankaŭ havas la
 
-Spiriton de Dio. 
+Spiriton de Dio.
 
 ĉapitro 8
 
 1 Nun rilate al oferitaĵoj al idoloj: Ni scias, ke ni ĉiuj havas scion. La
 
-scio bloveŝveligas, sed la amo edifas. 2 Se iu opinias, ke li scias ion, 
+scio bloveŝveligas, sed la amo edifas. 2 Se iu opinias, ke li scias ion,
 
 tiu ankoraŭ ne tiel scias, kiel li devus scii; 3 sed se iu amas Dion, tiu
 
@@ -19270,15 +18602,15 @@ scias, ke idolo estas neniaĵo en la mondo, kaj ke ne ekzistas Dio
 
 krom unu. 5 ĉar kvankam estas tiel nomataj dioj, ĉu en la ĉielo aŭ
 
-sur la tero, kiel estas dioj multenombraj, kaj sinjoroj multenombraj, 
+sur la tero, kiel estas dioj multenombraj, kaj sinjoroj multenombraj,
 
-6 tamen por ni estas unu Dio, la Patro, el kiu estas ĉio, kaj ni por Li; 
+6 tamen por ni estas unu Dio, la Patro, el kiu estas ĉio, kaj ni por Li;
 
 kaj unu Sinjoro, Jesuo Kristo, per kiu estas ĉio, kaj ni per li. 7 Tamen
 
 ne ĉe ĉiuj estas tiu scio; sed iuj, pro sia ĝisnuna kutimiĝo al la ido-
 
-lo, manĝas la manĝaĵon kiel oferitaĵon al idolo; kaj ilia konscienco, 
+lo, manĝas la manĝaĵon kiel oferitaĵon al idolo; kaj ilia konscienco,
 
 estante malforta, malpuriĝas. 8 Sed manĝaĵo ne rekomendos nin al
 
@@ -19290,7 +18622,7 @@ por la malfortuloj. 10 ĉar se iu vidas vin, kiu havas scion, sidantan
 
 ĉe manĝo en idolejo, ĉu lia konscienco, se li estas malforta, ne kura-
 
-ĝiĝos manĝi idoloferitaĵojn? 11 Pro via scio do pereas la malfortulo, 
+ĝiĝos manĝi idoloferitaĵojn? 11 Pro via scio do pereas la malfortulo,
 
 la frato, pro kiu Kristo mortis. 12 Kaj tiamaniere, pekante kontraŭ la
 
@@ -19298,13 +18630,11 @@ frataro, kaj vundante ilian konsciencon malfortan, vi pekas kontraŭ
 
 Kristo. 13 Tial se manĝaĵo maledifas mian fraton, mi neniam plu
 
-manĝos karnon, por ke mi ne maledifu mian fraton. 
+manĝos karnon, por ke mi ne maledifu mian fraton.
 
-321
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 9
 
@@ -19314,9 +18644,9 @@ Sinjoron Jesuo? ĉu vi ne estas mia laboraĵo en la Sinjoro? 2 Se ĉe
 
 aliaj mi ne estas apostolo, tamen almenaŭ mi estas ĉe vi; ĉar la si-
 
-gelo de mia apostoleco vi estas en la Sinjoro. 3 Mia respondo al tiuj, 
+gelo de mia apostoleco vi estas en la Sinjoro. 3 Mia respondo al tiuj,
 
-kiuj min ekzamenas, estas jena: 4 ĉu ni ne rajtas manĝi kaj trinki? 
+kiuj min ekzamenas, estas jena: 4 ĉu ni ne rajtas manĝi kaj trinki?
 
 5 ĉu ni ne rajtas ĉirkaŭkonduki edzinon, kiu estas kredantino, kiel
 
@@ -19346,9 +18676,9 @@ super vi, ĉu ne ni ankoraŭ pli multe? Tamen ni ne uzis ĉi tiun raj-
 
 ton; sed ni eltenas ĉion, por ke ni neniel malhelpu la evangelion de
 
-Kristo. 13 ĉu vi ne scias, ke tiuj, kiuj sin okupas pri sanktaj aferoj, 
+Kristo. 13 ĉu vi ne scias, ke tiuj, kiuj sin okupas pri sanktaj aferoj,
 
-manĝas el la templaj manĝaĵoj, kaj tiuj, kiuj deĵoras ĉe la altaro, 
+manĝas el la templaj manĝaĵoj, kaj tiuj, kiuj deĵoras ĉe la altaro,
 
 partoprenas kune kun la altaro? 14 Tial same la Sinjoro ordonis, ke
 
@@ -19362,15 +18692,13 @@ fieraĵon. 16 ĉar se mi predikas la evangelion, mi havas nenion, pri
 
 kio fieri; ĉar neceseco kuŝas sur mi; ĉar ve al mi, se mi ne predikus
 
-la evangelion\! 17 ĉar se mi tion faras propravole, mi havas rekom-
+la evangelion! 17 ĉar se mi tion faras propravole, mi havas rekom-
 
-pencon; sed se ne propravole, kiel administranto mi estas komisiita. 
+pencon; sed se ne propravole, kiel administranto mi estas komisiita.
 
-322
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 18 Kio do estas mia rekompenco? Ke kiam mi predikas la evangeli-
 
@@ -19398,13 +18726,13 @@ no kuras, sed nur unu ricevas la premion? Tiel same kuru, por ke
 
 vi atingu. 25 Kaj ĉiu konkuranto sin regas en ĉio. Ili faras tion, por
 
-ricevi pereontan kronon; sed ni, nepereontan. 26 Mi do tiel kuras, 
+ricevi pereontan kronon; sed ni, nepereontan. 26 Mi do tiel kuras,
 
 kiel ne sendecide; tiel mi boksas, kiel ne batante la aeron; 27 sed mi
 
 kontuzas mian korpon, kaj ĝin subpremas; por ke mi, predikinte al
 
-aliaj, nepre ne estu mem forrifuzata. 
+aliaj, nepre ne estu mem forrifuzata.
 
 ĉapitro 10
 
@@ -19420,17 +18748,15 @@ spirita roko, kiu ilin sekvis; kaj la roko estis Kristo. 5 Tamen la plej-
 
 multo el ili ne plaĉis al Dio; ili ja disĵetiĝis en la dezerto. 6 Sed tio
 
-okazis kiel ekzemploj por ni, por ke ni ne deziregu malbonaĵojn, 
+okazis kiel ekzemploj por ni, por ke ni ne deziregu malbonaĵojn,
 
 kiel ili ankaŭ deziregis. 7 Kaj vi ne estu idolanoj, kiel estis kelkaj el
 
 ili; kiel estas skribite: La popolo sidiĝis, por manĝi kaj trinki, kaj ili
 
-323
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 leviĝis, por ludi. 8 Kaj ni ne malĉastadu, kiel kelkaj el ili faris, kaj falis en unu tago dudek tri mil. 9 Kaj ni ne incitu la Eternulon, kiel kelkaj el ili incitis, kaj pereis per serpentoj. 10 Kaj vi ne murmuru, kiel
 
@@ -19438,7 +18764,7 @@ kelkaj el ili murmuris, kaj pereis per la ekstermanto. 11 Tio okazis al
 
 ili kiel ekzemploj, kaj ĝi estas skribita kiel admono por ni, sur kiu-
 
-jn venis la finoj de la mondaĝoj. 12 Tiu do, kiu opinias, ke li staras, 
+jn venis la finoj de la mondaĝoj. 12 Tiu do, kiu opinias, ke li staras,
 
 sin gardu, por ke li ne falu. 13 Nenia tento vin prenis, krom laŭ ho-
 
@@ -19446,7 +18772,7 @@ ma forto; sed fidela estas Dio, kiu ne lasos vin esti tentataj super via
 
 forto; sed kune kun la tento ankaŭ faros la forkurejon, por ke vi
 
-povu ĝin elporti. 
+povu ĝin elporti.
 
 14 Tial, miaj amataj, forsavu vin de idolservado. 15 Mi parolas kiel
 
@@ -19464,15 +18790,15 @@ ne estas tiuj, kiuj manĝas la oferojn, partoprenantoj en la altaro? 19
 
 Kion do mi diras? ke idoloferitaĵo estas io, aŭ ke idolo estas io? 20
 
-Sed mi diras, ke tion, kion oferas la nacianoj, ili oferas al demonoj, 
+Sed mi diras, ke tion, kion oferas la nacianoj, ili oferas al demonoj,
 
 kaj ne al Dio; kaj mi ne volas, ke vi partoprenu kun demonoj. 21 Vi
 
-ne povas trinki la kalikon de la Sinjoro kaj la kalikon de demonoj; 
+ne povas trinki la kalikon de la Sinjoro kaj la kalikon de demonoj;
 
 vi ne povas partopreni ĉe la tablo de la Sinjoro kaj ĉe la tablo de de-
 
-monoj. 22 Aŭ ĉu ni ĵaluzigas la Sinjoron? ĉu ni estas pli fortaj ol li? 
+monoj. 22 Aŭ ĉu ni ĵaluzigas la Sinjoron? ĉu ni estas pli fortaj ol li?
 
 23 ĉio estas permesata; sed ne ĉio estas oportuna. ĉio estas per-
 
@@ -19488,11 +18814,9 @@ vitas vin al festeno, kaj vi volas iri, kion oni metas antaŭ vi, ĉion
 
 manĝu, demandante nenion pro konscienco. 28 Sed se iu diras al vi:
 
-324
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉi tio estas oferitaĵo—ne manĝu, pro la montrinto, kaj pro konsci-
 
@@ -19500,21 +18824,21 @@ enco: 29 konscienco, mi diras, ne via propra, sed de la alia; ĉar kial
 
 mia libereco estus juĝata per alia konscienco? 30 Se mi danke par-
 
-toprenas, kial mi estus mallaŭdata pri tio, pro kio mi donas dankon? 
+toprenas, kial mi estus mallaŭdata pri tio, pro kio mi donas dankon?
 
 31 ĉu do vi manĝas, aŭ trinkas, aŭ kion ajn vi faras, faru ĉion por la
 
 gloro de Dio. 32 Ne metu faligilon, ĉu por Judoj, aŭ por Grekoj, aŭ
 
-por la eklezio de Dio; 33 tiel same, kiel mi ankaŭ plaĉas al ĉiuj en ĉio, 
+por la eklezio de Dio; 33 tiel same, kiel mi ankaŭ plaĉas al ĉiuj en ĉio,
 
 celante ne mian propran utilon, sed la utilon de la multaj, por ke ili
 
-saviĝu. 
+saviĝu.
 
 ĉapitro 11
 
-1 Vi estu imitantoj de mi, kiel mi ankaŭ estas imitanto de Kristo. 
+1 Vi estu imitantoj de mi, kiel mi ankaŭ estas imitanto de Kristo.
 
 2 Mi laŭdas vin, ke vi min memoras en ĉio, kaj ke vi firme tenas
 
@@ -19524,9 +18848,9 @@ gi vin, ke la kapo de ĉiu viro estas Kristo; kaj la kapo de virino es-
 
 tas viro; kaj la kapo de Kristo estas Dio. 4 ĉiu viro, preĝanta aŭ pro-
 
-fetanta kun kapo kovrita, malhonoras sian kapon. 5 Sed ĉiu virino, 
+fetanta kun kapo kovrita, malhonoras sian kapon. 5 Sed ĉiu virino,
 
-preĝanta aŭ profetanta kun kapo senvuala, malhonoras sian kapon; 
+preĝanta aŭ profetanta kun kapo senvuala, malhonoras sian kapon;
 
 ĉar tio estas tia sama, kvazaŭ ŝi estus razita. 6 ĉar se virino ne es-
 
@@ -19538,7 +18862,7 @@ la kapon vualita, pro tio, ke li estas la bildo kaj gloro de Dio; sed vi-
 
 rino estas la gloro de viro. 8 ĉar viro ne estas el virino, sed virino el
 
-viro; 9 ĉar ankaŭ viro ne estas kreita por virino, sed virino por viro; 
+viro; 9 ĉar ankaŭ viro ne estas kreita por virino, sed virino por viro;
 
 10 pro tio virino devas havi sur la kapo signon de aŭtoritato, pro la
 
@@ -19548,13 +18872,11 @@ la Sinjoro. 12 ĉar kiel virino estas el viro, tiel same ankaŭ estas viro
 
 per virino; sed ĉio estas el Dio. 13 Juĝu en vi mem: ĉu decas, ke vi-
 
-rino preĝu al Dio nevualite? 14 ĉu eĉ la naturo mem ne instruas vin, 
+rino preĝu al Dio nevualite? 14 ĉu eĉ la naturo mem ne instruas vin,
 
-325
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ke se viro havas longajn harojn, tio estas por li malhonoro? 15 Sed
 
@@ -19562,7 +18884,7 @@ se virino havas longajn harojn, tio estas por ŝi gloro; ĉar ŝiaj haroj
 
 estas donitaj al ŝi kiel kovraĵo. 16 Sed se iu ŝajnas esti disputema, ni
 
-ne havas tian kutimon, nek la eklezioj de Dio. 
+ne havas tian kutimon, nek la eklezioj de Dio.
 
 17 Sed ordonante al vi jene, mi ne laŭdas vin, ke vi kunvenas ne
 
@@ -19590,17 +18912,17 @@ al vi, ke la Sinjoro Jesuo en la nokto, en kiu li estis perfidata, pre-
 
 nis panon; 24 kaj doninte dankon, li dispecigis ĝin, kaj diris: ĉio tio
 
-estas mia korpo, kiu estas por vi; ĉi tion faru por memorigo pri mi. 
+estas mia korpo, kiu estas por vi; ĉi tion faru por memorigo pri mi.
 
 25 Tiel same ankaŭ la kalikon post la vespermanĝo, dirante: ĉi tiu
 
 kaliko estas la nova interligo en mia sango; ĉi tion faru ĉiufoje, kiam
 
-vi trinkos, por memorigo pri mi. 26 ĉar ĉiufoje, kiam vi manĝos ĉi
+vi trs, por memorigo pri mi. 26 ĉar ĉiufoje, kiam vi manĝos ĉi
 
-tiun panon kaj trinkos la kalikon, vi proklamos la morton de la Sinj-
+tiun panon kaj trs la kalikon, vi proklamos la morton de la Sinj-
 
-oro, ĝis li venos. 27 Tial ĉiu, kiu neinde manĝos la panon aŭ trinkos
+oro, ĝis li venos. 27 Tial ĉiu, kiu neinde manĝos la panon aŭ trs
 
 la kalikon de la Sinjoro, kulpiĝos pri la korpo kaj la sango de la Sinj-
 
@@ -19616,29 +18938,27 @@ pensus nin mem, ni ne estus juĝitaj. 32 Sed kiam ni estas juĝataj, ni
 
 estas punataj de la Sinjoro, por ke ni ne estu kondamnitaj kune kun
 
-326
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la mondo. 33 Tial, miaj fratoj, kiam vi kunvenas por manĝi, atendu
 
 unu la alian. 34 Se iu malsatas, li manĝu hejme, por ke via kunvena-
 
-do ne enkonduku juĝon. Kaj la ceteron mi ordigos, kiam mi venos. 
+do ne enkonduku juĝon. Kaj la ceteron mi ordigos, kiam mi venos.
 
 ĉapitro 12
 
-1 Rilate spiritajn donacojn, fratoj, mi ne volas, ke vi estu nesciantaj. 
+1 Rilate spiritajn donacojn, fratoj, mi ne volas, ke vi estu nesciantaj.
 
 2 Vi scias, ke kiam vi estis nacianoj, vi estis forkondukataj al tiuj
 
-mutaj idoloj, kiel ajn oni vin kondukis. 3 Tial mi sciigas vin, ke ne-
+mutaj idoloj, kiel ajn oni vndukis. 3 Tial mi sciigas vin, ke ne-
 
 niu parolanta en la Spirito de Dio diras: Jesuo estas anatemita; kaj
 
-neniu povas diri: Jesuo estas Sinjoro, krom per la Sankta Spirito. 
+neniu povas diri: Jesuo estas Sinjoro, krom per la Sankta Spirito.
 
 4 Ekzistas diverseco de donacoj, sed la sama Spirito. 5 Kaj ekzis-
 
@@ -19650,7 +18970,7 @@ co de energioj, sed la sama Dio, kiu energias ĉion en ĉiuj. 7 Sed al
 
 tas donita per la Spirito la vorto de saĝeco; kaj al alia, la vorto de
 
-scio, laŭ la sama Spirito; 9 al alia, fido, en la sama Spirito; al alia, 
+scio, laŭ la sama Spirito; 9 al alia, fido, en la sama Spirito; al alia,
 
 donacoj de resanigoj, en la unu Spirito; 10 kaj al alia, energioj por
 
@@ -19658,7 +18978,7 @@ mirakloj; kaj al alia, profetpovo; kaj al alia, distingoj de spiritoj; al
 
 alia, diversaj lingvoj; kaj al alia, interpreto de lingvoj; 11 sed ĉion tion energias la unu sama Spirito, dividante al ĉiu aparte, kiel al li pla-
 
-ĉas. 
+ĉas.
 
 12 ĉar kiel la korpo estas unu, kaj havas multajn membrojn, kaj
 
@@ -19676,11 +18996,9 @@ enas al la korpo—ne sekvas de tio, ke ĝi ne apartenas al la korpo. 16
 
 Kaj se la orelo diros: Pro tio, ke mi ne estas la okulo, mi ne apart-
 
-327
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 enas al la korpo—ne sekvas de tio, ke ĝi ne apartenas al la korpo. 17
 
@@ -19692,7 +19010,7 @@ brojn al la korpo, ĉiun, kiel al Li plaĉis. 19 Kaj se ĉiuj estus unu mem-
 
 bro, kie estus la korpo? 20 Nun do ekzistas multaj membroj, sed unu
 
-korpo. 21 Kaj la okulo ne povas diri al la mano: Mi vin ne bezonas; 
+korpo. 21 Kaj la okulo ne povas diri al la mano: Mi vin ne bezonas;
 
 nek same la kapo al la piedoj: Mi vin ne bezonas. 22 Sed multe plie
 
@@ -19714,19 +19032,19 @@ membroj kune suferas; aŭ se unu membro honoriĝas, ĉiuj membroj
 
 kunĝojas. 27 Vi do estas la korpo de Kristo, kaj membroj en ĝi, ĉiu
 
-laŭ sia parto. 28 Kaj Dio metis iujn en la eklezio, unue apostolojn, 
+laŭ sia parto. 28 Kaj Dio metis iujn en la eklezio, unue apostolojn,
 
 due profetojn, trie instruantojn, poste miraklojn, poste donacojn de
 
 kuracado, helpojn, direktojn, diversajn lingvojn. 29 ĉu ĉiuj estas
 
-apostoloj? ĉu ĉiuj profetoj? ĉu ĉiuj instruantoj? ĉu ĉiuj mirakluloj? 
+apostoloj? ĉu ĉiuj profetoj? ĉu ĉiuj instruantoj? ĉu ĉiuj mirakluloj?
 
 30 ĉu ĉiuj havas kuracan povon? ĉu ĉiuj parolas per lingvoj? ĉu ĉiuj
 
 interpretas? 31 Sed vi deziru forte la pligrandajn donacojn. Kaj an-
 
-koraŭ pli preferindan vojon mi montras al vi. 
+koraŭ pli preferindan vojon mi montras al vi.
 
 ĉapitro 13
 
@@ -19736,13 +19054,11 @@ amon, mi fariĝus sonanta kupro aŭ tintanta cimbalo. 2 Kaj se mi
 
 posedus la profetpovon, kaj komprenus ĉiujn misterojn kaj ĉian
 
-scion; kaj se mi havus ĉian fidon, tiel ke mi povus formovi montojn, 
+scion; kaj se mi havus ĉian fidon, tiel ke mi povus formovi montojn,
 
-328
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sed ne havus amon, mi estus nenio. 3 Kaj se mi disdonus mian tu-
 
@@ -19758,7 +19074,7 @@ iĝas, ne pripensas malbonon, 6 ne ĝojas pri maljusteco, sed kun-
 
 ĝojas kun vereco; 7 ĉion toleras, ĉion kredas, ĉion esperas, ĉion el-
 
-tenas. 8 Amo neniam pereas; sed, ĉu estas profetadoj, ili neniiĝos; 
+tenas. 8 Amo neniam pereas; sed, ĉu estas profetadoj, ili neniiĝos;
 
 ĉu lingvoj, ili ĉesiĝos; ĉu estas scio, ĝi neniiĝos. 9 ĉar ni scias laŭ-
 
@@ -19774,13 +19090,13 @@ gulo, malhele; sed tiam okulon ĉe okulo; nun mi konas laŭparte; sed
 
 tiam mi konos tiel same, kiel ankaŭ mi estas konita. 13 Restas do
 
-nun fido, espero, amo, tiuj tri; kaj la plej granda el ili estas amo. 
+nun fido, espero, amo, tiuj tri; kaj la plej granda el ili estas amo.
 
 ĉapitro 14
 
 1 Sekvu amon; tamen deziregu spiritajn donacojn, sed prefere, ke
 
-vi profetadu. 2 ĉar tiu, kiu per lingvo parolas, ne al homoj parolas, 
+vi profetadu. 2 ĉar tiu, kiu per lingvo parolas, ne al homoj parolas,
 
 sed al Dio; ĉar neniu komprenas, sed en la spirito li parolas miste-
 
@@ -19788,7 +19104,7 @@ rojn. 3 Sed la profetanto parolas al homoj edifon kaj konsilon kaj
 
 konsolon. 4 Tiu, kiu per lingvo parolas, edifas sin mem; sed la pro-
 
-fetanto edifas la eklezion. 5 Mi volas, ke vi ĉiuj parolu per lingvoj, 
+fetanto edifas la eklezion. 5 Mi volas, ke vi ĉiuj parolu per lingvoj,
 
 sed prefere, ke vi profetadu; kaj pli granda estas la profetanto, ol la
 
@@ -19800,15 +19116,13 @@ lingvoj, kiel mi vin helpus, se mi ne parolus al vi, aŭ en formo de
 
 malkaŝado, aŭ de sciado, aŭ de profetado, aŭ de instruado? 7 Eĉ la
 
-329
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 senvivaĵoj, kiuj produktas sonon, ĉu fluto, ĉu harpo, se ili ne donas
 
-diferencon en la sonoj, kiel oni scios, kio estas flutata aŭ harpata? 
+diferencon en la sonoj, kiel oni scios, kio estas flutata aŭ harpata?
 
 8 ĉar se la trumpeto donos necertan voĉon, kiu pretiĝos por bata-
 
@@ -19838,13 +19152,13 @@ spirite, kiamaniere tiu, kiu okupas la lokon de la malklerulo, diros
 
 Amen ĉe via dankesprimo? ĉar li ne scias, kion vi diras. 17 ĉar vi ja
 
-bone dankesprimas, sed la alia ne estas edifata. 18 Mi dankas Dion, 
+bone dankesprimas, sed la alia ne estas edifata. 18 Mi dankas Dion,
 
 mi parolas per lingvoj pli ol vi ĉiuj; 19 tamen en la eklezio mi pre-
 
 ferus paroli kvin vortojn per mia intelekto, por ke mi instruu ankaŭ
 
-aliajn, ol dek mil vortojn per lingvo. 
+aliajn, ol dek mil vortojn per lingvo.
 
 20 Fratoj, ne estu infanoj en viaj mensoj; tamen en malico estu
 
@@ -19860,23 +19174,21 @@ toj; sed la profetpovo estas kiel signo, ne al la nekredantoj, sed al la
 
 kredantoj. 23 Se do la tuta eklezio kunvenos, kaj ĉiuj parolos per
 
-lingvoj, kaj tien envenos nekleruloj aŭ nekredantoj, ĉu ili ne diros, 
+lingvoj, kaj tien envenos nekleruloj aŭ nekredantoj, ĉu ili ne diros,
 
 ke vi frenezas? 24 Sed se ĉiuj profetos, kaj envenos nekredanto aŭ
 
 neklerulo, li estos konvinkata de ĉiuj, li estos juĝata de ĉiuj; 25 la
 
-330
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sekretoj de lia koro estos elmontrataj; kaj sekve li falos sur sian viza-
 
-ĝon kaj adoros Dion, deklarante, ke Dio ja estas ĉe li. 
+ĝon kaj adoros Dion, deklarante, ke Dio ja estas ĉe li.
 
-26 Kio do estas, fratoj? Kiam vi kunvenas, ĉiu havas psalmon, 
+26 Kio do estas, fratoj? Kiam vi kunvenas, ĉiu havas psalmon,
 
 havas instruon, havas malkaŝaĵon, havas lingvon, havas interpret-
 
@@ -19896,7 +19208,7 @@ nu, kaj ĉiuj ricevu konsilon; 32 kaj la spiritoj de la profetoj estas sub-
 
 metataj al la profetoj; 33 ĉar Dio estas Dio ne de konfuzo, sed de
 
-paco; kiel en ĉiuj eklezioj de la sanktuloj. 
+paco; kiel en ĉiuj eklezioj de la sanktuloj.
 
 34 La virinoj silentadu en la eklezioj; ĉar ne estas permesate al ili
 
@@ -19906,21 +19218,21 @@ lerni ion, ili demandu al siaj edzoj hejme; ĉar estas honte por viri-
 
 no paroli en la eklezio. 36 Kio? ĉu el vi la vorto de Dio eliris? ĉu ĝi
 
-venis al vi solaj? 
+venis al vi solaj?
 
 37 Se iu ŝajnas al si esti profeto aŭ laŭspirita, li sciiĝu pri tio, kion
 
 mi skribas al vi, ke ĝi estas la ordono de la Sinjoro. 38 Sed se iu ne
 
-scias, li ne sciu. 
+scias, li ne sciu.
 
 39 Tial, fratoj, deziregu profeti, kaj ne malpermesu paroli per lin-
 
-gvoj. 40 Sed ĉio fariĝu konvene kaj laŭorde. 
+gvoj. 40 Sed ĉio fariĝu konvene kaj laŭorde.
 
 ĉapitro 15
 
-1 Kaj mi sciigas vin, fratoj, pri la evangelio, kiun mi predikis al vi, 
+1 Kaj mi sciigas vin, fratoj, pri la evangelio, kiun mi predikis al vi,
 
 kiun ankaŭ vi ricevis, en kiu ankaŭ vi staras, 2 per kiu vi saviĝis; se
 
@@ -19928,11 +19240,9 @@ vi en memoro tenas, per kiuj vortoj mi ĝin predikis al vi, krom se
 
 vi kredis vane. 3 ĉar mi transdonis al vi komence tion, kion mi an-
 
-331
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaŭ ricevis, ke Kristo mortis pro niaj pekoj laŭ la Skriboj; 4 kaj ke li
 
@@ -19950,9 +19260,9 @@ per la graco de Dio mi estas tio, kio mi estas; kaj Lia graco donaci-
 
 ta al mi montriĝis ne vana; sed mi laboregis pli abunde ol la cete-
 
-raj; tamen ne mi, sed la graco de Dio, kiu estis kun mi. 11 ĉu do mi, 
+raj; tamen ne mi, sed la graco de Dio, kiu estis kun mi. 11 ĉu do mi,
 
-ĉu ili, tiel ni predikas, kaj tiel vi kredis. 
+ĉu ili, tiel ni predikas, kaj tiel vi kredis.
 
 12 Nu, se Kristo estas predikata, ke li releviĝis el la mortintoj, kiel
 
@@ -19974,7 +19284,7 @@ tas ankoraŭ en viaj pekoj. 18 Tiuokaze ankaŭ pereis la ekdormintoj
 
 en Kristo. 19 Se nur en ĉi tiu vivo ni esperis en Kristo, ni estas el ĉiuj
 
-homoj la plej mizeraj. 
+homoj la plej mizeraj.
 
 20 Sed nun Kristo releviĝis el la mortintoj, la unuaaĵo de la dor-
 
@@ -19990,11 +19300,9 @@ veno. 24 Poste venos la fino, kiam li transdonos la reĝecon al Dio, al
 
 la Patro; kiam li estos neniiginta ĉian regadon kaj ĉian aŭtoritaton
 
-332
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj potencon. 25 ĉar li devas reĝadi, ĝis li metos ĉiujn malamikojn
 
@@ -20008,13 +19316,13 @@ tas submetita, estas evidente, ke esceptita estas Tiu, kiu submetis
 
 mem estos submetita al Tiu, kiu submetis ĉion al li, por ke Dio estu
 
-ĉio en ĉio. 
+ĉio en ĉio.
 
 29 Alie kion faros tiuj, kiuj baptiĝas pro la mortintoj? Se la mort-
 
 intoj tute ne releviĝas, kial do ili baptiĝas pro ili? 30 kial ni ankaŭ
 
-endanĝeriĝas ĉiun horon? 31 Mi asertas per la singratulado pro vi, 
+endanĝeriĝas ĉiun horon? 31 Mi asertas per la singratulado pro vi,
 
 fratoj, kiun mi havas en Kristo Jesuo, nia Sinjoro, mi mortas ĉiuta-
 
@@ -20026,11 +19334,11 @@ ku, ĉar morgaŭ ni mortos. 33 Ne trompiĝu; Malbonaj kuniĝoj mal-
 
 bonigas bonajn morojn. 34 Malebriiĝu en justeco, kaj ne peku; ĉar
 
-kelkaj havas nenian scion pri Dio; mi tion diras, por hontigi vin. 
+kelkaj havas nenian scion pri Dio; mi tion diras, por hontigi vin.
 
 35 Sed iu diros: Kiel la mortintoj releviĝas? kaj kun kia korpo ili
 
-venas? 36 Ho malsaĝulo\! tio, kion vi mem semas, ne viviĝas, se ĝi ne
+venas? 36 Ho malsaĝulo! tio, kion vi mem semas, ne viviĝas, se ĝi ne
 
 mortos; 37 kaj tio, kion vi semas, estas ne la estonta korpo, sed nuda
 
@@ -20050,17 +19358,15 @@ suno, kaj alia gloro de la luno, kaj alia gloro de la steloj; ĉar unu ste-
 
 lo diferencas de alia stelo rilate al gloro. 42 Tia sama ankaŭ estas la
 
-releviĝo de la mortintoj. ¯i estas semata en putreco, ĝi releviĝas en
+releviĝo de la mortintoj. i estas semata en putreco, ĝi releviĝas en
 
-senputreco; 43 ĝi estas semata en malhonoro, ĝi releviĝas en gloro; 
+senputreco; 43 ĝi estas semata en malhonoro, ĝi releviĝas en gloro;
 
 ĝi estas semata en malforteco, ĝi releviĝas en potenco; 44 ĝi estas
 
-333
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 semata laŭanima korpo, ĝi releviĝas laŭspirita korpo. Se ekzistas
 
@@ -20076,7 +19382,7 @@ unua homo estas el la tero, elpolva; la dua homo estas el la ĉielo. 48
 
 Kia estas la elpolvulo, tiaj estas ankaŭ la elpolvuloj; kaj kia estas la
 
-elĉielulo, tiaj estas ankaŭ la elĉieluloj. 49 Kaj kiel ni portis la figuron de la elpolvulo, tiel same ni portos la figuron de la elĉielulo. 
+elĉielulo, tiaj estas ankaŭ la elĉieluloj. 49 Kaj kiel ni portis la figuron de la elpolvulo, tiel same ni portos la figuron de la elĉielulo.
 
 50 Kaj la jenon mi diras, fratoj, ke karno kaj sango ne povas he-
 
@@ -20098,15 +19404,15 @@ am plenumiĝos la skribita diro: La morto forglutiĝis en venko. 55 Ho
 
 morto, kie estas via venko? Ho morto, kie estas via pikilo? 56 La pi-
 
-kilo de la morto estas la peko; kaj la forto de la peko estas la leĝo; 
+kilo de la morto estas la peko; kaj la forto de la peko estas la leĝo;
 
 57 sed danko estu al Dio, kiu donas al ni la venkon per nia Sinjoro
 
-Jesuo Kristo. 58 Tial, miaj amataj fratoj, estu firmaj, nemoveblaj, 
+Jesuo Kristo. 58 Tial, miaj amataj fratoj, estu firmaj, nemoveblaj,
 
 ĉiam abundaj en la laboro de la Sinjoro, sciante, ke via penado ne
 
-estas vanta en la Sinjoro. 
+estas vanta en la Sinjoro.
 
 ĉapitro 16
 
@@ -20116,11 +19422,9 @@ eklezioj de Galatujo, tiel ankaŭ vi faru. 2 La unuan tagon de la se-
 
 majno, ĉiu el vi provizu ĉe si laŭ tio, kion li prospere akiris, por ke
 
-334
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ne estu kolektoj tiam, kiam mi venos. 3 Kaj kiam mi alvenos, kiujn
 
@@ -20140,61 +19444,57 @@ pon ĉe vi, se la Sinjoro permesos. 8 Sed mi restos en Efeso ĝis Pen-
 
 tekosto; 9 ĉar pordo granda kaj efika malfermiĝis al mi, kaj estas
 
-multaj kontraŭstarantoj. 
+multaj kontraŭstarantoj.
 
 10 Se Timoteo venos, zorgu, ke li estu ĉe vi sentime; ĉar li faras
 
-la laboron de la Sinjoro, kiel mi ankaŭ; 11 neniu do lin malestimu. 
+la laboron de la Sinjoro, kiel mi ankaŭ; 11 neniu do lin malestimu.
 
 Sed antaŭen irigu lin en paco, por ke li venu al mi; ĉar mi atendas
 
 lin kun la fratoj. 12 Sed rilate al la frato Apolos, mi multe petegis lin
 
-veni al vi kun la fratoj; sed tute mankis volo veni nun; sed li venos, 
+veni al vi kun la fratoj; sed tute mankis volo veni nun; sed li venos,
 
-kiam li havos oportunan tempon. 
+kiam li havos oportunan tempon.
 
 13 Viglu, staru firme en la fido, viriĝu, fortiĝu. 14 ĉio via estu fa-
 
-rata en amo. 
+rata en amo.
 
-15 Mi petegas vin, fratoj \(vi konas la domon de Stefanas, ke ĝi
+15 Mi petegas vin, fratoj (vi konas la domon de Stefanas, ke ĝi
 
 estas la unuaaĵo de la Aąja lando, kaj ke ili sin dediĉis al la servo
 
-de la sanktuloj\), 16 ke vi ankaŭ submetiĝu al tiaj, kaj al ĉiu kunhel-
+de la sanktuloj), 16 ke vi ankaŭ submetiĝu al tiaj, kaj al ĉiu kunhel-
 
 panto kaj kunlaboranto. 17 Kaj mi ĝojas pro la alveno de Stefanas kaj
 
 Fortunato kaj Aąiko, tial, ke vian mankaĵon ili plenigis. 18 ĉar ili
 
-refreŝigis mian spiriton kaj vian; rekonu do tiajn. 
+refreŝigis mian spiriton kaj vian; rekonu do tiajn.
 
 19 La eklezioj de Azio vin salutas. Akvila kaj Priskila vin salutas
 
 multe en la Sinjoro, kune kun la eklezio en ilia domo. 20 ĉiuj fratoj
 
-vin salutas. Salutu unu la alian per sankta kiso. 
+vin salutas. Salutu unu la alian per sankta kiso.
 
 21 La saluto de mi, Paŭlo, per mia propra mano. 22 Se iu ne amas
 
 la Sinjoron Jesuo Kristo, li estu anatemita. Maran-ata. 23 La graco de
 
-335
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la Sinjoro Jesuo Kristo estu kun vi. 24 Mia amo estu kun vi ĉiuj en
 
-Kristo Jesuo. Amen. 
+Kristo Jesuo. Amen.
 
-336
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La dua epistolo de la apostolo
 
@@ -20208,7 +19508,7 @@ moteo, al la eklezio de Dio, kiu estas en Korinto, kune kun ĉiuj
 
 sanktuloj, kiuj estas en la tuta Aąja lando: 2 Graco al vi kaj paco de
 
-Dio, nia Patro, kaj de la Sinjoro Jesuo Kristo. 
+Dio, nia Patro, kaj de la Sinjoro Jesuo Kristo.
 
 3 Benata estu la Dio kaj Patro de nia Sinjoro Jesuo Kristo, la Pa-
 
@@ -20220,7 +19520,7 @@ konsolo, per kiu ni mem estas konsolataj de Dio. 5 ĉar kiel la sufe-
 
 roj de Kristo abundas ĉe ni, tiel same abundas ankaŭ per Kristo nia
 
-konsolo. 6 Sed se ni afliktiĝas, tio estas por via konsolo kaj saviĝo; 
+konsolo. 6 Sed se ni afliktiĝas, tio estas por via konsolo kaj saviĝo;
 
 aŭ se ni konsoliĝas, tio estas por via konsolo, kiu energias, per la pa-
 
@@ -20244,17 +19544,15 @@ ni esperis, ke Li ankoraŭ plu nin forsavos; 11 dum vi ankaŭ nin kun-
 
 helpas per via petegado, por ke, pro la donaco donita al ni per mul-
 
-taj personoj, danko estu donata de multaj pro ni. 
+taj personoj, danko estu donata de multaj pro ni.
 
 12 ĉar jen estas nia singratulado, nome la atesto de nia konsci-
 
-337
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-enco, ke en sankteco kaj sincereco antaŭ Dio, ne laŭ homa saĝeco, 
+enco, ke en sankteco kaj sincereco antaŭ Dio, ne laŭ homa saĝeco,
 
 sed laŭ la graco de Dio, ni kondutadis en la mondo, kaj precipe ĉe
 
@@ -20264,25 +19562,25 @@ konsentas, kaj mi esperas, ke vi prikonsentos ĝis la fino; 14 kiel an-
 
 kaŭ vi ja parte prikonsentis pri ni, ke ni estas via singratulado, tiel
 
-same, kiel vi ankaŭ estas la nia en la tago de nia Sinjoro Jesuo. 
+same, kiel vi ankaŭ estas la nia en la tago de nia Sinjoro Jesuo.
 
 15 Kaj en ĉi tiu fidado mi intencis veni unue al vi, por ke vi havu
 
-duoblan gracon, 16 kaj vizitinte vin survoje, trairi en Makedonujon, 
+duoblan gracon, 16 kaj vizitinte vin survoje, trairi en Makedonujon,
 
 kaj denove el Makedonujo veni al vi, kaj de vi esti antaŭen irigita
 
-al Judujo. 17 Kiam mi do tiel intencis, ĉu mi elmontris kapricemon? 
+al Judujo. 17 Kiam mi do tiel intencis, ĉu mi elmontris kapricemon?
 
-aŭ kion mi celas, ĉu mi tion celas laŭkarne, tiel ke estu ĉe mi la Jes, 
+aŭ kion mi celas, ĉu mi tion celas laŭkarne, tiel ke estu ĉe mi la Jes,
 
 Jes, kaj la Ne, Ne? 18 Sed, kiel Dio estas fidela, nia parolo al vi ne
 
 estas Jes kaj Ne. 19 ĉar la Filo de Dio, Jesuo Kristo, kiu de ni estas
 
-predikita inter vi, de mi kaj Silvano kaj Timoteo, ne estis Jes kaj Ne, 
+predikita inter vi, de mi kaj Silvano kaj Timoteo, ne estis Jes kaj Ne,
 
-sed en li la Jes estiĝis. 20 ĉar kiel ajn multaj estas la promesoj de Dio, 
+sed en li la Jes estiĝis. 20 ĉar kiel ajn multaj estas la promesoj de Dio,
 
 en li estas la Jes; tial ankaŭ per li estas la Amen, por la gloro al Dio
 
@@ -20290,7 +19588,7 @@ per ni. 21 Kaj tiu, kiu fortikigas nin kune kun vi en Kristo kaj sank-
 
 toleis nin, estas Dio, 22 kiu ankaŭ nin sigelis kaj donis al ni la antaŭ-
 
-garantiaĵon de la Spirito en niaj koroj. 
+garantiaĵon de la Spirito en niaj koroj.
 
 23 Sed mi vokas Dion kiel atestanton sur mian animon, ke por
 
@@ -20298,7 +19596,7 @@ indulgi vin mi ankoraŭ ne venis al Korinto. 24 Ne kvazaŭ ni estrus
 
 super via fido, sed ni estas kunhelpantoj de via ĝojo; ĉar per via fido
 
-vi staras. 
+vi staras.
 
 ĉapitro 2
 
@@ -20310,35 +19608,33 @@ estas malĝojigata de mi? 3 Kaj mi skribis tion saman, por ke, ven-
 
 inte, mi ne havu malĝojon de tiuj, pri kiuj mi devus ĝoji, fidante pri
 
-338
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vi ĉiuj, ke mia ĝojo estas la ĝojo de vi ĉiuj. 4 ĉar el multe da aflikto
 
 kaj kora dolorego mi skribis al vi kun multaj larmoj, ne por ke vi
 
-malĝoju, sed ke vi sciu la amon, kiun mi havas al vi abunde. 
+malĝoju, sed ke vi sciu la amon, kiun mi havas al vi abunde.
 
 5 Sed se iu kaŭzis malĝojon, li kaŭzis malĝojon ne al mi, sed parte
 
-\(por ne tro forte vin premi\) al vi ĉiuj. 6 Sufiĉa al tia homo estas tiu
+(por ne tro forte vin premi) al vi ĉiuj. 6 Sufiĉa al tia homo estas tiu
 
 puno, farita de la plimulto; 7 pro tio, kontraŭe, vi devus lin pardo-
 
 ni kaj konsoli, por ke tia homo neniel forglutiĝu per sia troa mal-
 
-ĝojo. 8 Tial mi petegas vin, ke vi konfirmu al li vian amon. 9 ¯uste
+ĝojo. 8 Tial mi petegas vin, ke vi konfirmu al li vian amon. 9 uste
 
 por tio mi ja skribis, ke mi vin provu, ĉu vi en ĉio estas obeemaj. 10
 
-Sed al kiu vi pardonas ion, mi ankaŭ; ĉar kion mi ankaŭ pardonis, 
+Sed al kiu vi pardonas ion, mi ankaŭ; ĉar kion mi ankaŭ pardonis,
 
 se mi ion pardonis, mi tion faris pro vi antaŭ Kristo, 11 por ke Satano
 
-ne gajnu profiton kontraŭ ni: ĉar ni ne estas sen scio pri liaj ruzoj. 
+ne gajnu profiton kontraŭ ni: ĉar ni ne estas sen scio pri liaj ruzoj.
 
 12 Kiam mi venis al Troas, por disvastigi tie la evangelion de Kris-
 
@@ -20354,29 +19650,27 @@ bonodoron de Sia koniĝo. 15 ĉar ni estas al Dio dolĉa odoro de Kris-
 
 to, en la savatoj, kaj en la pereantoj; 16 al ĉi tiuj, odoro de morto al
 
-morto; al tiuj, odoro de vivo al vivo. Kaj kiu estas taŭga por ĉi tio? 
+morto; al tiuj, odoro de vivo al vivo. Kaj kiu estas taŭga por ĉi tio?
 
-17 ĉar ni ne similas al multaj, kiuj faras la vorton de Dio komercaĵo; 
+17 ĉar ni ne similas al multaj, kiuj faras la vorton de Dio komercaĵo;
 
-sed kun sincereco, kaj kiel per Dio, antaŭ Dio ni parolas en Kristo. 
+sed kun sincereco, kaj kiel per Dio, antaŭ Dio ni parolas en Kristo.
 
 ĉapitro 3
 
-1 ĉu ni denove komencas nin mem rekomendi? aŭ ĉu ni bezonas, 
+1 ĉu ni denove komencas nin mem rekomendi? aŭ ĉu ni bezonas,
 
 kiel iuj, leterojn rekomendajn al vi, aŭ de vi? 2 Vi mem estas nia le-
 
 tero, skribita sur nia koro, kaj konata kaj legata de ĉiuj; 3 ĉar vi mon-
 
-triĝis, ke vi estas letero de Kristo liverita per ni, skribita ne per inko, sed per la Spirito de la vivanta Dio; ne sur ŝtonaj tabeloj, sed sur la
+triĝis, ke vi estas letero de Kristo liverita per ni, skribita ne per , sed per la Spirito de la vivanta Dio; ne sur ŝtonaj tabeloj, sed sur la
 
-339
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-karnaj tabeloj de la koro. 4 Kaj tian fidon ni havas per Kristo al Dio; 
+karnaj tabeloj de la koro. 4 Kaj tian fidon ni havas per Kristo al Dio;
 
 5 ne kvazaŭ ni taŭgas ion fari per ni mem, sed nia taŭgeco estas el
 
@@ -20392,7 +19686,7 @@ povis fikse rigardi la vizaĝon de Moseo pro lia vizaĝa brileco, jam
 
 tamen malpliiĝanta, 8 kiel do la administrado spirita ne estos pli
 
-multe en gloro? 9 ĉar se la administrado de kondamno estas gloro, 
+multe en gloro? 9 ĉar se la administrado de kondamno estas gloro,
 
 multe pli abunde la administrado de justeco superas en gloro. 10 ĉar
 
@@ -20400,13 +19694,13 @@ vere tio, kio havis gloron, ne estis glorigita en ĉi tiu rilato, pro la
 
 superabunda gloro. 11 ĉar se tio, kio forpasas, havis gloron, anko-
 
-raŭ pli multe tio, kio restadas, estas en gloro. 
+raŭ pli multe tio, kio restadas, estas en gloro.
 
 12 Havante do tian esperon, ni uzas grandan liberecon de paro-
 
 lo, 13 kaj ne kiel Moseo, kiu metis vualon sur sian vizaĝon, por ke
 
-la Izraelidoj ne fikse rigardu ĝis finiĝo de tio, kio estis forpasanta; 
+la Izraelidoj ne fikse rigardu ĝis finiĝo de tio, kio estis forpasanta;
 
 14 sed iliaj animoj sensentiĝis; ĉar eĉ ĝis hodiaŭ, ĉe la legado de la
 
@@ -20422,7 +19716,7 @@ Spirito de la Sinjoro, tie estas libereco. 18 Sed ni ĉiuj, per nevualita
 
 vizaĝo spegulante la gloron de la Sinjoro, transformiĝas en la saman
 
-bildon, de gloro al gloro, kiel el la Sinjoro la Spirito. 
+bildon, de gloro al gloro, kiel el la Sinjoro la Spirito.
 
 ĉapitro 4
 
@@ -20432,11 +19726,9 @@ ton, ni ne senkuraĝiĝas; 2 sed ni formetis la kaŝitajn aferojn de hon-
 
 to, ne irante kun ruzeco kaj ne falsante la vorton de Dio, sed per
 
-340
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 elmontro de la vero rekomendante nin al ĉies konscienco antaŭ
 
@@ -20454,7 +19746,7 @@ kiel viajn servistojn pro Jesuo. 6 ĉar Dio, kiu diris: El mallumo lumo
 
 brilos, Tiu brilis en niaj koroj, por doni lumon de la scio de la glo-
 
-ro de Dio en la vizaĝo de Jesuo Kristo. 
+ro de Dio en la vizaĝo de Jesuo Kristo.
 
 7 Sed ni havas ĉi tiun trezoron en argilaj vazoj, por ke la treega
 
@@ -20482,7 +19774,7 @@ ankaŭ kun Jesuo kaj prezentos nin kun vi. 15 ĉar ĉio estas pro vi, por
 
 ke la graco, multobligita per multaj, abundigu la dankon al la glo-
 
-ro de Dio. 
+ro de Dio.
 
 16 Pro tio ni ne senkuraĝiĝas; sed kvankam nia ekstera homo ka-
 
@@ -20490,21 +19782,19 @@ dukiĝas, tamen nia interna homo renoviĝas tagon post tago. 17 ĉar
 
 nia malpeza kaj momenta sufero elfaras por ni, pli kaj pli ekster
 
-mezuro, eternan pezon da gloro; 18 dum ni rigardas ne la vidataĵojn, 
+mezuro, eternan pezon da gloro; 18 dum ni rigardas ne la vidataĵojn,
 
 sed la nevidataĵojn; ĉar la vidataĵoj estas tempaj, sed la nevidataĵoj
 
-estas eternaj. 
+estas eternaj.
 
-341
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 5
 
-1 ĉar ni scias, ke se la surtera loĝejo de nia tabernaklo dissolviĝos, 
+1 ĉar ni scias, ke se la surtera loĝejo de nia tabernaklo dissolviĝos,
 
 ni havas de Dio konstruaĵon, domon ne manfaritan, eternan en la
 
@@ -20518,13 +19808,13 @@ pro tio, ke ni deziras senvestiĝi, sed ĉar ni deziras survestiĝi, por ke
 
 la mortaĵo estu elsorbita de la vivo. 5 Kaj Tiu, kiu nin elfaris por ĉi
 
-tiu celo, estas Dio, kiu donis al ni la antaŭgarantiaĵon de la Spirito. 
+tiu celo, estas Dio, kiu donis al ni la antaŭgarantiaĵon de la Spirito.
 
 6 Ni do ĉiam ĝoje kuraĝas, kaj ni scias, ke dum ni ĉeestas en la kor-
 
-po, ni forestas de la Sinjoro 7 \(ĉar ni iradas fide, ne vide\); 8 ni ĝoje
+po, ni forestas de la Sinjoro 7 (ĉar ni iradas fide, ne vide); 8 ni ĝoje
 
-kuraĝas, kaj ni plivolas foresti de la korpo kaj ĉeesti kun la Sinjoro. 
+kuraĝas, kaj ni plivolas foresti de la korpo kaj ĉeesti kun la Sinjoro.
 
 9 Tial ankaŭ ni ambicias, ĉu ĉeestante aŭ forestante, esti akceptin-
 
@@ -20532,7 +19822,7 @@ daj ĉe li. 10 ĉar ni ĉiuj devos elmontriĝi antaŭ la tribunala seĝo de
 
 Kristo, por ke ĉiu ricevu tion, kion li faris en la korpo, laŭ siaj fa-
 
-ritaĵoj, ĉu bonaj aŭ malbonaj. 
+ritaĵoj, ĉu bonaj aŭ malbonaj.
 
 11 Sciante do la timon al la Sinjoro, ni celas konvinki homojn, sed
 
@@ -20560,39 +19850,37 @@ vaj. 18 Sed ĉio estas de Dio, kiu repacigis nin al Si mem per Kristo
 
 kaj donis al ni la administradon de la repacigo; 19 nome, ke Dio estis
 
-342
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 en Kristo, repacigante la mondon al Si, ne alkalkulante al ili la kul-
 
-pojn, kaj komisiis al ni la vorton repacigan. 
+pojn, kaj komisiis al ni la vorton repacigan.
 
 20 Ni do estas ambasadoroj pro Kristo, kvazaŭ Dio per ni peta-
 
 dus; ni vin petegas pro Kristo, repaciĝu al Dio. 21 Tiun, kiu ne konis
 
-pekon, Li faris peko pro ni; por ke ni fariĝu justeco de Dio en li. 
+pekon, Li faris peko pro ni; por ke ni fariĝu justeco de Dio en li.
 
 ĉapitro 6
 
 1 Kaj kunlaborante kun li, ni petegas ankaŭ, ke vi ne vane akceptu
 
-la gracon de Dio 2 \(ĉar Li diris:
+la gracon de Dio 2 (ĉar Li diris:
 
-En tempo de favoro Mi aŭskultis vin, 
+En tempo de favoro Mi aŭskultis vin,
 
-Kaj en tago de savo Mi helpis vin; 
+Kaj en tago de savo Mi helpis vin;
 
-jen nun la tempo de favoro; jen nun la tago de savo\); 3 ni donu
+jen nun la tempo de favoro; jen nun la tago de savo); 3 ni donu
 
 en nenio okazon por maledifo, por ke oni ne kulpigu nian adminis-
 
 tradon; 4 sed en ĉio ni aprobigu nin, kiel servantoj de Dio, en mul-
 
-ta pacienco, en suferoj, en afliktoj, en malfacilaĵoj, 5 en batovundoj, 
+ta pacienco, en suferoj, en afliktoj, en malfacilaĵoj, 5 en batovundoj,
 
 en malliberigoj, en tumultoj, en laboroj, en maldormoj, en malsa-
 
@@ -20606,27 +19894,25 @@ malgloro, per malbonfamo kaj bonfamo; kiel trompantoj, tamen ve-
 
 raj; 9 kiel nekonataj, tamen bone konataj; kiel mortantaj, kaj jen ni
 
-vivas; kiel pune korektataj, tamen ne mortigataj; 10 kiel dolorplenaj, 
+vivas; kiel pune korektataj, tamen ne mortigataj; 10 kiel dolorplenaj,
 
 tamen ĉiam ĝojantaj; kiel malriĉaj, tamen multajn riĉigantaj; kiel
 
-nenion havantaj, tamen posedantaj ĉion. 
+nenion havantaj, tamen posedantaj ĉion.
 
 11 Nia buŝo estas malfermita al vi, ho Korintanoj, nia koro estas
 
 plivastigita. 12 Vi ne estas malvastigitaj en ni, sed vi estas malvasti-
 
-gitaj en viaj propraj internaĵoj. 13 Pro rekompenco samspeca do \(mi
+gitaj en viaj propraj internaĵoj. 13 Pro rekompenco samspeca do (mi
 
-parolas kiel al infanoj\) vi ankaŭ estu plivastigitaj. 
+parolas kiel al infanoj) vi ankaŭ estu plivastigitaj.
 
 14 Ne estiĝu kunjuguloj maltaŭge kun nekredantoj; ĉar kian par-
 
-343
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 toprenon havas justeco kun maljusteco? aŭ kian komunaĵon havas
 
@@ -20640,23 +19926,23 @@ anta; kiel diris Dio: Mi loĝos inter ili, kaj Mi iros inter ili; kaj Mi es-
 
 tos ilia Dio, kaj ili estos Mia popolo. 17 Tial
 
-Eliru el inter ili, kaj estu apartaj, diras la Eternulo, 
+Eliru el inter ili, kaj estu apartaj, diras la Eternulo,
 
-Kaj ne tuŝu malpuraĵon; 
+Kaj ne tuŝu malpuraĵon;
 
-Kaj Mi vin akceptos, 18 Kaj Mi estos por vi Patro, 
+Kaj Mi vin akceptos, 18 Kaj Mi estos por vi Patro,
 
-Kaj vi estos Miaj filoj kaj filinoj, diras la Eternulo Plejpotenca. 
+Kaj vi estos Miaj filoj kaj filinoj, diras la Eternulo Plejpotenca.
 
 ĉapitro 7
 
 1 Havante do ĉi tiujn promesojn, amataj, ni purigu nin de ĉia mal-
 
-pureco karna kaj spirita, perfektigante sanktecon en la timo al Dio. 
+pureco karna kaj spirita, perfektigante sanktecon en la timo al Dio.
 
 2 Malfermu al ni viajn korojn; ni kontraŭ neniu maljuste agis, ni
 
-ruinigis neniun, al neniu ni friponis. 3 Ne por vin kondamni mi tion
+ruinigis neniun, al neniu ni friponis. 3 Ne por vndamni mi tion
 
 diras; ĉar mi antaŭe diris, ke vi estas en niaj koroj, por kune vivi kaj
 
@@ -20664,11 +19950,11 @@ kune morti. 4 Granda estas mia parola libereco al vi, granda estas
 
 mia fiereco pri vi: mi estas plena de konsolo, al mi superabundas la
 
-ĝojo meze de nia tuta aflikto. 
+ĝojo meze de nia tuta aflikto.
 
 5 ĉar eĉ kiam ni jam alvenis en Makedonujon, nia karno tute ne
 
-faciliĝis, sed ni ĉiel depremiĝis; ekstere estis bataloj, interne timoj. 
+faciliĝis, sed ni ĉiel depremiĝis; ekstere estis bataloj, interne timoj.
 
 6 Tamen Dio, kiu konsolas la humilulojn, konsolis nin per la alve-
 
@@ -20678,17 +19964,15 @@ kiu li konsoliĝis pri vi, dum li pridiris al ni vian sopiron, vian dolo-
 
 ron, vian fervoron pro mi; tiel, ke mi ankoraŭ pli ĝojis. 8 ĉar kvan-
 
-kam mi vin malĝojigis per mia epistolo, mi ne bedaŭras pri tio, 
+kam mi vin malĝojigis per mia epistolo, mi ne bedaŭras pri tio,
 
-kvankam mi ja bedaŭras; ĉar mi vidas, ke tiu epistolo vin malĝojigis, 
+kvankam mi ja bedaŭras; ĉar mi vidas, ke tiu epistolo vin malĝojigis,
 
 sed nur mallonge. 9 Mi nun ĝojas, ne pro tio, ke vi malĝojis, sed pro
 
-344
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tio, ke vi malĝojis ĝis pento; ĉar vi laŭ Dio malĝojis, por ke vi havu
 
@@ -20700,7 +19984,7 @@ ton. 11 ĉar jen kian zorgemon tiu sama malĝojo laŭ Dio elfaris en
 
 vi, plue kian senkulpigon, plue kian indignon, plue kian timon, plue
 
-kian sopiron, plue kian fervoron, plue kian venĝon\! En ĉio vi el-
+kian sopiron, plue kian fervoron, plue kian venĝon! En ĉio vi el-
 
 montris vin puraj pri la afero. 12 Tial kvankam mi skribis al vi, ta-
 
@@ -20720,7 +20004,7 @@ mi faris antaŭ Tito, montriĝis vera. 15 Kaj lia interna amo pli abun-
 
 das al vi, dum li memoras la obeadon de vi ĉiuj, kiel kun timo kaj
 
-tremo vi lin akceptis. 16 Mi ĝojas, ke en ĉio mi povas fidi al vi. 
+tremo vi lin akceptis. 16 Mi ĝojas, ke en ĉio mi povas fidi al vi.
 
 ĉapitro 8
 
@@ -20734,19 +20018,17 @@ ilia malavareco. 3 ĉar mi konstatas, ke laŭ sia povo—jes, kaj super
 
 sia povo—ili donis memvole, 4 petegante nin per multe da petado
 
-fari tiun komplezon kaj la komunan helpservadon al la sanktuloj; 
+fari tiun komplezon kaj la komunan helpservadon al la sanktuloj;
 
 5 kaj ne kiel ni esperis, sed unue ili sin dediĉis al la Sinjoro, kaj al ni per la volo de Dio. 6 Tiel, ke ni instigis Titon, ke kiel li antaŭe komencis, tiel same li perfektigu en vi ĉi tiun pluan gracon. 7 Sed kiel al
 
-vi ĉio abundas: fido kaj parolo kaj scio kaj fervoro kaj via amo al ni, 
+vi ĉio abundas: fido kaj parolo kaj scio kaj fervoro kaj via amo al ni,
 
 tiel abundu al vi ankaŭ ĉi tiu graco. 8 Mi parolas ne ordonante, sed
 
-345
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 provante per la fervoro de aliaj la sincerecon de via amo ankaŭ. 9
 
@@ -20758,7 +20040,7 @@ riĉaj. 10 Kaj en tio mi donas mian opinion; ĉar ĉi tio utilas por vi, kiuj
 
 unuaj komencis, antaŭ unu jaro, ne nur fari, sed ankaŭ voli. 11 Sed
 
-nun kompletigu la faradon ankaŭ; tiel ke, kiel estis la volonteco voli, 
+nun kompletigu la faradon ankaŭ; tiel ke, kiel estis la volonteco voli,
 
 tiel ankaŭ estu la plenumo el via havo. 12 ĉar kie ekzistas la volon-
 
@@ -20772,7 +20054,7 @@ abundo fariĝu por via manko, por ke estu egaleco; 15 kiel estas skri-
 
 bite: Tiu, kiu kolektis pli, ne havis superflue, kaj tiu, kiu kolektis
 
-malpli, ne havis mankon. 
+malpli, ne havis mankon.
 
 16 Sed danko estu al Dio, kiu metas en la koron de Tito la sam-
 
@@ -20802,13 +20084,11 @@ nulo kaj mia kunlaboranto rilate al vi; se pri niaj fratoj, ili estas apo-
 
 stoloj de eklezioj, la gloro de Kristo. 24 Vi do elmontru al ili antaŭ
 
-la eklezioj la pruvon de via amo kaj de nia fanfaronado pro vi. 
+la eklezioj la pruvon de via amo kaj de nia fanfaronado pro vi.
 
-346
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 9
 
@@ -20824,13 +20104,13 @@ nia fanfaronado pro vi ne fariĝu vanta rilate al ĉi tio, sed, kiel mi
 
 diris, por ke vi estu pretaj, 4 por ke, se venus kune kun mi iuj el
 
-Makedonujo kaj trovus vin ne pretaj, ni \(por ne diri, vi\) ne hontu
+Makedonujo kaj trovus vin ne pretaj, ni (por ne diri, vi) ne hontu
 
 pro ĉi tiu fido. 5 Mi do opiniis necesa, peti la fratojn, ke ili antaŭe
 
-iru al vi, kaj antaŭe pretigu vian de longe promesitan helpmonon, 
+iru al vi, kaj antaŭe pretigu vian de longe promesitan helpmonon,
 
-por ke tio estu preta, kiel volonte donita, kaj ne kiel eldevigita. 
+por ke tio estu preta, kiel volonte donita, kaj ne kiel eldevigita.
 
 6 Sed jen: Tiu, kiu semas ŝpare, ankaŭ rikoltos ŝpare; kaj tiu, kiu
 
@@ -20844,11 +20124,11 @@ ke vi, havante ĉiam en ĉio ĉian sufiĉecon, abunde rilatu al ĉia bona
 
 faro; 9 kiel estas skribite:
 
-Li ŝutis kaj donis al la malriĉuloj; 
+Li ŝutis kaj donis al la malriĉuloj;
 
-Lia justeco restas eterne. 
+Lia justeco restas eterne.
 
-10 Kaj Tiu, kiu donas semon al la semanto kaj panon por nutraĵo, 
+10 Kaj Tiu, kiu donas semon al la semanto kaj panon por nutraĵo,
 
 donos kaj multobligos vian semotan semon, kaj plimultigos la fruk-
 
@@ -20868,13 +20148,11 @@ kaj al ĉiuj; 14 dum ili mem ankaŭ, per petado por vi, tre sopiras al
 
 vi pro la grandega graco de Dio en vi. 15 Danko estu al Dio pro Lia
 
-neesprimebla donaco. 
+neesprimebla donaco.
 
-347
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 10
 
@@ -20888,11 +20166,11 @@ raĝu per la insisteco, per kiu mi bontrovas kuraĝi kontraŭ iuj, kiuj
 
 rigardas nin kiel laŭkarne iradantajn. 3 ĉar kvankam ni iradas en
 
-karno, tamen ni ne militadas laŭ karno 4 \(ĉar la iloj de nia milita-
+karno, tamen ni ne militadas laŭ karno 4 (ĉar la iloj de nia milita-
 
 do estas ne laŭkarnaj, sed potencaj antaŭ Dio por la deĵetado de
 
-fortikaĵoj\); 5 deĵetante diskutojn, kaj ĉian altaĵon levatan kontraŭ la
+fortikaĵoj); 5 deĵetante diskutojn, kaj ĉian altaĵon levatan kontraŭ la
 
 scio konforma al Dio, kaj ekkaptante ĉiun penson al la obeo al Kris-
 
@@ -20904,9 +20182,9 @@ mem, ke li apartenas al Kristo, li denove pripensu en si mem, ke kiel
 
 li apartenas al Kristo, tiel same ankaŭ ni. 8 ĉar eĉ se mi fierus iom
 
-supermezure pri nia aŭtoritato \(kiun donis la Sinjoro, por vin edi-
+supermezure pri nia aŭtoritato (kiun donis la Sinjoro, por vin edi-
 
-fi, kaj ne por vin deĵeti\), mi ne hontus; 9 por ke ne ŝajnu, kvazaŭ mi
+fi, kaj ne por vin deĵeti), mi ne hontus; 9 por ke ne ŝajnu, kvazaŭ mi
 
 volus timigi vin per miaj leteroj. 10 ĉar, oni diras, liaj leteroj estas
 
@@ -20936,15 +20214,13 @@ prediki la evangelion ĝis la regionoj preter vi, kaj ne fieri pri mal-
 
 propra mezurilo rilate al aferoj jam faritaj. 17 Sed kiu fieras, tiu fieru
 
-348
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 en la Eternulo. 18 ĉar ne tiu, kiu sin mem rekomendas, estas akcep-
 
-tata, sed tiu, kiun rekomendas la Sinjoro. 
+tata, sed tiu, kiun rekomendas la Sinjoro.
 
 ĉapitro 11
 
@@ -20960,9 +20236,9 @@ serpento per sia ruzeco, viaj animoj iel dekliniĝos for de la simpleco
 
 kaj la ĉasteco, kiu estas en Kristo. 4 ĉar se iu vizitanto predikas alian
 
-Kriston, kiun ni ne predikis, aŭ se vi ricevas malsaman spiriton, 
+Kriston, kiun ni ne predikis, aŭ se vi ricevas malsaman spiriton,
 
-kiun vi ne ricevis, aŭ malsaman evangelion, kiun vi ne akceptis, 
+kiun vi ne ricevis, aŭ malsaman evangelion, kiun vi ne akceptis,
 
 facilanime vi lin toleras. 5 ĉar mi opinias, ke mi neniel malsuperas
 
@@ -20988,23 +20264,21 @@ ta kontraŭ mi en la regionoj Aąjaj. 11 Kial? ĉu tial, ke mi vin ne
 
 amas? Dio scias. 12 Sed kiel mi faras, tiel mi ankaŭ faros, por forigi
 
-la pretekston al tiuj, kiuj deziras pretekston, por ke, en kio ili fieras, 
+la pretekston al tiuj, kiuj deziras pretekston, por ke, en kio ili fieras,
 
-ili troviĝu samaj, kiel ni. 13 ĉar tiaj homoj estas falsaj apostoloj, 
+ili troviĝu samaj, kiel ni. 13 ĉar tiaj homoj estas falsaj apostoloj,
 
-trompemaj laboristoj, sin aliformante kvazaŭ apostolojn de Kristo. 
+trompemaj laboristoj, sin aliformante kvazaŭ apostolojn de Kristo.
 
 14 Kaj nenia miro; ĉar Satano mem sin aliformas kvazaŭ anĝelon de
 
-349
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 lumo. 15 Estas do nenio granda, se liaj servantoj ankaŭ sin aliformas
 
-kvazaŭ servantojn de justeco; ilia finiĝo estos laŭ iliaj faroj. 
+kvazaŭ servantojn de justeco; ilia finiĝo estos laŭ iliaj faroj.
 
 16 Denove mi diras: Neniu opiniu min malsaĝa; sed se vi ja tiel
 
@@ -21022,15 +20296,15 @@ sklavigas, se li vin formanĝas, se li vin kaptas, se li sin altigas, se li
 
 batas al vi la vizaĝon. 21 Mi parolas kvazaŭ per sinmallaŭdo, kvazaŭ
 
-ni estus malfortiĝintaj. Tamen pri kio iu kuraĝas, pri tio \(mi paro-
+ni estus malfortiĝintaj. Tamen pri kio iu kuraĝas, pri tio (mi paro-
 
-las en malsaĝeco\) mi ankaŭ kuraĝas. 22 ĉu ili estas Hebreoj? mi an-
+las en malsaĝeco) mi ankaŭ kuraĝas. 22 ĉu ili estas Hebreoj? mi an-
 
 kaŭ. ĉu ili estas Izraelidoj? mi ankaŭ. ĉu ili estas el la idaro de Ab-
 
-raham? mi ankaŭ. 23 ĉu ili estas servantoj al Kristo? \(mi parolas kiel
+raham? mi ankaŭ. 23 ĉu ili estas servantoj al Kristo? (mi parolas kiel
 
-frenezulo\) mi plie; en laboroj pli abunde, en malliberejoj pli abun-
+frenezulo) mi plie; en laboroj pli abunde, en malliberejoj pli abun-
 
 de, en batoj supermezure, en mortiĝoj ofte. 24 De la Judoj kvinfoje
 
@@ -21050,7 +20324,7 @@ ro kaj sufero, en oftaj sendormiĝoj, en malsato kaj soifo, en oftaj
 
 fastoj, en malvarmo kaj senvesteco. 28 Krom tiuj aferoj eksteraj es-
 
-tas tio, kio min premas ĉiutage, nome la zorgado pri ĉiuj eklezioj. 
+tas tio, kio min premas ĉiutage, nome la zorgado pri ĉiuj eklezioj.
 
 29 Kiu estas malforta, kaj mi ne estas malforta? kiu estas faligata, kaj
 
@@ -21062,15 +20336,13 @@ Jesuo, Tiu, kiu ĉiam estas benata, scias, ke mi ne mensogas. 32 En
 
 Damasko, la urbestro sub la reĝo Aretas starigis gardistaron en la
 
-350
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 urbo de la Damaskanoj, por min kapti; 33 kaj tra fenestro oni min
 
-delasis laŭflanke de la muro en korbo, kaj mi eliĝis de liaj manoj. 
+delasis laŭflanke de la muro en korbo, kaj mi eliĝis de liaj manoj.
 
 ĉapitro 12
 
@@ -21078,19 +20350,19 @@ delasis laŭflanke de la muro en korbo, kaj mi eliĝis de liaj manoj.
 
 al vizioj kaj malkaŝoj de la Sinjoro. 2 Mi konas viron en Kristo, an-
 
-taŭ dek kvar jaroj \(ĉu en la korpo, mi ne scias, ĉu ekster la korpo, 
+taŭ dek kvar jaroj (ĉu en la korpo, mi ne scias, ĉu ekster la korpo,
 
-mi ne scias; Dio scias\) eklevitan ĝis en la trian ĉielon; 3 kaj mi scias
+mi ne scias; Dio scias) eklevitan ĝis en la trian ĉielon; 3 kaj mi scias
 
-pri la tiela viro \(ĉu en la korpo, aŭ ekster la korpo, mi ne scias; Dio
+pri la tiela viro (ĉu en la korpo, aŭ ekster la korpo, mi ne scias; Dio
 
-scias\), 4 ke li estis eklevita en Paradizon, kaj aŭdis nedireblajn vor-
+scias), 4 ke li estis eklevita en Paradizon, kaj aŭdis nedireblajn vor-
 
 tojn, kiujn ne estas permesate al homo paroli. 5 Pro tia homo mi
 
-fieros; sed pro mi mem mi ne fieros, krom rilate al miaj malfortaĵoj. 
+fieros; sed pro mi mem mi ne fieros, krom rilate al miaj malfortaĵoj.
 
-6 ĉar se mi deziros fieri, mi ne estos malsaĝa; ĉar mi diros la veron; 
+6 ĉar se mi deziros fieri, mi ne estos malsaĝa; ĉar mi diros la veron;
 
 sed mi min detenas, por ke neniu min opiniu supera ol tia, kia li
 
@@ -21098,7 +20370,7 @@ vidas min, aŭ aŭdas ĉe mi. 7 Kaj pro la treega grandeco de la mal-
 
 kaŝoj—por ke mi ne tro altiĝu, estis donita al mi dornego por la
 
-karno, sendito de Satano, por min kontuzi, por ke mi ne tro altiĝu. 
+karno, sendito de Satano, por mntuzi, por ke mi ne tro altiĝu.
 
 8 Pri tio mi petegis trifoje la Sinjoron, ke ĝi foriru de mi. 9 Kaj li di-
 
@@ -21110,9 +20382,9 @@ ke la potenco de Kristo kovru min. 10 Mi do plezuron havas en mal-
 
 fortaĵoj, en atencoj, en bezonegoj, en persekutoj, en suferoj, pro
 
-Kristo; ĉar kiam mi estas malforta, tiam mi estas forta. 
+Kristo; ĉar kiam mi estas malforta, tiam mi estas forta.
 
-11 Mi malsaĝiĝis; vi min devigis; ĉar mi devus estis laŭdata de vi; 
+11 Mi malsaĝiĝis; vi min devigis; ĉar mi devus estis laŭdata de vi;
 
 ĉar en nenio mi malsuperis la plej eminentajn apostolojn, kvankam
 
@@ -21122,13 +20394,11 @@ mi estas nenio. 12 Vere la signoj de apostolo estis elfaritaj inter vi en
 
 vi fariĝis malsuperaj kompare al la aliaj eklezioj, krom en tio, ke mi
 
-mem ne ŝarĝiĝis al vi? pardonu al mi ĉi tiun maljustaĵon. 
+mem ne ŝarĝiĝis al vi? pardonu al mi ĉi tiun maljustaĵon.
 
-351
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 14 Jen la trian fojon mi min tenas preta veni al vi; kaj mi ne far-
 
@@ -21136,15 +20406,15 @@ iĝos ŝarĝo por vi, ĉar mi celas ne viajn, sed vin; ĉar devus provizi ne
 
 la idoj por la gepatroj, sed la gepatroj por la idoj. 15 Kaj plej ĝoje mi
 
-elspezos kaj elspeziĝos por viaj animoj. Se mi vin amas pli abunde, 
+elspezos kaj elspeziĝos por viaj animoj. Se mi vin amas pli abunde,
 
 ĉu mi estas des malpli amata? 16 Tio estu, tamen mi ne estis ŝarĝo
 
 por vi; sed estante ruzema, mi vin kaptis per logo. 17 ĉu mi super-
 
-ruzis vin per iu el tiuj, kiujn mi sendis al vi? 18 Mi instigis al Tito, kaj kune kun li mi sendis la fraton. ĉu Tito vin superruzis? ĉu ni ne iradis laŭ la sama Spirito? ĉu ni ne iradis en la samaj piedosignoj? 
+ruzis vin per iu el tiuj, kiujn mi sendis al vi? 18 Mi instigis al Tito, kaj kune kun li mi sendis la fraton. ĉu Tito vin superruzis? ĉu ni ne iradis laŭ la sama Spirito? ĉu ni ne iradis en la samaj piedosignoj?
 
-19 Vi ankoraŭ nun ĉiam pensas, ke ni nin senkulpigas antaŭ vi. 
+19 Vi ankoraŭ nun ĉiam pensas, ke ni nin senkulpigas antaŭ vi.
 
 Antaŭ Dio, ni parolas en Kristo. Sed ĉio, amataj miaj, estas por via
 
@@ -21152,19 +20422,19 @@ edifo. 20 ĉar mi timas, ke veninte, mi iel ne trovos vin tiaj, kiajn mi
 
 volas; kaj ke mi mem estos trovata tia, kian vi ne volas; ke iel estos
 
-malpaco, ĵaluzo, koleroj, partioj, kalumnioj, murmurado, ŝveliĝoj, 
+malpaco, ĵaluzo, koleroj, partioj, kalumnioj, murmurado, ŝveliĝoj,
 
-tumultoj; 21 ke kiam mi revenos, mia Dio min humiligos antaŭ vi, 
+tumultoj; 21 ke kiam mi revenos, mia Dio min humiligos antaŭ vi,
 
 kaj mi malĝojos pro multaj, kiuj jam antaŭe pekis kaj ne pentis pri
 
-la malpureco kaj adulto kaj volupto, kiujn ili faris. 
+la malpureco kaj adulto kaj volupto, kiujn ili faris.
 
 ĉapitro 13
 
 1 Jen la trian fojon mi venas al vi. Laŭ la diro de du atestantoj aŭ tri
 
-ĉiu vorto estu konfirmita. 2 Mi antaŭdiris, kaj mi nun antaŭdiras, 
+ĉiu vorto estu konfirmita. 2 Mi antaŭdiris, kaj mi nun antaŭdiras,
 
 kiel ĉeestante la duan fojon, tiel nun forestante, al la jam pekintaj
 
@@ -21182,17 +20452,15 @@ vin mem, ĉu vi estas en la fido; ekzamenu vin mem. Aŭ ĉu vi ne sci-
 
 as pri vi mem, ke Jesuo Kristo estas en vi? se ja vi ne estas malapro-
 
-352
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-bindaj. 6 Sed mi esperas, ke vi sciiĝos, ke ni ne estas malaprobindaj. 
+bindaj. 6 Sed mi esperas, ke vi sciiĝos, ke ni ne estas malaprobindaj.
 
 7 Ni preĝas al Dio, ke vi faru nenian malbonon; ne por tio, ke ni
 
-montriĝu aprobataj, sed por ke vi faradu tion, kio estas honorinda, 
+montriĝu aprobataj, sed por ke vi faradu tion, kio estas honorinda,
 
 eĉ kvankam ni estus malaprobindaj. 8 ĉar ni ne povas fari ion kon-
 
@@ -21204,25 +20472,23 @@ tio mi skribas ĉi tion, forestante, por ke, ĉeestante, mi ne agu severe
 
 laŭ la aŭtoritato, kiun la Sinjoro donis al mi por edifado kaj ne por
 
-deĵetado. 
+deĵetado.
 
 11 Fine, fratoj, adiaŭ. Perfektiĝu, konsoliĝu, estu unuanimaj, vivu
 
 pace; kaj la Dio de amo kaj paco estos ĉe vi. 12 Salutu unu la alian
 
-per sankta kiso. 
+per sankta kiso.
 
-13 ĉiuj sanktuloj vin salutas. 
+13 ĉiuj sanktuloj vin salutas.
 
 14 La graco de la Sinjoro Jesuo Kristo kaj la amo de Dio kaj la
 
-kuneco de la Sankta Spirito estu kun vi ĉiuj. 
+kuneco de la Sankta Spirito estu kun vi ĉiuj.
 
-353
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -21230,15 +20496,15 @@ al la Galatoj
 
 ĉapitro 1
 
-1 Paŭlo, apostolo \(ne de homoj, nek per homo, sed per Jesuo Kris-
+1 Paŭlo, apostolo (ne de homoj, nek per homo, sed per Jesuo Kris-
 
-to, kaj Dio, la Patro, kiu levis lin el la mortintoj\), 2 kaj ĉiuj fratoj, kiuj estas kun mi, al la eklezioj de Galatujo: 3 Graco al vi kaj paco de Dio, 
+to, kaj Dio, la Patro, kiu levis lin el la mortintoj), 2 kaj ĉiuj fratoj, kiuj estas kun mi, al la eklezioj de Galatujo: 3 Graco al vi kaj paco de Dio,
 
 la Patro, kaj de nia Sinjoro Jesuo Kristo, 4 kiu sin donis pro niaj pe-
 
 koj, por liberigi nin el la nuna malbona mondo, laŭ la volo de nia
 
-Dio kaj Patro; 5 al kiu estu la gloro por ĉiam kaj eterne. Amen. 
+Dio kaj Patro; 5 al kiu estu la gloro por ĉiam kaj eterne. Amen.
 
 6 Mi miras, ke tiel rapide vi foriĝas for de Tiu, kiu vokis vin en la
 
@@ -21252,15 +20518,15 @@ ian evangelion krom tiu, kiun ni jam al vi instruis, tiu estu anate-
 
 mita. 9 Kiel ni antaŭe diris, tiel nun mi denove diras: Se iu al vi in-
 
-struas ian evangelion krom tiu, kiun vi ricevis, tiu estu anatemita. 
+struas ian evangelion krom tiu, kiun vi ricevis, tiu estu anatemita.
 
 10 ĉar ĉu mi nun influas homojn, aŭ Dion? aŭ ĉu mi celas plaĉi al
 
 homoj? se mi ankoraŭ nun plaĉus al homoj, mi ne estus servisto de
 
-Kristo. 
+Kristo.
 
-11 ĉar mi sciigas vin, fratoj, rilate al la evangelio predikita de mi, 
+11 ĉar mi sciigas vin, fratoj, rilate al la evangelio predikita de mi,
 
 ke ĝi ne estas laŭ homo. 12 ĉar mi ne ricevis ĝin de homo, kaj ĝi ne
 
@@ -21274,11 +20540,9 @@ Judismo, ol multaj miaj samaĝuloj en mia nacio, estante multe pli
 
 fervoranima pri la tradicioj de miaj prapatroj. 15 Sed kiam bonvole
 
-354
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 plaĉis al Dio, kiu el la ventro de mia patrino apartigis min kaj per
 
@@ -21288,7 +20552,7 @@ diku lin inter la nacianoj: mi ne konsiliĝis kun karno kaj sango, 17
 
 kaj mi ne supreniris al Jerusalem, al la antaŭ mi apostoloj, sed mi
 
-tuj foriris en Arabujon, kaj poste mi revenis al Damasko. 
+tuj foriris en Arabujon, kaj poste mi revenis al Damasko.
 
 18 Tiam, post tri jaroj, mi supreniris al Jerusalem, por viziti Ke-
 
@@ -21302,9 +20566,9 @@ en la regionojn de Sirio kaj Kilikio. 22 Kaj mi ankoraŭ estis vizaĝe ne-
 
 konata de la eklezioj de Judujo, kiuj estis en Kristo; 23 sed ili nur
 
-aŭdis la jenon: Kiu nin iam persekutis, tiu nun predikas la fidon, 
+aŭdis la jenon: Kiu nin iam persekutis, tiu nun predikas la fidon,
 
-kiun iam li atakis; 24 kaj ili gloris Dion en mi. 
+kiun iam li atakis; 24 kaj ili gloris Dion en mi.
 
 ĉapitro 2
 
@@ -21316,7 +20580,7 @@ preniris laŭ Dia malkaŝo; kaj mi prezentis al ili la evangelion, kiun
 
 mi predikas inter la nacianoj, sed aparte al la eminentuloj, por ke
 
-mi ne estu vane kuranta, aŭ kurinta. 3 Sed eĉ Titon, kiu estis kun mi, 
+mi ne estu vane kuranta, aŭ kurinta. 3 Sed eĉ Titon, kiu estis kun mi,
 
 estante Greko, oni ne devigis cirkumcidiĝi; 4 sed tio estis pro la kaŝe
 
@@ -21324,25 +20588,23 @@ enportitaj fratoj, kiuj ruze envenis, por spioni nian liberecon en
 
 Kristo Jesuo, por ke ili nin sklavigu; 5 al kiuj ni ne submetiĝis cede-
 
-me, eĉ por unu horo; por ke la vero de la evangelio restadu kun vi. 
+me, eĉ por unu horo; por ke la vero de la evangelio restadu kun vi.
 
-6 Sed el tiuj, kiuj ŝajne iom valoris \(kiaj ajn ili estis, tio por mi ne
+6 Sed el tiuj, kiuj ŝajne iom valoris (kiaj ajn ili estis, tio por mi ne
 
-estas grava: ĉe Dio ne estas personfavorado\)—tiuj valoruloj nenion
+estas grava: ĉe Dio ne estas personfavorado)—tiuj valoruloj nenion
 
 aldonis al mi; 7 sed kontraŭe, kiam ili vidis, ke je la evangelio de la
 
 necirkumcido mi estas komisiita tiel same, kiel Petro je la evange-
 
-lio de la cirkumcido 8 \(ĉar Tiu, kiu forte energiis en Petro por la
+lio de la cirkumcido 8 (ĉar Tiu, kiu forte energiis en Petro por la
 
-355
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-apostoleco de la cirkumcido, ankaŭ energiis en mi por la nacianoj\), 
+apostoleco de la cirkumcido, ankaŭ energiis en mi por la nacianoj),
 
 9 Jakobo kaj Kefas kaj Johano, kiuj ŝajne estis kolonoj, rimarkinte la
 
@@ -21352,7 +20614,7 @@ nojn de kunuleco, por ke ni iru al la nacianoj, kaj ili al la cirkumci-
 
 dularo; 10 kondiĉe nur, ke ni memoru la malriĉulojn, kion ja mi klo-
 
-podis jam fari. 
+podis jam fari.
 
 11 Sed kiam venis Kefas al Antio˛ia, mi lin rezistis vizaĝon kon-
 
@@ -21370,7 +20632,7 @@ de la evangelio, mi diris al Kefas antaŭ ĉiuj: Se vi, estante Judo, na-
 
 ciane vivas, kaj ne kiel Judoj, kial vi devigas la nacianojn agi laŭ Ju-
 
-dismo? 15 Ni, nature Judoj, kaj ne pekuloj el la nacianoj, 16 sciante, 
+dismo? 15 Ni, nature Judoj, kaj ne pekuloj el la nacianoj, 16 sciante,
 
 ke praviĝas homo ne per faroj de la leĝo, sed nur per fido al Jesuo
 
@@ -21380,7 +20642,7 @@ Kristo, kaj ne per faroj de la leĝo; tial, ke per faroj de la leĝo neniu
 
 karno praviĝos. 17 Sed se, dezirante praviĝi en Kristo, ni mem mon-
 
-triĝis pekuloj, ĉu Kristo estas servanto de peko? Nepre ne\! 18 ĉar se
+triĝis pekuloj, ĉu Kristo estas servanto de peko? Nepre ne! 18 ĉar se
 
 mi rekonstruas tion, kion mi detruis, mi montras min pekulo. 19 ĉar
 
@@ -21394,13 +20656,11 @@ Filo de Dio, kiu min amis kaj sin donis pro mi. 21 Mi ne vanigas la
 
 gracon de Dio; ĉar se per la leĝo venas justeco, Kristo ja vane mor-
 
-tis. 
+tis.
 
-356
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 3
 
@@ -21410,13 +20670,13 @@ Jesuo estis publike prezentita krucumita. 2 Nur la jenon mi deziras
 
 sciiĝi de vi: ĉu per faroj de la leĝo vi ricevis la Spiriton, aŭ per la
 
-aŭdado de fido? 3 ĉu vi tiel malsaĝaj estas? komencinte en Spirito, 
+aŭdado de fido? 3 ĉu vi tiel malsaĝaj estas? komencinte en Spirito,
 
 ĉu vi en karno nun perfektiĝas? 4 ĉu vi vane tiom suferis? se ja tio
 
 estas vana. 5 ĉu do Tiu, kiu donas al vi la Spiriton kaj faras ĉe vi
 
-miraklojn, tion faras per faroj de la leĝo, aŭ per la aŭdado de fido? 
+miraklojn, tion faras per faroj de la leĝo, aŭ per la aŭdado de fido?
 
 6 Tiel same, kiel Abraham kredis al Dio, kaj tio estis kalkulita al li
 
@@ -21438,7 +20698,7 @@ ke neniu praviĝas antaŭ Dio per la leĝo, estas evidente; ĉar: La vir-
 
 tulo vivos per fido; 12 kaj la leĝo ne rilatas al fido; sed: Kiu plenumas
 
-ilin, tiu vivos en ili. 13 Kristo elaĉetis nin el la malbeno de la leĝo, 
+ilin, tiu vivos en ili. 13 Kristo elaĉetis nin el la malbeno de la leĝo,
 
 fariĝinte malbeno pro ni; ĉar estas skribite: Malbenita estas ĉiu, kiu
 
@@ -21446,7 +20706,7 @@ pendas sur lignaĵo; 14 por ke venu sur la nacianojn la beno de Ab-
 
 raham en Kristo Jesuo; por ke per fido ni ricevu la promeson de la
 
-Spirito. 
+Spirito.
 
 15 Fratoj, mi parolas laŭ homo: Konfirmitan interligon, eĉ nur
 
@@ -21462,27 +20722,25 @@ venis kvarcent tridek jarojn poste, ne nuligas, tiel ke ĝi malefekti-
 
 vigus la promeson. 18 ĉar se la heredaĵo estas de la leĝo, ĝi jam ne
 
-357
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estas de promeso; sed Dio ĝin donis al Abraham per promeso. 19
 
-Kio do estas la leĝo? ¯i estis aldonita kaŭze de eraroj, ĝis venos la
+Kio do estas la leĝo? i estis aldonita kaŭze de eraroj, ĝis venos la
 
 idaro, al kiu la promeso estas donita; ordigite per anĝeloj en la ma-
 
 no de interulo. 20 Interulo ne estas de unu, sed Dio estas unu. 21 ĉu
 
-do la leĝo kontraŭstaras al la promesoj de Dio? Nepre ne\! ĉar se
+do la leĝo kontraŭstaras al la promesoj de Dio? Nepre ne! ĉar se
 
-estus donita leĝo, kiu povus vivigi, efektive justeco estus per la leĝo. 
+estus donita leĝo, kiu povus vivigi, efektive justeco estus per la leĝo.
 
 22 Tamen la Skribo kune enŝlosis ĉion sub peko, por ke la prome-
 
-so per fido al Kristo Jesuo estu donata al ĉiuj, kiuj fidas. 
+so per fido al Kristo Jesuo estu donata al ĉiuj, kiuj fidas.
 
 23 Sed antaŭ ol fido venis, ni estis gardataj sub la leĝo, enŝlosi-
 
@@ -21500,7 +20758,7 @@ estas sklavo nek liberulo, ne estas ja vira kaj virina; ĉar vi ĉiuj estas
 
 unu en Kristo Jesuo. 29 Se do vi apartenas al Kristo, vere vi estas la
 
-idaro de Abraham, kaj heredantoj laŭ la promeso. 
+idaro de Abraham, kaj heredantoj laŭ la promeso.
 
 ĉapitro 4
 
@@ -21512,7 +20770,7 @@ tas sub guvernantoj kaj administrantoj, ĝis la templimo difinita de
 
 la patro. 3 Tiel ankaŭ ni, dum ni estis infanoj, estis en sklaveco sub
 
-la elementoj de la mondo; 4 sed kiam venis la pleneco de la tempo, 
+la elementoj de la mondo; 4 sed kiam venis la pleneco de la tempo,
 
 Dio elsendis Sian Filon, el virino naskitan, sub leĝo naskitan, 5 por
 
@@ -21520,29 +20778,27 @@ reaĉeti tiujn, kiuj estas sub la leĝo, por ke ni ricevu la filadopton. 6
 
 Kaj ĉar vi estas filoj, Dio elsendis la Spiriton de Sia Filo en niajn
 
-korojn, kriantan, Aba, Patro\! 7 Tiel ke ĉiu el vi estas jam ne sklavo, 
+korojn, kriantan, Aba, Patro! 7 Tiel ke ĉiu el vi estas jam ne sklavo,
 
-sed filo; kaj se filo, ankaŭ heredanto per Dio. 
+sed filo; kaj se filo, ankaŭ heredanto per Dio.
 
-358
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 8 Tamen, tiam ne konante Dion, vi estis en sklaveco al tiuj, kiuj
 
 nature ne estas dioj; 9 sed jam nun konante Dion, aŭ pli ĝuste, de
 
-Dio konate, kial vi returniĝas al la malfortaj kaj mizeraj elementoj, 
+Dio konate, kial vi returniĝas al la malfortaj kaj mizeraj elementoj,
 
 al kiuj vi deziras denove sklaviĝi? 10 Vi observas tagojn kaj mona-
 
 tojn kaj tempojn kaj jarojn. 11 Mi timas pri vi, ke eble mi vane labo-
 
-ris ĉe vi. 
+ris ĉe vi.
 
-12 Mi petegas vin, fratoj, estu kiel mi, ĉar mi ankaŭ estas kiel vi. 
+12 Mi petegas vin, fratoj, estu kiel mi, ĉar mi ankaŭ estas kiel vi.
 
 Vi neniel al mi malbonfaris; 13 sed vi scias, ke pro malforteco de la
 
@@ -21566,7 +20822,7 @@ Miaj infanetoj, pro kiuj mi denove suferas naskodoloron, ĝis Kris-
 
 to formiĝos en vi, 20 mi tute deziris esti ĉe vi nun, kaj ŝanĝi mian
 
-voĉon; ĉar vere mi dubas pri vi. 
+voĉon; ĉar vere mi dubas pri vi.
 
 21 Diru al mi, vi, kiuj volas esti sub la leĝo, ĉu vi ne aŭskultas la
 
@@ -21588,15 +20844,13 @@ pera Jerusalem estas libera, kiu estas patrino nia. 27 Estas ja skribi-
 
 te:
 
-¯oju, ho senfruktulino, kiu ne naskis, 
+oju, ho senfruktulino, kiu ne naskis,
 
-359
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Sonigu kanton kaj ĝojkriu, ho vi, kiu ne suferas naskodoloron; 
+Sonigu kanton kaj ĝojkriu, ho vi, kiu ne suferas naskodoloron;
 
 ĉar la forlasitino havos pli da infanoj, ol la havanta edzon. 28 Sed
 
@@ -21606,15 +20860,15 @@ la laŭ karno naskita persekutis la laŭspiritulon, tiel estas ankaŭ nun-
 
 tempe. 30 Sed kion diras la Skribo? Forpelu la sklavinon kaj ŝian fi-
 
-lon; ĉar la filo de la sklavino ne heredos kun la filo de la liberulino. 
+lon; ĉar la filo de la sklavino ne heredos kun la filo de la liberulino.
 
-31 Tial, fratoj, ni estas filoj ne de sklavino, sed de la liberulino. 
+31 Tial, fratoj, ni estas filoj ne de sklavino, sed de la liberulino.
 
 ĉapitro 5
 
 1 Por libereco Kristo nin liberigis; tial staru fortike, kaj ne reim-
 
-plikiĝu en jugon de sklaveco. 
+plikiĝu en jugon de sklaveco.
 
 2 Jen mi, Paŭlo, diras al vi, ke, se vi cirkumcidiĝos, Kristo al vi tute
 
@@ -21626,7 +20880,7 @@ la leĝo, apartiĝis for de Kristo; vi forfalis de graco. 5 ĉar ni en la
 
 Spirito atendas la esperon de justeco per la fido. 6 ĉar en Kristo Je-
 
-suo nek cirkumcido nek necirkumcido valoras ion, sed nur fido, 
+suo nek cirkumcido nek necirkumcido valoras ion, sed nur fido,
 
 energianta per amo. 7 Vi bone kuradis; kiu vin malhelpis, ke vi ne
 
@@ -21634,15 +20888,15 @@ obeu la veron? 8 ĉi tiu influo ne venas de tiu, kiu vin vokas. 9 Mal-
 
 multo da fermentaĵo fermentigas la tutan mason. 10 Mi fidas pri vi
 
-en la Sinjoro, ke vi ne alie sentados; sed tiu, kiu malkvietigas vin, 
+en la Sinjoro, ke vi ne alie sentados; sed tiu, kiu malkvietigas vin,
 
 elportos sian propran juĝon, kiu ajn li estas. 11 Sed mi, fratoj, se mi
 
-ankoraŭ predikas cirkumcidon, kial mi estas ankoraŭ persekutata? 
+ankoraŭ predikas cirkumcidon, kial mi estas ankoraŭ persekutata?
 
-tiuokaze la falpuŝilo de la kruco estas formovita. 12 Mi volus, ke tiuj, 
+tiuokaze la falpuŝilo de la kruco estas formovita. 12 Mi volus, ke tiuj,
 
-kiuj vin maltrankviligas, sin fortranĉu. 
+kiuj vin maltrankviligas, sin fortranĉu.
 
 13 ĉar vi, fratoj, estas vokitaj al libereco; tamen ne uzu vian li-
 
@@ -21650,15 +20904,13 @@ berecon kiel pretekston por la karno, sed per amo servu unu la ali-
 
 an. 14 ĉar la tuta leĝo estas plenumata en unu diro, jene: Amu vian
 
-360
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 proksimulon kiel vin mem. 15 Sed se vi mordas kaj manĝegas unu
 
-la alian, gardu vin, ke vi ne estu detruitaj unu de la alia. 
+la alian, gardu vin, ke vi ne estu detruitaj unu de la alia.
 
 16 Sed mi diras: Iradu laŭ la Spirito, kaj la deziregon de la karno
 
@@ -21672,51 +20924,49 @@ oro, vi jam ne estas sub la leĝo. 19 Evidentaj estas la faroj de la kar-
 
 no, kiuj estas malĉasteco, malpureco, voluptemo, 20 idolkulto, sor-
 
-ĉado, malamikeco, malpaco, ĵaluzoj, koleregoj, partiemeco, skismoj, 
+ĉado, malamikeco, malpaco, ĵaluzoj, koleregoj, partiemeco, skismoj,
 
 herezoj, 21 envioj, ebrieco, diboĉado, kaj aliaj similaj; pri kiuj mi av-
 
-ertas vin, kiel mi jam antaŭe admonis vin, ke tiuj, kiuj tion faradas, 
+ertas vin, kiel mi jam antaŭe admonis vin, ke tiuj, kiuj tion faradas,
 
-ne heredos la regnon de Dio. 22 Sed la frukto de la Spirito estas amo, 
+ne heredos la regnon de Dio. 22 Sed la frukto de la Spirito estas amo,
 
-ĝojo, paco, pacienco, komplezo, bonkoreco, fideleco, 23 mildeco, 
+ĝojo, paco, pacienco, komplezo, bonkoreco, fideleco, 23 mildeco,
 
 sinregado; kontraŭ tiaj ne ekzistas leĝo. 24 Kaj tiuj, kiuj apartenas al
 
-Kristo Jesuo, jam krucumis la karnon kun ĝiaj pasioj kaj voluptoj. 
+Kristo Jesuo, jam krucumis la karnon kun ĝiaj pasioj kaj voluptoj.
 
 25 Se ni vivas per la Sinjoro, en la Spirito ni ankaŭ iradu. 26 Ni ne
 
-fariĝu fanfaronemaj, incitante kaj enviante unu la alian. 
+fariĝu fanfaronemaj, incitante kaj enviante unu la alian.
 
 ĉapitro 6
 
-1 Fratoj, eĉ se homo estos trovita en ia kulpo, vi, kiuj estas spiritaj, 
+1 Fratoj, eĉ se homo estos trovita en ia kulpo, vi, kiuj estas spiritaj,
 
-restarigu tiun per spirito de mildeco; rigardante vin, ĉiu sin mem, 
+restarigu tiun per spirito de mildeco; rigardante vin, ĉiu sin mem,
 
 por ke vi ne estu tentataj. 2 Reciproke subtenadu viajn ŝarĝojn, kaj
 
-tiamaniere plenumu la leĝon de Kristo. 3 ĉar, se iu, estante nenio, 
+tiamaniere plenumu la leĝon de Kristo. 3 ĉar, se iu, estante nenio,
 
 sin estimas, kvazaŭ li estas io, li sin trompas. 4 Sed ĉiu kontrolu sian
 
 propran faradon, kaj tiam li havos singratuladon pri si mem, kaj ne
 
-pri sia proksimulo. 5 ĉar ĉiu devas subteni sian propran portaĵon. 
+pri sia proksimulo. 5 ĉar ĉiu devas subteni sian propran portaĵon.
 
-6 Tiu, kiu estas instruata en la parolo de Dio, partoprenu kun tiu, 
+6 Tiu, kiu estas instruata en la parolo de Dio, partoprenu kun tiu,
 
 kiu lin instruas, en ĉiuj bonaĵoj. 7 Ne trompiĝu; Dio ne estas moka-
 
 ta; ĉar ĉion, kion oni semas, tion ankaŭ li rikoltos. 8 ĉar kiu semas
 
-361
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 por sia karno, el la karno tiu rikoltos putradon; sed kiu semas por
 
@@ -21726,15 +20976,15 @@ en bonfarado; ĉar ĝustatempe ni rikoltos, se ni ne senfortiĝos. 10 Tial
 
 laŭ nia oportuna tempo ni bonfaradu al ĉiuj, precipe al tiuj, kiuj
 
-apartenas al la familio de la fido. 
+apartenas al la familio de la fido.
 
 11 Vidu, per kiaj grandaj literoj mi skribis al vi propramane. 12
 
-Kiuj deziras sin paradi per la karno, tiuj devigas vin cirkumcidiĝi; 
+Kiuj deziras sin paradi per la karno, tiuj devigas vin cirkumcidiĝi;
 
 sole por ke ili ne estu persekutataj pro la kruco de Kristo. 13 ĉar eĉ
 
-tiuj mem, kiuj cirkumcidiĝas, ne observas la leĝon; sed ili deziras, 
+tiuj mem, kiuj cirkumcidiĝas, ne observas la leĝon; sed ili deziras,
 
 ke vi cirkumcidiĝu, por ke ili fanfaronu pri via karno. 14 Sed por mi
 
@@ -21746,21 +20996,19 @@ cirkumcido nek necirkumcido estas io, sed nova kreitaĵo. 16 Kaj kiuj
 
 irados laŭ tiu regulo, paco kaj kompato estu sur ili ĉiuj, kaj sur la
 
-Izrael de Dio. 
+Izrael de Dio.
 
 17 De nun neniu min ĝenu, ĉar mi portas en mia korpo la signojn
 
-de Jesuo. 
+de Jesuo.
 
 18 La graco de nia Sinjoro Jesuo Kristo estu kun via spirito, fra-
 
-toj. Amen. 
+toj. Amen.
 
-362
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -21768,11 +21016,11 @@ al la Efesanoj
 
 ĉapitro 1
 
-1 Paŭlo, apostolo de Jesuo Kristo per la volo de Dio, al la sanktuloj, 
+1 Paŭlo, apostolo de Jesuo Kristo per la volo de Dio, al la sanktuloj,
 
 kiuj estas en Efeso, kaj al la fideluloj en Kristo Jesuo: 2 Graco estu
 
-al vi kaj paco de Dio, nia Patro, kaj de la Sinjoro Jesuo Kristo. 
+al vi kaj paco de Dio, nia Patro, kaj de la Sinjoro Jesuo Kristo.
 
 3 Benata estu la Dio kaj Patro de nia Sinjoro Jesuo Kristo, kiu
 
@@ -21800,25 +21048,23 @@ kiu ni fariĝis heredaĵo, destinite laŭ la antaŭdecido de Tiu, kiu ĉion
 
 faras laŭ la intenco de Sia volo; 12 por ke ni estu por la laŭdo de Lia
 
-gloro, ni, kiuj antaŭe esperis en Kristo; 13 en kiu vi ankaŭ esperas, 
+gloro, ni, kiuj antaŭe esperis en Kristo; 13 en kiu vi ankaŭ esperas,
 
 aŭdinte la vorton de la vero, la evangelion de via savo; al kiu ankaŭ
 
 kredinte, vi estas sigelitaj per la Sankta Spirito de promeso, 14 kiu
 
-estas antaŭgarantiaĵo de nia heredaĵo, por la elaĉeto de la posedaĵo, 
+estas antaŭgarantiaĵo de nia heredaĵo, por la elaĉeto de la posedaĵo,
 
-por laŭdo de Lia gloro. 
+por laŭdo de Lia gloro.
 
 15 Pro tio mi ankaŭ, aŭdinte pri via fido al la Sinjoro Jesuo, kaj via
 
 amo al ĉiuj sanktuloj, 16 ne ĉesas danki pro vi, vin nomante en miaj
 
-363
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 preĝoj; 17 por ke la Dio de nia Sinjoro Jesuo Kristo, la Patro de glo-
 
@@ -21842,7 +21088,7 @@ ankaŭ en la estonta; 22 kaj ĉion Li metis sub liajn piedojn, kaj donis
 
 lin kiel kapon super ĉio por la eklezio, 23 kiu estas lia korpo, la ple-
 
-neco de Tiu, kiu plenigas ĉion en ĉio. 
+neco de Tiu, kiu plenigas ĉion en ĉio.
 
 ĉapitro 2
 
@@ -21860,9 +21106,9 @@ tis laŭ naturo infanoj de kolerego, kiel ankaŭ la aliaj. 4 Sed Dio, est-
 
 ante riĉa en kompateco, pro Sia granda amo, per kiu Li amis nin, 5
 
-eĉ kiam ni estis malvivaj en niaj eraroj, nin vivigis en Kristo \(per
+eĉ kiam ni estis malvivaj en niaj eraroj, nin vivigis en Kristo (per
 
-graco vi saviĝis\), 6 kaj nin levis, kaj nin kunsidigis en la ĉielejoj en
+graco vi saviĝis), 6 kaj nin levis, kaj nin kunsidigis en la ĉielejoj en
 
 Kristo Jesuo; 7 por montri en la mondaĝoj estontaj la superabundan
 
@@ -21874,13 +21120,11 @@ el faroj, por ke neniu fanfaronu. 10 ĉar ni estas Lia faritaĵo, kreitaj
 
 en Kristo Jesuo por bonaj faroj, kiujn antaŭaranĝis Dio, por ke ni
 
-iradu en ili. 
+iradu en ili.
 
-364
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 11 Kaj pro tio rememoru, ke iam vi, nacianoj laŭ la karno, noma-
 
@@ -21918,7 +21162,7 @@ kaj profetoj, kies bazangula ŝtono estas Kristo Jesuo mem; 21 en kiu
 
 en Kristo; 22 en kiu vi ankaŭ estas kunkonstruitaj por sanktejo de
 
-Dio en la Spirito. 
+Dio en la Spirito.
 
 ĉapitro 3
 
@@ -21934,15 +21178,13 @@ komprenon en la mistero de Kristo, 5 kiu en aliaj generacioj ne es-
 
 tis sciigita al la homidoj, kiel ĝi nun malkaŝiĝis al liaj sanktaj apos-
 
-toloj kaj profetoj en la Spirito, 6 ke la nacianoj estas kunheredantoj, 
+toloj kaj profetoj en la Spirito, 6 ke la nacianoj estas kunheredantoj,
 
 kaj samkorpanoj, kaj partoprenantoj en la promeso en Kristo Jesuo
 
-365
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 per la evangelio, 7 al kiu mi fariĝis servanto laŭ la dono de la gra-
 
@@ -21956,7 +21198,7 @@ Kristo; 9 kaj por ke mi klarigu al ĉiuj, kia estas la dispono de la mis-
 
 tero kaŝita tra ĉiuj mondaĝoj en Dio, kiu kreis ĉion; 10 por ke nun
 
-konatiĝu al la regantoj kaj aŭtoritatoj en la ĉielejoj, per la eklezio, 
+konatiĝu al la regantoj kaj aŭtoritatoj en la ĉielejoj, per la eklezio,
 
 la multobla saĝeco de Dio, 11 laŭ la eterna decido, kiun Li faris en
 
@@ -21964,7 +21206,7 @@ Kristo Jesuo, nia Sinjoro; 12 en kiu ni havas kuraĝon kaj alkondukon
 
 en fidado per nia fido al li. 13 Pro tio mi petas, ke vi ne senfortiĝu
 
-pro miaj suferoj por vi, kiuj estas via gloro. 
+pro miaj suferoj por vi, kiuj estas via gloro.
 
 14 Pro tio mi fleksas miajn genuojn antaŭ la Patro, 15 el kiu ĉiu
 
@@ -21980,15 +21222,15 @@ koroj; tiel, ke vi, enradikigite kaj bazite en amo, 18 kapabliĝu kun
 
 kaj profundeco, 19 kaj scii la amon de Kristo, kiu superas scion, por
 
-ke vi pleniĝu eĉ ĝis la pleneco de Dio. 
+ke vi pleniĝu eĉ ĝis la pleneco de Dio.
 
 20 Nun al Tiu, kiu povas tre abunde fari, super ĉio, kion ni povas
 
 peti aŭ pensi, laŭ la potenco, kiu energias en ni, 21 estu gloro en la
 
-eklezio kaj en Kristo Jesuo ĝis ĉiuj generacioj por ĉiam kaj eterne. 
+eklezio kaj en Kristo Jesuo ĝis ĉiuj generacioj por ĉiam kaj eterne.
 
-Amen. 
+Amen.
 
 ĉapitro 4
 
@@ -22000,11 +21242,9 @@ toleremeco, paciencante unu al alia en amo, 3 penante konservi la
 
 unuecon de la Spirito en la ligilo de paco. 4 Estas unu korpo, kaj unu
 
-366
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Spirito, kiel ankaŭ vi estas vokitaj en unu espero de via voko; 5 unu
 
@@ -22014,17 +21254,17 @@ super ĉiuj, kaj tra ĉiuj, kaj en ĉiuj. 7 Sed al ĉiu el ni la graco estas
 
 donita, laŭ la mezuro de la dono de Kristo. 8 Tial li diras:
 
-Kiam li supreniris alten, li alkondukis kaptitojn, 
+Kiam li supreniris alten, li alkondukis kaptitojn,
 
-Kaj donis donacojn al homoj. 
+Kaj donis donacojn al homoj.
 
-9 \(ĉi tio do: Li supreniris—kio ĝi estas krom tio, ke li ankaŭ an-
+9 (ĉi tio do: Li supreniris—kio ĝi estas krom tio, ke li ankaŭ an-
 
 taŭe malsupreniris ĝis la profundaĵoj de la tero? 10 La malsupre-
 
 nirinto—tiu sama estis la suprenirinto alte super ĉiuj ĉieloj, por ple-
 
-nigi ĉion.\) 11 Kaj unujn li donis por esti apostoloj; aliajn, profetoj; 
+nigi ĉion.) 11 Kaj unujn li donis por esti apostoloj; aliajn, profetoj;
 
 aliajn, evangeliistoj; kaj aliajn, paŝtistoj kaj instruistoj; 12 por perfektigo de la sanktuloj, por la laboro de pastrado, por la konstruo de
 
@@ -22032,7 +21272,7 @@ la korpo de Kristo, 13 ĝis ni ĉiuj atingos la unuecon de la fido kaj de
 
 la scio de la Filo de Dio, ĝis la homo perfekta, ĝis la mezuro de la
 
-matureco de la pleneco de Kristo; 14 por ke ni jam ne estu infanoj, 
+matureco de la pleneco de Kristo; 14 por ke ni jam ne estu infanoj,
 
 onde ĵetataj kaj ĉirkaŭpelataj de ĉiu vento de doktrino, per ĵongla-
 
@@ -22050,7 +21290,7 @@ ras, kaj protestas en la Sinjoro, ke vi ne plu iru tiel, kiel iras ankaŭ
 
 la nacianoj en la vanteco de siaj mensoj, 18 mallumigitaj en intelek-
 
-to, fremdigitaj for de la vivo de Dio, pro la nescio, kiu estas en ili, 
+to, fremdigitaj for de la vivo de Dio, pro la nescio, kiu estas en ili,
 
 pro la malmoleco de ilia koro; 19 kiuj, sensentiĝinte, fordonis sin al
 
@@ -22060,23 +21300,21 @@ vi ne tiel lernis Kriston; 21 se almenaŭ vi lin aŭdis, kaj en li estis in-
 
 struitaj, kiel en Jesuo estas vero; 22 por ke vi formetu, rilate al an-
 
-taŭa konduto, la malnovan homon, pereeman laŭ trompaj deziroj, 
+taŭa konduto, la malnovan homon, pereeman laŭ trompaj deziroj,
 
-367
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 23 kaj renoviĝu rilate al la spirito de via menso, 24 kaj surmetu la
 
-novan homon, kreitan laŭ Dio en justeco kaj vera sankteco. 
+novan homon, kreitan laŭ Dio en justeco kaj vera sankteco.
 
 25 Pro tio, formetante malveron, ĉiu parolu veron kun sia prok-
 
 simulo, ĉar ni estas membroj unu de alia. 26 Koleru kaj ne peku, la
 
-suno ne subiru sur via kolero; 27 ankaŭ ne donu lokon al la diablo. 
+suno ne subiru sur via kolero; 27 ankaŭ ne donu lokon al la diablo.
 
 28 ˘telinto ne plu ŝtelu, sed prefere li laboru, farante bonon per siaj
 
@@ -22094,11 +21332,11 @@ estu formetitaj el inter vi, kune kun ĉia malico; 32 kaj estu bonfaraj
 
 unu al alia, bonkoraj, pardonantaj unu al alia, kiel ankaŭ Dio en
 
-Kristo pardonis al vi. 
+Kristo pardonis al vi.
 
 ĉapitro 5
 
-1 Estu do imitantoj de Dio, kiel infanoj amataj; 2 kaj iradu en amo, 
+1 Estu do imitantoj de Dio, kiel infanoj amataj; 2 kaj iradu en amo,
 
 kiel Kristo nin amis kaj sin donis pro ni, donaĵon kaj oferaĵon al Dio
 
@@ -22120,17 +21358,13 @@ ro de Dio. 7 Ne estu do partoprenantoj kun ili; 8 ĉar iam vi estis mal-
 
 lumo, sed jam vi estas lumo en la Sinjoro; iru kiel infanoj de lumo
 
-9 \(ĉar la frukto de la lumo estas en ĉia boneco kaj justeco kaj vero\), 
+9 (ĉar la frukto de la lumo estas en ĉia boneco kaj justeco kaj vero),
 
 10 provante, kio bone plaĉas al la Sinjoro; 11 kaj ne partoprenu kun
-
-368
-
 
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la senfruktaj faroj de mallumo, sed prefere refutu ilin; 12 ĉar estas
 
@@ -22140,23 +21374,23 @@ refutata, estas elmontrata per la lumo, ĉar ĉio elmontrata estas lu-
 
 mo. 14 Tial estas dirite: Vekiĝu, dormanto, kaj releviĝu el la mortin-
 
-toj, kaj Kristo al vi lumos. 
+toj, kaj Kristo al vi lumos.
 
-15 Zorgu do, ke vi atente iradu, ne kiel malsaĝaj, sed kiel saĝaj; 
+15 Zorgu do, ke vi atente iradu, ne kiel malsaĝaj, sed kiel saĝaj;
 
 16 elaĉetante la tempon, ĉar malbonaj estas la tagoj. 17 Ne estu do
 
 senprudentaj, sed komprenu, kio estas la volo de la Sinjoro. 18 Kaj
 
-ne ebriiĝu per vino, en kio estas diboĉo, sed pleniĝu per la Spirito; 
+ne ebriiĝu per vino, en kio estas diboĉo, sed pleniĝu per la Spirito;
 
-19 parolante unu al alia per psalmoj kaj himnoj kaj kantoj spiritaj, 
+19 parolante unu al alia per psalmoj kaj himnoj kaj kantoj spiritaj,
 
-kantante kaj psalmante en viaj koroj al la Sinjoro, 20 dankante Dion, 
+kantante kaj psalmante en viaj koroj al la Sinjoro, 20 dankante Dion,
 
 la Patron, ĉiam pro ĉio en la nomo de nia Sinjoro Jesuo Kristo; 21
 
-submetiĝante unu al alia en la timo al Kristo. 
+submetiĝante unu al alia en la timo al Kristo.
 
 22 Edzinoj, submetiĝu al viaj edzoj tiel same, kiel al la Sinjoro. 23
 
@@ -22170,7 +21404,7 @@ viajn edzinojn, kiel Kristo amis la eklezion kaj pro ĝi sin donis, 26
 
 por ke li sanktigu ĝin per akvolavo, kun la vorto, 27 por ke li stari-
 
-gu ĝin antaŭ si glora eklezio, ne havanta makulon, nek malglataĵon, 
+gu ĝin antaŭ si glora eklezio, ne havanta makulon, nek malglataĵon,
 
 nek ion tian, sed por ke ĝi estu sankta kaj sendifekta. 28 Tiel same
 
@@ -22188,25 +21422,23 @@ estos unu karno. 32 ĉi tiu mistero estas granda, sed mi parolas pri
 
 Kristo kaj la eklezio. 33 Tamen ankaŭ ĉiu el vi individue amu sian
 
-edzinon, kiel sin mem; kaj la edzino timu sian edzon. 
+edzinon, kiel sin mem; kaj la edzino timu sian edzon.
 
-369
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 6
 
 1 Infanoj, obeu al viaj gepatroj en la Sinjoro, ĉar tio decas. 2 Respek-
 
-tu vian patron kaj vian patrinon \(ĝi estas la unua ordono kun pro-
+tu vian patron kaj vian patrinon (ĝi estas la unua ordono kun pro-
 
-meso\), 3 por ke estu al vi bone kaj por ke longe daŭru via vivo sur
+meso), 3 por ke estu al vi bone kaj por ke longe daŭru via vivo sur
 
 la tero. 4 Kaj patroj, ne kolerigu viajn infanojn; sed nutradu ilin en
 
-la disciplino kaj admono de la Sinjoro. 
+la disciplino kaj admono de la Sinjoro.
 
 5 Sklavoj, obeu al tiuj, kiuj laŭ la karno estas viaj sinjoroj, kun
 
@@ -22214,7 +21446,7 @@ timo kaj tremo, en simpleco de via koro, kiel al Kristo; 6 ne laŭ okul-
 
 servo, kiel homplaĉantoj, sed kiel sklavoj de Kristo, plenumante el
 
-la koro la volon de Dio; 7 kun bonvoleco servante, kiel al la Sinjoro, 
+la koro la volon de Dio; 7 kun bonvoleco servante, kiel al la Sinjoro,
 
 kaj ne al homoj; 9 sciante, ke, kian ajn bonon faras ĉiu, ĉu sklavo aŭ
 
@@ -22222,7 +21454,7 @@ liberulo, tion saman li ricevos de la Sinjoro. 9 Kaj sinjoroj, agu tiel
 
 same al ili, forlasante minacon; sciante, ke via kaj ilia Sinjoro estas
 
-en la ĉielo, kaj ne ekzistas ĉe li personfavorado. 
+en la ĉielo, kaj ne ekzistas ĉe li personfavorado.
 
 10 Cetere, fortiĝu en la Sinjoro kaj en la forteco de lia potenco. 11
 
@@ -22236,7 +21468,7 @@ tenculoj de la nuna mallumo, kontraŭ la spiritaroj de malbono en
 
 la ĉielejoj. 13 Tial prenu al vi la tutan armilaron de Dio, por ke vi
 
-povu rezisti en la malbona tago, kaj, farinte tion, stari. 14 Staru do, 
+povu rezisti en la malbona tago, kaj, farinte tion, stari. 14 Staru do,
 
 ĉirkaŭzoninte la lumbojn per vero, kaj surmetinte la kirason de jus-
 
@@ -22244,27 +21476,25 @@ teco, 15 kaj enŝuiginte la piedojn per la pretiĝo de la evangelio de
 
 paco; 16 super ĉio tenante la ŝildon de fido, per kiu vi povos estingi
 
-ĉiujn fajrajn sagojn de la malbonulo. 17 Kaj ricevu la kaskon de savo, 
+ĉiujn fajrajn sagojn de la malbonulo. 17 Kaj ricevu la kaskon de savo,
 
 kaj la glavon de la Spirito, kiu estas la vorto de Dio; 18 per ĉia preĝ-
 
 ado kaj petegado en ĉiu tempo preĝante en la Spirito, kaj viglante
 
-por tio en ĉia persisteco kaj petego por ĉiuj sanktuloj, 19 kaj por mi, 
+por tio en ĉia persisteco kaj petego por ĉiuj sanktuloj, 19 kaj por mi,
 
 ke al mi estu donita parolpovo kun malfermo de mia buŝo, por ke
 
 mi sciigu kuraĝe la misteron de la evangelio, 20 pro kiu mi estas
 
-370
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ambasadoro en kateno, por ke mi parolu kuraĝe en ĝi, kiel mi de-
 
-vus paroli. 
+vus paroli.
 
 21 Plue, por ke vi sciiĝu pri miaj aferoj, kiel mi statas, raportos
 
@@ -22272,19 +21502,17 @@ vus paroli.
 
 kiun mi sendis al vi ĝuste por tio, ke vi sciiĝu pri nia stato kaj por
 
-ke li konsolu viajn korojn. 
+ke li konsolu viajn korojn.
 
 23 Paco estu al la fratoj, kaj amo kun fido de Dio, la Patro, kaj de
 
 la Sinjoro Jesuo Kristo. 24 Graco estu kun ĉiuj, kiuj sendekliniĝe
 
-amas nian Sinjoron Jesuo Kristo. 
+amas nian Sinjoron Jesuo Kristo.
 
-371
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -22298,7 +21526,7 @@ Kristo Jesuo, kiuj estas en Filipi, kun la episkopoj kaj diakonoj: 2
 
 Graco al vi kaj paco estu de Dio, nia Patro, kaj de la Sinjoro Jesuo
 
-Kristo. 
+Kristo.
 
 3 Mi dankas mian Dion ĉe ĉiu rememoro pri vi, 4 ĉiam en ĉiu mia
 
@@ -22324,7 +21552,7 @@ bu la plej bonajn aferojn kaj estu sinceraj kaj senofendaj ĝis la tago
 
 de Kristo, 11 plenigite de la fruktoj de justeco, kiuj estas per Jesuo
 
-Kristo, al la gloro kaj laŭdo de Dio. 
+Kristo, al la gloro kaj laŭdo de Dio.
 
 12 Sed, fratoj, mi volas certigi vin, ke miaj aferoj plie efektiviĝis
 
@@ -22332,17 +21560,15 @@ por la progresado de la evangelio, 13 tiel, ke miaj katenoj estas evi-
 
 dentigitaj en Kristo tra la tuta Pretorio kaj ĉie aliloke; 14 kaj la pli-
 
-multo el la fratoj en la Sinjoro, pro miaj katenoj fariĝinte sentimaj, 
+multo el la fratoj en la Sinjoro, pro miaj katenoj fariĝinte sentimaj,
 
 supermezure kuraĝas persiste elparoladi la vorton de Dio. 15 Unuj
 
 ja proklamas Kriston eĉ envie kaj malpace, sed aliaj bonvole; 16 ĉi
 
-372
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tiuj kun amo, sciante, ke mi estas metita, por defendi la evangeli-
 
@@ -22354,15 +21580,15 @@ maniere, ĉu pretekste aŭ vere, oni predikas Kriston: kaj pro tio mi
 
 ĝojas kaj ankoraŭ plu ĝojos. 19 ĉar mi scias, ke ĉi tio efikos al mia
 
-savo, per viaj preĝoj kaj la provizado de la Spirito de Jesuo Kristo, 
+savo, per viaj preĝoj kaj la provizado de la Spirito de Jesuo Kristo,
 
-20 laŭ mia fervora atendado kaj espero, ke mi pri nenio hontiĝos, 
+20 laŭ mia fervora atendado kaj espero, ke mi pri nenio hontiĝos,
 
 sed ke per ĉia liberparolo, kiel ĉiam, tiel ankaŭ nun, Kristo estos
 
 glorata en mia korpo, ĉu per vivo aŭ per morto. 21 ĉar ĉe mi la vi-
 
-vado estas Kristo, kaj morti estas gajno. 22 Sed se mi vivados korpe, 
+vado estas Kristo, kaj morti estas gajno. 22 Sed se mi vivados korpe,
 
 tio signifas pluan frukton de laboro; kaj mi ne scias, kion elekti. 23
 
@@ -22372,7 +21598,7 @@ esti kun Kristo, kio estas multe pli bona; 24 tamen mia restado en la
 
 karno estas pli bezona por vi. 25 Kaj tiel fidante, mi scias, ke mi res-
 
-tos kaj apudrestados kun vi ĉiuj, por via progreso kaj ĝojo de fido; 
+tos kaj apudrestados kun vi ĉiuj, por via progreso kaj ĝojo de fido;
 
 26 por ke mi pli abunde en Kristo Jesuo gratulu min pri vi, per mia
 
@@ -22386,27 +21612,25 @@ talantaj unuanime por la fido de la evangelio, 28 kaj neniel timigi-
 
 taj de la kontraŭuloj: kio estas al ili certa signo de pereo, sed al vi
 
-certa signo \(nepre de Dio\) pri via saviĝo; 29 ĉar estas al vi permesi-
+certa signo (nepre de Dio) pri via saviĝo; 29 ĉar estas al vi permesi-
 
 te pro Kristo, ne sole kredi al li, sed ankaŭ suferi pro li; 30 havantaj
 
 la saman bataladon, kiun vi vidis ĉe mi, kaj pri kiu vi nun aŭdas, ke
 
-ĉe mi ĝi ankoraŭ ekzistas. 
+ĉe mi ĝi ankoraŭ ekzistas.
 
 ĉapitro 2
 
 1 Se do en Kristo ekzistas ia konsolo, ia simpatio de amo, ia kunu-
 
-leco de la Spirito, ia korfavoro kaj kompato, 2 plenigu mian ĝojon, 
+leco de la Spirito, ia korfavoro kaj kompato, 2 plenigu mian ĝojon,
 
-373
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-ke vi tiel same sentu, havante la saman amon, estante unuanimaj, 
+ke vi tiel same sentu, havante la saman amon, estante unuanimaj,
 
 sampensaj, 3 nenion farante malpace aŭ arogante, sed kun humi-
 
@@ -22430,7 +21654,7 @@ per ĉia nomo, 10 por ke en la nomo de Jesuo kliniĝu ĉiu genuo, de
 
 enĉieluloj kaj surteruloj kaj subteruloj, 11 kaj ĉiu lango konfesu, ke
 
-Jesuo Kristo estas Sinjoro, al la gloro de Dio, la Patro. 
+Jesuo Kristo estas Sinjoro, al la gloro de Dio, la Patro.
 
 12 Tial, miaj amatoj, kiel vi ĉiam obeis, ne nur dum mia ĉeesta-
 
@@ -22444,7 +21668,7 @@ kaj disputoj, 15 por ke vi estu senkulpaj kaj simplaj, filoj de Dio, neri-
 
 proĉindaj, meze de perversa kaj malhonesta generacio, inter kiuj vi
 
-brilas kiel lumiloj en la mondo, 16 forte tenante la vorton de la vivo; 
+brilas kiel lumiloj en la mondo, 16 forte tenante la vorton de la vivo;
 
 por ke estu por mi io, pri kio mi povos min gratuli en la tago de
 
@@ -22452,7 +21676,7 @@ Kristo, ke mi ne vane kuris kaj laboris. 17 Cetere, eĉ se mi estas el-
 
 verŝata sur la oferon kaj servon de via fido, mi ĝojas kaj kunĝojas
 
-kun vi ĉiuj; 18 kaj tiel same vi ankaŭ ĝoju kaj kunĝoju kun mi. 
+kun vi ĉiuj; 18 kaj tiel same vi ankaŭ ĝoju kaj kunĝoju kun mi.
 
 19 Sed mi esperas en la Sinjoro Jesuo baldaŭ sendi al vi Timote-
 
@@ -22464,17 +21688,15 @@ mi havas neniun samsentan, kiu sincere zorgos pri via stato. 21 ĉar
 
 nas lian provadon, ke kiel filo servas al sia patro, tiel li servis kun
 
-mi por la evangelio. 23 Lin do mi esperas tuj sendi, kiam mi certiĝos, 
+mi por la evangelio. 23 Lin do mi esperas tuj sendi, kiam mi certiĝos,
 
-374
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kio al mi okazos, 24 sed mi fidas al la Sinjoro, ke mi mem ankaŭ
 
-venos baldaŭ. 25 Tamen ŝajnis al mi necese sendi al vi Epafroditon, 
+venos baldaŭ. 25 Tamen ŝajnis al mi necese sendi al vi Epafroditon,
 
 mian fraton kaj kunlaboranton kaj kunbatalanton, vian senditon kaj
 
@@ -22482,39 +21704,39 @@ helpanton por mia bezono; 26 ĉar li sopiris al vi ĉiuj, kaj forte mal-
 
 trankviliĝis pro tio, ke vi jam sciiĝis pri lia malsano; 27 ĉar efektive
 
-li malsanis, preskaŭ ĝis morto; sed Dio kompatis lin, kaj ne sole lin, 
+li malsanis, preskaŭ ĝis morto; sed Dio kompatis lin, kaj ne sole lin,
 
 sed ankaŭ min, por ke mi ne havu malĝojon super malĝojo. 28 Mi
 
 do sendis lin des pli diligente, por ke, revidante lin, vi ĝoju, kaj ke
 
-mi estu sen malĝojo. 29 Akceptu lin do en la Sinjoro kun plena ĝojo, 
+mi estu sen malĝojo. 29 Akceptu lin do en la Sinjoro kun plena ĝojo,
 
 kaj tiajn homojn honoru; 30 ĉar pro la laboro por Kristo li alprok-
 
 simiĝis al morto, riskante sian vivon, por kompletigi tion, kio man-
 
-kis ĉe via servado al mi. 
+kis ĉe via servado al mi.
 
 ĉapitro 3
 
 1 Fine, fratoj, ĝoju en la Sinjoro. Tute ne ĝenas min al vi skribi ripe-
 
-te, kaj por vi tio estas sendanĝeriga. 2 Gardu vin kontraŭ la hundoj, 
+te, kaj por vi tio estas sendanĝeriga. 2 Gardu vntraŭ la hundoj,
 
-gardu vin kontraŭ la malbonaguloj, gardu vin kontraŭ la karntranĉ-
+gardu vntraŭ la malbonaguloj, gardu vntraŭ la karntranĉ-
 
 uloj; 3 ĉar ni estas la cirkumciduloj, kiuj per la Spirito de Dio ado-
 
-ras, kaj nin gratulas pri Kristo Jesuo, kaj ne havas fidon al la karno; 
+ras, kaj nin gratulas pri Kristo Jesuo, kaj ne havas fidon al la karno;
 
 4 kvankam mi mem povas havi fidon al la karno; se iu alia preten-
 
-das fidi la karnon, mi ja pli efektive; 5 cirkumcidita la okan tagon, 
+das fidi la karnon, mi ja pli efektive; 5 cirkumcidita la okan tagon,
 
 el la raso Izraela, el la tribo de Benjamen, Hebreo el Hebreoj; rila-
 
-te la leĝon, Fariseo; 6 rilate fervoron, persekutanto de la eklezio; 
+te la leĝon, Fariseo; 6 rilate fervoron, persekutanto de la eklezio;
 
 rilate la justecon, kiu fariĝas per la leĝo, senkulpa. 7 Sed kio estis al
 
@@ -22526,13 +21748,11 @@ to Jesuo, mia Sinjoro, pro kiu mi suferis malgajnon de ĉio, kaj rigar-
 
 das ĉion kiel rubon, por ke mi gajnu Kriston, 9 kaj estu trovata en
 
-li, ne havante mian justecon, kiu devenas de la leĝo, sed la justecon, 
+li, ne havante mian justecon, kiu devenas de la leĝo, sed la justecon,
 
-375
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiu estas per la fido al Kristo, la justecon, kiu devenas de Dio sur fi-
 
@@ -22554,9 +21774,9 @@ pelas al la celo, por akiri la premion de la supera voko de Dio en
 
 Kristo Jesuo. 15 ĉiuj el ni do, kiuj estas perfektaj, tiel pensu; kaj se
 
-pri io vi pensas alie, tion ankaŭ Dio malkaŝos al vi; 16 sed ĉiaokaze, 
+pri io vi pensas alie, tion ankaŭ Dio malkaŝos al vi; 16 sed ĉiaokaze,
 
-laŭ tio, kiom ni jam atingis, ni iradu. 
+laŭ tio, kiom ni jam atingis, ni iradu.
 
 17 Fratoj, estu kunimitantoj de mi; kaj observu tiujn, kiuj tiel ira-
 
@@ -22564,7 +21784,7 @@ das, kiel vi havas nin kiel ekzemplon. 18 ĉar iradas multaj, pri kiuj
 
 mi ofte diris al vi, kaj nun eĉ plorante diras, ke ili estas malamikoj
 
-de la kruco de Kristo; 19 ilia fino estas pereo, ilia dio estas la ventro, 
+de la kruco de Kristo; 19 ilia fino estas pereo, ilia dio estas la ventro,
 
 kaj ilia gloro estas en ilia honto, ili atentas surteraĵojn. 20 ĉar nia
 
@@ -22572,41 +21792,39 @@ burĝrajto estas en la ĉielo, de kie ankaŭ ni atendas Savonton, la
 
 Sinjoron Jesuo Kristo, 21 kiu denove elformos la korpon de nia hu-
 
-miliĝo, por ke ĝi konformiĝu al la korpo de lia gloro, laŭ la energio, 
+miliĝo, por ke ĝi konformiĝu al la korpo de lia gloro, laŭ la energio,
 
-per kiu li eĉ povas ĉion al si submeti. 
+per kiu li eĉ povas ĉion al si submeti.
 
 ĉapitro 4
 
 1 Tial, miaj fratoj amataj kaj alsopirataj, mia ĝojo kaj mia krono, tiel
 
-staru fortike en la Sinjoro, miaj amataj. 
+staru fortike en la Sinjoro, miaj amataj.
 
 2 Mi admonas Eŭodian, kaj mi admonas Sintięn, ke ili estu unu-
 
-animaj en la Sinjoro. 3 Kaj mi petegas vin ankaŭ, sincera kunjugulo, 
+animaj en la Sinjoro. 3 Kaj mi petegas vin ankaŭ, sincera kunjugulo,
 
 helpu tiujn virinojn, ĉar ili kunlaboris kun mi en la evangelio, kune
 
-376
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kun Klemento kaj miaj ceteraj kunlaborantoj, kies nomoj estas en
 
-la libro de vivo. 
+la libro de vivo.
 
-4 ¯oju en la Sinjoro ĉiam; denove mi diros: ¯oju. 5 Via mildeco
+4 oju en la Sinjoro ĉiam; denove mi diros: oju. 5 Via mildeco
 
-estu konata al ĉiuj. La Sinjoro estas proksima. 6 Pri nenio trozorgu; 
+estu konata al ĉiuj. La Sinjoro estas proksima. 6 Pri nenio trozorgu;
 
 sed pri ĉio, per preĝo kaj peto kun dankesprimo, viaj deziroj sciiĝu
 
 al Dio. 7 Kaj la paco de Dio, kiu superas ĉian intelekton, gardos vi-
 
-ajn korojn kaj pensojn en Kristo Jesuo. 
+ajn korojn kaj pensojn en Kristo Jesuo.
 
 8 Fine, fratoj, kio ajn estas vera, kio ajn honesta, kio ajn justa, kio
 
@@ -22614,7 +21832,7 @@ ajn ĉasta, kio ajn ŝatinda, kio ajn bonfama; se estas ia virto, se es-
 
 tas ia laŭdo, tion pripensu. 9 Kion vi lernis kaj ricevis kaj aŭdis kaj
 
-vidis en mi, tion faru; kaj la Dio de paco estos kun vi. 
+vidis en mi, tion faru; kaj la Dio de paco estos kun vi.
 
 10 Sed mi forte ĝojas en la Sinjoro, ke vi jam nun revivigis vian
 
@@ -22642,33 +21860,29 @@ zono. 17 Mi ne deziras la donacon; sed mi deziras la frukton, kiu
 
 plimultiĝos por via profito. 18 Sed mi havas ĉion, kaj estas en abun-
 
-deco; mi jam pleniĝis, ricevinte per Epafrodito vian senditaĵon, 
+deco; mi jam pleniĝis, ricevinte per Epafrodito vian senditaĵon,
 
 agrablan odoraĵon, oferon akceptindan, kiu plaĉas al Dio. 19 Kaj mia
 
-Dio satigos ĉian vian bezonon, laŭ Sia riĉo en gloro en Kristo Jesuo. 
+Dio satigos ĉian vian bezonon, laŭ Sia riĉo en gloro en Kristo Jesuo.
 
-20 Nun al nia Dio kaj Patro estu gloro por ĉiam kaj eterne. Amen. 
+20 Nun al nia Dio kaj Patro estu gloro por ĉiam kaj eterne. Amen.
 
 21 Salutu ĉiun sanktulon en Kristo Jesuo. La fratoj, kiuj estas kun
 
-377
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 mi, vin salutas. 22 ĉiuj sanktuloj vin salutas, precipe tiuj, kiuj estas
 
-el la domanaro de Cezaro. 
+el la domanaro de Cezaro.
 
-23 La graco de la Sinjoro Jesuo Kristo estu kun via spirito. 
+23 La graco de la Sinjoro Jesuo Kristo estu kun via spirito.
 
-378
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -22680,7 +21894,7 @@ al la Koloseanoj
 
 frato, 2 al la sanktuloj kaj fidelaj fratoj en Kristo, kiuj estas en Ko-
 
-lose: Graco al vi kaj paco estu de Dio, nia Patro. 
+lose: Graco al vi kaj paco estu de Dio, nia Patro.
 
 3 Ni dankas Dion, la Patron de nia Sinjoro Jesuo Kristo, ĉiam
 
@@ -22698,7 +21912,7 @@ la gracon de Dio laŭ la vero; 7 kiel vi lernis de Epafras, nia amata
 
 kunservanto, kiu estas fidela diakono de Kristo pro ni, 8 kaj kiu an-
 
-kaŭ sciigis nin pri via amo en la Spirito. 
+kaŭ sciigis nin pri via amo en la Spirito.
 
 9 Tial ni ankaŭ, de post la tago, en kiu ni tion aŭdis, ne ĉesas pre-
 
@@ -22706,7 +21920,7 @@ kaŭ sciigis nin pri via amo en la Spirito.
 
 saĝo kaj prudento, 10 por ke vi iradu inde je la Sinjoro, al ĉia plaĉa-
 
-do, en ĉia bona farado fruktodonaj kaj kreskantaj en la scio de Dio; 
+do, en ĉia bona farado fruktodonaj kaj kreskantaj en la scio de Dio;
 
 11 fortigitaj per ĉia forto laŭ la potenco de Lia gloro, por ĉia pacienco
 
@@ -22722,13 +21936,11 @@ koj; 15 li estas bildo de la nevidebla Dio, la unuenaskito inter la tuta
 
 kreitaro; 16 ĉar en li kreiĝis ĉio en la ĉielo kaj sur la tero, ĉio vide-
 
-379
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-bla kaj nevidebla, ĉu tronoj, ĉu regecoj, ĉu estrecoj, ĉu aŭtoritatoj; 
+bla kaj nevidebla, ĉu tronoj, ĉu regecoj, ĉu estrecoj, ĉu aŭtoritatoj;
 
 ĉio kreiĝis per li, kaj por li; 17 kaj li estas antaŭ ĉio, kaj en li ĉio ekzistas. 18 Kaj li estas la kapo de la korpo, la eklezio; kaj li estas la
 
@@ -22750,7 +21962,7 @@ restas en la fido, fonditaj kaj fiksitaj kaj firmaj en la espero de la
 
 evangelio, kiun vi aŭdis, kiu estas predikita tra la tuta kreitaro sub
 
-la ĉielo, kaj kies diakono mi, Paŭlo, fariĝis. 
+la ĉielo, kaj kies diakono mi, Paŭlo, fariĝis.
 
 24 Nun mi ĝojas pri miaj suferoj pro vi, kaj plenigas la mankon
 
@@ -22762,15 +21974,15 @@ vi, por plenumi la vorton de Dio, 26 la misteron, kiu estas kaŝita for
 
 de la mondaĝoj kaj de la generacioj, sed nun klarigita al liaj sanktu-
 
-loj, 27 al kiuj Dio volis sciigi, kia estis la riĉeco de la gloro de ĉi tiu mistero inter la nacianoj; kiu estas Kristo en vi, la espero de gloro; 
+loj, 27 al kiuj Dio volis sciigi, kia estis la riĉeco de la gloro de ĉi tiu mistero inter la nacianoj; kiu estas Kristo en vi, la espero de gloro;
 
 28 kaj kiun ni anoncas, admonante ĉiun homon kaj instruante ĉiun
 
 homon en ĉia saĝo, por ke ni starigu ĉiun homon perfekta en Kristo
 
-Jesuo; 29 por tiu celo mi ankaŭ laboras, klopodante laŭ lia energio, 
+Jesuo; 29 por tiu celo mi ankaŭ laboras, klopodante laŭ lia energio,
 
-kiu energias en mi kun potenco. 
+kiu energias en mi kun potenco.
 
 ĉapitro 2
 
@@ -22780,11 +21992,9 @@ pro tiuj en Laodikea, kaj pro ĉiuj, kiuj ne vidis mian vizaĝon en la
 
 karno; 2 por ke iliaj koroj konsoliĝu, dum ili kunkroĉiĝas en amo, kaj
 
-380
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 al ĉia riĉeco de la plena certiĝo de kompreno, por ke ili sciu la mis-
 
@@ -22796,19 +22006,19 @@ logeco. 5 ĉar kvankam mi laŭ karno forestas, tamen laŭ spirito mi
 
 estas kun vi, ĝojante kaj vidante vian ordon kaj la firmecon de via
 
-fido al Kristo. 
+fido al Kristo.
 
-6 Kiel do vi ricevis Kriston Jesuon, la Sinjoron, tiel vi iradu en li, 
+6 Kiel do vi ricevis Kriston Jesuon, la Sinjoron, tiel vi iradu en li,
 
-7 enradikigite kaj konstruite en li, kaj firmigite en la fido, kiel vi estas instruitaj, kun abundo da dankesprimo. 
+7 enradikigite kaj konstruite en li, kaj firmigite en la fido, kiel vi estas instruitaj, kun abundo da dankesprimo.
 
-8 Gardu vin, ke neniu prirabu vin per filozofio kaj vanta trompo, 
+8 Gardu vin, ke neniu prirabu vin per filozofio kaj vanta trompo,
 
 laŭ la tradicio de homoj, laŭ la elementoj de la mondo, kaj ne laŭ
 
 Kristo; 9 ĉar en li korpe loĝas la tuta pleneco de la Dieco, 10 kaj vi
 
-estas plenigitaj en li, kiu estas la kapo de ĉia estreco kaj aŭtoritato; 
+estas plenigitaj en li, kiu estas la kapo de ĉia estreco kaj aŭtoritato;
 
 11 en kiu ankaŭ vi cirkumcidiĝis per cirkumcido ne manfarita, en la
 
@@ -22828,9 +22038,9 @@ prenis ĝin el la mezo, najlinte ĝin al la kruco; 15 kaj foriginte de si
 
 la estrecojn kaj la aŭtoritatojn, parade malkaŝis ilin, triumfante su-
 
-per ili en ĝi. 
+per ili en ĝi.
 
-16 Neniu do vin juĝu pri manĝaĵo, aŭ trinkaĵo, aŭ rilate al festo, 
+16 Neniu do vin juĝu pri manĝaĵo, aŭ trinkaĵo, aŭ rilate al festo,
 
 aŭ novmonato, aŭ sabato; 17 kiuj estas ombro de la estontaĵoj, sed
 
@@ -22842,15 +22052,13 @@ tion, kion li ne vidis, vante blovoŝvelinte per sia karna menso, 19 kaj
 
 ne tenante sin al la Kapo, el kiu la tuta korpo, per la artikoj kaj li-
 
-giloj provizita kaj kunigita, kreskas laŭ la kreskigo de Dio. 
+giloj provizita kaj kunigita, kreskas laŭ la kreskigo de Dio.
 
-381
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-20 Se vi mortis kun Kristo for de la elementoj de la mondo, kial, 
+20 Se vi mortis kun Kristo for de la elementoj de la mondo, kial,
 
 kiel vivantaj en la mondo, vi submetiĝas al dekretoj: 21 Ne tuŝu, ne
 
@@ -22860,7 +22068,7 @@ noj kaj doktrinoj de homoj? 23 ĉio tio havas ŝajnon de saĝeco en
 
 volokulto kaj humileco kaj severeco rilate al la korpo, sed ne en ia
 
-valoro por plensatigo de la karno. 
+valoro por plensatigo de la karno.
 
 ĉapitro 3
 
@@ -22870,7 +22078,7 @@ Kristo sidas dekstre de Dio. 2 Atentu tion, kio estas supre, ne sur-
 
 teraĵojn. 3 ĉar vi mortis, kaj via vivo kaŝiĝis kun Kristo en Dio. 4
 
-Kiam aperos Kristo, nia vivo, tiam vi ankaŭ kun li aperos en gloro. 
+Kiam aperos Kristo, nia vivo, tiam vi ankaŭ kun li aperos en gloro.
 
 5 Malvivigu do viajn membrojn, kiuj estas sur la tero: malĉaste-
 
@@ -22892,13 +22100,13 @@ lin kreis; 11 kie ne povas esti Greko kaj Judo, cirkumcido kaj necir-
 
 kumcido, barbaro, Skito, sklavo, liberulo, sed Kristo estas ĉio kaj en
 
-ĉio. 
+ĉio.
 
 12 Surmetu do, kiel elektitoj de Dio, sanktaj kaj amataj, koron de
 
 kompato, bonkorecon, humilecon, mildecon, toleremecon; 13 reci-
 
-proke paciencante kaj pardonante, se iu havas plendon kontraŭ iu; 
+proke paciencante kaj pardonante, se iu havas plendon kontraŭ iu;
 
 kiel la Sinjoro pardonis vin, tiel vi ankaŭ faru; 14 kaj super ĉion tion
 
@@ -22906,25 +22114,23 @@ surmetu amon, kiu estas ligilo de perfekteco. 15 Kaj la paco de Kristo
 
 prezidu en viaj koroj, al kiu ankaŭ vi estas vokitaj en unu korpo, kaj
 
-382
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-estu dankemaj. 16 La vorto de Kristo loĝu en vi riĉe, en ĉia saĝeco; 
+estu dankemaj. 16 La vorto de Kristo loĝu en vi riĉe, en ĉia saĝeco;
 
 kaj instruu kaj admonu unu la alian per psalmoj kaj himnoj kaj spi-
 
 ritaj kantoj, kantante kun graco en viaj koroj al Dio. 17 Kaj kion ajn
 
-vi faras per vorto aŭ ago, faru ĉion en la nomo de la Sinjoro Jesuo, 
+vi faras per vorto aŭ ago, faru ĉion en la nomo de la Sinjoro Jesuo,
 
-dankante Dion, la Patron, per li. 
+dankante Dion, la Patron, per li.
 
 18 Edzinoj, submetiĝu al viaj edzoj, kiel decas en la Sinjoro. 19
 
-Edzoj, amu viajn edzinojn, kaj ne maldolĉiĝu kontraŭ ili. 20 Infanoj, 
+Edzoj, amu viajn edzinojn, kaj ne maldolĉiĝu kontraŭ ili. 20 Infanoj,
 
 obeu viajn gepatrojn en ĉio, ĉar tio plaĉas al la Sinjoro. 21 Patroj, ne
 
@@ -22936,17 +22142,17 @@ toj, sed en simpleco de koro, timante la Sinjoron; 23 kaj kion ajn vi
 
 faras, laboru plenanime, kiel por la Sinjoro, kaj ne por homoj, 24
 
-sciante, ke de la Sinjoro vi ricevos la rekompencon de la heredaĵo; 
+sciante, ke de la Sinjoro vi ricevos la rekompencon de la heredaĵo;
 
 ĉar vi servas la Sinjoron Kristo. 25 Sed ĉiu maljuste faranta ricevos
 
-returne laŭ sia maljustaĵo, kaj ne ekzistas personfavorado. 
+returne laŭ sia maljustaĵo, kaj ne ekzistas personfavorado.
 
 ĉapitro 4
 
 1 Sinjoroj, donu al viaj sklavoj justaĵon kaj egalaĵon, sciante, ke vi
 
-ankaŭ havas Sinjoron en la ĉielo. 
+ankaŭ havas Sinjoron en la ĉielo.
 
 2 En preĝado persistu, viglante en ĝi kun danko; 3 preĝante sam-
 
@@ -22960,7 +22166,7 @@ rilate al la eksteruloj, elaĉetante la tempon. 6 Via parolo estu ĉiam
 
 kun graco, spicita per salo, por ke vi sciu, kiel vi devus respondi al
 
-ĉiu. 
+ĉiu.
 
 7 Pri ĉiuj miaj aferoj sciigos vin Ti˛iko, la amata frato kaj fidela
 
@@ -22968,23 +22174,21 @@ diakono kaj kunservanto en la Sinjoro, 8 kiun mi sendis al vi ĝuste
 
 por tio, ke vi sciiĝu pri nia farto, kaj ke li konsolu viajn korojn, 9
 
-383
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kune kun Onesimo, la fidela kaj amata frato, kiu estas el vi. Ili scii-
 
-gos vin pri ĉiuj ĉi tieaj aferoj. 
+gos vin pri ĉiuj ĉi tieaj aferoj.
 
 10 Salutas vin Aristar˛o, mia kunmalliberulo, kaj Marko, kuzo de
 
-Barnabas \(pri kiu vi ricevis ordonojn: se li venos al vi, akceptu lin\), 
+Barnabas (pri kiu vi ricevis ordonojn: se li venos al vi, akceptu lin),
 
 11 kaj Jesu, nomata Justo, kiuj estas el la cirkumcido; tiuj solaj estas
 
-miaj kunlaborantoj por la regno de Dio, kiuj estis al mi konsolilo. 
+miaj kunlaborantoj por la regno de Dio, kiuj estis al mi konsolilo.
 
 12 Salutas vin Epafras, kiu estas el vi, servisto de Kristo Jesuo, ĉiam
 
@@ -23004,17 +22208,15 @@ gata ankaŭ en la eklezio en Laodikea; kaj ke vi ankaŭ legu la epis-
 
 tolon el Laodikea. 17 Kaj diru al Ar˛ipo: Zorgu pri la diakoneco, kiun
 
-vi ricevis en la Sinjoro, por ke vi plenumu ĝin. 
+vi ricevis en la Sinjoro, por ke vi plenumu ĝin.
 
 18 La saluto per la propra mano de mi, Paŭlo. Memoru miajn ka-
 
-tenojn. Graco estu kun vi. 
+tenojn. Graco estu kun vi.
 
-384
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La unua epistolo de la apostolo
 
@@ -23024,7 +22226,7 @@ Paŭlo al la Tesalonikanoj
 
 1 Paŭlo kaj Silvano kaj Timoteo al la eklezio de la Tesalonikanoj en
 
-Dio, la Patro, kaj la Sinjoro Jesuo Kristo: Graco al vi kaj paco. 
+Dio, la Patro, kaj la Sinjoro Jesuo Kristo: Graco al vi kaj paco.
 
 2 Ni ĉiam dankas Dion pri vi ĉiuj, memorigante pri vi en niaj
 
@@ -23038,7 +22240,7 @@ evangelio venis al vi ne nur parole, sed ankaŭ kun potenco kaj kun
 
 la Sankta Spirito kaj plena certigo; vi scias, kiaj homoj ni ĉe vi mon-
 
-triĝis pro vi. 6 Kaj vi fariĝis imitantoj de ni kaj de la Sinjoro, ricevinte la vorton en multe da aflikto, kun ĝojo de la Sankta Spirito; 7 tiel, 
+triĝis pro vi. 6 Kaj vi fariĝis imitantoj de ni kaj de la Sinjoro, ricevinte la vorton en multe da aflikto, kun ĝojo de la Sankta Spirito; 7 tiel,
 
 ke vi fariĝis modelo por ĉiuj kredantoj en Makedonujo kaj en la
 
@@ -23054,7 +22256,7 @@ idoloj, por servi vivantan kaj veran Dion, 10 kaj atendi Lian Filon el
 
 la ĉielo, la Filon, kiun Li levis el la mortintoj, Jesuon, kiu nin savas
 
-de la estonta kolerego. 
+de la estonta kolerego.
 
 ĉapitro 2
 
@@ -23064,7 +22266,6 @@ ta; 2 sed suferinte kaj insultite en Filipi, kiel vi scias, ni kuraĝiĝis en ni
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 to. 3 ĉar nia instruado ne devenis de eraro, nek de malpureco, kaj
 
@@ -23074,7 +22275,7 @@ evangelion, tiel ni parolas, por plaĉi ne al homoj, sed al Dio, kiu es-
 
 ploras niajn korojn. 5 ĉar, kiel vi scias, ni neniam troviĝis kun vor-
 
-toj flataj, nek kun avideca preteksto \(Dio estas atestanto\), 6 nek ce-
+toj flataj, nek kun avideca preteksto (Dio estas atestanto), 6 nek ce-
 
 lante homan gloron ĉe vi aŭ ĉe iu alia, kvankam ni povis esti al vi
 
@@ -23096,7 +22297,7 @@ ankaŭ, kiel sankte kaj juste kaj senkulpe ni kondutis ĉe vi kredan-
 
 toj; 11 kiel vi scias, ke por ĉiu el vi ni estis kiel patro ĉe siaj infanoj, vin admonante kaj kuraĝigante, kaj petegante, 12 ke vi iradu inde je
 
-Dio, kiu vin vokas en Sian regnon kaj gloron. 
+Dio, kiu vin vokas en Sian regnon kaj gloron.
 
 13 Pro ĉi tio ankaŭ ni senĉese dankas Dion, ke ricevinte per nia
 
@@ -23104,7 +22305,7 @@ parolo la vorton de Dio, vi akceptis ne la homan vorton, sed, kiel ĝi
 
 vere estas, la Dian vorton, kiu ankaŭ energias en vi, kiuj kredas. 14
 
-ĉar vi, fratoj, fariĝis imitantoj de la eklezioj de Dio en Kristo Jesuo, 
+ĉar vi, fratoj, fariĝis imitantoj de la eklezioj de Dio en Kristo Jesuo,
 
 kiuj estas en Judujo; ĉar tiajn samajn suferojn vi ankaŭ spertis ĉe
 
@@ -23114,9 +22315,9 @@ Jesuo kaj la profetojn, kaj nin elpelis, kaj ne plaĉas al Dio, kaj estas
 
 kontraŭuloj al ĉiuj homoj; 16 ili malhelpis al ni prediki al la nacia-
 
-noj, por ke ili saviĝu, por kompletigi ĉiam la sumon de siaj pekoj; 
+noj, por ke ili saviĝu, por kompletigi ĉiam la sumon de siaj pekoj;
 
-kaj sur ilin venis la kolero ĝis ekstrema mezuro. 
+kaj sur ilin venis la kolero ĝis ekstrema mezuro.
 
 17 Sed, fratoj, ni, senigite je vi dum kelka tempo, persone, ne ko-
 
@@ -23124,17 +22325,15 @@ re, des pli fervore klopodis vidi vian vizaĝon kun multa sopiro; 18
 
 ĉar ni deziris veni al vi; mi, Paŭlo, tion deziris pli ol unufoje; sed
 
-386
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 malhelpis nin Satano. 19 ĉar kio estas nia espero, aŭ ĝojo, aŭ kro-
 
 no de singratulado? ĉu ĝi ja ne estas vi, antaŭ nia Sinjoro Jesuo
 
-Kristo ĉe lia alveno? 20 ĉar vi estas nia gloro kaj nia ĝojo. 
+Kristo ĉe lia alveno? 20 ĉar vi estas nia gloro kaj nia ĝojo.
 
 ĉapitro 3
 
@@ -23144,7 +22343,7 @@ laj en Ateno; 2 kaj ni sendis Timoteon, nian fraton kaj servanton de
 
 Dio en la evangelio de Kristo, por firmigi vin kaj konsoli vin pri via
 
-fido, 3 por ke neniu estu ŝancelita de tiuj afliktoj; ĉar vi mem scias, 
+fido, 3 por ke neniu estu ŝancelita de tiuj afliktoj; ĉar vi mem scias,
 
 ke ili apartenas al nia sorto. 4 ĉar kiam ni estis ĉe vi, ni antaŭdiris
 
@@ -23152,7 +22351,7 @@ al vi, ke ni nepre suferos; kaj tio efektive okazis, kiel vi ja scias. 5 Pro tio
 
 certiĝu pri via fido, pro timo, ke eble la tentanto vin tentis kaj ke nia
 
-laboro fariĝos senutila. 6 Sed kiam Timoteo, ĵus veninte al ni de vi, 
+laboro fariĝos senutila. 6 Sed kiam Timoteo, ĵus veninte al ni de vi,
 
 donis al ni bonajn sciigojn pri via fido kaj via amo, kaj ke vi ĉiam
 
@@ -23166,7 +22365,7 @@ dankon ni povas repagi al Dio pri vi, pro la tuta ĝojo, per kiu ni
 
 ĝojas pro vi antaŭ Dio; 10 nokte kaj tage preĝante fervore, ke ni po-
 
-vu vidi vian vizaĝon kaj perfektigi la mankojn de via fido? 
+vu vidi vian vizaĝon kaj perfektigi la mankojn de via fido?
 
 11 Nia Dio kaj Patro mem kaj nia Sinjoro Jesuo direktu nian vo-
 
@@ -23174,21 +22373,19 @@ jon al vi; 12 kaj la Sinjoro pligrandigu kaj abundigu ĉe vi la amon de
 
 unu al la alia kaj al ĉiuj, kiel ni amas vin; 13 por ke li faru viajn korojn senkulpaj kaj sanktaj antaŭ nia Dio kaj Patro, ĉe la alveno de nia
 
-Sinjoro Jesuo kun ĉiuj liaj sanktuloj. 
+Sinjoro Jesuo kun ĉiuj liaj sanktuloj.
 
 ĉapitro 4
 
-387
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 1 Fine do, fratoj, ni petegas kaj admonas vin en la Sinjoro Jesuo, ke
 
-kiamaniere vi lernis de ni, kiel vi devus iradi kaj plaĉi al Dio \(kaj vi
+kiamaniere vi lernis de ni, kiel vi devus iradi kaj plaĉi al Dio (kaj vi
 
-ja tiel iradas\), tiamaniere vi pli kaj pli abunde agu. 2 ĉar vi scias, kian admonon ni donis al vi en la Sinjoro Jesuo. 3 ĉar jen estas la volo de
+ja tiel iradas), tiamaniere vi pli kaj pli abunde agu. 2 ĉar vi scias, kian admonon ni donis al vi en la Sinjoro Jesuo. 3 ĉar jen estas la volo de
 
 Dio, via sanktiĝo, ke vi vin detenu de malĉasteco; 4 ke ĉiu el vi sciu
 
@@ -23202,7 +22399,7 @@ tio, kiel ankaŭ ni antaŭavertis vin kaj atestis. 7 ĉar Dio nin vokis ne
 
 por malpureco, sed por sanktiĝo. 8 Tiu do, kiu malakceptas, malak-
 
-ceptas ne homon, sed Dion, kiu donas al vi Sian Sanktan Spiriton. 
+ceptas ne homon, sed Dion, kiu donas al vi Sian Sanktan Spiriton.
 
 9 Sed pri amo al la frataro, vi ne bezonas, ke oni skribu al vi, ĉar
 
@@ -23210,15 +22407,15 @@ vi mem estas instruitaj de Dio ami unu la alian; 10 ĉar vi ja tion fa-
 
 ras al ĉiuj fratoj, kiuj estas en la tuta Makedonujo. Sed ni admonas
 
-vin, fratoj, ke vi amu pli kaj pli abunde, 11 kaj ke vi celu esti kvietaj, 
+vin, fratoj, ke vi amu pli kaj pli abunde, 11 kaj ke vi celu esti kvietaj,
 
 kaj fari viajn proprajn aferojn, kaj labori per viaj manoj, ĝuste kiel
 
 ni al vi ordonis; 12 por ke vi iradu konvene antaŭ tiuj, kiuj estas ek-
 
-stere, kaj por ke nenio al vi manku. 
+stere, kaj por ke nenio al vi manku.
 
-13 Sed ni ne volas, fratoj, ke vi ne sciu pri tiuj, kiuj endormiĝis; 
+13 Sed ni ne volas, fratoj, ke vi ne sciu pri tiuj, kiuj endormiĝis;
 
 por ke vi ne malĝoju, kiel la ceteraj, kiuj havas nenian esperon. 14
 
@@ -23240,31 +22437,29 @@ kune kun ili suprenkaptitaj en la nubojn, por renkonti la Sinjoron
 
 en la aero; kaj tiel ni estos por ĉiam kun la Sinjoro. 18 Tial per tiuj
 
-vortoj konsolu unu la alian. 
+vortoj konsolu unu la alian.
 
-388
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 5
 
 1 Sed pri la tempoj kaj okazoj, fratoj, vi ne bezonas, ke oni skribu
 
-al vi. 2 ĉar vi mem tute bone scias, ke la tago de la Sinjoro venas, 
+al vi. 2 ĉar vi mem tute bone scias, ke la tago de la Sinjoro venas,
 
-kiel ŝtelisto en la nokto. 3 Dum oni diras: Paco kaj sendanĝereco, 
+kiel ŝtelisto en la nokto. 3 Dum oni diras: Paco kaj sendanĝereco,
 
-tiam subita detruo venas sur ilin, kiel naskodoloro al gravedulino, 
+tiam subita detruo venas sur ilin, kiel naskodoloro al gravedulino,
 
-kaj ili tute ne forsaviĝos. 4 Sed vi, fratoj, ne estas en mallumo tiel, 
+kaj ili tute ne forsaviĝos. 4 Sed vi, fratoj, ne estas en mallumo tiel,
 
 ke tiu tago vin trafus kiel ŝtelisto; 5 ĉar vi ĉiuj estas filoj de lumo kaj filoj de la tago; ni ne estas el la nokto, nek el mallumo; 6 tial ni ne
 
-dormu, kiel la ceteraj, sed ni viglu kaj estu sobraj. 7 ĉar kiuj dormas, 
+dormu, kiel la ceteraj, sed ni viglu kaj estu sobraj. 7 ĉar kiuj dormas,
 
-tiuj dormas en la nokto; kaj kiuj ebriiĝas, tiuj ebriiĝas en la nokto. 
+tiuj dormas en la nokto; kaj kiuj ebriiĝas, tiuj ebriiĝas en la nokto.
 
 8 Sed ĉar ni estas el la tago, ni estu sobraj, surmetante la kirason de
 
@@ -23276,55 +22471,51 @@ Kristo, 10 kiu mortis por ni, por ke ni vivu kune kun li, ĉu ni maldor-
 
 mos aŭ dormos. 11 Tial admonu vin reciproke kaj edifu unu la ali-
 
-an, kiel ankaŭ vi jam faradas. 
+an, kiel ankaŭ vi jam faradas.
 
 12 Sed ni petegas vin, fratoj, koni tiujn, kiuj laboras ĉe vi kaj est-
 
 ras ĉe vi en la Sinjoro kaj vin admonas, 13 kaj estimi ilin treege kun
 
-amo pro ilia laboro. Estu pacemaj unu kun la alia. 14 Kaj ni petas vin, 
+amo pro ilia laboro. Estu pacemaj unu kun la alia. 14 Kaj ni petas vin,
 
 fratoj, admonu la senordulojn, kuraĝigu la nebravulojn, subtenu la
 
 malfortulojn, estu paciencaj kontraŭ ĉiuj. 15 Zorgu, ke neniu redonu
 
-al iu malbonon por malbono; sed ĉiam sekvu tion, kio estas bona, 
+al iu malbonon por malbono; sed ĉiam sekvu tion, kio estas bona,
 
-unu por alia kaj por ĉiuj. 16 ¯oju ĉiam; 17 preĝu senĉese; 18 pri ĉio
+unu por alia kaj por ĉiuj. 16 oju ĉiam; 17 preĝu senĉese; 18 pri ĉio
 
 donu dankon; ĉar tia estas la volo de Dio en Kristo Jesuo pri vi. 19
 
-Ne estingu la Spiriton; 20 ne malestimu profetaĵojn; 21 elprovu ĉion; 
+Ne estingu la Spiriton; 20 ne malestimu profetaĵojn; 21 elprovu ĉion;
 
 tenu firme tion, kio estas bona; 22 detenu vin de ĉia formo de mal-
 
-bono. 
+bono.
 
 23 Kaj la Dio de paco vin sanktigu tute; kaj via spirito kaj animo
 
-389
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj korpo estu plene konservitaj sen kulpo, ĉe la alveno de nia Sinj-
 
-oro Jesuo Kristo. 24 Fidela estas Tiu, kiu vin vokas, kiu ankaŭ faros. 
+oro Jesuo Kristo. 24 Fidela estas Tiu, kiu vin vokas, kiu ankaŭ faros.
 
-25 Fratoj, preĝu por ni. 
+25 Fratoj, preĝu por ni.
 
 26 Salutu ĉiujn fratojn per sankta kiso. 27 Mi solene petegas vin
 
-per la Sinjoro, ke oni legu ĉi tiun epistolon antaŭ la tuta frataro. 
+per la Sinjoro, ke oni legu ĉi tiun epistolon antaŭ la tuta frataro.
 
-28 La graco de nia Sinjoro Jesuo Kristo estu kun vi. 
+28 La graco de nia Sinjoro Jesuo Kristo estu kun vi.
 
-390
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La dua epistolo de la apostolo
 
@@ -23336,7 +22527,7 @@ Paŭlo al laTesalonikanoj
 
 Dio, nia Patro, kaj la Sinjoro Jesuo Kristo: 2 Graco al vi kaj paco de
 
-Dio, la Patro, kaj de la Sinjoro Jesuo Kristo. 
+Dio, la Patro, kaj de la Sinjoro Jesuo Kristo.
 
 3 Ni devas ĉiam danki Dion pro vi, fratoj, kiel estas ja dece, pro
 
@@ -23364,7 +22555,7 @@ de antaŭ la vizaĝo de la Sinjoro kaj de la gloro de lia potenco, 10
 
 kiam li venos por esti glorata en siaj sanktuloj, kaj esti admirata ĉe
 
-ĉiuj, kiuj ekkredis \(ĉar nia atestado ĉe vi estis kredata\) en tiu tago. 
+ĉiuj, kiuj ekkredis (ĉar nia atestado ĉe vi estis kredata) en tiu tago.
 
 11 Por tiu celo ni ankaŭ konstante preĝas por vi, ke nia Dio vin trovu
 
@@ -23374,13 +22565,11 @@ kaj ĉiun laboron de fido; 12 por ke la nomo de nia Sinjoro Jesuo estu
 
 glorata en vi, kaj vi en li, laŭ la graco de nia Dio kaj la Sinjoro Je-
 
-suo Kristo. 
+suo Kristo.
 
-391
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 2
 
@@ -23392,7 +22581,7 @@ mense, kaj ne konsterniĝu, ĉu per spirito, aŭ per parolo, aŭ per le-
 
 tero ŝajne de ni, kvazaŭ la tago de la Sinjoro jam apudestus; 3 ne-
 
-niu vin trompu iamaniere; ĉar nepre antaŭe okazos la apostateco, 
+niu vin trompu iamaniere; ĉar nepre antaŭe okazos la apostateco,
 
 kaj la homo de peko malkaŝiĝos, la filo de pereo, 4 kiu kontraŭmetas
 
@@ -23406,7 +22595,7 @@ nun vi scias, kio malhelpas, por ke li malkaŝiĝu siatempe. 7 ĉar la
 
 mistero de maljusteco jam energias; sed restas ankoraŭ la malhel-
 
-panto, ĝis li estos formovita. 8 Kaj tiam malkaŝiĝos la maljustulo, 
+panto, ĝis li estos formovita. 8 Kaj tiam malkaŝiĝos la maljustulo,
 
 kiun la Sinjoro Jesuo detruos per la spiro de sia buŝo kaj neniigos
 
@@ -23422,7 +22611,7 @@ al ili energion de eraro, tiel, ke ili kredos mensogon; 12 por ke estu
 
 juĝataj ĉiuj, kiuj ne kredis la veron, sed trovis plezuron en maljus-
 
-teco. 
+teco.
 
 13 Sed ni devas ĉiam danki Dion pro vi, fratoj, amataj de la Sinj-
 
@@ -23430,23 +22619,21 @@ oro, pro tio, ke Dio vin elektis de la komenco al savo en la sankti-
 
 go de la Spirito kaj kredo al la vero; 14 al kiu Li vin vokis per nia
 
-evangelio, por la akiro de la gloro de nia Sinjoro Jesuo Kristo. 15 Tial, 
+evangelio, por la akiro de la gloro de nia Sinjoro Jesuo Kristo. 15 Tial,
 
 fratoj, staru firme, kaj tenu la tradiciojn, kiujn vi lernis ĉu per pa-
 
-rolo, aŭ per ia letero nia. 
+rolo, aŭ per ia letero nia.
 
 16 Nia Sinjoro Jesuo Kristo mem, kaj Dio, nia Patro, kiu nin amis
 
 kaj al ni donis eternan konsolon kaj bonan esperon per graco, 17
 
-konsolu viajn korojn kaj fortigu ilin por ĉia bona faro kaj vorto. 
+konsolu viajn korojn kaj fortigu ilin por ĉia bona faro kaj vorto.
 
-392
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 3
 
@@ -23456,15 +22643,15 @@ estu glorata, kiel ankaŭ ĉe vi; 2 kaj ke ni forsaviĝu de senprudentaj
 
 kaj malbonaj homoj; ĉar ne ĉe ĉiuj estas la fido. 3 Sed fidela estas la
 
-Sinjoro, kiu vin fortikigos kaj vin defendos kontraŭ la malbonulo. 
+Sinjoro, kiu vin fortikigos kaj vin defendos kontraŭ la malbonulo.
 
 4 Sed ni fidas la Sinjoron rilate vin, ke vi faras kaj faros tion, kion ni
 
 ordonas. 5 Kaj la Sinjoro direktu viajn korojn en la amon al Dio kaj
 
-en la paciencon de Kristo. 
+en la paciencon de Kristo.
 
-6 Ni ordonas al vi, fratoj, en la nomo de la Sinjoro Jesuo Kristo, 
+6 Ni ordonas al vi, fratoj, en la nomo de la Sinjoro Jesuo Kristo,
 
 ke vi vin apartigu for de ĉiu frato, kiu iradas senorde kaj ne laŭ la
 
@@ -23480,7 +22667,7 @@ ton, sed por estigi nin ekzemplo antaŭ vi, ke vi nin imitu. 10 ĉar eĉ
 
 kiam ni estis ĉe vi, la jenon ni ordonis al vi: Se iu ne volas labori, tiu
 
-ankaŭ ne manĝu. 11 ĉar ni aŭdas, ke inter vi iradas senorde kelkaj, 
+ankaŭ ne manĝu. 11 ĉar ni aŭdas, ke inter vi iradas senorde kelkaj,
 
 kiuj tute ne laboras, sed en ĉies aferojn sin enŝovas. 12 Tiajn ni or-
 
@@ -23492,23 +22679,21 @@ farado. 14 Sed se iu ne obeos al la parolo de ĉi tiu nia epistolo, rimar-
 
 ku tiun, kaj ne estu por li kamaradoj, por ke li hontiĝu. 15 Tamen ne
 
-rigardu lin kiel malamikon, sed admonu lin kiel fraton. 
+rigardu lin kiel malamikon, sed admonu lin kiel fraton.
 
 16 La Sinjoro de paco mem donu al vi pacon ĉiutempe kaj ĉiuma-
 
-niere. La Sinjoro estu kun vi ĉiuj. 
+niere. La Sinjoro estu kun vi ĉiuj.
 
 17 La saluto de mi, Paŭlo, per mia propra mano, kiu estas la sig-
 
 no en ĉiu epistolo; tiel mi skribas. 18 La graco de nia Sinjoro Jesuo
 
-Kristo estu kun vi ĉiuj. 
+Kristo estu kun vi ĉiuj.
 
-393
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La unua epistolo de la apostolo
 
@@ -23522,7 +22707,7 @@ to, kaj Kristo Jesuo, nia espero, 2 al Timoteo, mia vera filo en fido:
 
 Graco, kompato, kaj paco de Dio, la Patro, kaj de Kristo Jesuo, nia
 
-Sinjoro. 
+Sinjoro.
 
 3 Kiel mi, ekironte en Makedonujon, petis vin resti en Efeso, por
 
@@ -23530,7 +22715,7 @@ ke vi admonu kelkajn homojn, ke ili ne instruu alian doktrinon, 4
 
 nek atentu fabelojn kaj senfinajn genealogiojn, kiuj naskas disku-
 
-tojn, pli ol tiun administradon de Dio, kiu estas laŭ la fido—tiel faru. 
+tojn, pli ol tiun administradon de Dio, kiu estas laŭ la fido—tiel faru.
 
 5 Sed la celo de la admono estas amo el pura koro kaj bona konsci-
 
@@ -23538,9 +22723,9 @@ enco kaj sincera fido; 6 kion maltrafinte, kelkaj homoj sin deturnis
 
 al vanta babilado, 7 dezirante esti instruistoj de la leĝo, kvankam ili
 
-ne komprenas tion, kion ili diras, nek tion, pri kio ili faras aserton. 
+ne komprenas tion, kion ili diras, nek tion, pri kio ili faras aserton.
 
-8 Sed ni scias, ke la leĝo estas bona, se oni ĝin laŭleĝe uzas, 9 sciante, 
+8 Sed ni scias, ke la leĝo estas bona, se oni ĝin laŭleĝe uzas, 9 sciante,
 
 ke la leĝo ekzistas ne por justulo, sed por homoj senleĝaj kaj ma-
 
@@ -23552,9 +22737,9 @@ kaj viruzaĉantoj, homŝtelistoj, mensogantoj, falseĵurantoj, kaj ĉio
 
 ajn alia kontraŭa al la sana doktrino; 11 laŭ la konfidita al mi evang-
 
-elio de la gloro de la benata Dio. 
+elio de la gloro de la benata Dio.
 
-12 Mi dankas Kriston Jesuon, nian Sinjoron, kiu min kapabligas, 
+12 Mi dankas Kriston Jesuon, nian Sinjoron, kiu min kapabligas,
 
 tial, ke li trovis min fidela, destinante min al sia servado; 13 kvankam
 
@@ -23562,11 +22747,9 @@ mi antaŭe estis blasfemanto kaj persekutanto kaj insultanto; tamen
 
 mi ricevis kompaton, ĉar mi tion faris nesciante kaj nekredante; 14
 
-394
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj la graco de nia Sinjoro abunde sufiĉegis kun fido kaj amo, kiuj
 
@@ -23574,15 +22757,15 @@ estas en Kristo Jesuo. 15 Fidinda estas la diro, kaj inda je plena ak-
 
 cepto, ke Kristo Jesuo envenis en la mondon, por savi pekantojn, el
 
-kiuj mi estas la ĉefa; 16 tamen pro tiu kaŭzo mi ricevis kompaton, 
+kiuj mi estas la ĉefa; 16 tamen pro tiu kaŭzo mi ricevis kompaton,
 
 por ke en mi, kiel la ĉefa, Jesuo Kristo elmontru sian tutan pacience-
 
-gon, kiel ekzemplo por tiuj, kiuj poste kredos al li por eterna vivo. 
+gon, kiel ekzemplo por tiuj, kiuj poste kredos al li por eterna vivo.
 
 17 Nun al la Reĝo eterna, senmorta, nevidebla, la sola Dio, estu ho-
 
-noro kaj gloro por ĉiam kaj eterne. Amen. 
+noro kaj gloro por ĉiam kaj eterne. Amen.
 
 18 ĉi tiun zorgadon mi komisias al vi, mia filo Timoteo, laŭ la
 
@@ -23594,11 +22777,11 @@ si, kelkaj homoj ŝippereis rilate la fidon; 20 el kiuj estas Himeneo kaj
 
 Aleksandro, kiujn mi transdonis al Satano, por ke ili lernu ne blas-
 
-femi. 
+femi.
 
 ĉapitro 2
 
-1 Mi konsilas do, antaŭ ĉio, fari petegojn, preĝojn, propetadojn, 
+1 Mi konsilas do, antaŭ ĉio, fari petegojn, preĝojn, propetadojn,
 
 dankojn por ĉiuj; 2 por reĝoj kaj ĉiuj eminentuloj, por ke ni vivadu
 
@@ -23612,35 +22795,33 @@ interulo inter Dio kaj homoj, homo, Kristo Jesuo, 6 kiu sin donis kiel
 
 elaĉetaĵon por ĉiuj, ateston elmontrotan en konvenaj tempoj; 7 por
 
-kio mi estas nomita predikisto kaj apostolo \(mi diras la veron, mi
+kio mi estas nomita predikisto kaj apostolo (mi diras la veron, mi
 
-ne mensogas\), instruisto por la nacianoj en fido kaj vero. 
+ne mensogas), instruisto por la nacianoj en fido kaj vero.
 
 8 Mi deziras do, ke la viroj preĝu en ĉiu loko, levante sanktajn
 
 manojn, sen kolero kaj disputado. 9 Tiel same, ke virinoj sin vestu
 
-per decaj vestoj, kun modesteco kaj sobreco; ne kun harplektaĵoj, 
+per decaj vestoj, kun modesteco kaj sobreco; ne kun harplektaĵoj,
 
-aŭ oro, aŭ perloj, aŭ multekostaj vestoj; 10 sed \(kio konvenas al vi-
+aŭ oro, aŭ perloj, aŭ multekostaj vestoj; 10 sed (kio konvenas al vi-
 
-395
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-rinoj konfesantaj la piecon\) per bonfaroj. 11 Virino lernu en kvieteco
+rinoj konfesantaj la piecon) per bonfaroj. 11 Virino lernu en kvieteco
 
 kun ĉia submetiĝo. 12 Sed mi ne permesas al virino instruadi, nek
 
-regi super viro, sed esti en kvieteco. 13 ĉar Adam kreiĝis la unua, 
+regi super viro, sed esti en kvieteco. 13 ĉar Adam kreiĝis la unua,
 
 poste Eva; 14 kaj Adam ne trompiĝis; sed la virino, trompite, falis en
 
 pekon; 15 sed ŝi saviĝos per la naskado, se ili daŭras en fido kaj amo
 
-kaj sanktiĝo kun sobreco. 
+kaj sanktiĝo kun sobreco.
 
 ĉapitro 3
 
@@ -23654,9 +22835,9 @@ ma, ne batema; sed mildanima, ne disputema, ne monamanto; 4
 
 reganta bone sian propran domanaron, tenante siajn gefilojn sub
 
-regado kun ĉia seriozeco 5 \(sed se iu ne scias regi sian propran do-
+regado kun ĉia seriozeco 5 (sed se iu ne scias regi sian propran do-
 
-mon, kiel li zorgos pri la eklezio de Dio?\); 6 ne novico, por ke li ne
+mon, kiel li zorgos pri la eklezio de Dio?); 6 ne novico, por ke li ne
 
 ŝvelu per fiereco kaj ne falu en la kondamnon de la diablo. 7 Krom
 
@@ -23680,27 +22861,25 @@ prajn domojn. 13 ĉar tiuj, kiuj bone servadis kiel diakonoj, akiras al
 
 si bonan gradon kaj grandan kuraĝon en la fido, kiu estas en Kris-
 
-to Jesuo. 
+to Jesuo.
 
 14 ĉi tion mi skribas al vi, esperante veni al vi baldaŭ, 15 sed se mi
 
 prokrastos, por ke vi komprenu, kiel oni devas konduti en la domo
 
-396
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 de Dio, kiu estas la eklezio de la vivanta Dio, la kolono kaj bazo de
 
-la vero. 16 Kaj laŭ konsento, granda estas la mistero de pieco: Tiu, 
+la vero. 16 Kaj laŭ konsento, granda estas la mistero de pieco: Tiu,
 
 kiu elmontriĝis en la karno, praviĝis en la spirito, estis vidita de
 
 anĝeloj, pripredikita ĉe la nacioj, prikredita en la mondo, prenita
 
-supren en gloro. 
+supren en gloro.
 
 ĉapitro 4
 
@@ -23710,7 +22889,7 @@ de la fido, atentante delogantajn spiritojn kaj doktrinojn de demo-
 
 noj, 2 per la hipokriteco de trompantoj, kiuj havas la konsciencon
 
-kaŭterizitan kvazaŭ per brule varmega fero, 3 admonante ne edziĝi, 
+kaŭterizitan kvazaŭ per brule varmega fero, 3 admonante ne edziĝi,
 
 kaj deteni sin de manĝaĵoj, kiujn Dio kreis por ke ili estu danke ri-
 
@@ -23720,13 +22899,13 @@ estas bona, kaj nenio devas esti forĵetita, se oni ĝin ricevas kun
 
 dankesprimo, 5 ĉar ĝi estas sanktigita per la parolo de Dio kaj per
 
-preĝo. 
+preĝo.
 
 6 Se vi memorigos la fratojn pri tio, vi estos bona servanto de
 
 Kristo Jesuo, nutrita per la vortoj de la fido kaj de la bona doktri-
 
-no, kiun vi jam sekvis; 7 sed forrifuzu profanajn kaj avinajn fabelojn. 
+no, kiun vi jam sekvis; 7 sed forrifuzu profanajn kaj avinajn fabelojn.
 
 Kaj ekzercu vin al pieco; 8 ĉar korpa ekzercado malmulte utilas; sed
 
@@ -23738,21 +22917,19 @@ tio ni laboras kaj batalas, ĉar ni apogas nian esperon sur la vivan-
 
 tan Dion, kiu estas la Savanto de ĉiuj homoj, precipe de la kredan-
 
-toj. 11 Tion ordonu kaj instruu. 12 Neniu malestimu vian junecon, 
+toj. 11 Tion ordonu kaj instruu. 12 Neniu malestimu vian junecon,
 
 sed vi estu ekzemplo al la kredantoj, per parolo, per konduto, per
 
-amo, per fido, per ĉasteco. 13 ¯is mi venos, atentu legadon, konsi-
+amo, per fido, per ĉasteco. 13 is mi venos, atentu legadon, konsi-
 
 lon, instruadon. 14 Ne malŝatu la donacon, kiu estas en vi, donita al
 
-vi per profetado, kun la surmetado de la manoj de la presbiteraro. 
+vi per profetado, kun la surmetado de la manoj de la presbiteraro.
 
-397
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 15 Estu diligenta pri tiuj aferoj; dediĉu vin al ili, por ke via progre-
 
@@ -23760,7 +22937,7 @@ so evidentiĝu al ĉiuj. 16 Zorgu pri vi mem kaj pri via instruo. Persistu
 
 en tio; ĉar, tion farante, vi savos vin mem, kaj tiujn, kiuj vin aŭskul-
 
-tas. 
+tas.
 
 ĉapitro 5
 
@@ -23768,13 +22945,13 @@ tas.
 
 virojn, kiel fratojn; 2 la maljunulinojn, kiel patrinojn; la pli junajn
 
-virinojn, kiel fratinojn, kun ĉia ĉasteco. 3 Respektu tiujn vidvinojn, 
+virinojn, kiel fratinojn, kun ĉia ĉasteco. 3 Respektu tiujn vidvinojn,
 
 kiuj estas efektive vidvinoj. 4 Sed se iu vidvino havas filojn aŭ ne-
 
 pojn, ĉi tiuj lernu unue montri piecon ĉe sia propra familio kaj re-
 
-kompenci siajn gepatrojn; ĉar tio estas akceptebla antaŭ Dio. 5 Tiu, 
+kompenci siajn gepatrojn; ĉar tio estas akceptebla antaŭ Dio. 5 Tiu,
 
 kiu estas efektiva vidvino kaj izolitino, apogas sian esperon sur
 
@@ -23802,7 +22979,7 @@ te kondamnon, ĉar ili vantigis sian unuan fidon. 13 Krom tio ili ler-
 
 nas esti senutilaj, rondirante de domo al domo; kaj ne sole senuti-
 
-laj, sed ankaŭ babilemaj kaj sintrudemaj, parolante nekonvenaĵojn. 
+laj, sed ankaŭ babilemaj kaj sintrudemaj, parolante nekonvenaĵojn.
 
 14 Mi volas do, ke la pli junaj edziniĝu, nasku infanojn, mastruma-
 
@@ -23810,19 +22987,17 @@ du, ne donu al la malamiko pretekston por kalumnio; 15 ĉar kelkaj
 
 jam turniĝis flanken post Satano. 16 Se iu kredantino havas vid-
 
-398
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vinojn, ŝi helpu ilin, kaj la eklezio ne estu ŝarĝata; por ke ĝi helpu
 
-la efektivajn vidvinojn. 
+la efektivajn vidvinojn.
 
 17 La presbiteroj, kiuj regas bone, estu rigardataj kiel indaj je du-
 
-obla honoro, precipe tiuj, kiuj laboras super la vorto kaj instruado. 
+obla honoro, precipe tiuj, kiuj laboras super la vorto kaj instruado.
 
 18 ĉar la Skribo diras: Ne fermu la buŝon al bovo draŝanta. Kaj: La
 
@@ -23838,7 +23013,7 @@ tiuj aferoj sen antaŭjuĝo, farante nenion pro partieco. 22 Sur neni-
 
 un surmetu la manojn tro rapidece, kaj ne estu partoprenanto en
 
-la pekoj de aliaj; konservu vin ĉasta. 23 Ne plu estu akvotrinkanto, 
+la pekoj de aliaj; konservu vin ĉasta. 23 Ne plu estu akvotrinkanto,
 
 sed uzu iom da vino pro la stomako kaj viaj oftaj malfortoj. 24 La
 
@@ -23846,7 +23021,7 @@ pekoj de unuj estas evidentaj, antaŭirantaj al la juĝo; kaj aliajn ho-
 
 mojn ili sekvas. 25 Tiel same ankaŭ ekzistas bonaj faroj, kiuj estas
 
-evidentaj, kaj la alispecaj ne povas esti kaŝitaj. 
+evidentaj, kaj la alispecaj ne povas esti kaŝitaj.
 
 ĉapitro 6
 
@@ -23858,7 +23033,7 @@ tiuj, kiuj havas kredantajn estrojn, ne malestimu ilin tial, ke ili es-
 
 tas fratoj, sed servu al ili tiom pli, ĉar tiuj, kiuj partoprenas en la Di-
 
-donaco, estas fidelaj kaj amataj. Tion instruu kaj konsilu. 
+donaco, estas fidelaj kaj amataj. Tion instruu kaj konsilu.
 
 3 Se iu instruas malsame kaj ne konsentas al sanaj vortoj, la vor-
 
@@ -23872,11 +23047,9 @@ naj suspektoj, 5 disputadoj de homoj mense perversigitaj kaj seni-
 
 gitaj je la vero, supozantaj, ke la pieco estas gajnilo. 6 Sed la pieco
 
-399
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kun kontenteco estas granda gajnilo; 7 ĉar ni nenion enportis en la
 
@@ -23890,7 +23063,7 @@ zirojn tiajn, kiaj dronigas la homojn en detruo kaj pereo. 10 ĉar la
 
 amo al mono estas radiko de ĉia malbono; celante al tio, kelkaj for-
 
-vagis de la fido kaj sin trapikis per multaj malĝojoj. 
+vagis de la fido kaj sin trapikis per multaj malĝojoj.
 
 11 Sed vi, ho homo de Dio, forsaviĝu de tiaj aferoj, kaj sekvu ju-
 
@@ -23900,7 +23073,7 @@ nan batalon de la fido, kaj ektenu la eternan vivon, al kiu vi estas
 
 vokita kaj konfesis la bonan konfeson antaŭ multaj atestantoj. 13 Mi
 
-vin admonas antaŭ Dio, kiu ĉion vivigadas, kaj antaŭ Kristo Jesuo, 
+vin admonas antaŭ Dio, kiu ĉion vivigadas, kaj antaŭ Kristo Jesuo,
 
 kiu antaŭ Pontio Pilato atestis la bonan konfeson, 14 ke vi plenumu
 
@@ -23914,7 +23087,7 @@ sinjoroj, 16 kiu sola havas senmortecon, loĝante en lumo neatinge-
 
 bla, kaj kiun neniu vidis nek povas vidi, al kiu estu honoro kaj po-
 
-tenco eterna. Amen. 
+tenco eterna. Amen.
 
 17 Admonu tiujn, kiuj estas riĉaj en la nuna mondo, ke ili ne estu
 
@@ -23926,21 +23099,19 @@ agadu, ke ili estu riĉaj je bonaj faroj, ke ili estu pretaj disdoni, sim-
 
 patiemaj; 19 provizante por si bonan fundamenton kontraŭ la ve-
 
-nonta tempo, por ke ili ektenu la efektivan vivon. 
+nonta tempo, por ke ili ektenu la efektivan vivon.
 
 20 Ho Timoteo, gardu tion, kio estas komisiita al vi, deturnante
 
 vin for de la babiladoj kaj kontraŭparoloj de la falsenomata scio; 21
 
-kiun konfesante, kelkaj maltrafis rilate la fidon. 
+kiun konfesante, kelkaj maltrafis rilate la fidon.
 
-Graco estu kun vi. 
+Graco estu kun vi.
 
-400
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La dua epistolo de la apostolo
 
@@ -23954,23 +23125,23 @@ so de vivo, kiu estas en Kristo Jesuo, 2 al Timoteo, mia amata filo:
 
 Graco, kompato, kaj paco de Dio, la Patro, kaj de Kristo Jesuo, nia
 
-Sinjoro. 
+Sinjoro.
 
 3 Mi dankas Dion, kiun mi adoras de post miaj praavoj kun pura
 
 konscienco, ke konstantan memoron mi havas pri vi en miaj pre-
 
-ĝoj, nokte kaj tage 4 sopirante vidi vin, memorante viajn larmojn, 
+ĝoj, nokte kaj tage 4 sopirante vidi vin, memorante viajn larmojn,
 
-por ke mi pleniĝu de ĝojo; 5 ricevinte rememoron pri la sincera fido, 
+por ke mi pleniĝu de ĝojo; 5 ricevinte rememoron pri la sincera fido,
 
 kiu estas en vi, kaj kiu loĝis unue en via avino Lois kaj en via patrino
 
-Eŭnike, kaj, mi konvinkiĝis, en vi ankaŭ. 6 Pro tio mi memorigas vin, 
+Eŭnike, kaj, mi konvinkiĝis, en vi ankaŭ. 6 Pro tio mi memorigas vin,
 
 ke vi reekbruligu la donacon de Dio, kiu estas en vi per la surmeta-
 
-do de miaj manoj. 7 ĉar Dio donis al ni spiriton ne de malkuraĝeco, 
+do de miaj manoj. 7 ĉar Dio donis al ni spiriton ne de malkuraĝeco,
 
 sed de potenco kaj amo kaj sinregado. 8 Ne hontu do pri la atesto
 
@@ -23994,17 +23165,15 @@ nas tiun, al kiu mi kredis, kaj mi konvinkiĝis, ke li havas la povon
 
 gardi mian konfiditaĵon ĝis tiu tago. 13 Konservu la modelon de sa-
 
-401
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 naj vortoj, kiujn vi aŭdis de mi, en fido kaj amo, kiuj estas en Kris-
 
 to Jesuo. 14 La bonan konfiditaĵon gardu per la Sankta Spirito, kiu
 
-loĝas en ni. 
+loĝas en ni.
 
 15 Vi scias, ke forturniĝis de mi ĉiuj en Azio, el kiuj estas Figelo
 
@@ -24012,9 +23181,9 @@ kaj Hermogenes. 16 La Sinjoro donu kompaton al la domo de One-
 
 siforo; ĉar li ofte min refreŝigis, kaj li ne hontis pri mia kateno, 17 sed kiam li estis en Romo, li elserĉis min tre diligente kaj min trovis 18
 
-\(la Sinjoro donu al li, ke li trovu kompaton ĉe la Sinjoro en tiu tago\), 
+(la Sinjoro donu al li, ke li trovu kompaton ĉe la Sinjoro en tiu tago),
 
-kaj vi scias tre bone, kiom da servoj li faris en Efeso. 
+kaj vi scias tre bone, kiom da servoj li faris en Efeso.
 
 ĉapitro 2
 
@@ -24034,7 +23203,7 @@ komprenon pri ĉio. 8 Memoru Jesuon Kriston, levitan el la mortin-
 
 toj, el la idaro de David, laŭ mia evangelio; 9 en ĝi mi elportas su-
 
-feradon ĝis ligiloj, kiel krimulo, sed la vorto de Dio ne estas ligita. 
+feradon ĝis ligiloj, kiel krimulo, sed la vorto de Dio ne estas ligita.
 
 10 Tial mi suferas ĉion pro la elektitoj, por ke ili ankaŭ atingu la en
 
@@ -24044,17 +23213,15 @@ ni mortis kun li, ni ankaŭ vivos kun li; 12 se ni suferas, ni ankaŭ re-
 
 ĝos kun li; se ni malkonfesos lin, li ankaŭ nin malkonfesos; 13 se ni
 
-malfidas, li restas fidela; ĉar li ne povas malkonfesi sin mem. 
+malfidas, li restas fidela; ĉar li ne povas malkonfesi sin mem.
 
 14 Memorigu ilin pri tio, admonante ilin antaŭ la Sinjoro, ke ili
 
 ne vortobatalu, kio estas neniel utila, kun risko de ŝancelo por la
 
-402
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 aŭdantoj. 15 Klopodu prezenti vin ĉe Dio kiel aprobita, laboranto
 
@@ -24080,7 +23247,7 @@ aliaj por malhonoro. 21 Se do iu purigos sin de ĉi tiuj, li estos vazo
 
 por honoro, sanktigita, taŭga por la mastro, pretigita por ĉiu bona
 
-laboro. 22 Sed forkuru de junulaj voluptoj, kaj sekvu justecon, fidon, 
+laboro. 22 Sed forkuru de junulaj voluptoj, kaj sekvu justecon, fidon,
 
 amon, pacon, kune kun tiuj, kiuj vokas la Sinjoron el pura koro. 23
 
@@ -24088,13 +23255,13 @@ Sed malsaĝajn kaj neklerajn demandojn evitu, sciante, ke ili naskas
 
 malpacojn. 24 Kaj la servisto de la Sinjoro devas ne malpaci, sed esti
 
-afabla al ĉiuj, instruema, tolerema, 25 en humileco instruante tiujn, 
+afabla al ĉiuj, instruema, tolerema, 25 en humileco instruante tiujn,
 
 kiuj kontraŭstaras; eble Dio donos al ili penton, por ke ili venu al
 
 scio de la vero, 26 kaj por ke ili sobraj eliĝu el la kaptilo de la diab-
 
-lo, kaptite de li, por plenumi lian volon. 
+lo, kaptite de li, por plenumi lian volon.
 
 ĉapitro 3
 
@@ -24102,7 +23269,7 @@ lo, kaptite de li, por plenumi lian volon.
 
 estos sinamantaj, monamantaj, fanfaronemaj, arogantaj, insulte-
 
-maj, malobeemaj al gepatroj, sendankaj, nesanktaj, 3 neparencamaj, 
+maj, malobeemaj al gepatroj, sendankaj, nesanktaj, 3 neparencamaj,
 
 nepacigeblaj, kalumniemaj, nesinregantaj, malmildaj, ne bonaman-
 
@@ -24110,13 +23277,11 @@ taj, 4 perfidemaj, pasiemaj, ventoplenaj, plezuron amantaj pli ol
 
 Dion; 5 havante ŝajnon de pieco, sed neinte ĝian potencon; de ĉi tiuj
 
-ankaŭ vin forturnu. 6 ĉar el ĉi tiuj estas tiuj, kiuj rampas en domojn, 
+ankaŭ vin forturnu. 6 ĉar el ĉi tiuj estas tiuj, kiuj rampas en domojn,
 
-403
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj forkaptas malsaĝajn virinojn, ŝarĝitajn de pekoj, forkondukatajn
 
@@ -24154,7 +23319,7 @@ utila por instruo, por admono, por korekto, por disciplino en jus-
 
 teco; 17 por ke la homo de Dio estu perfekta, plene provizita por ĉiu
 
-bona laboro. 
+bona laboro.
 
 ĉapitro 4
 
@@ -24164,7 +23329,7 @@ vivantojn kaj la mortintojn, kaj pro lia apero kaj lia regno; 2 predi-
 
 ku la vorton; insistu ĝustatempe, malĝustatempe; konvinku, ad-
 
-monu, konsilu, en ĉia pacienco kaj instruado. 3 ĉar venos tempo, 
+monu, konsilu, en ĉia pacienco kaj instruado. 3 ĉar venos tempo,
 
 kiam oni ne toleros la sanan instruon; sed havante jukantajn ore-
 
@@ -24174,11 +23339,9 @@ de la vero sian orelon, kaj turnos sin flanken al fabeloj. 5 Sed vi estu
 
 sobra en ĉio, elportu suferojn, faru la laboron de evangeliisto, ple-
 
-404
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 numu vian servadon. 6 ĉar mi jam estas elverŝata kvazaŭ verŝofe-
 
@@ -24188,7 +23351,7 @@ finis la kuradon, mi gardis la fidon; 8 de nun estas konservita por mi
 
 la krono de justeco, kiun la Sinjoro, la justa juĝisto, donos al mi en
 
-tiu tago; kaj ne nur al mi, sed ankaŭ al ĉiuj, kiuj amis lian aperon. 
+tiu tago; kaj ne nur al mi, sed ankaŭ al ĉiuj, kiuj amis lian aperon.
 
 9 Klopodu veni baldaŭ al mi; 10 ĉar Demas min forlasis, amante
 
@@ -24214,11 +23377,11 @@ la Sinjoro staris apud mi, kaj min fortigis, por ke per mi la anonco
 
 estu plene publikigita, kaj ke ĉiuj nacianoj aŭdu; kaj mi forsaviĝis
 
-el la buŝo de la leono. 18 La Sinjoro min savos de ĉiu malbona faro, 
+el la buŝo de la leono. 18 La Sinjoro min savos de ĉiu malbona faro,
 
 kaj min savkondukos en sian ĉielan regnon; al li la gloro por ĉiam
 
-kaj eterne. Amen. 
+kaj eterne. Amen.
 
 19 Salutu Priskilan kaj Akvilan kaj la domon de Onesiforo. 20 Era-
 
@@ -24226,15 +23389,13 @@ sto restis en Korinto; sed Trofimon mi lasis malsanan en Mileto. 21
 
 Klopodu veni antaŭ la vintro. Salutas vin Eŭbulo kaj Pudens kaj
 
-Lino kaj Klaŭdia kaj ĉiuj fratoj. 
+Lino kaj Klaŭdia kaj ĉiuj fratoj.
 
-22 La Sinjoro estu kun via spirito. Graco estu kun vi. 
+22 La Sinjoro estu kun via spirito. Graco estu kun vi.
 
-405
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -24252,7 +23413,7 @@ anonco, kiu estas al mi konfidita konforme al la ordono de Dio, nia
 
 Savanto; 4 al Tito, mia vera filo laŭ komuna fido: Graco kaj paco de
 
-Dio, la Patro, kaj de Kristo Jesuo, nia Savanto. 
+Dio, la Patro, kaj de Kristo Jesuo, nia Savanto.
 
 5 Pro tio mi lasis vin en Kreto, ke vi aranĝu la aferojn mankoha-
 
@@ -24272,7 +23433,7 @@ ta, 9 tenanta la fidelan vorton, kiu estas laŭ la instruado, por ke li
 
 povu admoni pri la sana doktrino kaj ankaŭ refuti la kontraŭdir-
 
-antojn. 
+antojn.
 
 10 ĉar ekzistas multaj homoj ribelemaj, vantaj parolantoj kaj
 
@@ -24290,11 +23451,9 @@ estu sanaj en la fido, 14 ne atentante Judajn fabelojn, kaj ordonojn
 
 de tiuj homoj, kiuj deturnas sin de la vero. 15 ĉe la puraj, ĉio estas
 
-406
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pura; sed ĉe la malpuraj kaj nekredantaj, nenio estas pura; sed ilia
 
@@ -24302,7 +23461,7 @@ menso kaj ilia konscienco estas malpurigitaj. 16 Ili pretendas koni
 
 Dion; sed per siaj agoj ili malkonfesas Lin, estante abomenaj kaj
 
-malobeemaj kaj por ĉiu bona faro senvaloraj. 
+malobeemaj kaj por ĉiu bona faro senvaloraj.
 
 ĉapitro 2
 
@@ -24320,7 +23479,7 @@ siajn infanojn, 5 esti prudentaj, ĉastaj, hejme laborantaj, bonfare-
 
 maj, submetiĝemaj al siaj propraj edzoj, por ke la vorto de Dio ne
 
-estu blasfemita; 6 konsilu tiel same la junulojn, ke ili estu prudentaj; 
+estu blasfemita; 6 konsilu tiel same la junulojn, ke ili estu prudentaj;
 
 7 pri ĉio montrante vin ekzemplo de bonaj faroj, en via instruado
 
@@ -24346,17 +23505,15 @@ de la gloro de nia granda Dio kaj Savanto, Jesuo Kristo, 14 kiu do-
 
 nis sin por ni, por elaĉeti nin el ĉia maljusteco kaj por purigi al si
 
-popolon propran, fervoran pri bonaj faroj. 
+popolon propran, fervoran pri bonaj faroj.
 
 15 Tion parolu, kaj konsilu kaj riproĉu kun ĉia aŭtoritato. Neniu
 
-vin malestimu. 
+vin malestimu.
 
-407
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 3
 
@@ -24366,7 +23523,7 @@ obeemaj, pretaj por ĉiu bona laboro, 2 ke ili ne parolu malbonon pri
 
 iu ajn, estu ne malpacemaj, sed dolĉanimaj, montrantaj ĉian milde-
 
-con al ĉiuj homoj. 3 ĉar ni ankaŭ estis iam malsaĝaj, malobeemaj, 
+con al ĉiuj homoj. 3 ĉar ni ankaŭ estis iam malsaĝaj, malobeemaj,
 
 trompitaj, servantaj al diversaj pasioj kaj voluptoj, vivantaj en ma-
 
@@ -24394,29 +23551,27 @@ tu malsaĝajn demandojn kaj genealogiojn kaj diskutojn kaj prile-
 
 rezulo ankoraŭ post unua admono kaj dua, evitu tiun, 11 sciante, ke
 
-tia homo perversiĝis kaj pekas, estante memkondamnita. 
+tia homo perversiĝis kaj pekas, estante memkondamnita.
 
 12 Kiam mi sendos al vi Artemason aŭ Ti˛ikon, rapidu veni al mi
 
-al Nikopolis; ĉar mi decidis travintri tie. 13 Antaŭen irigu Zenason, 
+al Nikopolis; ĉar mi decidis travintri tie. 13 Antaŭen irigu Zenason,
 
 la leĝiston, kaj Apoloson sur ilia vojaĝo kiel eble plej rapide, por ke
 
 nenio manku al ili. 14 Kaj niaj amikoj ankaŭ lernu daŭrigi bonajn
 
-laborojn, por necesaj bezonoj, por ke ili ne estu senfruktaj. 
+laborojn, por necesaj bezonoj, por ke ili ne estu senfruktaj.
 
 15 ĉiuj, kiuj estas ĉe mi, vin salutas. Salutu vi tiujn, kiuj amas nin
 
-en la fido. 
+en la fido.
 
-Graco estu kun vi ĉiuj. 
+Graco estu kun vi ĉiuj.
 
-408
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo de la apostolo Paŭlo
 
@@ -24428,9 +23583,9 @@ mon, nia amato kaj kunlaboranto, 2 kaj al Apfia, la fratino, kaj al
 
 Ar˛ipo, nia kunbatalanto, kaj al la eklezio en via domo: 3 Graco al
 
-vi kaj paco de Dio, nia Patro, kaj de la Sinjoro Jesuo Kristo. 
+vi kaj paco de Dio, nia Patro, kaj de la Sinjoro Jesuo Kristo.
 
-4 Mi ĉiam dankas mian Dion, memorigante pri vi en miaj preĝoj, 
+4 Mi ĉiam dankas mian Dion, memorigante pri vi en miaj preĝoj,
 
 5 aŭdinte pri via amo kaj pri la fido, kiun vi havas al la Sinjoro Je-
 
@@ -24440,19 +23595,19 @@ energia per la sciigo de ĉiu bonaĵo, kiu estas en vi, por Kristo. 7 ĉar
 
 mi tre ĝojis kaj havis multon da konsolo pro via amo, ĉar la koroj
 
-de la sanktuloj refreŝiĝis per vi, frato mia. 
+de la sanktuloj refreŝiĝis per vi, frato mia.
 
 8 Kvankam do mi havas plenan kuraĝon en Kristo, por ordoni al
 
-vi tion, kio estas konvena, 9 tamen pro la amo mi preferas petegi tia, 
+vi tion, kio estas konvena, 9 tamen pro la amo mi preferas petegi tia,
 
 kia mi estas, Paŭlo, maljunulo kaj nun ankaŭ malliberulo pro Kristo
 
-Jesuo; 10 mi petegas vin koncerne mian filon, kiun mi naskis en miaj
+Jesuo; 10 mi petegas vncerne mian filon, kiun mi naskis en miaj
 
 katenoj; tio estis Onesimo, 11 kiu estis iam senutila por vi, sed nun
 
-estas utila por vi kaj por mi; 12 mi ĵus resendis al vi lin mem, alivorte, 
+estas utila por vi kaj por mi; 12 mi ĵus resendis al vi lin mem, alivorte,
 
 mian propran koron; 13 lin mi volonte ja tenus apud mi, por ke an-
 
@@ -24464,17 +23619,15 @@ zaŭ deviga, sed laŭvola. 15 ĉar eble li pro tio estas apartigita for de
 
 vi por kelka tempo, por ke vi havu lin por ĉiam; 16 jam ne kiel skla-
 
-von, sed kiel pli bonan ol sklavo, kiel fraton amatan, precipe por mi, 
+von, sed kiel pli bonan ol sklavo, kiel fraton amatan, precipe por mi,
 
 sed des pli por vi, kaj en la karno kaj en la Sinjoro. 17 Se vi do rigar-
 
 das min kiel kunulon, akceptu lin tiel same, kiel min mem. 18 Se
 
-409
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tamen li faris ian malhonestaĵon, aŭ ŝuldas ion al vi, tion enkalku-
 
@@ -24490,19 +23643,17 @@ bas al vi, sciante, ke vi faros eĉ pli multe, ol kiom mi diras. 22 Sed
 
 krom tio pretigu por mi gastoĉambron; ĉar mi esperas, ke mi, laŭ
 
-viaj preĝoj, estos donita al vi. 
+viaj preĝoj, estos donita al vi.
 
 23 Salutas vin Epafras, mia kunmalliberulo en Kristo Jesuo, 24
 
-Marko, Aristar˛o, Demas, Luko, miaj kunlaborantoj. 
+Marko, Aristar˛o, Demas, Luko, miaj kunlaborantoj.
 
-25 La graco de nia Sinjoro Jesuo Kristo estu kun via spirito. Amen. 
+25 La graco de nia Sinjoro Jesuo Kristo estu kun via spirito. Amen.
 
-410
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo al la Hebreoj
 
@@ -24520,15 +23671,15 @@ aĵoj; 4 fariĝinte tiom pli granda ol la anĝeloj, kiom pli bonegan no-
 
 mon ol ili li heredis. 5 ĉar al kiu el la anĝeloj Li iam diris:
 
-Vi estas Mia Filo, 
+Vi estas Mia Filo,
 
-Hodiaŭ Mi vin naskis? 
+Hodiaŭ Mi vin naskis?
 
 kaj denove:
 
-Mi estos al li Patro, 
+Mi estos al li Patro,
 
-Kaj li estos al Mi Filo? 
+Kaj li estos al Mi Filo?
 
 6 Kaj ankoraŭ, kiam Li enkondukas la unuenaskiton en la mon-
 
@@ -24536,55 +23687,52 @@ don, Li diras: Kaj kliniĝu antaŭ li ĉiuj anĝeloj de Dio. 7 Kaj pri la
 
 anĝeloj Li diras:
 
-Kiu faras la ventojn Liaj senditoj, 
+Kiu faras la ventojn Liaj senditoj,
 
-Flamantan fajron Liaj servantoj; 
+Flamantan fajron Liaj servantoj;
 
 8 sed pri la Filo:
 
-Via trono estas Dia trono por ĉiam kaj eterne; 
+Via trono estas Dia trono por ĉiam kaj eterne;
 
-La sceptro de via regno estas sceptro de justeco. 
+La sceptro de via regno estas sceptro de justeco.
 
-9
 
-Vi amas virton kaj malamas malvirton; 
+Vi amas virton kaj malamas malvirton;
 
 Tial Dio, via Dio, oleis vin per oleo de ĝojo pli ol viajn
 
-411
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-kamaradojn. 
+kamaradojn.
 
 10 Kaj:
 
-En antikveco Vi, ho Eternulo, fondis la teron, 
+En antikveco Vi, ho Eternulo, fondis la teron,
 
-Kaj la ĉielo estas la faro de Viaj manoj. 
+Kaj la ĉielo estas la faro de Viaj manoj.
 
-11 Ili pereos, sed Vi restos; 
+11 Ili pereos, sed Vi restos;
 
-Kaj ĉiuj ili eluziĝos kiel vesto, 
+Kaj ĉiuj ili eluziĝos kiel vesto,
 
-12 Kiel veston Vi ilin ŝanĝos, kaj ili ŝanĝiĝos. 
+12 Kiel veston Vi ilin ŝanĝos, kaj ili ŝanĝiĝos.
 
-Sed Vi restas la sama, 
+Sed Vi restas la sama,
 
-Kaj Viaj jaroj ne finiĝos. 
+Kaj Viaj jaroj ne finiĝos.
 
 13 Sed al kiu el la anĝeloj Li iam diris:
 
-Sidu dekstre de Mi, 
+Sidu dekstre de Mi,
 
-¯is Mi faros viajn malamikojn benketo por viaj piedoj? 
+is Mi faros viajn malamikojn benketo por viaj piedoj?
 
 14 ĉu ne estas ili ĉiuj spiritoj servantaj, elsendataj, por servi al
 
-tiuj, kiuj estas heredontoj de la savo? 
+tiuj, kiuj estas heredontoj de la savo?
 
 ĉapitro 2
 
@@ -24600,29 +23748,27 @@ ekanoncite per la Sinjoro, estas konfirmita al ni de la aŭdintoj; 4
 
 dum Dio ankaŭ kunatestis per signoj kaj mirindaĵoj kaj diversaj
 
-potencaĵoj kaj disdonoj de la Sankta Spirito, laŭ Sia volo. 
+potencaĵoj kaj disdonoj de la Sankta Spirito, laŭ Sia volo.
 
 5 ĉar ne al anĝeloj Li submetis la estontan mondon, pri kiu ni
 
 paroladas. 6 Sed iu atestis ie, dirante:
 
-Kio estas homo, ke Vi lin memoras? 
+Kio estas homo, ke Vi lin memoras?
 
-Kio estas homido, ke Vi pensas pri li? 
+Kio estas homido, ke Vi pensas pri li?
 
-7 Vi malaltigis lin malmulte antaŭ la anĝeloj, 
+7 Vi malaltigis lin malmulte antaŭ la anĝeloj,
 
-Per honoro kaj beleco Vi lin kronis. 
+Per honoro kaj beleco Vi lin kronis.
 
-412
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Vi faris lin reganto super la faritaĵoj de Viaj manoj; 
+Vi faris lin reganto super la faritaĵoj de Viaj manoj;
 
-8 ĉion Vi metis sub liajn piedojn. 
+8 ĉion Vi metis sub liajn piedojn.
 
 ĉar, metante ĉion sub lin, Li nenion lasis ne submetita. Sed nun
 
@@ -24642,9 +23788,9 @@ estas ĉiuj el unu; pro tiu kaŭzo li ne hontas nomi ilin fratoj, 12 dir-
 
 ante:
 
-Mi predikos Vian nomon al miaj fratoj, 
+Mi predikos Vian nomon al miaj fratoj,
 
-En la mezo de popola kunveno mi Vin gloros. 
+En la mezo de popola kunveno mi Vin gloros.
 
 13 Kaj ankaŭ: Mi fidos Lin. Kaj ankaŭ: Jen mi kaj la infanoj, kiu-
 
@@ -24662,25 +23808,23 @@ Abraham li ektenas. 17 Tial li devis en ĉio similiĝi al siaj fratoj, por
 
 ke li fariĝu kompatema kaj fidela ĉefpastro en la aferoj de Dio, por
 
-fari repacigon por la pekoj de la popolo. 18 ĉar per tio, ke li mem, 
+fari repacigon por la pekoj de la popolo. 18 ĉar per tio, ke li mem,
 
-tentate, suferis, li povas helpi la tentatojn. 
+tentate, suferis, li povas helpi la tentatojn.
 
 ĉapitro 3
 
 1 Tial, fratoj sanktaj, partoprenantaj en ĉiela voko, pripensu la Apo-
 
-stolon kaj ĉefpastron de nia konfeso, Jesuon, 2 kiu estis fidela al Tiu, 
+stolon kaj ĉefpastron de nia konfeso, Jesuon, 2 kiu estis fidela al Tiu,
 
 kiu nomis lin kiel ankaŭ Moseo en Lia domo. 3 ĉar ĉi tiu estas rigar-
 
 dita kiel inda je tiom pli granda gloro ol Moseo, kiom pli grandan
 
-413
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 honoron, ol la domo, havas ĝia stariginto. 4 ĉar ĉiu domo estas sta-
 
@@ -24688,31 +23832,31 @@ rigita de iu; sed la stariginto de ĉio estas Dio. 5 Kaj Moseo ja estis
 
 fidela en Lia tuta domo, kiel servanto, por atestaĵo pri tio, kio estis
 
-parolota; 6 sed Kristo, kiel filo super Lia domo; kies domo ni estas, 
+parolota; 6 sed Kristo, kiel filo super Lia domo; kies domo ni estas,
 
 se ni tenos nian kuraĝon kaj la ĝojadon de nia espero firmaj ĝis la
 
 fino. 7 Tial, kiel diras la Sankta Spirito:
 
-Hodiaŭ, se vi aŭskultas Lian voĉon, 
+Hodiaŭ, se vi aŭskultas Lian voĉon,
 
-8 Ne obstinigu vian koron, kiel en la indignigo, 
+8 Ne obstinigu vian koron, kiel en la indignigo,
 
-Kiel en la tago de la tento en la dezerto, 
+Kiel en la tago de la tento en la dezerto,
 
-9 Kiam viaj patroj Min incitis, 
+9 Kiam viaj patroj Min incitis,
 
-Esploris kaj vidis Miajn farojn kvardek jarojn. 
+Esploris kaj vidis Miajn farojn kvardek jarojn.
 
-10 Pro tio Mi indignis kontraŭ tiu generacio, 
+10 Pro tio Mi indignis kontraŭ tiu generacio,
 
-Kaj Mi diris: Ili ĉiam estas kun koro malĝusta, 
+Kaj Mi diris: Ili ĉiam estas kun koro malĝusta,
 
-Kaj ili ne volas koni Miajn vojojn; 
+Kaj ili ne volas koni Miajn vojojn;
 
-11 Tial Mi ĵuris en Mia kolero, 
+11 Tial Mi ĵuris en Mia kolero,
 
-Ke ili ne venos en Mian ripozejon. 
+Ke ili ne venos en Mian ripozejon.
 
 12 Gardu vin, fratoj, ke ne estu en iu el vi koro malbona de nek-
 
@@ -24720,15 +23864,15 @@ redemo, en defalo de la vivanta Dio; 13 sed konsilu unu la alian ĉiu-
 
 tage, dum estas nomate hodiaŭ, por ke neniu el vi estu obstinigita
 
-per la trompeco de peko; 14 ĉar ni fariĝis partoprenantoj en Kristo, 
+per la trompeco de peko; 14 ĉar ni fariĝis partoprenantoj en Kristo,
 
 se la komencon de nia certiĝo ni tenos firma ĝis la fino; 15 dum es-
 
 tas dirite:
 
-Hodiaŭ, se vi aŭskultas Lian voĉon, 
+Hodiaŭ, se vi aŭskultas Lian voĉon,
 
-Ne obstinigu vian koron, kiel en la indignigo. 
+Ne obstinigu vian koron, kiel en la indignigo.
 
 16 ĉar kiuj, aŭskultinte, indignigis? ĉu ne ĉiuj elirintoj el Egiptujo
 
@@ -24738,17 +23882,15 @@ kontraŭ la pekintoj, kies korpoj falis en la dezerto? 18 Kaj al kiuj Li
 
 ĵuris, ke ili ne venos en Lian ripozejon, krom al la neobeantoj? 19 Kaj
 
-ni vidas, ke ili pro nekredemo ne povis enveni. 
+ni vidas, ke ili pro nekredemo ne povis enveni.
 
-414
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 4
 
-1 Ni do timu, ke, kiam al ni restas promeso veni en Lian ripozejon, 
+1 Ni do timu, ke, kiam al ni restas promeso veni en Lian ripozejon,
 
 iu el vi eble ŝajne malatingos ĝin. 2 ĉar al ni ankaŭ estas evangelio
 
@@ -24758,31 +23900,31 @@ miksite kun fido ĉe la aŭdantoj. 3 ĉar ni ekkredintoj venas en la ri-
 
 pozejon, kiel Li diris:
 
-Tial Mi ĵuris en Mia kolero, 
+Tial Mi ĵuris en Mia kolero,
 
-Ke ili ne venos en Mian ripozejon; 
+Ke ili ne venos en Mian ripozejon;
 
-kvankam la faritaĵoj estis finitaj jam de post la fondo de la mondo. 
+kvankam la faritaĵoj estis finitaj jam de post la fondo de la mondo.
 
 4 ĉar Li diris ie pri la sepa tago jene: Kaj Dio ripozis en la sepa tago
 
 de Sia tuta laboro; 5 kaj ankaŭ jene:
 
-Ili ne venos en Mian ripozejon. 6 ĉar restas do por iuj veni en ĝin, 
+Ili ne venos en Mian ripozejon. 6 ĉar restas do por iuj veni en ĝin,
 
 kaj tiuj, al kiuj la evangelio unue estis predikita, ne envenis pro
 
-malobeo, 7 denove Li difinis iun tagon, dirante en David: Hodiaŭ, 
+malobeo, 7 denove Li difinis iun tagon, dirante en David: Hodiaŭ,
 
 post tiom da tempo; kiel estas dirite:
 
-Hodiaŭ, se vi aŭskultas Lian voĉon, 
+Hodiaŭ, se vi aŭskultas Lian voĉon,
 
-Ne obstinigu vian koron. 
+Ne obstinigu vian koron.
 
 8 ĉar se Josuo al ili estus doninta ripozon, Li ne parolus poste pri
 
-alia tago. 9 Tial restas sabata ripozo por la popolo de Dio. 10 ĉar tiu, 
+alia tago. 9 Tial restas sabata ripozo por la popolo de Dio. 10 ĉar tiu,
 
 kiu venis en sian ripozejon, ankaŭ mem ripozas de siaj faroj, kiel
 
@@ -24798,25 +23940,23 @@ tikanta la pensojn kaj celojn de la koro. 13 Kaj ne ekzistas kreitaĵo
 
 kaŝita antaŭ Lia vidado; sed ĉio estas nuda kaj evidenta al la oku-
 
-loj de Tiu, al kiu nia afero rilatas. 
+loj de Tiu, al kiu nia afero rilatas.
 
-14 Havante do ĉefpastron grandan, trapasintan la ĉielon, Jesuon, 
+14 Havante do ĉefpastron grandan, trapasintan la ĉielon, Jesuon,
 
 la Filon de Dio, ni tenu firme nian konfeson. 15 ĉar ni havas ĉefpas-
 
 tron ne tian, kiu ne povus simpatii kun niaj malfortaĵoj, sed tenti-
 
-415
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tan en ĉio tiel same, tamen sen peko. 16 Ni do alvenu kun kuraĝo al
 
 la trono de graco, por ke ni ricevu kompaton kaj trovu gracon por
 
-ĝustatempa helpo. 
+ĝustatempa helpo.
 
 ĉapitro 5
 
@@ -24828,7 +23968,7 @@ rojn pro pekoj; 2 povante indulgi tiujn, kiuj estas malkleraj kaj er-
 
 arantaj, tial, ke li mem estas ĉirkaŭata de malforteco; 3 kaj pro tio
 
-li devas, kiel por la popolo, tiel ankaŭ por si mem, oferi pro pekoj. 
+li devas, kiel por la popolo, tiel ankaŭ por si mem, oferi pro pekoj.
 
 4 Kaj neniu alprenas al si tiun honoron krom la vokato de Dio, tiel
 
@@ -24836,27 +23976,27 @@ same, kiel Aaron. 5 Tiel ankaŭ Kristo sin mem ne honoris, por fariĝi
 
 ĉefpastro, sed lin honoris Tiu, kiu diris al li:
 
-Vi estas Mia Filo, 
+Vi estas Mia Filo,
 
-Hodiaŭ Mi vin naskis; 
+Hodiaŭ Mi vin naskis;
 
 6 kiel ankaŭ aliloke Li diris:
 
-Vi estas pastro por ĉiam, 
+Vi estas pastro por ĉiam,
 
-Laŭ la maniero de Melkicedek. 
+Laŭ la maniero de Melkicedek.
 
 7 En siaj karnaj tagoj, preĝojn kaj petegojn oferinte, kun forta
 
 kriado kaj larmoj, al Tiu, kiu povis lin savi el morto, kaj aŭdite pro
 
-sia pia timo, 8 tiu, kvankam li estis Filo, tamen lernis obeon per tio, 
+sia pia timo, 8 tiu, kvankam li estis Filo, tamen lernis obeon per tio,
 
 kion li suferis; 9 kaj perfektigite, li fariĝis la fonto de eterna savo al
 
 ĉiuj al li obeantaj; 10 nomite de Dio ĉefpastro laŭ la maniero de Mel-
 
-kicedek. 
+kicedek.
 
 11 Pri tiu ni havas dirotaĵojn multajn, kaj malfacile klarigeblajn
 
@@ -24868,17 +24008,15 @@ encaj elementoj de la orakoloj de Dio, kaj vi fariĝis bezonantoj de
 
 lakto kaj ne de solida nutraĵo. 13 ĉar ĉiu, kiu nutriĝas per lakto, es-
 
-416
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tas nesperta rilate la vorton de justeco; ĉar li estas infaneto. 14 Sed
 
 solida nutraĵo estas por la plenaĝuloj, kiuj per uzado havas la sen-
 
-tojn ekzercitaj, por distingi inter bono kaj malbono. 
+tojn ekzercitaj, por distingi inter bono kaj malbono.
 
 ĉapitro 6
 
@@ -24908,9 +24046,9 @@ ofte venantan, kaj produktas kreskaĵojn, taŭgajn por tiuj, pro kiuj
 
 nojn kaj kardojn, ĝi estas malaprobata kaj proksima al malbeno; ĝia
 
-fino estas en brulado. 
+fino estas en brulado.
 
-9 Sed ni certigas al ni aferojn pli bonajn pri vi, amatoj, kaj aferojn, 
+9 Sed ni certigas al ni aferojn pli bonajn pri vi, amatoj, kaj aferojn,
 
 kiuj akompanas savon, kvankam ni tiel parolas; 10 ĉar Dio ne estas
 
@@ -24922,23 +24060,21 @@ ziras, ke ĉiu el vi montru tian saman diligentecon por la plenumo
 
 de la espero ĝis la fino; 12 por ke vi fariĝu ne maldiligentaj, sed imi-
 
-tantoj de tiuj, kiuj per fido kaj pacienco heredas la promesojn. 
+tantoj de tiuj, kiuj per fido kaj pacienco heredas la promesojn.
 
-13 ĉar kiam Dio promesis al Abraham, Li ĵuris per Si mem \(ĉar Li
+13 ĉar kiam Dio promesis al Abraham, Li ĵuris per Si mem (ĉar Li
 
-ne povis ĵuri per iu pli granda\), 14 dirante: Certe benante Mi benos
+ne povis ĵuri per iu pli granda), 14 dirante: Certe benante Mi benos
 
 vin, kaj multigante Mi multigos vin. 15 Kaj tiel, atendinte kun pa-
 
-417
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-cienco, li atingis la promeson. 16 ĉar homoj ĵuras per la pli granda, 
+cienco, li atingis la promeson. 16 ĉar homoj ĵuras per la pli granda,
 
-kaj ĉe ili la ĵuro por certigo estas fino de ĉia disputado. 17 Kaj Dio, 
+kaj ĉe ili la ĵuro por certigo estas fino de ĉia disputado. 17 Kaj Dio,
 
 volante montri pli abunde al la heredantoj de la promeso la ne-
 
@@ -24952,7 +24088,7 @@ kiun ni havas kiel ankron de la animo, firman kaj konstantan, enir-
 
 antan internen de la kurteno; 20 kien eniris Jesuo, la antaŭulo por
 
-ni, fariĝinte ĉefpastro por ĉiam laŭ la maniero de Melkicedek. 
+ni, fariĝinte ĉefpastro por ĉiam laŭ la maniero de Melkicedek.
 
 ĉapitro 7
 
@@ -24960,19 +24096,19 @@ ni, fariĝinte ĉefpastro por ĉiam laŭ la maniero de Melkicedek.
 
 renkontis Abrahamon revenantan de la mortigado de la reĝoj, kaj
 
-lin benis, 2 kaj al kiu ankaŭ Abraham donis dekonon el ĉio \(unue laŭ
+lin benis, 2 kaj al kiu ankaŭ Abraham donis dekonon el ĉio (unue laŭ
 
 interpreto reĝo de justeco, kaj poste reĝo de Salem, tio estas reĝo
 
 de paco; 3 senpatra, senpatrina, sengenealogia, havanta nek kom-
 
-encon de tagoj, nek finon de vivo, sed similigita al la Filo de Dio\), 
+encon de tagoj, nek finon de vivo, sed similigita al la Filo de Dio),
 
-restas pastro por ĉiam. 
+restas pastro por ĉiam.
 
 4 Nun pripensu, kiel granda estis ĉi tiu, al kiu la patriarko Abra-
 
-ham donis dekonon el la akiraĵoj. 5 Kaj efektive el la filoj de Levi tiuj, 
+ham donis dekonon el la akiraĵoj. 5 Kaj efektive el la filoj de Levi tiuj,
 
 kiuj ricevas la pastran oficon, havas ordonon imposti laŭleĝe pode-
 
@@ -24980,7 +24116,7 @@ kone la popolon, tio estas, siajn fratojn, kvankam elirintajn el la
 
 lumboj de Abraham; 6 sed tiu, kies genealogio ne estas el ili, rice-
 
-vis de Abraham dekonaĵon, kaj benis tiun, kiu havis la promesojn. 
+vis de Abraham dekonaĵon, kaj benis tiun, kiu havis la promesojn.
 
 7 Sed ekster ĉia kontraŭparolo, la malpli granda ricevas benon de
 
@@ -24990,19 +24126,17 @@ tie unu, pri kiu estas atestate, ke li vivas. 9 Kaj, por tiel diri, per Ab-
 
 raham ankaŭ Levi, la ricevanto de dekonaĵoj, donis dekonaĵon; 10
 
-418
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉar li estis ankoraŭ en la lumboj de la patro, kiam Melkicedek lin
 
-renkontis. 
+renkontis.
 
-11 Tial, se ekzistis perfekteco per la Levida pastreco \(ĉar sub ĝi la
+11 Tial, se ekzistis perfekteco per la Levida pastreco (ĉar sub ĝi la
 
-popolo ricevis la leĝon\), kia plua bezono estis, ke leviĝu alia pastro
+popolo ricevis la leĝon), kia plua bezono estis, ke leviĝu alia pastro
 
 laŭ la maniero de Melkicedek, kaj ne estu nomata laŭ la maniero de
 
@@ -25012,7 +24146,7 @@ de leĝo. 13 ĉar tiu, pri kiu tio estas dirita, estas ano de alia tribo, el
 
 kiu neniu servis ĉe la altaro. 14 ĉar evidente estas, ke nia Sinjoro
 
-devenis de Jehuda, pri kiu tribo Moseo diris nenion rilate pastrecon. 
+devenis de Jehuda, pri kiu tribo Moseo diris nenion rilate pastrecon.
 
 15 Kaj tio eĉ pli evidenta estas, se laŭ simileco de Melkicedek leviĝas
 
@@ -25022,21 +24156,21 @@ la potenco de vivo nedetruebla; 17 ĉar li havas la ateston:
 
 Vi estas pastro por ĉiam
 
-Laŭ la maniero de Melkicedek. 
+Laŭ la maniero de Melkicedek.
 
 18 ĉar okazas vere nuligado de antaŭiranta ordono, pro ĝia mal-
 
-forteco kaj senutileco 19 \(ĉar la leĝo nenion perfektigis\); kaj okazas
+forteco kaj senutileco 19 (ĉar la leĝo nenion perfektigis); kaj okazas
 
-la enkonduko de pli bona espero, per kiu ni alproksimiĝas al Dio. 
+la enkonduko de pli bona espero, per kiu ni alproksimiĝas al Dio.
 
-20 Kaj pro tio, ke ne mankas ĵurado 21 \(ĉar ili sen ĵurado estas fari-
+20 Kaj pro tio, ke ne mankas ĵurado 21 (ĉar ili sen ĵurado estas fari-
 
 taj pastroj, sed ĉi tiu kun ĵuro laŭ Tiu, kiu diris pri li:
 
 La Eternulo ĵuris, kaj ne pentos:
 
-Vi estas pastro por ĉiam\); 
+Vi estas pastro por ĉiam);
 
 22 Jesuo fariĝis garantiulo de des pli bona interligo. 23 Kaj ili ja
 
@@ -25046,9 +24180,9 @@ ili daŭri; 24 sed ĉi tiu, pro sia eterna daŭrado, havas sian pastrecon
 
 neŝanĝebla. 25 Tial ankaŭ li povas savi ĝis la ekstremaĵo tiujn, kiuj
 
-alproksimiĝas per li al Dio, ĉar li ĉiam vivas, por propeti pro ili. 
+alproksimiĝas per li al Dio, ĉar li ĉiam vivas, por propeti pro ili.
 
-26 ĉar por ni konvenis tia ĉefpastro, sankta, senpeka, senmakula, 
+26 ĉar por ni konvenis tia ĉefpastro, sankta, senpeka, senmakula,
 
 apartigita for de pekuloj, kaj farita pli alta ol la ĉielo; 27 li ne havas
 
@@ -25056,17 +24190,15 @@ apartigita for de pekuloj, kaj farita pli alta ol la ĉielo; 27 li ne havas
 
 propraj pekoj, poste pro la pekoj de la popolo; ĉar tion li faris unu-
 
-419
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 foje por ĉiam, oferante sin mem. 28 ĉar la leĝo starigas kiel ĉefpas-
 
 trojn homojn, kiuj havas malfortecon; sed la vorto de la ĵuro, kiu
 
-estas post la leĝo, nomas Filon, perfektigitan por ĉiam. 
+estas post la leĝo, nomas Filon, perfektigitan por ĉiam.
 
 ĉapitro 8
 
@@ -25092,11 +24224,11 @@ montrita al vi sur la monto. 6 Sed nun li ricevis servadon des pli
 
 bonan, ju pli bona estas la interligo, kies interulo li fariĝis kaj kiu sur pli bonaj promesoj estas dekretita. 7 ĉar se tiu unua interligo estus
 
-sendifekta, tiam ne estus serĉita loko por dua. 8 ĉar riproĉante ilin, 
+sendifekta, tiam ne estus serĉita loko por dua. 8 ĉar riproĉante ilin,
 
 Li diris:
 
-Jen venos la tempo, diras la Eternulo, 
+Jen venos la tempo, diras la Eternulo,
 
 Kiam Mi faros kun la domo de Izrael kaj la domo de Jehuda in-
 
@@ -25106,45 +24238,43 @@ terligon novan:
 
 En la tago, kiam Mi prenis ilian manon, por elkonduki ilin el la
 
-lando Egipta, 
+lando Egipta,
 
-ĉar ili ne restis en Mia interligo, 
+ĉar ili ne restis en Mia interligo,
 
-Kaj Mi malatentis ilin, diris la Eternulo. 
+Kaj Mi malatentis ilin, diris la Eternulo.
 
 10 Sed jen estas la interligo, kiun Mi faros kun la domo de Izrael
 
 Post tiu tempo, diras la Eternulo:
 
-420
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Mi metos Miajn leĝojn en ilian internon, 
+Mi metos Miajn leĝojn en ilian internon,
 
-Kaj sur ilia koro Mi ilin skribos, 
+Kaj sur ilia koro Mi ilin skribos,
 
-Kaj Mi estos ilia Dio, 
+Kaj Mi estos ilia Dio,
 
-Kaj ili estos Mia popolo. 
+Kaj ili estos Mia popolo.
 
-11 Kaj ne plu instruos ĉiu sian proksimulon, 
+11 Kaj ne plu instruos ĉiu sian proksimulon,
 
-Kaj ĉiu sian fraton, dirante: Ekkonu la Eternulon; 
+Kaj ĉiu sian fraton, dirante: Ekkonu la Eternulon;
 
-ĉar ĉiuj Min konos, 
+ĉar ĉiuj Mnos,
 
-De iliaj malgranduloj ĝis iliaj granduloj; 
+De iliaj malgranduloj ĝis iliaj granduloj;
 
-12 ĉar Mi pardonos iliajn kulpojn, 
+12 ĉar Mi pardonos iliajn kulpojn,
 
-Kaj iliajn pekojn kaj malbonaĵojn Mi ne plu rememoros. 
+Kaj iliajn pekojn kaj malbonaĵojn Mi ne plu rememoros.
 
 13 Dirante: Novan interligon—Li malnovigis la unuan. Kaj tio, kio
 
-kadukiĝas kaj malnoviĝas estas proksima al malapero. 
+kadukiĝas kaj malnoviĝas estas proksima al malapero.
 
 ĉapitro 9
 
@@ -25158,9 +24288,9 @@ mata la Sanktejo; 3 kaj post la dua kurteno, la tabernaklo nomata la
 
 Plejsanktejo, 4 havanta la oran incensilon, kaj la keston de interli-
 
-go, tegitan entute per oro, en kiu estis vazo ora \(enhavanta la ma-
+go, tegitan entute per oro, en kiu estis vazo ora (enhavanta la ma-
 
-naon\) kaj la ekflorinta bastono de Aaron kaj la tabeloj de la inter-
+naon) kaj la ekflorinta bastono de Aaron kaj la tabeloj de la inter-
 
 ligo, 5 kaj super tio kerubojn de gloro superombrantajn la fermo-
 
@@ -25178,17 +24308,15 @@ ankoraŭ ne estas elmontrita, dum la unua tabernaklo ankoraŭ sta-
 
 ras; 9 kio estas parabolo por la nuna tempo; laŭ kio estas oferataj
 
-421
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 donacoj kaj oferoj, kiuj ne povas laŭ la konscienco perfektigi la ado-
 
-ranton, 10 nur altrudate \(kun manĝaĵoj kaj trinkaĵoj kaj diversaj la-
+ranton, 10 nur altrudate (kun manĝaĵoj kaj trinkaĵoj kaj diversaj la-
 
-vadoj kaj karnaj purigadoj\) ĝis tempo de reformo. 
+vadoj kaj karnaj purigadoj) ĝis tempo de reformo.
 
 11 Sed Kristo, aperinte kiel ĉefpastro de la estontaj bonoj, per la
 
@@ -25204,19 +24332,19 @@ bovidino, ŝprucigite sur malpurulojn, sanktigas ĝis la purigado de
 
 la karno: 14 kiom pli la sango de Kristo, kiu per la eterna Spirito sin
 
-oferis senmakula al Dio, purigos vian konsciencon el malvivaj faroj, 
+oferis senmakula al Dio, purigos vian konsciencon el malvivaj faroj,
 
 por servi al la vivanta Dio? 15 Kaj pro tio li estas interulo de nova
 
-testamento, por ke \(post kiam morto okazis por la elaĉeto de tiuj
+testamento, por ke (post kiam morto okazis por la elaĉeto de tiuj
 
-pekoj, kiuj estis sub la unua testamento\) la vokitoj ricevu la prome-
+pekoj, kiuj estis sub la unua testamento) la vokitoj ricevu la prome-
 
 son de la eterna heredaĵo. 16 ĉar kiam estas testamento, nepre de-
 
 vas esti la morto de la testamentinto. 17 ĉar testamento efektiviĝas
 
-rilate mortinton, ĉar ĝi neniam efikas, dum vivas la testamentinto. 
+rilate mortinton, ĉar ĝi neniam efikas, dum vivas la testamentinto.
 
 18 Tial ankaŭ la unua testamento ne sen sango dediĉiĝis. 19 ĉar Mo-
 
@@ -25232,7 +24360,7 @@ gis per la sango la tabernaklon kaj ĉiujn vazojn de la Diservo. 22 Kaj
 
 laŭ la leĝo, preskaŭ ĉio puriĝas per sango; kaj sen sangoverŝado ne
 
-fariĝas absolvo. 
+fariĝas absolvo.
 
 23 Necese do estis, ke la ekzemploj de la enĉielaj aferoj estu pu-
 
@@ -25244,11 +24372,9 @@ de la vera; sed en la ĉielon mem, por aperi antaŭ la vizaĝo de Dio
 
 por ni; 25 nek estas necese, ke li oferu sin ofte, kiel la ĉefpastro eni-
 
-422
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ras en la sanktejon jaron post jaro, kun sango ne propra; 26 alie li
 
@@ -25260,9 +24386,9 @@ si mem. 27 Kaj kiel estas dekretite por homoj unufoje morti, kaj post
 
 tio juĝo; 28 tiel ankaŭ Kristo, oferite unufoje, por porti la pekojn de
 
-multaj, aperos duan fojon, aparte de peko, al tiuj, kiuj lin atendas, 
+multaj, aperos duan fojon, aparte de peko, al tiuj, kiuj lin atendas,
 
-por savo. 
+por savo.
 
 ĉapitro 10
 
@@ -25272,7 +24398,7 @@ mem de la aferoj, neniam povas, per tiuj samaj oferoj, kiujn oni ofe-
 
 radas senĉese jaron post jaro, perfektigi la tien venantajn. 2 ĉar alie
 
-ĉu ili ne ĉesus esti oferataj? tial, ke la adorantoj, unufoje purigite, 
+ĉu ili ne ĉesus esti oferataj? tial, ke la adorantoj, unufoje purigite,
 
 jam ne havus konsciencon pri pekoj. 3 Sed en tiuj oferoj estas ĉiu-
 
@@ -25280,21 +24406,21 @@ jara rememorigo pri pekoj. 4 ĉar ne eble estas, ke la sango de bovoj
 
 kaj kaproj forprenus pekojn. 5 Tial, venante en la mondon, li diris:
 
-Oferojn kaj donacojn Vi ne deziras, 
+Oferojn kaj donacojn Vi ne deziras,
 
-Sed korpon Vi preparis por mi; 
+Sed korpon Vi preparis por mi;
 
-6 Bruloferojn kaj pekoferojn Vi ne ŝatis. 
+6 Bruloferojn kaj pekoferojn Vi ne ŝatis.
 
 7 Tiam mi diris: Jen mi venis
 
-\(En la rulaĵo de la libro estas skribite pri mi\), 
+(En la rulaĵo de la libro estas skribite pri mi),
 
-Por plenumi Vian volon, ho Dio\! 
+Por plenumi Vian volon, ho Dio!
 
 8 Antaŭe dirinte: Oferojn kaj donacojn kaj bruloferojn kaj peko-
 
-ferojn Vi nek deziris nek ŝatis \(kiuj estas oferataj laŭ la leĝo\), 9 tiam
+ferojn Vi nek deziris nek ŝatis (kiuj estas oferataj laŭ la leĝo), 9 tiam
 
 li diris: Jen mi venis, por plenumi Vian volon. Li forprenas la unu-
 
@@ -25302,15 +24428,13 @@ an, por ke li starigu la duan. 10 Laŭ tiu volo ni estas sanktigitaj per
 
 la ofero de la korpo de Jesuo Kristo unufoje por ĉiam. 11 Kaj ĉiu pas-
 
-tro staradas ĉiutage, servante kaj oferante ofte la samajn oferojn, 
+tro staradas ĉiutage, servante kaj oferante ofte la samajn oferojn,
 
 kiuj neniam povas forpreni pekojn; 12 sed li, oferinte unu oferon por
 
-423
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pekoj por ĉiam, sidiĝis dekstre de Dio; 13 de nun atendante, ĝis liaj
 
@@ -25324,15 +24448,15 @@ kaŭ atestas al ni; ĉar, dirinte:
 
 Post tiu tempo, diras la Eternulo:
 
-Mi metos Miajn leĝojn en ilian internon, 
+Mi metos Miajn leĝojn en ilian internon,
 
-Kaj sur ilia koro Mi ilin skribos; 
+Kaj sur ilia koro Mi ilin skribos;
 
 li ankaŭ diras:
 
-17 Kaj iliajn pekojn kaj malbonaĵojn Mi ne plu rememoros. 
+17 Kaj iliajn pekojn kaj malbonaĵojn Mi ne plu rememoros.
 
-18 Sed kie estas absolvo de ĉi tiuj, ne plu estas oferado pro peko. 
+18 Sed kie estas absolvo de ĉi tiuj, ne plu estas oferado pro peko.
 
 19 Havante do, fratoj, kuraĝon eniri en la plejsanktejon per la
 
@@ -25342,7 +24466,7 @@ ni, tra la kurteno, tio estas, lia karno, 21 kaj havante grandan pastron
 
 super la domo de Dio, 22 ni alproksimiĝu kun sincera koro, en ple-
 
-neco de fido, kun niaj koroj aspergitaj for de malbona konscienco, 
+neco de fido, kun niaj koroj aspergitaj for de malbona konscienco,
 
 kaj kun la korpoj lavitaj per akvo pura; 23 ni tenu firme la konfeson
 
@@ -25354,7 +24478,7 @@ lasante nian kunvenadon, kiel estas la kutimo de iuj; sed konsilante
 
 unu la alian, kaj des pli forte, ju pli vi vidas la tagon alproksim-
 
-iĝanta. 
+iĝanta.
 
 26 ĉar se, ricevinte la scion de la vero, ni pekos memvole, jam ne
 
@@ -25366,21 +24490,19 @@ leĝon de Moseo, sen kompato mortas ĉe du aŭ tri atestantoj; 29 ki-
 
 om pli severan punon, vi opinias, ke meritos tiu, kiu piedpremis la
 
-Filon de Dio kaj rigardas kiel ne sanktan la sangon de la interligo, 
+Filon de Dio kaj rigardas kiel ne sanktan la sangon de la interligo,
 
 per kiu li estis sanktigita, kaj kiu spitis la Spiriton de graco? 30 ĉar
 
 ni konas Tiun, kiu diris: ĉe Mi estas venĝo, Mi repagos. Kaj ankaŭ:
 
-424
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La Eternulo juĝos Sian popolon. 31 Terure estas fali en la manojn de
 
-la vivanta Dio. 
+la vivanta Dio.
 
 32 Sed memoru la antaŭajn tagojn, en kiuj vi, jam allumite, elpor-
 
@@ -25398,19 +24520,19 @@ vian kuraĝon, kiu havas rekompencon grandan. 36 ĉar vi havas be-
 
 zonon de pacienco, por ke, plenuminte la volon de Dio, vi ricevu la
 
-promeson. 
+promeson.
 
-37 ĉar ankoraŭ iomete da tempo, 
+37 ĉar ankoraŭ iomete da tempo,
 
-La venonto venos, kaj ne malfruos. 
+La venonto venos, kaj ne malfruos.
 
-38 Sed virtulo vivos per sia fideleco; 
+38 Sed virtulo vivos per sia fideleco;
 
-Kaj se li sin tiros malantaŭen, mia spirito ne ĝojos en li. 
+Kaj se li sin tiros malantaŭen, mia spirito ne ĝojos en li.
 
 39 Sed ni ne estas el la malantaŭen tiriĝantaj en pereon, sed el la
 
-kredantoj por la gajnado de la animo. 
+kredantoj por la gajnado de la animo.
 
 ĉapitro 11
 
@@ -25418,27 +24540,25 @@ kredantoj por la gajnado de la animo.
 
 taj. 2 ĉar per tio la antikvuloj ricevis bonan ateston. 3 Per la fido ni
 
-komprenas, ke la mondaĝoj estas kreitaj per vorto de Dio, tiel ke tio, 
+komprenas, ke la mondaĝoj estas kreitaj per vorto de Dio, tiel ke tio,
 
 kio estas vidata, ne estas farita el aperantaĵoj. 4 Per la fido Habel
 
 oferis al Dio pli bonan oferon ol Kain, per kio li ricevis ateston, ke
 
-li estas justa, ĉar Dio atestis pri liaj donacoj; kaj per ĝi li, mortinte, 
+li estas justa, ĉar Dio atestis pri liaj donacoj; kaj per ĝi li, mortinte,
 
 ankoraŭ parolas. 5 Per la fido ˘anoęstis transportita, por ne vidi
 
 morton; kaj li ne estis trovata, ĉar Dio lin transportis; ĉar antaŭ lia
 
-transporto estis atestite pri li, ke li plaĉis al Dio; 6 kaj sen fido neeble estas plaĉi al Li; ĉar necese estas, ke tiu, kiu alvenas al Dio, kredu, 
+transporto estis atestite pri li, ke li plaĉis al Dio; 6 kaj sen fido neeble estas plaĉi al Li; ĉar necese estas, ke tiu, kiu alvenas al Dio, kredu,
 
 ke Li ekzistas, kaj ke Li fariĝas rekompencanto al tiuj, kiuj Lin dili-
 
-425
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 gente serĉas. 7 Per la fido Noa, avertite pri la ankoraŭ ne viditaj afe-
 
@@ -25452,7 +24572,7 @@ tis ricevonta kiel heredaĵon; kaj li eliris, ne sciante, kien li iras. 9 Per la
 
 fremda, loĝante en tendoj kun Isaak kaj Jakob, kunheredantoj de la
 
-sama promeso; 10 ĉar li serĉis la urbon havantan la fundamentojn, 
+sama promeso; 10 ĉar li serĉis la urbon havantan la fundamentojn,
 
 kies ar˛itekturisto kaj konstruanto estas Dio. 11 Per la fido ankaŭ
 
@@ -25460,15 +24580,15 @@ Sara mem ricevis kapablon gravediĝi, eĉ post la ordinara aĝo, ĉar
 
 ŝi kredis la Promesinton fidela; 12 sekve ankaŭ el unu, kaj tiu kva-
 
-zaŭ malviva, leviĝis tiel multaj, kiel la steloj de la ĉielo laŭnombre, 
+zaŭ malviva, leviĝis tiel multaj, kiel la steloj de la ĉielo laŭnombre,
 
-kaj kiel la sablo, kiu estas sur la bordo de la maro, nekalkulebla. 
+kaj kiel la sablo, kiu estas sur la bordo de la maro, nekalkulebla.
 
 13 ĉiuj tiuj mortis en fido, ne ricevinte la promesojn, sed vidin-
 
 te kaj salutinte ilin de malproksime, kaj konfesinte, ke ili estas frem-
 
-duloj kaj migrantoj sur la tero. 14 ĉar tiuj, kiuj parolas tiamaniere, 
+duloj kaj migrantoj sur la tero. 14 ĉar tiuj, kiuj parolas tiamaniere,
 
 konstatas, ke patrolandon ili serĉas. 15 Kaj se ili tenadus en memo-
 
@@ -25476,7 +24596,7 @@ ro tiun landon, el kiu ili eliris, ili havus ian okazon por reiri. 16 Sed
 
 nun pli bonan landon ili celas, tio estas, ĉielan; tial Dio ne hontas
 
-pri ili, esti nomata ilia Dio; ĉar Li por ili pretigis urbon. 
+pri ili, esti nomata ilia Dio; ĉar Li por ili pretigis urbon.
 
 17 Per la fido Abraham, provate, oferis Isaakon; tiu, kiu akceptis
 
@@ -25484,7 +24604,7 @@ la promesojn, ekoferis ja sian solenaskiton; 18 nome tiu, al kiu estis
 
 dirite: Per Isaak oni nomos vian idaron; 19 pensante, ke Dio povas
 
-relevi lin eĉ el la mortintoj; el kie ankaŭ li en similaĵo lin retrovis. 
+relevi lin eĉ el la mortintoj; el kie ankaŭ li en similaĵo lin retrovis.
 
 20 Per la fido Isaak benis Jakobon kaj Esavon pri estontaj aferoj. 21
 
@@ -25492,17 +24612,15 @@ Per la fido Jakob, mortante, benis ĉiun el la filoj de Jozef, kaj ador-
 
 kliniĝis sur la supro de sia bastono. 22 Per la fido Jozef, ĉe la fino de
 
-sia vivo, aludis la foriron de la Izraelidoj, kaj pri siaj ostoj ordonis. 
+sia vivo, aludis la foriron de la Izraelidoj, kaj pri siaj ostoj ordonis.
 
 23 Per la fido Moseo, naskiĝinte, estis kaŝata tri monatojn de la ge-
 
 patroj, ĉar ili vidis la infaneton belega, kaj ne timis la dekreton de
 
-426
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la reĝo. 24 Per la fido Moseo, plenkreskinte, rifuzis esti nomata filo
 
@@ -25516,7 +24634,7 @@ estonta rekompenco. 27 Per la fido li forlasis Egiptujon, ne timante
 
 la koleregon de la reĝo; ĉar li persistis, kiel vidante Tiun, kiu ne
 
-estas videbla. 28 Per la fido li observis la Paskon kaj la sangaspergon, 
+estas videbla. 28 Per la fido li observis la Paskon kaj la sangaspergon,
 
 por ke la ekstermanto de la unuenaskitoj ne tuŝu ilin. 29 Per la fido
 
@@ -25550,19 +24668,17 @@ ado kaj skurĝado kaj ankaŭ de katenoj kaj malliberiĝo; 37 ili estis
 
 ĉirkaŭvagis en ŝafaj kaj kapraj feloj, senigite, subpremate, dolorigate
 
-38 \(je kiuj la mondo ne estis inda\); ili vagadis en dezertoj, sur mon-
+38 (je kiuj la mondo ne estis inda); ili vagadis en dezertoj, sur mon-
 
 toj, en kavernoj kaj kaŝejoj de la tero. 39 Kaj ĉiuj tiuj, ricevinte bo-
 
 nan ateston per sia fido, ne ricevis la promeson, 40 ĉar Dio antaŭ-
 
-vidis por ni ion pli bonan, por ke ili sen ni ne estu perfektigataj. 
+vidis por ni ion pli bonan, por ke ili sen ni ne estu perfektigataj.
 
-427
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉapitro 12
 
@@ -25586,13 +24702,13 @@ peko; 5 kaj vi forgesis la admonon, kiu rezonas kun vi, kiel kun fi-
 
 loj:
 
-Mia filo, ne malŝatu la punon de la Eternulo, 
+Mia filo, ne malŝatu la punon de la Eternulo,
 
-Nek svenu, riproĉate de Li; 
+Nek svenu, riproĉate de Li;
 
-6 ĉar kiun la Eternulo amas, tiun Li punkorektas, 
+6 ĉar kiun la Eternulo amas, tiun Li punkorektas,
 
-Kaj Li skurĝas ĉiun filon, kiun Li akceptas. 
+Kaj Li skurĝas ĉiun filon, kiun Li akceptas.
 
 7 Se vi suferas punon, kiel al filoj Dio rilatiĝas al vi; ĉar kia filo
 
@@ -25616,7 +24732,7 @@ manojn pendantajn kaj la senfortajn genuojn; 13 kaj faru rektajn
 
 vojetojn por viaj piedoj, por ke tio, kio estas lama, ne deturniĝu, sed
 
-prefere resaniĝu. 
+prefere resaniĝu.
 
 14 Serĉu pacon kun ĉiuj, kaj la sanktigon, sen kiu neniu vidos la
 
@@ -25624,11 +24740,9 @@ Sinjoron; 15 rigardante zorge, por ke neniu maltrafu la gracon de
 
 Dio, por ke nenia radiko de maldolĉeco, altkreskante, vin ĝenu, kaj
 
-428
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 por ke per tio multaj ne malpuriĝu; 16 por ke ne estu iu malĉastulo
 
@@ -25638,7 +24752,7 @@ tecon. 17 ĉar vi scias, ke eĉ kiam li poste deziris heredi la benon, li
 
 estis rifuzita; ĉar por pentado li trovis nenian lokon, kvankam kun
 
-larmoj li ĝin serĉis. 
+larmoj li ĝin serĉis.
 
 18 ĉar vi ne alvenis al monto tuŝebla kaj brulanta per fajro, kaj al
 
@@ -25660,7 +24774,7 @@ la ĉielo enskribitaj, kaj al Dio, la Juĝisto de ĉiuj, kaj al la spiritoj de j
 
 Habel. 25 Gardu vin, ke vi ne forrifuzu la parolanton. ĉar se ne for-
 
-saviĝis tiuj, kiuj forrifuzis la admonanton sur la tero, des malpli ni, 
+saviĝis tiuj, kiuj forrifuzis la admonanton sur la tero, des malpli ni,
 
 deturnante nin de la parolanto el la ĉielo, 26 kies voĉo tiam skuis la
 
@@ -25674,7 +24788,7 @@ la neskueblaj restu. 28 Tial, ricevante regnon neskueblan, ni havu
 
 dankemecon, per kiu ni adoru Dion akcepteble kun respektego kaj
 
-pia timo; 29 ĉar nia Dio estas fajro konsumanta. 
+pia timo; 29 ĉar nia Dio estas fajro konsumanta.
 
 ĉapitro 13
 
@@ -25682,15 +24796,13 @@ pia timo; 29 ĉar nia Dio estas fajro konsumanta.
 
 tio iuj gastigis anĝelojn, ne sciante. 3 Memoru la katenitojn, kvazaŭ
 
-429
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vi ankaŭ estus katenitaj, kaj la suferantojn, ĉar vi ankaŭ estas en la
 
-korpo. 4 Estu honorata la edzeco ĉe ĉiuj, kaj la lito estu senmakula; 
+korpo. 4 Estu honorata la edzeco ĉe ĉiuj, kaj la lito estu senmakula;
 
 ĉar malĉastulojn kaj adultulojn Dio juĝos. 5 Estu via karaktero sen
 
@@ -25698,9 +24810,9 @@ monamo; estu kontentaj je tio, kion vi havas; ĉar Li mem diris: Mi
 
 ne foriros de vi kaj ne forlasos vin. 6 Tial ni kuraĝas diri:
 
-La Eternulo estas mia helpanto, mi ne timos; 
+La Eternulo estas mia helpanto, mi ne timos;
 
-Kion faros al mi homo? 
+Kion faros al mi homo?
 
 7 Memoru viajn regintojn, kiuj parolis al vi la vorton de Dio; kaj
 
@@ -25728,7 +24840,7 @@ havas restantan urbon, sed estontan ni serĉas. 15 Per li do ni oferu
 
 al Dio ĉiam oferon de laŭdo, tio estas, la frukton de niaj lipoj kon-
 
-fesantaj al lia nomo. 16 Sed ne forgesu la bonfaradon kaj kunulecon; 
+fesantaj al lia nomo. 16 Sed ne forgesu la bonfaradon kaj kunulecon;
 
 ĉar tiaj oferoj plaĉas al Dio. 17 Obeu al tiuj, kiuj vin regas, kaj sub-
 
@@ -25736,47 +24848,43 @@ metiĝu; ĉar ili viglas pro viaj animoj, kvazaŭ liveronte raporton; por
 
 ke kun ĝojo ili faru tion, kaj ne ĝemante, ĉar ĉi tio estus senprofita
 
-por vi. 
+por vi.
 
 18 Preĝu por ni; ĉar ni fidas, ke ni havas bonan konsciencon, de-
 
 zirante en ĉio honeste vivi. 19 Sed des pli urĝe mi petegas vin fari
 
-tion, por ke mi tiom pli frue estu redonata al vi. 
+tion, por ke mi tiom pli frue estu redonata al vi.
 
 20 Nun la Dio de paco, kiu relevis el la mortintoj la grandan paŝ-
 
 tiston de la ŝafoj, nian Sinjoron Jesuo, per la sango de la eterna in-
 
-430
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 terligo, 21 perfektigu vin en ĉia bona laboro, por plenumi Lian vo-
 
 lon, farante en vi tion, kio plaĉas al Li, per Jesuo Kristo, al kiu estu
 
-la gloro por ĉiam kaj eterne. Amen. 
+la gloro por ĉiam kaj eterne. Amen.
 
 22 Kaj mi petegas vin, fratoj, toleru la vorton de konsilo, ĉar mi
 
 skribis al vi per malmulte da vortoj. 23 Sciu, ke estas liberigita nia
 
-frato Timoteo, kun kiu, se li venos baldaŭ, mi vin vidos. 
+frato Timoteo, kun kiu, se li venos baldaŭ, mi vin vidos.
 
 24 Salutu ĉiujn, kiuj vin regas, kaj ĉiujn sanktulojn. Tiuj, kiuj es-
 
-tas el Italujo, vin salutas. 
+tas el Italujo, vin salutas.
 
-25 Graco estu kun vi ĉiuj. Amen. 
+25 Graco estu kun vi ĉiuj. Amen.
 
-431
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo ĝenerala de Jakobo
 
@@ -25784,7 +24892,7 @@ La epistolo ĝenerala de Jakobo
 
 1 Jakobo, servisto de Dio kaj de la Sinjoro Jesuo Kristo, al la dek du
 
-triboj, kiuj estas dispelitaj: Saluton\! 
+triboj, kiuj estas dispelitaj: Saluton!
 
 2 Rigardu ĉion kiel ĝojigan, miaj fratoj, kiam vi falas en diversajn
 
@@ -25792,17 +24900,17 @@ tentojn, 3 sciante, ke la provado de via fido faras paciencon. 4 Kaj la
 
 pacienco havu sian perfektan faradon, por ke vi estu perfektaj kaj
 
-kompletaj, ne havante mankon. 
+kompletaj, ne havante mankon.
 
 5 Sed se al iu el vi mankas saĝeco, li petu Dion, kiu donacas al
 
 ĉiuj malavare kaj ne riproĉas, kaj ĝi estos al li donata. 6 Sed li petu
 
-en fido, neniel dubante; ĉar la dubanto similas ondon de la maro, 
+en fido, neniel dubante; ĉar la dubanto similas ondon de la maro,
 
 ventopelatan kaj skuatan. 7 ĉar tiu homo ne pensu, ke li ricevos ion
 
-de la Sinjoro— 8 duoblanima homo, ŝanceliĝa en ĉiuj siaj vojoj. 
+de la Sinjoro— 8 duoblanima homo, ŝanceliĝa en ĉiuj siaj vojoj.
 
 9 Sed la malaltranga frato ĝoju pri sia alteco; 10 kaj la riĉulo pri
 
@@ -25812,37 +24920,34 @@ iĝas kun la brulvento kaj sekigas la herbon, kaj ĝia floro falas, kaj
 
 la gracio de ĝia formo pereas; tiel ankaŭ la riĉulo velkos en siaj vo-
 
-joj. 
-
+joj.
 
 
 12 Feliĉa estas la homo, kiu elportas tenton; ĉar kiam li estos el-
 
-provita, li ricevos la kronon de vivo, kiun la Sinjoro promesis al tiuj, 
+provita, li ricevos la kronon de vivo, kiun la Sinjoro promesis al tiuj,
 
 kiuj lin amas. 13 Neniu diru, kiam li estas tentata: Mi estas tentata
 
 de Dio; ĉar Dio ne estas tentebla de malbono, kaj Li mem tentas ne-
 
-niun; 14 sed ĉiu estas tentata, kiam li estas fortirata de sia dezirado, 
+niun; 14 sed ĉiu estas tentata, kiam li estas fortirata de sia dezirado,
 
 kaj delogata. 15 Tiam la dezirado, gravediĝinte, naskas pekon; kaj la
 
 peko, maturiĝinte, naskas morton. 16 Ne trompiĝu, miaj amataj fra-
 
-432
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 toj. 17 ĉiu bona donaĵo kaj ĉiu perfekta donaco estas de supre, mal-
 
-suprenvenante de la Patro de lumoj, ĉe kiu ne povas ekzisti ŝanĝo, 
+suprenvenante de la Patro de lumoj, ĉe kiu ne povas ekzisti ŝanĝo,
 
 nek ombro de sinturnado. 18 Laŭ Sia propra volo Li naskis nin per
 
-la vorto de la vero, por ke ni estu kvazaŭ unuaaĵo de Liaj kreitaĵoj. 
+la vorto de la vero, por ke ni estu kvazaŭ unuaaĵo de Liaj kreitaĵoj.
 
 19 Tion vi scias, miaj amataj fratoj. Sed ĉiu rapidu aŭdi, malrapi-
 
@@ -25862,7 +24967,7 @@ naturan vizaĝon en spegulo; 24 ĉar li sin rigardas kaj foriras, kaj tuj
 
 forgesas, kia li estis. 25 Sed tiu, kiu fikse rigardas en la perfektan
 
-leĝon, la leĝon de libereco, kaj tiel restas, ne estante aŭskultanto, 
+leĝon, la leĝon de libereco, kaj tiel restas, ne estante aŭskultanto,
 
 kiu forgesas, sed plenumanto, kiu energias, tiu estos benata en sia
 
@@ -25872,7 +24977,7 @@ pante sian koron, ties religio estas vanta. 27 Religio pura kaj senmak-
 
 ula antaŭ nia Dio kaj Patro estas jena: viziti orfojn kaj vidvinojn en
 
-ilia mizero, kaj sin gardi sen malpuriĝo de la mondo. 
+ilia mizero, kaj sin gardi sen malpuriĝo de la mondo.
 
 ĉapitro 2
 
@@ -25892,11 +24997,9 @@ mem, kaj fariĝas juĝistoj malbone pensantaj? 5 Aŭskultu, miaj am-
 
 ataj fratoj; ĉu Dio ne elektis la malriĉulojn laŭ la mondo, por esti
 
-433
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 riĉaj rilate al fido, kaj heredantoj de la regno, kiun Li promesis al
 
@@ -25920,23 +25023,23 @@ vi ne adultas, sed mortigas, vi fariĝis malobeinto kontraŭ la leĝo. 12
 
 Tiel parolu, kaj tiel agu, kiel juĝotoj laŭ leĝo de libereco. 13 ĉar al tiu, kiu ne kompatis, la juĝo estos senkompata; la kompato sin altigas
 
-super la juĝo. 
+super la juĝo.
 
 14 Kia estas la profito, miaj fratoj, se iu diras, ke li havas fidon, sed
 
 ne havas farojn? ĉu tiu fido povas lin savi? 15 Se frato aŭ fratino estas
 
-nuda kaj sen ĉiutaga manĝo, 16 kaj iu el vi diras al ili: Iru en paco, 
+nuda kaj sen ĉiutaga manĝo, 16 kaj iu el vi diras al ili: Iru en paco,
 
 estu varmaj kaj sataj; tamen vi ne donas al ili tion, kion la korpo
 
-bezonas, kia estas la profito? 17 Tiel same fido, ne havante farojn, 
+bezonas, kia estas la profito? 17 Tiel same fido, ne havante farojn,
 
 estas en si mem malviva. 18 Kaj cetere iu diros: Vi havas fidon, kaj
 
 mi havas farojn; montru al mi vian fidon aparte de faroj, kaj mi per
 
-miaj faroj montros al vi la fidon. 19 Vi ja kredas, ke Dio estas unu; 
+miaj faroj montros al vi la fidon. 19 Vi ja kredas, ke Dio estas unu;
 
 vi faras bone; la demonoj ankaŭ kredas kaj tremas. 20 Se ĉu vi vo-
 
@@ -25956,15 +25059,13 @@ per fido. 25 Tiel same, ĉu ankaŭ la malĉastistino Raąb ne praviĝis
 
 per faroj, kiam ŝi akceptis la senditojn kaj forsendis ilin per alia
 
-434
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vojo? 26 ĉar kiel la korpo aparte de la spirito estas malviva, tiel an-
 
-kaŭ fido aparte de faroj estas malviva. 
+kaŭ fido aparte de faroj estas malviva.
 
 ĉapitro 3
 
@@ -25986,7 +25087,7 @@ la volo de la direktilisto decidas. 5 Tiel ankaŭ la lango estas mal-
 
 granda membro, kaj fanfaronas grandaĵojn. Jen, kiel grandan arba-
 
-ron ekbruligas fajrero\! 6 Kaj la lango estas fajro; mondo da maljus-
+ron ekbruligas fajrero! 6 Kaj la lango estas fajro; mondo da maljus-
 
 teco inter niaj membroj estas la lango, kiu malpurigas la tutan kor-
 
@@ -26008,7 +25109,7 @@ cigas el la sama aperturo dolĉan akvon kaj maldolĉan? 12 ĉu figar-
 
 bo, miaj fratoj, povas doni olivojn, aŭ vinberarbo figojn? kaj sala
 
-akvo ne donas dolĉaĵon. 
+akvo ne donas dolĉaĵon.
 
 13 Kiu inter vi estas saĝa kaj prudenta? tiu elmontru per honesta
 
@@ -26018,11 +25119,9 @@ vivado siajn farojn en mildeco de saĝeco. 14 Sed se vi havas akran
 
 la vero. 15 ĉi tiu saĝeco ne devenas de supre, sed estas monda, laŭ-
 
-435
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 senta, demona. 16 ĉar kie estas ĵaluzo kaj malpaco, tie estas konfuzo
 
@@ -26032,19 +25131,19 @@ kaj ĉia malnobla ago. 17 Sed la saĝeco, kiu estas de supre, estas unue
 
 naj fruktoj, sen partieco, sen hipokriteco. 18 Kaj la frukto de juste-
 
-co estas semata en paco por tiuj, kiuj faras pacon. 
+co estas semata en paco por tiuj, kiuj faras pacon.
 
 ĉapitro 4
 
-1 De kie militoj kaj de kie bataloj inter vi? ĉu ne de viaj voluptoj, 
+1 De kie militoj kaj de kie bataloj inter vi? ĉu ne de viaj voluptoj,
 
 militantaj en viaj membroj? 2 Vi deziras, kaj ne havas; vi mortigas
 
-kaj konkuras, kaj ne povas akiri; vi batalas kaj militas; vi ne havas, 
+kaj konkuras, kaj ne povas akiri; vi batalas kaj militas; vi ne havas,
 
-ĉar vi ne petas. 3 Vi petas kaj ne ricevas, tial, ke vi petas malprave, 
+ĉar vi ne petas. 3 Vi petas kaj ne ricevas, tial, ke vi petas malprave,
 
-por ke vi elspezu por viaj voluptoj. 4 Vi adultulinoj, ĉu vi ne scias, 
+por ke vi elspezu por viaj voluptoj. 4 Vi adultulinoj, ĉu vi ne scias,
 
 ke la amikeco al la mondo estas malamikeco al Dio? ĉiu do, kiu
 
@@ -26064,27 +25163,25 @@ gu la manojn, vi pekuloj, kaj ĉastigu la korojn, vi duoblanimuloj. 9
 
 Mizeru kaj malĝoju kaj ploru; via ridado turniĝu en ploron, kaj via
 
-ĝojo en malĝojon. 10 Humiliĝu antaŭ la Sinjoro, kaj Li vin altigos. 
+ĝojo en malĝojon. 10 Humiliĝu antaŭ la Sinjoro, kaj Li vin altigos.
 
 11 Ne kalumniu unu la alian, fratoj. Kiu kalumnias fraton aŭ ju-
 
 ĝas sian fraton, tiu kalumnias la leĝon kaj juĝas la leĝon; sed se vi
 
-juĝas la leĝon, vi jam estas ne plenumanto de la leĝo, sed juĝanto. 
+juĝas la leĝon, vi jam estas ne plenumanto de la leĝo, sed juĝanto.
 
 12 Unu estas la leĝdonisto kaj juĝisto, Tiu, kiu povas savi aŭ perei-
 
-gi; kiu vi estas, juĝanta vian proksimulon? 
+gi; kiu vi estas, juĝanta vian proksimulon?
 
 13 Atentu nun vi, kiuj diras: Hodiaŭ aŭ morgaŭ ni iros al tiu urbo
 
 kaj restos tie unu jaron kaj negocados kaj profitos; 14 kvankam vi ne
 
-436
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 scias, kio morgaŭ okazos. Kio estas via vivo? Vi ja estas vaporo, kiu
 
@@ -26094,7 +25191,7 @@ Se la Sinjoro volos, ni vivados kaj faros ĉi tion aŭ tion. 16 Sed nun
 
 vi fieras pri viaj memfidaĵoj; ĉiu tia singratulado estas malbona. 17
 
-Kiu do scias bonfari, kaj ne bonfaras, ĉe tiu estas peko. 
+Kiu do scias bonfari, kaj ne bonfaras, ĉe tiu estas peko.
 
 ĉapitro 5
 
@@ -26106,7 +25203,7 @@ Via oro kaj via arĝento rustiĝis; kaj ilia rusto atestos kontraŭ vi, kaj
 
 konsumos vian karnon, kiel fajro. En la lastaj tagoj vi kolektadis
 
-trezoron. 4 Jen krias la de vi trompe retenata salajro de la laboristoj, 
+trezoron. 4 Jen krias la de vi trompe retenata salajro de la laboristoj,
 
 kiuj falĉis viajn kampojn; kaj la krioj de la rikoltintoj venis en la
 
@@ -26114,13 +25211,13 @@ orelojn de la Eternulo Cebaot. 5 Vi luksadis sur la tero, kaj diboĉa-
 
 dis; vi nutradis viajn korojn en tago de buĉado. 6 Vi kondamnis, vi
 
-mortigis la justulon; li ne kontraŭstaras al vi. 
+mortigis la justulon; li ne kontraŭstaras al vi.
 
 7 Paciencu do, fratoj, ĝis la alveno de la Sinjoro. Jen la terkulti-
 
-visto atendas la multevaloran frukton de la tero, paciencante pri ĝi, 
+visto atendas la multevaloran frukton de la tero, paciencante pri ĝi,
 
-ĝis ĝi ricevos la fruan kaj la malfruan pluvon. 8 Vi ankaŭ paciencu; 
+ĝis ĝi ricevos la fruan kaj la malfruan pluvon. 8 Vi ankaŭ paciencu;
 
 fortikigu viajn korojn; ĉar la alveno de la Sinjoro alproksimiĝas. 9 Ne
 
@@ -26134,21 +25231,19 @@ Sinjoro. 11 Jen ni nomas feliĉaj tiujn, kiuj elportis suferon; vi aŭdis
 
 pri la pacienco de Ijob, kaj vidis la finan agadon de la Sinjoro, ke la
 
-Sinjoro estas kompatema kaj indulgema. 
+Sinjoro estas kompatema kaj indulgema.
 
 12 Sed antaŭ ĉio, miaj fratoj, ne ĵuru, nek per la ĉielo, nek per la
 
 tero, nek per ia alia ĵuro; sed via jes estu jes, kaj via ne estu ne; por
 
-ke vi ne falu sub juĝon. 
+ke vi ne falu sub juĝon.
 
-437
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-13 ĉu iu el vi suferas? li preĝu. ĉu iu estas gaja? li psalme kantu. 
+13 ĉu iu el vi suferas? li preĝu. ĉu iu estas gaja? li psalme kantu.
 
 14 ĉu iu el vi malsanas? li venigu la presbiterojn de la eklezio; kaj ili
 
@@ -26166,19 +25261,17 @@ tura, kiel ni, kaj li preĝis fervore, ke ne pluvu; kaj ne pluvis sur la
 
 teron dum tri jaroj kaj ses monatoj. 18 Kaj denove li preĝis; kaj la
 
-ĉielo donis pluvon, kaj la tero ekproduktis sian frukton. 
+ĉielo donis pluvon, kaj la tero ekproduktis sian frukton.
 
-19 Miaj fratoj, se iu el vi forvagos de la vero, kaj iu lin returnos, 
+19 Miaj fratoj, se iu el vi forvagos de la vero, kaj iu lin returnos,
 
 20 oni sciu, ke tiu, kiu returnas pekulon de la elvoja forvago, savos
 
-animon el morto kaj kovros amason da pekoj. 
+animon el morto kaj kovros amason da pekoj.
 
-438
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La unua epistolo ĝenerala de
 
@@ -26194,7 +25287,7 @@ nio, 2 laŭ la antaŭscio de Dio, la Patro, en sanktigo de la Spirito, por
 
 obeo kaj aspergo de la sango de Jesuo Kristo: Graco al vi kaj paco
 
-pligrandiĝu. 
+pligrandiĝu.
 
 3 Benata estu la Dio kaj Patro de nia Sinjoro Jesuo Kristo, kiu laŭ
 
@@ -26210,13 +25303,13 @@ lasta tempo. 6 En tio vi ĝojegas, kvankam por kelka tempo, se estas
 
 necese, malĝojigite en diversaj tentoj, 7 por ke la provado de via
 
-fido, pli multevalora ol oro, kiu pereas, kvankam per fajro provite, 
+fido, pli multevalora ol oro, kiu pereas, kvankam per fajro provite,
 
 troviĝu efika por laŭdo kaj gloro kaj honoro en la malkaŝo de Jeu-
 
-so Kristo; 8 kiun, ne vidinte, vi amas; kiun kvankam nun vi ne vidas, 
+so Kristo; 8 kiun, ne vidinte, vi amas; kiun kvankam nun vi ne vidas,
 
-tamen, al li kredante, vi ĝojegas per ĝojo nedirebla kaj gloroplena; 
+tamen, al li kredante, vi ĝojegas per ĝojo nedirebla kaj gloroplena;
 
 9 ricevante la celon de via fido, savon de animoj. 10 Koncerne tiun
 
@@ -26226,19 +25319,17 @@ ta al vi; 11 serĉante, kiun kaj kian tempon montris la enestanta en
 
 ili Spirito de Kristo, kiu atestis antaŭe la suferojn por Kristo kaj la
 
-sekvontajn glorojn. 12 Kaj al ili malkaŝiĝis, ke ne al si mem, sed al vi, 
+sekvontajn glorojn. 12 Kaj al ili malkaŝiĝis, ke ne al si mem, sed al vi,
 
 ili liveris tion, kio nun estas proklamita al vi de tiuj, kiuj predikis al
 
-439
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vi la evangelion per la Spirito Sankta, elsendita el la ĉielo; en kiujn
 
-aferojn anĝeloj deziras enrigardi. 
+aferojn anĝeloj deziras enrigardi.
 
 13 Tial, ĉirkaŭzoninte la lumbojn de via menso, estu sobraj kaj
 
@@ -26268,7 +25359,7 @@ pro vi, 21 kiuj per li fidas Dion, kiu relevis lin el la mortintoj kaj do-
 
 nis al li gloron; por ke via fido kaj espero estu al Dio. 22 ĉastiginte
 
-viajn animojn, en la obeo al la vero, por sincera amo al la frataro, 
+viajn animojn, en la obeo al la vero, por sincera amo al la frataro,
 
 amu unu la alian el la koro fervore; 23 renaskite, ne el pereema se-
 
@@ -26276,15 +25367,15 @@ mo, sed el nepereema, per la vorto de Dio, vivanta kaj restanta. 24
 
 ĉar:
 
-ĉiu karno estas herbo, 
+ĉiu karno estas herbo,
 
-Kaj ĉiu ĝia ĉarmo estas kiel kampa floreto. 
+Kaj ĉiu ĝia ĉarmo estas kiel kampa floreto.
 
-Sekiĝas herbo, velkas floreto; 
+Sekiĝas herbo, velkas floreto;
 
-25 Sed la vorto de la Eternulo restas eterne. 
+25 Sed la vorto de la Eternulo restas eterne.
 
-Kaj ĉi tiu estas la parolo, kiu estas predikita al vi. 
+Kaj ĉi tiu estas la parolo, kiu estas predikita al vi.
 
 ĉapitro 2
 
@@ -26292,11 +25383,9 @@ Kaj ĉi tiu estas la parolo, kiu estas predikita al vi.
 
 kaj enviojn kaj ĉiajn kalumniojn, 2 kiel ĵusnaskitaj suĉinfanoj, sopiru
 
-440
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 al la spirita lakto pura, por ke vi per tio kresku en savon, 3 se vi
 
@@ -26310,19 +25399,19 @@ raro, por oferi spiritajn oferojn, akcepteblajn de Dio per Jesuo Kris-
 
 to. 6 ĉar estas enhavate en skribo:
 
-Jen Mi kuŝigas en Cion bazangulan ŝtonon, elektitan, valoregan; 
+Jen Mi kuŝigas en Cion bazangulan ŝtonon, elektitan, valoregan;
 
-Kaj kiu lin fidas, tiu ne estos hontigita. 
+Kaj kiu lin fidas, tiu ne estos hontigita.
 
 7 Por vi do, la fidantoj, estas la valoregeco; sed por nefidantoj:
 
-˘tono, kiun malŝatis la konstruantoj, 
+˘tono, kiun malŝatis la konstruantoj,
 
-Fariĝis ŝtono bazangula; 
+Fariĝis ŝtono bazangula;
 
 8 kaj:
 
-˘tono de falpuŝiĝo kaj roko de alfrapiĝo; 
+˘tono de falpuŝiĝo kaj roko de alfrapiĝo;
 
 ili falpuŝiĝas pro la vorto, malobeante, por kio ankaŭ ili estas difi-
 
@@ -26334,7 +25423,7 @@ mallumo en Sian lumon mirindan; 10 kiuj iam estis ne-popolo, sed
 
 nun estas popolo de Dio; antaŭe nekompatitoj, sed nun kompati-
 
-toj. 
+toj.
 
 11 Amataj, mi petegas vin kiel fremdulojn kaj migrantojn, detenu
 
@@ -26344,9 +25433,9 @@ tante dece ĉe la nacianoj, por ke, kvankam ili kalumnias vin kiel
 
 malbonagulojn, tamen, vidante viajn bonfarojn, ili gloru Dion en la
 
-tago de vizitado. 
+tago de vizitado.
 
-13 Submetu vin al ĉiu homa institucio pro la Sinjoro; ĉu al la reĝo, 
+13 Submetu vin al ĉiu homa institucio pro la Sinjoro; ĉu al la reĝo,
 
 la superreganto; 14 ĉu al regantoj, kiel liaj senditoj por venĝo al mal-
 
@@ -26356,15 +25445,13 @@ bonfarante, vi silentigu la nesciadon de homoj malsaĝaj; 16 kiel li-
 
 beraj, kaj ne farantaj el via libereco kovrilon de malico, sed kiel ser-
 
-441
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vistoj de Dio. 17 ĉiujn honoru. La frataron amu. Dion timu. La reĝon
 
-honoru. 
+honoru.
 
 18 Servantoj, submetu vin al viaj sinjoroj kun ĉia timo; ne sole al
 
@@ -26392,7 +25479,7 @@ aĵo, por ke ni, malvivigite koncerne pekojn, vivu por justeco; per lia
 
 vundo vi resaniĝis. 25 ĉar vi estis kiel ŝafoj erarvagantaj; sed nun vi
 
-returne venis al la Paŝtisto kaj Episkopo de viaj animoj. 
+returne venis al la Paŝtisto kaj Episkopo de viaj animoj.
 
 ĉapitro 3
 
@@ -26414,23 +25501,21 @@ virinoj, kiuj esperis al Dio, ornamis sin, submetante sin al siaj pro-
 
 praj edzoj; 6 kiel Sara obeis al Abraham, nomante lin sinjoro; kies
 
-infanoj vi fariĝis, bonfarante, kaj ne ektimigate per la teruro. 
+infanoj vi fariĝis, bonfarante, kaj ne ektimigate per la teruro.
 
 7 Tiel same, edzoj, kunvivadu kun viaj edzinoj laŭscie, donante
 
-442
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 honoron al la virino kiel al la plimalforta ilo, kaj estante ankaŭ kun
 
 ili kunheredantoj de la graco de vivo, por ke viaj preĝoj ne malhelp-
 
-iĝu. 
+iĝu.
 
-8 Fine, estu ĉiuj samideaj, simpatiaj, fratamemaj, kompatemaj, 
+8 Fine, estu ĉiuj samideaj, simpatiaj, fratamemaj, kompatemaj,
 
 humilanimaj; 9 ne repagantaj malbonon kontraŭ malbono, nek in-
 
@@ -26438,25 +25523,25 @@ sulton kontraŭ insulto, sed kontraŭe benadantaj; ĉar al tio vi estas
 
 vokitaj, por ke vi heredu benon. 10 ĉar:
 
-Kiu volas ami vivon kaj vidi bonajn tagojn, 
+Kiu volas ami vivon kaj vidi bonajn tagojn,
 
-Tiu gardu sian langon kontraŭ malbono, 
+Tiu gardu sian langon kontraŭ malbono,
 
-Kaj sian buŝon kontraŭ mensoga parolo; 
+Kaj sian buŝon kontraŭ mensoga parolo;
 
-11 Li dekliniĝu de malbono kaj faru bonon, 
+11 Li dekliniĝu de malbono kaj faru bonon,
 
-Li serĉu pacon, kaj ĉasu ĝin. 
+Li serĉu pacon, kaj ĉasu ĝin.
 
-12 ĉar la okuloj de la Eternulo estas turnitaj al la piuloj, 
+12 ĉar la okuloj de la Eternulo estas turnitaj al la piuloj,
 
-Kaj Liaj oreloj al iliaj krioj; 
+Kaj Liaj oreloj al iliaj krioj;
 
 Sed la vizaĝo de la Eternulo estas kontraŭ tiuj, kiuj faras malbo-
 
-non. 
+non.
 
-13 Kaj kiu faros al vi malbonon, se vi fariĝos fervoraj en la bono? 
+13 Kaj kiu faros al vi malbonon, se vi fariĝos fervoraj en la bono?
 
 14 Sed se vi eĉ suferus pro justeco, feliĉegaj vi estus; kaj ilian timon
 
@@ -26468,13 +25553,13 @@ demandas pri la motivo de la espero en vi, sed kun humileco kaj
 
 timo; 16 havantaj bonan konsciencon; por ke, dum vi estas males-
 
-timataj, hontu tiuj, kiuj kalumnias vian bonan konduton en Kristo. 
+timataj, hontu tiuj, kiuj kalumnias vian bonan konduton en Kristo.
 
 17 ĉar pli bone estus, se tiel volus Dio, suferi pro bonfarado, ol pro
 
 malbonfarado. 18 ĉar Kristo ankaŭ unufoje suferis pro pekoj, justulo
 
-pro maljustuloj, por ke li nin konduku al Dio; mortigite en la kar-
+pro maljustuloj, por ke li nnduku al Dio; mortigite en la kar-
 
 no, sed vivigite en la spirito; 19 en kiu ankaŭ li iris kaj predikis al la
 
@@ -26484,11 +25569,9 @@ cienco de Dio atendis en la tagoj de Noa dum la pretigado de la
 
 arkeo, en kiu malmultaj, tio estas ok personoj, elsaviĝis tra akvo; 21
 
-443
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kiu ankaŭ vin nun savas en antitipo, la bapto, ne la formetado de
 
@@ -26496,7 +25579,7 @@ la karna malpuraĵo, sed la demando de bona konscienco al Dio per
 
 la releviĝo de Jesuo Kristo; 22 kiu estas dekstre de Dio, irinte en la
 
-ĉielon; al li anĝeloj kaj aŭtoritatoj kaj potencoj estas submetitaj. 
+ĉielon; al li anĝeloj kaj aŭtoritatoj kaj potencoj estas submetitaj.
 
 ĉapitro 4
 
@@ -26520,13 +25603,13 @@ ta juĝi la vivantojn kaj la mortintojn. 6 ĉar por tio ankaŭ la evang-
 
 elio estas anoncita al la mortintoj, por ke ili estu korpe juĝitaj laŭ
 
-homoj, sed spirite vivu laŭ Dio. 
+homoj, sed spirite vivu laŭ Dio.
 
 7 Sed la fino de ĉio alproksimiĝas; prudentiĝu do, kaj sobriĝu por
 
 preĝoj; 8 antaŭ ĉio havante fervoran amon unu al alia; ĉar amo ko-
 
-vras amason da pekoj; 9 estu gastamaj unu al alia sen murmurado; 
+vras amason da pekoj; 9 estu gastamaj unu al alia sen murmurado;
 
 10 laŭmezure, kiel ĉiu ricevis donacon, tiel ĝin administrante inter
 
@@ -26538,7 +25621,7 @@ administru kvazaŭ el la forto, kiun Dio provizas; por ke en ĉio Dio
 
 estu glorata per Jesuo Kristo, kies estas la gloro kaj la potenco por
 
-ĉiam kaj eterne. Amen. 
+ĉiam kaj eterne. Amen.
 
 12 Amataj, ne surpriziĝu pri la fajrego ĉe vi okazanta por provi
 
@@ -26546,13 +25629,11 @@ vin, kvazaŭ io stranga okazus ĉe vi; 13 sed laŭ tio, ke vi partoprenas
 
 en la suferoj de Kristo, ĝoju; por ke ankaŭ en la elmontro de lia glo-
 
-444
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-ro vi ĝoju ravege. 14 Se vi estas riproĉataj pro la nomo de Kristo, 
+ro vi ĝoju ravege. 14 Se vi estas riproĉataj pro la nomo de Kristo,
 
 feliĉegaj vi estas; ĉar la Spirito de gloro kaj la Spirito de Dio restas
 
@@ -26572,7 +25653,7 @@ aperos malpiulo kaj pekulo? 19 Tial ankaŭ tiuj, kiuj suferas laŭ la
 
 volo de Dio, alkonfidu siajn animojn en bonfarado al fidela Krein-
 
-to. 
+to.
 
 ĉapitro 5
 
@@ -26608,31 +25689,27 @@ taro en la mondo. 10 Kaj la Dio de ĉia graco, kiu vin alvokis al Sia
 
 eterna gloro en Kristo, mem perfektigos, firmigos, plifortigos vin ne
 
-445
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-longe suferintajn. 11 Al Li estu la potenco por ĉiam kaj eterne. 
+longe suferintajn. 11 Al Li estu la potenco por ĉiam kaj eterne.
 
-Amen. 
+Amen.
 
 12 Per Silvano, la fidela frato, kiel mi opinias, al vi mi skribis mal-
 
-longe, konsilante kaj atestante, ke ĉi tio estas la vera graco de Dio; 
+longe, konsilante kaj atestante, ke ĉi tio estas la vera graco de Dio;
 
 en ĝi firme staru. 13 Vin salutas la en Babel kunelektitino, kaj Mar-
 
-ko, mia filo. 14 Salutu unu la alian per ama kiso. 
+ko, mia filo. 14 Salutu unu la alian per ama kiso.
 
-Paco al vi ĉiuj, kiuj estas en Kristo. 
+Paco al vi ĉiuj, kiuj estas en Kristo.
 
-446
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La dua epistolo ĝenerala de
 
@@ -26662,7 +25739,7 @@ gentecon, en via fido aldonu virton; kaj en virto scion; 6 kaj en scio
 
 sinregadon; kaj en sinregado paciencon; kaj en pacienco piecon; 7
 
-kaj en pieco fratamikecon, kaj en fratamikeco amon. 8 ĉar tiuj ecoj, 
+kaj en pieco fratamikecon, kaj en fratamikeco amon. 8 ĉar tiuj ecoj,
 
 se ĉe vi ili troviĝas kaj abundas, faras vin nek mallaboremaj nek
 
@@ -26676,9 +25753,9 @@ vokon kaj elekton; ĉar farante tion, vi neniam falpuŝiĝos; 11 ĉar tiel
 
 al vi estos riĉe provizita la eniro en la eternan regnon de nia Sinj-
 
-oro kaj Savanto Jesuo Kristo. 
+oro kaj Savanto Jesuo Kristo.
 
-12 Pro tio mi ĉiam estos preta rememorigi vin pri tiuj aferoj, 
+12 Pro tio mi ĉiam estos preta rememorigi vin pri tiuj aferoj,
 
 kvankam vi ilin scias kaj estas fortigitaj en la ĉeestanta vero. 13 Kaj
 
@@ -26686,21 +25763,19 @@ mi opinias konvena, dum mi estas en ĉi tiu tabernaklo, vigligi vin
 
 per rememorigo; 14 sciante, ke baldaŭ estos la demeto de mia taber-
 
-447
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 naklo, ĝuste kiel nia Sinjoro Jesuo Kristo montris al mi. 15 Kaj mi di-
 
-ligente penos, ke post mia foriro vi povu konstante rememori tion. 
+ligente penos, ke post mia foriro vi povu konstante rememori tion.
 
 16 ĉar ne sekvinte fabelojn sofismajn, ni konigis al vi la potencon kaj
 
 alvenon de nia Sinjoro Jesuo Kristo, sed vidinte per propraj okuloj
 
-lian majeston. 17 ĉar li ricevis de Dio, la Patro, honoron kaj gloron, 
+lian majeston. 17 ĉar li ricevis de Dio, la Patro, honoron kaj gloron,
 
 kiam al li tia voĉo estis alportita el la brilega gloro: ĉi tiu estas Mia
 
@@ -26708,7 +25783,7 @@ Filo, la amata, en kiu Mi havas plezuron; 18 kaj tiun voĉon, alpor-
 
 titan el la ĉielo, ni mem aŭdis, kunestante kun li sur la sankta mon-
 
-to. 19 Kaj ni havas la profetan vorton konfirmitan; kiun atentante, 
+to. 19 Kaj ni havas la profetan vorton konfirmitan; kiun atentante,
 
 vi bone faras, kvazaŭ lampon lumantan en malhela loko, ĝis ektagi-
 
@@ -26716,9 +25791,9 @@ vi bone faras, kvazaŭ lampon lumantan en malhela loko, ĝis ektagi-
 
 neniu profetaĵo de la Skribo enhavas en si sian propran klarigon. 21
 
-ĉar neniam profetaĵo estas alportita per homa volo; sed homoj, 
+ĉar neniam profetaĵo estas alportita per homa volo; sed homoj,
 
-movataj de la Sankta Spirito, parolis laŭ Dio. 
+movataj de la Sankta Spirito, parolis laŭ Dio.
 
 ĉapitro 2
 
@@ -26732,7 +25807,7 @@ gante sur sin rapidan pereon. 2 Kaj ilian senbridecon sekvos mul-
 
 taj, per kiuj la vojo de la vero estos kalumniata. 3 Kaj en avideco per
 
-trompaj paroloj ili vin komercos; ilia kondamno nun de post tre
+trompaj paroloj ili vmercos; ilia kondamno nun de post tre
 
 longe ne malfruas, kaj ilia pereo ne dormas. 4 ĉar se Dio ne indul-
 
@@ -26742,29 +25817,27 @@ lumo, transdonis ilin rezervatajn por la juĝo; 5 kaj ne indulgis la
 
 mondon antikvan, sed gardis Noan kun sep aliaj, predikanton de
 
-justeco, kiam Li sendis diluvon sur la mondon de malpiuloj; 6 kaj, 
+justeco, kiam Li sendis diluvon sur la mondon de malpiuloj; 6 kaj,
 
 cindriginte la urbojn Sodom kaj Gomora, kondamnis ilin per kata-
 
 strofo, farinte ilin ekzemplo al estontaj malpiuloj; 7 kaj savis justan
 
-448
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-Loton, ĉagrenegatan de la senbrida konduto de la malvirtuloj 8 \(ĉar
+Loton, ĉagrenegatan de la senbrida konduto de la malvirtuloj 8 (ĉar
 
 tiu justulo, loĝante inter ili, en vidado kaj aŭdado, turmentis sian
 
-justan animon, tagon post tago, por iliaj malvirtaj faroj\); 9 la Sinj-
+justan animon, tagon post tago, por iliaj malvirtaj faroj); 9 la Sinj-
 
 oro do scias savi el tento la piulojn, kaj teni sub puno la maljustu-
 
 lojn ĝis la tago de juĝo; 10 sed precipe tiujn, kiuj iras laŭ la karno en
 
-volupto de malpuraĵo, kaj malestimas regadon. Arogantaj, obstinaj, 
+volupto de malpuraĵo, kaj malestimas regadon. Arogantaj, obstinaj,
 
 ili ne timas insulti aŭtoritatojn; 11 sed kontraŭe, anĝeloj, superan-
 
@@ -26774,7 +25847,7 @@ la Sinjoro. 12 Sed tiuj, kiel bestoj senprudentaj, naskitaj laŭ naturo
 
 por kaptado kaj pereo, blasfemante en aferoj, kiujn ili ne scias, en
 
-sia putreco pereos, 13 en malbono ricevante pagon por malbono; 
+sia putreco pereos, 13 en malbono ricevante pagon por malbono;
 
 homoj, kiuj opinias entagan diboĉon plezuro kaj estas makuloj kaj
 
@@ -26794,7 +25867,7 @@ malobeo; muta azeno, parolante per homa voĉo, haltigis la frene-
 
 zecon de la profeto. 17 Ili estas putoj senakvaj, kaj nebuletoj pela-
 
-taj de ventego; por ili la nigreco de mallumo estas rezervita. 18 ĉar, 
+taj de ventego; por ili la nigreco de mallumo estas rezervita. 18 ĉar,
 
 elparolante fanfaronaĵojn de vanteco, ili forlogas en la karnovolup-
 
@@ -26814,15 +25887,13 @@ bone ne ekkoni la vojon de justeco, ol, ekkoninte ĝin, returni sin for
 
 de la sankta ordono al ili transdonita. 22 Al ili okazis laŭ la vera pro-
 
-449
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 verbo: Hundo reveninta al sia vomitaĵo, kaj porkino lavita al rul-
 
-iĝado en koto. 
+iĝado en koto.
 
 ĉapitro 3
 
@@ -26848,7 +25919,7 @@ ma mondo, diluvite, pereis; 7 sed la nuna ĉielo kaj la tero per la
 
 sama vorto estas destinitaj por fajro, rezervate ĝis la tago de juĝo
 
-kaj pereo de malpiuloj. 
+kaj pereo de malpiuloj.
 
 8 Sed ne forgesu ĉi tiun unu aferon, amataj, ke ĉe la Sinjoro unu
 
@@ -26872,15 +25943,13 @@ flamanta solviĝos, kaj la elementoj per fajra brulado fluidiĝos? 13
 
 Sed laŭ Lia promeso ni atendas novan ĉielon kaj novan teron, en
 
-kiuj loĝas justeco. 
+kiuj loĝas justeco.
 
 14 Tial, amataj, tion atendante, klopodu troviĝi en paco, senma-
 
-450
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kulaj kaj neriproĉindaj antaŭ Li. 15 Kaj rigardu la paciencon de nia
 
@@ -26900,13 +25969,11 @@ kuloj, kaj ne defalu de via propra konstanteco. 18 Sed kresku en gra-
 
 co kaj scio de nia Sinjoro kaj Savanto Jesuo Kristo. Al li estu la gloro
 
-nun kaj ĝis la tago de eterneco. Amen. 
+nun kaj ĝis la tago de eterneco. Amen.
 
-451
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La unua epistolo ĝenerala de
 
@@ -26918,27 +25985,27 @@ Johano
 
 propraj okuloj, kion ni rigardis kaj niaj manoj palpis, koncerne la
 
-Vorton de vivo 2 \(kaj la vivo elmontriĝis, kaj ni vidis kaj atestas kaj
+Vorton de vivo 2 (kaj la vivo elmontriĝis, kaj ni vidis kaj atestas kaj
 
 anoncas al vi la vivon, la eternan vivon, kiu estis ĉe la Patro kaj
 
-montriĝis al ni\); 3 kion vi vidis kaj aŭdis, tion ni anoncas al vi, por
+montriĝis al ni); 3 kion vi vidis kaj aŭdis, tion ni anoncas al vi, por
 
 ke vi ankaŭ havu kunulecon kun ni; kaj nia kunuleco estas kun la
 
 Patro kaj kun Lia Filo Jesuo Kristo; 4 kaj ĉi tion ni skribas, por ke nia
 
-ĝojo kompletiĝu. 
+ĝojo kompletiĝu.
 
 5 Kaj jen estas la anonco, kiun ni aŭdis de Li kaj anoncas al vi, ke
 
 Dio estas lumo, kaj da mallumo estas en Li neniom. 6 Se ni diras, ke
 
-ni havas kunulecon kun Li, kaj iradas en la mallumo, ni mensogas, 
+ni havas kunulecon kun Li, kaj iradas en la mallumo, ni mensogas,
 
 kaj ne faras la veron; 7 sed se ni iradas en la lumo, kiel Li estas en
 
-la lumo, ni havas kunulecon unu kun la alia, kaj la sango de Jesuo, 
+la lumo, ni havas kunulecon unu kun la alia, kaj la sango de Jesuo,
 
 Lia Filo, nin purigas de ĉia peko. 8 Se ni diras, ke pekon ni ne ha-
 
@@ -26948,7 +26015,7 @@ ajn pekojn, Li estas fidela kaj justa por pardoni al ni niajn pekojn
 
 kaj nin purigi de ĉia maljusteco. 10 Se ni diras, ke ni ne pekis, ni fa-
 
-ras Lin mensoginto, kaj Lia vorto ne estas en ni. 
+ras Lin mensoginto, kaj Lia vorto ne estas en ni.
 
 ĉapitro 2
 
@@ -26956,23 +26023,21 @@ ras Lin mensoginto, kaj Lia vorto ne estas en ni.
 
 pekas, ni havas Advokaton ĉe la Patro, Jesuon Kriston, la justan; 2
 
-452
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj li estas repacigo pro niaj pekoj, kaj ne sole pro niaj, sed ankaŭ
 
 pro la tuta mondo. 3 Kaj per ĉi tio ni scias, ke ni konas lin: se ni ob-
 
-servas liajn ordonojn. 4 Kiu diras: Mi lin konas, kaj ne observas li-
+servas liajn ordonojn. 4 Kiu diras: Mi lnas, kaj ne observas li-
 
 ajn ordonojn, tiu estas mensoganto, kaj la vero ne estas en li; 5 sed
 
-en ĉiu ajn, kiu observas lian vorton, vere perfektiĝis la amo al Dio. 
+en ĉiu ajn, kiu observas lian vorton, vere perfektiĝis la amo al Dio.
 
-Per ĉi tio ni scias, ke ni estas en li: 6 kiu diras, ke li restas en li, tiu mem devus tiel iradi, kiel li iradis. 
+Per ĉi tio ni scias, ke ni estas en li: 6 kiu diras, ke li restas en li, tiu mem devus tiel iradi, kiel li iradis.
 
 7 Amataj, al vi mi skribas ne ordonon novan, sed malnovan or-
 
@@ -26988,15 +26053,15 @@ ton, tiu estas en la mallumo ankoraŭ ĝis nun. 10 Kiu amas sian fra-
 
 ton, tiu restas en la lumo, kaj en li ne estas faligaĵo. 11 Sed kiu ma-
 
-lamas sian fraton, tiu estas en la mallumo, kaj iras en la mallumo, 
+lamas sian fraton, tiu estas en la mallumo, kaj iras en la mallumo,
 
-kaj ne scias, kien li iras, ĉar la mallumo blindigis al li la okulojn. 
+kaj ne scias, kien li iras, ĉar la mallumo blindigis al li la okulojn.
 
 12 Mi skribas al vi, infanetoj, ĉar la pekoj al vi estas pardonitaj pro
 
 lia nomo. 13 Mi skribas al vi, patroj, ĉar vi konas tiun, kiu estas de
 
-la komenco. Mi skribas al vi, junuloj, ĉar vi venkis la malbonulon. 
+la komenco. Mi skribas al vi, junuloj, ĉar vi venkis la malbonulon.
 
 Mi skribis al vi, infanoj, ĉar vi konas la Patron. 14 Mi skribis al vi, pa-
 
@@ -27014,17 +26079,15 @@ loj kaj la fiereco de vivo, estas ne de la Patro, sed de la mondo. 17 Kaj
 
 forpasas la mondo kaj ĝia dezirego; sed la plenumanto de la volo de
 
-Dio restas por eterne. 
+Dio restas por eterne.
 
 18 Infanoj, jam estas la lasta horo; kaj kiel vi aŭdis, ke antikristo
 
 venas, jam leviĝis multe da antikristoj; per tio ni scias, ke estas la
 
-453
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 lasta horo. 19 De ni ili eliris, sed ili ne estis el ni; sed se ili el ni estus, ili restus ĉe ni; sed ili eliris, por ke ili elmontriĝu, ke ili ĉiuj ne estas el ni. 20 Kaj vi havas sanktoleadon de la Sanktulo, kaj vi scias
 
@@ -27036,9 +26099,9 @@ Kristo? Tiu estas la antikristo, kiu malkonfesas la Patron kaj la Fi-
 
 lon. 23 ĉiu, kiu malkonfesas la Filon, ne havas la Patron; tiu, kiu kon-
 
-fesas la Filon, havas ankaŭ la Patron. 24 Vi do lasu resti en vi tion, 
+fesas la Filon, havas ankaŭ la Patron. 24 Vi do lasu resti en vi tion,
 
-kion vi aŭdis de la komenco. Se tio, kion vi aŭdis de la komenco, 
+kion vi aŭdis de la komenco. Se tio, kion vi aŭdis de la komenco,
 
 restos en vi, vi ankaŭ restos en la Filo kaj en la Patro. 25 Kaj jen es-
 
@@ -27056,7 +26119,7 @@ Kaj nun, infanetoj, restu en li; por ke, se li elmontriĝos, ni havu
 
 kuraĝon, kaj ne hontu antaŭ li ĉe lia alveno. 29 Se vi scias, ke li es-
 
-tas justa, vi scias, ke ankaŭ ĉiu, kiu faras justecon, el li naskiĝis. 
+tas justa, vi scias, ke ankaŭ ĉiu, kiu faras justecon, el li naskiĝis.
 
 ĉapitro 3
 
@@ -27068,19 +26131,17 @@ ne konis. 2 Amataj, nun ni estas infanoj de Dio, kaj ankoraŭ ne el-
 
 montriĝis, kio ni estos. Ni scias, ke se li elmontriĝos, ni estos simi-
 
-laj al li; ĉar ni vidos lin, kiel li estas. 3 Kaj ĉiu, kiu havas ĉi tiun esperon rilate lin, sin sanktigas tiel same, kiel li estas sankta. 4 ĉiu, kiu faras pekon, faras ion kontraŭ la leĝo; kaj peko estas kontraŭleĝeco. 
+laj al li; ĉar ni vidos lin, kiel li estas. 3 Kaj ĉiu, kiu havas ĉi tiun esperon rilate lin, sin sanktigas tiel same, kiel li estas sankta. 4 ĉiu, kiu faras pekon, faras ion kontraŭ la leĝo; kaj peko estas kontraŭleĝeco.
 
 5 Kaj vi scias, ke li elmontriĝis, por forigi pekojn; kaj peko ne estas
 
-454
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 en li. 6 ĉiu, kiu restas en li, ne pekas; ĉiu pekanto lin ne vidis, nek
 
-lin konas. 7 Infanetoj, neniu vin forlogu; kiu faras justecon, tiu es-
+lnas. 7 Infanetoj, neniu vin forlogu; kiu faras justecon, tiu es-
 
 tas justa tiel same, kiel li estas justa; 8 kiu faras pekon, tiu estas el
 
@@ -27088,11 +26149,11 @@ la diablo; ĉar la diablo pekas de la komenco. Por tio la Filo de Dio
 
 elmontriĝis, por ke li detruu la farojn de la diablo. 9 ĉiu, kiu naskiĝis
 
-de Dio, ne faras pekon, ĉar lia semo restas en li; kaj li ne povas peki, 
+de Dio, ne faras pekon, ĉar lia semo restas en li; kaj li ne povas peki,
 
 ĉar li naskiĝis de Dio. 10 Jen kiel evidentiĝas la infanoj de Dio, kaj
 
-la infanoj de la diablo: ĉiu, kiu ne faras justecon, ne estas de Dio, 
+la infanoj de la diablo: ĉiu, kiu ne faras justecon, ne estas de Dio,
 
 nek tiu, kiu ne amas sian fraton. 11 ĉar jen estas la anonco, kiun vi
 
@@ -27100,7 +26161,7 @@ aŭdis de la komenco: ke ni amu unu la alian; 12 ne kiel Kain estis de
 
 la malbonulo kaj mortigis sian fraton. Kaj pro kio li lin mortigis? ĉar
 
-liaj faroj estis malbonaj, kaj la faroj de lia frato estis justaj. 
+liaj faroj estis malbonaj, kaj la faroj de lia frato estis justaj.
 
 13 Ne miru, fratoj, se la mondo vin malamas. 14 Ni scias, ke ni jam
 
@@ -27118,11 +26179,11 @@ mondan posedaĵon kaj vidas sian fraton havantan bezonon kaj fer-
 
 mas sian kompaton kontraŭ li, kiel la amo de Dio restas en li? 18
 
-Infanetoj, ni amu, ne laŭ vorto nek laŭ lango, sed laŭ faro kaj vero. 
+Infanetoj, ni amu, ne laŭ vorto nek laŭ lango, sed laŭ faro kaj vero.
 
 19 Per tio ni scios, ke ni estas el la vero, kaj ni certigos nian koron
 
-antaŭ Li 20 en ĉio ajn, pri kio nia koro nin kondamnas; ĉar Dio es-
+antaŭ Li 20 en ĉio ajn, pri kio nia koro nndamnas; ĉar Dio es-
 
 tas pli granda ol nia koro, kaj scias ĉion. 21 Amataj, se nia koro ne
 
@@ -27136,13 +26197,11 @@ la nomo de Lia Filo, Jesuo Kristo, kaj amu unu la alian tiel same, kiel
 
 Li al ni donis ordonon. 24 Kaj kiu observas Liajn ordonojn, tiu en Li
 
-455
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-restas, kaj Li en tiu. Kaj per tio ni scias, ke Li restas en ni: per la Spirito, kiun Li donis al ni. 
+restas, kaj Li en tiu. Kaj per tio ni scias, ke Li restas en ni: per la Spirito, kiun Li donis al ni.
 
 ĉapitro 4
 
@@ -27154,19 +26213,19 @@ ekkonas la Spiriton de Dio: ĉiu spirito, kiu konfesas, ke Jesuo Kris-
 
 to venis en la karno, estas el Dio; 3 kaj ĉiu spirito, kiu ne konfesas
 
-Jesuon, ne estas el Dio; kaj ĉi tiu estas la spirito de antikristo, pri kiu vi aŭdis, ke ĝi venas; kaj nun ĝi jam estas en la mondo. 4 Infanetoj, 
+Jesuon, ne estas el Dio; kaj ĉi tiu estas la spirito de antikristo, pri kiu vi aŭdis, ke ĝi venas; kaj nun ĝi jam estas en la mondo. 4 Infanetoj,
 
 vi estas el Dio, kaj ilin venkis; ĉar pli granda estas Tiu, kiu estas en
 
 vi, ol tiu, kiu estas en la mondo. 5 Ili estas el la mondo; pro tio ili
 
-parolas laŭ la mondo, kaj la mondo ilin aŭskultas. 6 Ni estas el Dio; 
+parolas laŭ la mondo, kaj la mondo ilin aŭskultas. 6 Ni estas el Dio;
 
 kiu konas Dion, tiu nin aŭskultas; kiu ne estas el Dio, tiu nin ne
 
 aŭskultas. Jen kiel ni ekkonas la spiriton de vero, kaj la spiriton de
 
-eraro. 
+eraro.
 
 7 Amataj, ni amu unu la alian; ĉar la amo estas el Dio; kaj ĉiu, kiu
 
@@ -27180,7 +26239,7 @@ per li. 10 Jen estas la amo, ne ke ni amis Dion, sed ke Li amis nin, kaj
 
 sendis Sian Filon kiel repacigon pro niaj pekoj. 11 Amataj, se Dio tiel
 
-amis nin, ni ankaŭ devus ami unu la alian. 12 Dion neniu iam vidis; 
+amis nin, ni ankaŭ devus ami unu la alian. 12 Dion neniu iam vidis;
 
 se ni reciproke nin amas, Dio restas en ni, kaj Lia amo perfektiĝis
 
@@ -27192,11 +26251,9 @@ Jesuo estas la Filo de Dio, Dio restas, kaj li en Dio. 16 Kaj ni konas
 
 kaj kredis la amon, kiun Dio havas al ni. Dio estas amo; kaj kiu res-
 
-456
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tas en amo, tiu restas en Dio, kaj Dio restas en li. 17 Jen kiel amo
 
@@ -27214,7 +26271,7 @@ estas mensoganto; ĉar kiu ne amas sian fraton, kiun li vidis, tiu ne
 
 povas ami Dion, kiun li ne vidis. 21 Kaj la jenan ordonon ni havas de
 
-Li: ke kiu amas Dion, tiu amu ankaŭ sian fraton. 
+Li: ke kiu amas Dion, tiu amu ankaŭ sian fraton.
 
 ĉapitro 5
 
@@ -27250,15 +26307,13 @@ li ne kredis la ateston, kiun Dio atestis pri Sia Filo. 11 Kaj jen estas
 
 la atesto: ke Dio donis al ni la vivon eternan; kaj tiu vivo estas en Lia
 
-457
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Filo. 12 Kiu havas la Filon, tiu havas la vivon; kiu ne havas la Filon
 
-de Dio, tiu la vivon ne havas. 
+de Dio, tiu la vivon ne havas.
 
 13 ĉi tion mi skribis al vi, por ke vi sciu, ke vi havas vivon eter-
 
@@ -27278,7 +26333,7 @@ tio mi diras, ke li petegu. 17 ĉia nejusteco estas peko; kaj ekzistas
 
 peko ne al morto. 18 Ni scias, ke ĉiu naskito el Dio ne pekas; sed la
 
-naskito el Dio sin gardas, kaj la malbonulo lin ne tuŝas. 19 Ni scias, 
+naskito el Dio sin gardas, kaj la malbonulo lin ne tuŝas. 19 Ni scias,
 
 ke ni el Dio estas, kaj la tuta mondo kuŝas en la malbonulo. 20 Kaj
 
@@ -27288,13 +26343,11 @@ ni ekkonu la Verulon; kaj ni estas en la Verulo, en Lia Filo, Jesuo
 
 Kristo. Tiu estas la vera Dio, kaj la vivo eterna. 21 Infanetoj, gardu
 
-vin kontraŭ idoloj. 
+vntraŭ idoloj.
 
-458
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La dua epistolo ĝenerala de
 
@@ -27308,7 +26361,7 @@ la vero restanta en ni, kaj ĝi estos ĉe ni por ĉiam: 3 Graco, kompa-
 
 to, paco, estos ĉe ni, de Dio, la Patro, kaj de Jesuo Kristo, la Filo de
 
-la Patro, en vero kaj amo. 
+la Patro, en vero kaj amo.
 
 4 Mi treege ĝojas, ke mi trovis iujn el viaj infanoj iradantajn en
 
@@ -27332,31 +26385,29 @@ pencon. 9 ĉiu, kiu iras antaŭen kaj ne restas en la instruado de Kris-
 
 to, ne havas Dion; kiu restas en la instruado, tiu havas kaj la Patron
 
-kaj la Filon. 10 Se iu al vi venas kaj ne kunportas ĉi tiun instruadon, 
+kaj la Filon. 10 Se iu al vi venas kaj ne kunportas ĉi tiun instruadon,
 
 ne ricevu lin en la domon, kaj al li ne donu salutan vorton; 11 ĉar kiu
 
-al li salute parolas, tiu partoprenas en liaj malbonfaroj. 
+al li salute parolas, tiu partoprenas en liaj malbonfaroj.
 
 12 Havante multon por skribi al vi, mi ne volis skribi per papero
 
-kaj inko; sed mi esperas veni al vi kaj paroli vizaĝon kontraŭ vizaĝo, 
+kaj ; sed mi esperas veni al vi kaj paroli vizaĝon kontraŭ vizaĝo,
 
 por ke via ĝojo estu plena. 13 Salutas vin la infanoj de via fratino, la
 
-elektita. 
+elektita.
 
-459
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La tria epistolo ĝenerala de
 
 Johano
 
-1 La presbitero al Gajo, la amata, kiun mi amas en la vero. 
+1 La presbitero al Gajo, la amata, kiun mi amas en la vero.
 
 2 Amato, mi preĝas, ke al vi prosperu ĉio, kaj vi bonsanu tiel sa-
 
@@ -27364,23 +26415,23 @@ me, kiel prosperas al via animo. 3 ĉar mi treege ĝojis, kiam fratoj
 
 venis kaj atestis pri via vereco, kiel vi iradas en la vero. 4 Pli gran-
 
-dan ĝojon mi ne havas, ol aŭdi pri miaj infanoj iradantaj en la vero. 
+dan ĝojon mi ne havas, ol aŭdi pri miaj infanoj iradantaj en la vero.
 
 5 Amato, vi faras fidele rilate al ĉiuj viaj klopodoj por la fratoj kaj
 
 tiuj fremduloj, 6 kiuj atestis vian amon antaŭ la eklezio; kaj vi faros
 
-bone, tiujn antaŭenigante dece je Dio, 7 ĉar pro la Nomo ili eliris, 
+bone, tiujn antaŭenigante dece je Dio, 7 ĉar pro la Nomo ili eliris,
 
 akceptante nenion de la nacianoj. 8 Ni devas do akcepti tiajn, por
 
-ke ni estu kunlaborantoj kun la vero. 
+ke ni estu kunlaborantoj kun la vero.
 
 9 Mi skribis iom al la eklezio; sed Diotrefes, kiu amas la estrecon
 
 inter ili, nin ne akceptas. 10 Tial, se mi venos, mi rememorigos al li
 
-la farojn, kiujn li faras, per malbonaj paroloj babilante kontraŭ ni; 
+la farojn, kiujn li faras, per malbonaj paroloj babilante kontraŭ ni;
 
 kaj ne kontenta je tio, li mem ne akceptas la fratojn, nek tion per-
 
@@ -27390,29 +26441,27 @@ tu ne la malbonon, sed la bonon. Bonfaranto estas el Dio; malbon-
 
 faranto ne vidis Dion. 12 Pri Demetrio estas atestite de ĉiuj, kaj de
 
-la vero mem; kaj ni ja atestas; kaj vi scias, ke nia atesto estas vera. 
+la vero mem; kaj ni ja atestas; kaj vi scias, ke nia atesto estas vera.
 
 13 Mi havis multon por skribi al vi; sed mi ne volas skribi al vi per
 
-inko kaj kano; 14 sed mi esperas vidi vin baldaŭ, kaj ni parolos viza-
+kaj kano; 14 sed mi esperas vidi vin baldaŭ, kaj ni parolos viza-
 
 ĝon kontraŭ vizaĝo. Paco al vi. Salutas vin la amikoj. Salutu laŭ no-
 
-mo la amikojn. 
+mo la amikojn.
 
-460
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 La epistolo ĝenerala de Judas
 
-1 Judas, servisto de Jesuo Kristo kaj frato de Jakobo, al la alvokitoj, 
+1 Judas, servisto de Jesuo Kristo kaj frato de Jakobo, al la alvokitoj,
 
 amataj en Dio, la Patro, kaj konservitaj por Jesuo Kristo: 2 Kompa-
 
-to al vi kaj paco kaj amo pligrandiĝu. 
+to al vi kaj paco kaj amo pligrandiĝu.
 
 3 Amataj, kiam mi faris ĉian diligentecon, por skribi al vi pri nia
 
@@ -27424,7 +26473,7 @@ iuj homoj, jam antaŭ longe destinitaj por ĉi tiu kondamno, malpi-
 
 uloj, ŝanĝante la gracon de Dio en diboĉecon, kaj malkonfesante la
 
-solan Estron kaj nian Sinjoron Jesuo Kristo. 
+solan Estron kaj nian Sinjoron Jesuo Kristo.
 
 5 Mi do volas rememorigi vin, kvankam vi jam per unu fojo sci-
 
@@ -27438,7 +26487,7 @@ en katenoj ĉiamaj ĝis la juĝo en la granda tago. 7 Kiel ankaŭ Sodom
 
 kaj Gomora kaj la ĉirkaŭaj urboj tiel same, kiel ĉi tiuj, malĉastiĝinte
 
-kaj foririnte post fremdan karnon, estas elmontritaj kiel ekzemplo, 
+kaj foririnte post fremdan karnon, estas elmontritaj kiel ekzemplo,
 
 suferante la punon de eterna fajro. 8 Tamen tiel same ankaŭ ĉi tiuj
 
@@ -27448,17 +26497,15 @@ insultas honorojn. 9 Sed Miąel, la ĉefanĝelo, kiam en kontraŭsta-
 
 ro al la diablo li disputis pri la korpo de Moseo, ne kuraĝis lin akuzi
 
-insulte, sed diris: La Sinjoro vin riproĉu. 10 Sed tiuj insultas ja ĉion, 
+insulte, sed diris: La Sinjoro vin riproĉu. 10 Sed tiuj insultas ja ĉion,
 
 kion ili ne scias; sed kion ili per naturo komprenas, kiel la bestoj
 
-senprudentaj, en tio ili malvirtiĝas. 11 Ve al ili\! ĉar ili iris sur la vojo de Kain, kaj forĵetis sin en la eraron de Bileam por dungopago, kaj
+senprudentaj, en tio ili malvirtiĝas. 11 Ve al ili! ĉar ili iris sur la vojo de Kain, kaj forĵetis sin en la eraron de Bileam por dungopago, kaj
 
-461
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pereis en la kontraŭdirado de Kora˛. 12 Ili estas la subakvaj rokoj en
 
@@ -27470,19 +26517,19 @@ tintaj, elradikigitaj; 13 sovaĝaj marondoj, elŝaŭmantaj siajn hon-
 
 tindaĵojn; steloj vagantaj, por kiuj la nigreco de mallumo por eter-
 
-ne estas rezervata. 14 Kaj al ili ankaŭ ˘ano˛, la sepa post Adam, 
+ne estas rezervata. 14 Kaj al ili ankaŭ ˘ano˛, la sepa post Adam,
 
 profetis, dirante: Jen la Sinjoro venis kun Siaj sanktaj miriadoj, 15
 
 por fari juĝon kontraŭ ĉiuj, kaj por kondamni ĉiujn malpiulojn pri
 
-ĉiuj malpiaĵoj, kiujn ili malpie faris, kaj pri ĉiuj obstinaj paroloj, 
+ĉiuj malpiaĵoj, kiujn ili malpie faris, kaj pri ĉiuj obstinaj paroloj,
 
-kiujn malpiaj pekuloj parolis kontraŭ Li. 16 Ili estas murmuremuloj, 
+kiujn malpiaj pekuloj parolis kontraŭ Li. 16 Ili estas murmuremuloj,
 
-plendemuloj, irantaj laŭ siaj voluptoj \(dum ilia buŝo parolas fanfa-
+plendemuloj, irantaj laŭ siaj voluptoj (dum ilia buŝo parolas fanfa-
 
-ronaĵojn\) kaj favorantaj personojn pro profito. 
+ronaĵojn) kaj favorantaj personojn pro profito.
 
 17 Sed vi, amataj, memoru la dirojn antaŭe parolitajn de la apos-
 
@@ -27500,7 +26547,7 @@ paton de nia Sinjoro Jesuo Kristo por eterna vivo. 22 Kaj unujn, kiuj
 
 aliajn kompatu kun timo; malamante eĉ la veston makulitan de la
 
-karno. 
+karno.
 
 24 Kaj al Tiu, kiu povas vin gardi senfalaj, kaj starigi vin senripro-
 
@@ -27508,13 +26555,11 @@ karno.
 
 Jesuo Kristo, nia Sinjoro, estu gloro, majesto, potenco, kaj aŭtori-
 
-tato, antaŭ ĉiu mondaĝo, kaj nun, kaj ĝis la eterneco. Amen. 
+tato, antaŭ ĉiu mondaĝo, kaj nun, kaj ĝis la eterneco. Amen.
 
-462
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Apokalipso de sankta Johano
 
@@ -27530,9 +26575,9 @@ kaj la ateston de Jesuo Kristo, pri ĉio, kion li vidis. 3 Feliĉaj estas la
 
 leganto kaj la aŭskultantoj de la vortoj de la profetaĵo kaj la obser-
 
-vantoj de la skribitaĵoj en ĝi; ĉar la tempo estas proksima. 
+vantoj de la skribitaĵoj en ĝi; ĉar la tempo estas proksima.
 
-4 Johano al la sep eklezioj en Azio: Graco al vi kaj paco de Tiu, 
+4 Johano al la sep eklezioj en Azio: Graco al vi kaj paco de Tiu,
 
 kiu estas kaj estis kaj venos; kaj de la sep spiritoj antaŭ Lia trono; 5
 
@@ -27542,15 +26587,15 @@ toj, kaj la reganto de la reĝoj de la tero. Al tiu, kiu nin amas, kaj nin
 
 malligis de niaj pekoj per sia sango, 6 kaj faris nin regno, pastroj al
 
-lia Dio kaj Patro; al li la gloro kaj la potenco por ĉiam kaj eterne. 
+lia Dio kaj Patro; al li la gloro kaj la potenco por ĉiam kaj eterne.
 
-Amen. 7 Jen li venas kun la nuboj; kaj lin vidos ĉiu okulo, kaj tiuj, 
+Amen. 7 Jen li venas kun la nuboj; kaj lin vidos ĉiu okulo, kaj tiuj,
 
-kiuj lin trapikis; kaj ĉiuj gentoj de la tero ploros pro li. Vere, Amen. 
+kiuj lin trapikis; kaj ĉiuj gentoj de la tero ploros pro li. Vere, Amen.
 
 8 Mi estas la Alfa kaj la Omega, diras la Sinjoro, la Dio, kiu estas
 
-kaj estis kaj venos, la Plejpotenca. 
+kaj estis kaj venos, la Plejpotenca.
 
 9 Mi, Johano, via frato kaj partoprenanto kun vi en la aflikto kaj
 
@@ -27566,11 +26611,9 @@ kaj sendu al la sep eklezioj: al Efeso kaj al Smirna kaj al Pergamo kaj
 
 al Tiatira kaj al Sardes kaj al Filadelfia kaj al Laodikea. 12 Kaj mi min
 
-463
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 turnis, por vidi la voĉon, kiu parolis kun mi. Kaj turniĝinte, mi vi-
 
@@ -27586,13 +26629,13 @@ stelojn; kaj el lia buŝo eliris akra dutranĉa glavo; kaj lia aspekto estis
 
 kiel brilas la suno en sia forteco. 17 Kaj kiam mi vidis lin, mi falis ĉe
 
-liaj piedoj kvazaŭ senviva. Kaj li metis sian dekstran manon sur min, 
+liaj piedoj kvazaŭ senviva. Kaj li metis sian dekstran manon sur min,
 
 dirante: Ne timu; mi estas la unua kaj la lasta, 18 kaj la vivanta; kaj
 
 mi fariĝis mortinta, kaj jen, mi estas vivanta por ĉiam kaj eterne, kaj
 
-mi havas la ŝlosilojn de la morto kaj de Hades. 19 Skribu do tion, 
+mi havas la ŝlosilojn de la morto kaj de Hades. 19 Skribu do tion,
 
 kion vi vidis, kaj kio estas, kaj kio okazos poste; 20 la misteron de la
 
@@ -27600,7 +26643,7 @@ sep steloj, kiujn vi vidis en mia dekstra mano, kaj la sep orajn lam-
 
 pingojn. La sep steloj estas la anĝeloj de la sep eklezioj; kaj la sep
 
-lampingoj estas la sep eklezioj. 
+lampingoj estas la sep eklezioj.
 
 ĉapitro 2
 
@@ -27610,7 +26653,7 @@ Tiele diras la tenanto de la sep steloj en sia dekstra mano, la ir-
 
 anto meze de la sep oraj lampingoj: 2 Mi scias viajn farojn, kaj vian
 
-laboron kaj vian paciencon, kaj ke vi ne povas toleri la malbonulojn, 
+laboron kaj vian paciencon, kaj ke vi ne povas toleri la malbonulojn,
 
 kaj ke vi provis tiujn, kiuj nomas sin apostoloj kaj ne estas tiaj, kaj
 
@@ -27620,27 +26663,25 @@ mo kaj ne laciĝis. 4 Sed mi havas kontraŭ vi, ke vi forlasis vian unu-
 
 an amon. 5 Memoru do, de kie vi falis, kaj pentu, kaj faru la unuajn
 
-farojn; alie mi venos al vi, kaj formovos vian lampingon el ĝia loko, 
+farojn; alie mi venos al vi, kaj formovos vian lampingon el ĝia loko,
 
 se vi ne pentos. 6 Sed ĉi tion vi havas, ke vi malamas la farojn de la
 
-464
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Nikolaitoj, kiujn mi ankaŭ malamas. 7 Kiu havas orelon, tiu aŭskul-
 
 tu, kion la Spirito diras al la eklezioj. Al la venkanto mi donos manĝi
 
-el la arbo de vivo, kiu estas en la Paradizo de Dio. 
+el la arbo de vivo, kiu estas en la Paradizo de Dio.
 
 8 Kaj al la anĝelo de la eklezio en Smirna skribu:
 
 Tiele diras la unua kaj la lasta, kiu fariĝis senviva kaj vivis: 9 Mi
 
-scias vian aflikton kaj vian malriĉecon \(vi tamen estas riĉa\), kaj la
+scias vian aflikton kaj vian malriĉecon (vi tamen estas riĉa), kaj la
 
 blasfemon de tiuj, kiuj nomas sin Judoj, kaj estas ne tiaj, sed sina-
 
@@ -27652,7 +26693,7 @@ aflikton dek tagojn. Estu fidela ĝis morto, kaj mi donos al vi la kro-
 
 non de vivo. 11 Kiu havas orelon, tiu aŭskultu, kion la Spirito diras
 
-al la eklezioj. La venkanto tute ne difektiĝos de la dua morto. 
+al la eklezioj. La venkanto tute ne difektiĝos de la dua morto.
 
 12 Kaj al la anĝelo de la eklezio en Pergamo skribu:
 
@@ -27660,13 +26701,13 @@ Tiele diras la portanto de la akra dutranĉa glavo: 13 Mi scias, kie
 
 vi loĝas: tie, kie estas la trono de Satano; kaj vi tenas firme mian
 
-nomon, kaj ne malkonfesis mian fidon, eĉ en la tagoj de Antipas, 
+nomon, kaj ne malkonfesis mian fidon, eĉ en la tagoj de Antipas,
 
 mia fidela atestinto, kiu estis mortigita inter vi, kie loĝas Satano. 14
 
 Sed mi havas kelkon kontraŭ vi: ke vi havas tie sekvantojn de la in-
 
-struo de Bileam, kiu instruis al Balak ĵeti falilon antaŭ la Izraelidojn, 
+struo de Bileam, kiu instruis al Balak ĵeti falilon antaŭ la Izraelidojn,
 
 por ke ili manĝu idoloferitaĵojn kaj malĉastu. 15 Kaj vi ankaŭ havas
 
@@ -27678,9 +26719,9 @@ buŝo. 17 Kiu havas orelon, tiu aŭskultu, kion la Spirito diras al la
 
 eklezioj. Al la venkanto mi donos el la kaŝita manao, kaj mi donos
 
-al li blankan ŝtoneton, kaj sur la ŝtoneto novan nomon skribitan, 
+al li blankan ŝtoneton, kaj sur la ŝtoneto novan nomon skribitan,
 
-kiun konas neniu krom la ricevanto. 
+kiun konas neniu krom la ricevanto.
 
 18 Kaj al la anĝelo de la eklezio en Tiatira skribu:
 
@@ -27690,11 +26731,9 @@ liaj piedoj estas kiel brilanta latuno: 19 Mi scias viajn farojn, kaj vi-
 
 ajn amon kaj fidon kaj servadon kaj paciencon, kaj pri viaj faroj, ke
 
-465
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la lastaj estas pli multaj ol la unuaj. 20 Sed mi havas kontraŭ vi, ke
 
@@ -27714,7 +26753,7 @@ esploras internaĵojn kaj korojn; kaj mi donos al ĉiu el vi laŭ viaj
 
 faroj. 24 Sed al vi mi diras, al la ceteraj en Tiatira, al ĉiuj, kiuj ne
 
-havas ĉi tiun instruon, kaj kiuj ne konas la profundaĵojn de Satano, 
+havas ĉi tiun instruon, kaj kiuj ne konas la profundaĵojn de Satano,
 
 kiel oni diras: Mi ne ĵetos sur vin alian ŝarĝon. 25 Tamen tion, kion
 
@@ -27722,13 +26761,13 @@ vi havas, tenu, ĝis mi venos. 26 Kaj al la venkanto kaj la observanto
 
 de miaj faroj ĝis la fino mi donos aŭtoritaton super la nacioj; 27 kaj
 
-li regos ilin per fera sceptro, kiel la potaj vazoj estas dispecigataj; 
+li regos ilin per fera sceptro, kiel la potaj vazoj estas dispecigataj;
 
 kiel mi ankaŭ ricevis de mia Patro; 28 kaj mi donos al li la matenan
 
 stelon. 29 Kiu havas orelon, tiu aŭskultu, kion la Spirito diras al la
 
-eklezioj. 
+eklezioj.
 
 ĉapitro 3
 
@@ -27752,37 +26791,35 @@ siajn vestojn; kaj ili promenos kun mi en blankaĵoj; ĉar ili estas in-
 
 daj. 5 La venkanto estos tiel vestita per blankaj vestoj; kaj mi ja ne
 
-466
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 elstrekos lian nomon el la libro de vivo, kaj mi konfesos lian nomon
 
 antaŭ mia Patro kaj antaŭ Liaj anĝeloj. 6 Kiu havas orelon, tiu aŭ-
 
-skultu, kion la Spirito diras al la eklezioj. 
+skultu, kion la Spirito diras al la eklezioj.
 
 7 Kaj al la anĝelo de la eklezio en Filadelfia skribu:
 
-Tiele diras la sanktulo, la verulo, kiu havas la ŝlosilon de David, 
+Tiele diras la sanktulo, la verulo, kiu havas la ŝlosilon de David,
 
 tiu, kiu malfermas, kaj neniu fermas; kiu fermas, kaj neniu malfer-
 
-mas: 8 Mi scias viajn farojn \(jen mi donis antaŭ vi pordon malfer-
+mas: 8 Mi scias viajn farojn (jen mi donis antaŭ vi pordon malfer-
 
-mitan, kiun neniu povas fermi\), ke vi havas kelkan potencon, kaj
+mitan, kiun neniu povas fermi), ke vi havas kelkan potencon, kaj
 
 observis mian vorton, kaj ne malkonfesis mian nomon. 9 Jen mi do-
 
-nas el la sinagogo de Satano, kiuj sin nomas Judoj, kaj estas ne tiaj, 
+nas el la sinagogo de Satano, kiuj sin nomas Judoj, kaj estas ne tiaj,
 
-sed mensogas; jen mi igos ilin veni kaj adorkliniĝi antaŭ viaj piedoj, 
+sed mensogas; jen mi igos ilin veni kaj adorkliniĝi antaŭ viaj piedoj,
 
-kaj scii, ke mi vin amis. 10 ĉar vi observis la vorton de mia pacienco, 
+kaj scii, ke mi vin amis. 10 ĉar vi observis la vorton de mia pacienco,
 
-mi ankaŭ vin konservos el tiu horo de provo, kiu venos sur la tutan
+mi ankaŭ vnservos el tiu horo de provo, kiu venos sur la tutan
 
 mondon, por provi la loĝantojn sur la tero. 11 Mi venos rapide; te-
 
@@ -27796,15 +26833,15 @@ de la urbo de mia Dio, la nova Jerusalem, kiu venas malsupren de
 
 mia Dio el la ĉielo, kaj mian novan nomon. 13 Kiu havas orelon, tiu
 
-aŭskultu, kion la Spirito diras al la eklezioj. 
+aŭskultu, kion la Spirito diras al la eklezioj.
 
 14 Kaj al la anĝelo de la eklezio en Laodikea skribu:
 
 Tiele diras la Amen, la atestanto fidela kaj vera, la komenco de
 
-la kreo de Dio: 15 Mi scias viajn farojn, ke vi estas nek malvarma, 
+la kreo de Dio: 15 Mi scias viajn farojn, ke vi estas nek malvarma,
 
-nek varmega; mi volus, ke vi estu aŭ malvarma aŭ varmega. 16 Tial, 
+nek varmega; mi volus, ke vi estu aŭ malvarma aŭ varmega. 16 Tial,
 
 ĉar vi estas varmeta, kaj nek malvarma nek varmega, mi elsputos
 
@@ -27818,11 +26855,9 @@ oron rafinitan per fajro, por ke vi riĉiĝu; kaj blankajn vestojn, por
 
 ke vi vin vestu, kaj por ke ne aperu la honto de via nudeco; kaj ko-
 
-467
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 lirion, por ŝmiri viajn okulojn, por ke vi vidu. 19 ĉiujn, kiujn mi
 
@@ -27836,7 +26871,7 @@ venkanto mi donos sidiĝi kun mi sur mia trono, kiel mi ankaŭ ven-
 
 kis kaj sidiĝis kun mia Patro sur Lia trono. 22 Kiu havas orelon, tiu
 
-aŭskultu, kion la Spirito diras al la eklezioj. 
+aŭskultu, kion la Spirito diras al la eklezioj.
 
 ĉapitro 4
 
@@ -27878,15 +26913,13 @@ ta, sankta, sankta, estas Dio, la Sinjoro, la Plejpotenca, la estanta kaj
 
 estinta kaj venonta. 9 Kaj kiam la kreitaĵoj donos gloron kaj honoron
 
-468
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj dankon al la Sidanto sur la trono, al la Vivanto por ĉiam kaj eter-
 
-ne, 10 la dudek kvar presbiteroj falos antaŭ la Sidanto sur la trono, 
+ne, 10 la dudek kvar presbiteroj falos antaŭ la Sidanto sur la trono,
 
 kaj ili adorkliniĝos al la Vivanto por ĉiam kaj eterne, kaj ĵetos siajn
 
@@ -27894,17 +26927,17 @@ kronojn antaŭ la trono, dirante: 11 Inda Vi estas, ho nia Sinjoro kaj
 
 nia Dio, ricevi la gloron kaj la honoron kaj la potencon; ĉar Vi kreis
 
-ĉion, kaj pro Via volo ĉio ekzistis kaj kreiĝis. 
+ĉion, kaj pro Via volo ĉio ekzistis kaj kreiĝis.
 
 ĉapitro 5
 
-1 Kaj mi vidis en la dekstra mano de la Sidanto sur la trono libron, 
+1 Kaj mi vidis en la dekstra mano de la Sidanto sur la trono libron,
 
 skribitan interne kaj malantaŭe, sigelitan per sep sigeloj. 2 Kaj mi
 
 vidis fortan anĝelon, proklamantan per granda voĉo: Kiu estas inda
 
-malfermi la libron kaj rompi ĝiajn sigelojn? 3 Kaj neniu en la ĉielo, 
+malfermi la libron kaj rompi ĝiajn sigelojn? 3 Kaj neniu en la ĉielo,
 
 nek sur la tero, nek sub la tero, povis malfermi la libron, aŭ rigar-
 
@@ -27912,7 +26945,7 @@ di ĝin. 4 Kaj mi multe ploris, ĉar troviĝis neniu inda malfermi la li-
 
 bron, aŭ ĝin rigardi; 5 kaj unu el la presbiteroj diris al mi: Ne plo-
 
-ru; jen la leono el la tribo de Jehuda, la Markoto de David, venkis, 
+ru; jen la leono el la tribo de Jehuda, la Markoto de David, venkis,
 
 por malfermi la libron kaj ĝiajn sep sigelojn. 6 Kaj mi vidis meze
 
@@ -27920,7 +26953,7 @@ inter la trono kaj la kvar kreitaĵoj, kaj meze de la presbiteroj, ˘afi-
 
 don starantan, kvazaŭ oferbuĉitan, havantan sep kornojn kaj sep
 
-okulojn, kiuj estas la sep Spiritoj de Dio, senditaj sur la tutan teron. 
+okulojn, kiuj estas la sep Spiritoj de Dio, senditaj sur la tutan teron.
 
 7 Kaj li venis, kaj prenis ĝin el la dekstra mano de la Sidanto sur la
 
@@ -27940,11 +26973,9 @@ kaj faris ilin al nia Dio regno kaj pastroj; kaj ili reĝas sur la tero. 11
 
 Kaj mi rigardis, kaj mi aŭdis voĉon de multaj anĝeloj, ronde ĉirkaŭ
 
-469
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 la trono kaj la kreitaĵoj kaj la presbiteroj; kaj ilia nombro estis mi-
 
@@ -27962,7 +26993,7 @@ no, kaj al la ˘afido, estu la laŭdo kaj la honoro kaj la gloro kaj la
 
 potenco por ĉiam kaj eterne. 14 Kaj la kvar kreitaĵoj diris: Amen. Kaj
 
-la presbiteroj falis kaj adorkliniĝis. 
+la presbiteroj falis kaj adorkliniĝis.
 
 ĉapitro 6
 
@@ -27972,9 +27003,9 @@ mi aŭdis unu el la kvar kreitaĵoj dirantan kvazaŭ per voĉo de tond-
 
 ro: Venu. 2 Kaj mi rigardis, kaj jen blanka ĉevalo, kaj la sidanta sur
 
-ĝi havis pafarkon; kaj estis donita al li krono; kaj li eliris venkanta, 
+ĝi havis pafarkon; kaj estis donita al li krono; kaj li eliris venkanta,
 
-kaj por venki. 
+kaj por venki.
 
 3 Kaj kiam li malfermis la duan sigelon, mi aŭdis la duan kre-
 
@@ -27982,7 +27013,7 @@ itaĵon dirantan: Venu. 4 Kaj eliris alia ĉevalo, flamkolora; kaj al la
 
 sidanta sur ĝi estis donite forpreni pacon de la tero, kaj ke oni mor-
 
-tigu unu la alian; kaj al li estis donita granda glavo. 
+tigu unu la alian; kaj al li estis donita granda glavo.
 
 5 Kaj kiam li malfermis la trian sigelon, mi aŭdis la trian kreitaĵon
 
@@ -27994,7 +27025,7 @@ de la kvar kreitaĵoj, dirantan: Mezuro da tritiko por denaro, kaj tri
 
 mezuroj da hordeo por denaro; kaj la oleon kaj la vinon ne difek-
 
-tu. 
+tu.
 
 7 Kaj kiam li malfermis la kvaran sigelon, mi aŭdis la voĉon de la
 
@@ -28002,23 +27033,21 @@ kvara kreitaĵo dirantan: Venu. 8 Kaj mi rigardis, kaj jen pala ĉeva-
 
 lo; kaj la nomo de la sidanta sur ĝi estis Morto; kaj Hades sekvis kun
 
-470
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 li. Kaj estis donita al ili aŭtoritato super kvarono de la tero, por mor-
 
 tigi per glavo kaj per malsato kaj per morto kaj per la sovaĝaj be-
 
-stoj de la tero. 
+stoj de la tero.
 
 9 Kaj kiam li malfermis la kvinan sigelon, mi vidis sub la altaro
 
 la animojn de la mortigitaj pro la vorto de Dio kaj pro la atesto, kiun
 
-ili havadis; 10 kaj ili kriis per granda voĉo, dirante: ¯is kiam, ho Es-
+ili havadis; 10 kaj ili kriis per granda voĉo, dirante: is kiam, ho Es-
 
 tro, la sankta kaj vera, Vi ne juĝas kaj ne venĝas nian sangon al la
 
@@ -28026,7 +27055,7 @@ loĝantoj sur la tero? 11 Kaj estis donita al ĉiu el ili blanka robo; kaj
 
 estis dirite al ili, ke ili atendu ankoraŭ kelkan tempon, ĝis ankaŭ iliaj
 
-kunservistoj kaj iliaj fratoj, mortigotaj kiel ili mem, plensumiĝos. 
+kunservistoj kaj iliaj fratoj, mortigotaj kiel ili mem, plensumiĝos.
 
 12 Kaj mi rigardis, kiam li malfermis la sesan sigelon, kaj fariĝis
 
@@ -28048,7 +27077,7 @@ la montoj; 16 kaj ili diris al la montoj kaj al la rokoj: Falu sur nin, kaj nin 
 
 kolero de la ˘afido; 17 ĉar venis la granda tago de ilia kolero; kaj kiu
 
-povas stari? 
+povas stari?
 
 ĉapitro 7
 
@@ -28062,13 +27091,11 @@ anĝelon suprenirantan de la sunleviĝo, havantan sigelilon de la viv-
 
 anta Dio; kaj li ekkriis per granda voĉo al la kvar anĝeloj, al kiuj estis
 
-471
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-donite difekti la teron kaj la maron, 3 dirante: Ne difektu la teron, 
+donite difekti la teron kaj la maron, 3 dirante: Ne difektu la teron,
 
 nek la maron, nek la arbojn, antaŭ ol ni sigelos sur iliaj fruntoj la
 
@@ -28076,47 +27103,43 @@ servistojn de nia Dio. 4 Kaj mi aŭdis la nombron de la sigelitoj, cent
 
 kvardek kvar miloj, sigelitaj el ĉiuj triboj de la Izraelidoj:
 
-5
 
-El la tribo de Jehuda estis sigelitaj dek du miloj; 
+El la tribo de Jehuda estis sigelitaj dek du miloj;
 
-El la tribo de Ruben, dek du miloj; 
+El la tribo de Ruben, dek du miloj;
 
-El la tribo de Gad, dek du miloj; 
+El la tribo de Gad, dek du miloj;
 
-6
 
-El la tribo de Aŝer, dek du miloj; 
+El la tribo de Aŝer, dek du miloj;
 
-El la tribo de Naftali, dek du miloj; 
+El la tribo de Naftali, dek du miloj;
 
-El la tribo de Manase, dek du miloj; 
+El la tribo de Manase, dek du miloj;
 
-7
 
-El la tribo de Simeon, dek du miloj; 
+El la tribo de Simeon, dek du miloj;
 
-El la tribo de Levi, dek du miloj; 
+El la tribo de Levi, dek du miloj;
 
-El la tribo de Isaąr, dek du miloj; 
+El la tribo de Isaąr, dek du miloj;
 
-8
 
-El la tribo de Zebulun, dek du miloj; 
+El la tribo de Zebulun, dek du miloj;
 
-El la tribo de Jozef, dek du miloj; 
+El la tribo de Jozef, dek du miloj;
 
-El la tribo de Benjamen estis sigelitaj dek du miloj. 
+El la tribo de Benjamen estis sigelitaj dek du miloj.
 
 9 Post tio mi rigardis, kaj jen granda homamaso, kiun neniu po-
 
-vis kalkuli, el ĉiu nacio, kaj el ĉiuj triboj kaj popoloj kaj lingvoj, starantaj antaŭ la trono kaj antaŭ la ˘afido, vestitaj per blankaj roboj, 
+vis kalkuli, el ĉiu nacio, kaj el ĉiuj triboj kaj popoloj kaj lingvoj, starantaj antaŭ la trono kaj antaŭ la ˘afido, vestitaj per blankaj roboj,
 
 kaj kun palmoj en iliaj manoj; 10 kaj ili kriis per granda voĉo, diran-
 
-te: Savo al nia Dio, la sidanta sur la trono, kaj al la ˘afido. 11 Kaj ĉiuj anĝeloj staris ĉirkaŭ la trono kaj la presbiteroj kaj la kvar kreitaĵoj; 
+te: Savo al nia Dio, la sidanta sur la trono, kaj al la ˘afido. 11 Kaj ĉiuj anĝeloj staris ĉirkaŭ la trono kaj la presbiteroj kaj la kvar kreitaĵoj;
 
-kaj ili falis sur sian vizaĝon antaŭ la trono, kaj adorkliniĝis al Dio, 
+kaj ili falis sur sian vizaĝon antaŭ la trono, kaj adorkliniĝis al Dio,
 
 12 dirante: Amen; La laŭdo kaj la gloro kaj la saĝeco kaj la danko kaj
 
@@ -28126,13 +27149,11 @@ eterne. Amen. 13 Kaj respondis unu el la presbiteroj, dirante al mi:
 
 Kiuj estas ĉi tiuj per blankaj roboj vestitaj, kaj de kie ili venis? 14 Kaj mi diris al li: Mia sinjoro, vi scias. Kaj li diris al mi: ĉi tiuj estas la venantoj el la granda afliktado, kaj ili lavis siajn robojn, kaj blankigis
 
-ilin en la sango de la ˘afido. 15 Tial ili estas antaŭ la trono de Dio; 
+ilin en la sango de la ˘afido. 15 Tial ili estas antaŭ la trono de Dio;
 
-472
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 kaj ili servas al Li tage kaj nokte en Lia templo; kaj la Sidanto sur la
 
@@ -28142,7 +27163,7 @@ plu soifos; ne frapos ilin la suno nek ia varmego; 17 ĉar la ˘afido, kiu
 
 estas meze de la trono, paŝtos ilin kaj kondukos ilin al akvofontoj
 
-de vivo; kaj Dio forviŝos de iliaj okuloj ĉiun larmon. 
+de vivo; kaj Dio forviŝos de iliaj okuloj ĉiun larmon.
 
 ĉapitro 8
 
@@ -28150,7 +27171,7 @@ de vivo; kaj Dio forviŝos de iliaj okuloj ĉiun larmon.
 
 por ĉirkaŭ duono de horo. 2 Kaj mi vidis la sep anĝelojn, kiuj sta-
 
-ras antaŭ Dio; kaj estis donitaj al ili sep trumpetoj. 
+ras antaŭ Dio; kaj estis donitaj al ili sep trumpetoj.
 
 3 Kaj alia anĝelo venis, kaj staris apud la altaro, havante incen-
 
@@ -28158,43 +27179,41 @@ silon oran; kaj estis donita al li multe da incenso, por ke li aldonu
 
 ĝin al la preĝoj de ĉiuj sanktuloj sur la altaro ora, kiu estis antaŭ la
 
-trono. 4 Kaj la fumo de la incenso, kun la preĝoj de la sanktuloj, 
+trono. 4 Kaj la fumo de la incenso, kun la preĝoj de la sanktuloj,
 
 leviĝis antaŭ Dio el la mano de la anĝelo. 5 Kaj la anĝelo prenis la
 
-incensilon, kaj li plenigis ĝin per la fajro de la altaro, kaj ĵetis ĝin sur la teron; kaj fariĝis tondroj kaj voĉoj kaj fulmoj kaj tertremo. 
+incensilon, kaj li plenigis ĝin per la fajro de la altaro, kaj ĵetis ĝin sur la teron; kaj fariĝis tondroj kaj voĉoj kaj fulmoj kaj tertremo.
 
 6 Kaj la sep anĝeloj, havantaj la sep trumpetojn, sin pretigis, por
 
-trumpeti. 
+trumpeti.
 
 7 Kaj la unua trumpetis, kaj fariĝis hajlo kaj fajro, miksitaj kun
 
-sango, kaj ili estis ĵetitaj sur la teron; kaj triono de la tero forbrulis, kaj triono de la arboj forbrulis, kaj la tuta verda herbo forbrulis. 
+sango, kaj ili estis ĵetitaj sur la teron; kaj triono de la tero forbrulis, kaj triono de la arboj forbrulis, kaj la tuta verda herbo forbrulis.
 
 8 Kaj la dua anĝelo trumpetis, kaj kvazaŭ granda monto, per fajro
 
-brulanta, estis ĵetita en la maron; kaj triono de la maro fariĝis sango; 
+brulanta, estis ĵetita en la maron; kaj triono de la maro fariĝis sango;
 
 9 kaj mortis triono de la kreitaĵoj en la maro, kiuj havis vivon; kaj
 
-triono de la ŝipoj pereis. 
+triono de la ŝipoj pereis.
 
-10 Kaj la tria anĝelo trumpetis, kaj falis el la ĉielo granda stelo, 
+10 Kaj la tria anĝelo trumpetis, kaj falis el la ĉielo granda stelo,
 
 brulanta kiel torĉo, kaj ĝi falis sur trionon de la riveroj kaj sur la
 
 fontojn de la akvoj; 11 kaj la nomo de la stelo estas Absinto; kaj tri-
 
-473
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ono de la akvoj fariĝis absintaĵo; kaj multe da homoj mortis de la
 
-akvoj, ĉar ili maldolĉiĝis. 
+akvoj, ĉar ili maldolĉiĝis.
 
 12 Kaj la kvara anĝelo trumpetis, kaj estis frapita triono de la suno
 
@@ -28202,13 +27221,13 @@ kaj triono de la luno kaj triono de la steloj, por ke mallumiĝu trio-
 
 no de ili, kaj ke ne lumu dum triono de la tago, kaj por la nokto tiel
 
-same. 
+same.
 
 13 Kaj mi rigardis, kaj mi aŭdis unu aglon, flugantan en meza ĉie-
 
-lo, dirantan per granda voĉo: Ve\! ve\! ve al la loĝantoj sur la tero, pro
+lo, dirantan per granda voĉo: Ve! ve! ve al la loĝantoj sur la tero, pro
 
-la ceteraj voĉoj trumpetaj de la tri anĝeloj ankoraŭ trumpetontaj\! 
+la ceteraj voĉoj trumpetaj de la tri anĝeloj ankoraŭ trumpetontaj!
 
 ĉapitro 9
 
@@ -28248,19 +27267,18 @@ kiel de leonoj. 9 Kaj ili havis kirasojn, kiel kirasoj el fero; kaj la sono de i
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
-taj en militon. 10 Kaj ili havis vostojn similajn al vostoj de skorpioj, 
+taj en militon. 10 Kaj ili havis vostojn similajn al vostoj de skorpioj,
 
 kaj pikilojn; kaj en iliaj vostoj estas ilia kapablo difekti la homojn
 
-kvin monatojn. 11 Ili havis super si reĝon, la anĝelon de la abismo; 
+kvin monatojn. 11 Ili havis super si reĝon, la anĝelon de la abismo;
 
 lia nomo estas en la Hebrea lingvo Abadon, kaj en la Greka lingvo
 
 li havas la nomon Apolion. 12 La unua Veo jam pasis; jen post tio ve-
 
-nas ankoraŭ du Veoj. 
+nas ankoraŭ du Veoj.
 
 13 Kaj la sesa anĝelo trumpetis, kaj mi aŭdis voĉon el la kornoj de
 
@@ -28270,11 +27288,11 @@ havis la trumpeton: Malligu la kvar anĝelojn, ligitajn apud la granda
 
 rivero Eŭfrato. 15 Kaj malligiĝis la kvar anĝeloj, pretigitaj por la horo
 
-kaj tago kaj monato kaj jaro, por ke ili mortigu trionon de la homoj. 
+kaj tago kaj monato kaj jaro, por ke ili mortigu trionon de la homoj.
 
-16 Kaj la nombro de la armeoj de la kavalerio estis ducent milionoj; 
+16 Kaj la nombro de la armeoj de la kavalerio estis ducent milionoj;
 
-mi aŭdis ilian nombron. 17 Kaj tiel mi vidis la ĉevalojn en la vizio, 
+mi aŭdis ilian nombron. 17 Kaj tiel mi vidis la ĉevalojn en la vizio,
 
 kaj la sidantajn sur ili, havantajn kirasojn kiel el fajro kaj el jacinto
 
@@ -28290,27 +27308,25 @@ iliaj buŝoj kaj en iliaj vostoj; ĉar iliaj vostoj similas serpentojn kaj
 
 havas kapojn; kaj per ĉi tiuj ili vundas. 20 Kaj la ceteraj homoj, kiuj
 
-ne estis mortigitaj per tiuj plagoj, ne pentis pri la faroj de siaj manoj, 
+ne estis mortigitaj per tiuj plagoj, ne pentis pri la faroj de siaj manoj,
 
 por ne adorkliniĝi al demonoj, kaj al la idoloj oraj kaj arĝentaj kaj
 
-kupraj kaj ŝtonaj kaj lignaj, kiuj povas nek vidi, nek aŭdi, nek marŝi; 
+kupraj kaj ŝtonaj kaj lignaj, kiuj povas nek vidi, nek aŭdi, nek marŝi;
 
 21 kaj ili ne pentis pri siaj mortigoj, nek pri siaj sorĉoj, nek pri sia
 
-malĉastado, nek pri siaj ŝteloj. 
+malĉastado, nek pri siaj ŝteloj.
 
 ĉapitro 10
 
-1 Kaj mi vidis alian fortan anĝelon, malsuprenirantan el la ĉielo, 
+1 Kaj mi vidis alian fortan anĝelon, malsuprenirantan el la ĉielo,
 
 vestitan per nubo; kaj la ĉielarko estis super lia kapo, kaj lia vizaĝo
 
-475
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 estis kiel la suno, kaj liaj piedoj kiel kolonoj el fajro; 2 kaj li havis en la mano libreton malfermitan; kaj li metis la dekstran piedon sur la
 
@@ -28326,7 +27342,7 @@ tondroj, kaj ĝin ne skribu. 5 Kaj la anĝelo, kiun mi vidis staranta sur
 
 la maro kaj sur la tero, levis sian dekstran manon al la ĉielo, 6 kaj
 
-ĵuris per la Vivanto por ĉiam kaj eterne, kiu kreis la ĉielon kaj tion, 
+ĵuris per la Vivanto por ĉiam kaj eterne, kiu kreis la ĉielon kaj tion,
 
 kio estas en ĝi, kaj la teron kaj tion, kio estas en ĝi, kaj la maron kaj
 
@@ -28336,7 +27352,7 @@ la voĉo de la sepa anĝelo, kiam li tuj trumpetos, tiam finiĝos la mi-
 
 stero de Dio, kiel Li evangeliis al Siaj servistoj, la profetoj. 8 Kaj la
 
-voĉo, kiun mi aŭdis el la ĉielo, parolis al mi denove, dirante: Iru, 
+voĉo, kiun mi aŭdis el la ĉielo, parolis al mi denove, dirante: Iru,
 
 prenu la libreton malfermitan en la mano de la anĝelo, staranta sur
 
@@ -28352,11 +27368,11 @@ manĝis ĝin; kaj en mia buŝo ĝi estis dolĉa kiel mielo, kaj kiam mi ĝin
 
 manĝis, mia ventro maldolĉiĝis. 11 Kaj ili diris al mi: Vi devas denove
 
-profeti ĉe multaj popoloj kaj nacioj kaj lingvoj kaj reĝoj. 
+profeti ĉe multaj popoloj kaj nacioj kaj lingvoj kaj reĝoj.
 
 ĉapitro 11
 
-1 Kaj estis donita al mi kano, simila al bastono; kaj iu diris: Leviĝu, 
+1 Kaj estis donita al mi kano, simila al bastono; kaj iu diris: Leviĝu,
 
 kaj mezuru la templon de Dio, kaj la altaron, kaj la adorantojn en
 
@@ -28366,11 +27382,9 @@ kaj mezuru la templon de Dio, kaj la altaron, kaj la adorantojn en
 
 dek du monatojn. 3 Kaj mi donos komision al miaj du atestantoj, kaj
 
-476
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ili profetos mil ducent sesdek tagojn, vestite per sakaĵo. 4 Ili estas la
 
@@ -28404,7 +27418,7 @@ lasas meti iliajn kadavrojn en tombon. 10 Kaj la loĝantoj sur la tero
 
 tagoj kaj duono la spirito de vivo el Dio eniris en ilin, kaj ili stariĝis
 
-sur siaj piedoj; kaj granda timo falis sur tiujn, kiuj ilin rigardis. 12 Kaj ili aŭdis grandan voĉon el la ĉielo, dirantan al ili: Suprenvenu ĉi tien. 
+sur siaj piedoj; kaj granda timo falis sur tiujn, kiuj ilin rigardis. 12 Kaj ili aŭdis grandan voĉon el la ĉielo, dirantan al ili: Suprenvenu ĉi tien.
 
 Kaj ili supreniris en la ĉielon en la nubo; kaj iliaj malamikoj rigar-
 
@@ -28412,9 +27426,9 @@ dis ilin. 13 Kaj en tiu horo fariĝis granda tertremo, kaj dekono de la
 
 urbo falis; kaj en la tertremo mortis sep mil homoj; kaj la ceteraj
 
-pleniĝis de timo, kaj donis laŭdon al la Dio de la ĉielo. 
+pleniĝis de timo, kaj donis laŭdon al la Dio de la ĉielo.
 
-14 La dua Veo jam pasis; jen la tria Veo rapide venas. 
+14 La dua Veo jam pasis; jen la tria Veo rapide venas.
 
 15 Kaj la sepa anĝelo trumpetis; kaj fariĝis grandaj voĉoj en la ĉie-
 
@@ -28428,11 +27442,9 @@ adorkliniĝis al Dio, 17 dirante: Ni dankas Vin, ho Dio, la Sinjoro, la
 
 Plejpotenca, kiu estas kaj estis; ĉar Vi alprenis Vian grandan po-
 
-477
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tencon kaj reĝis. 18 Kaj la nacioj furiozis, kaj venis Via kolero, kaj la
 
@@ -28442,13 +27454,13 @@ pencon al Viaj servistoj, la profetoj, kaj al la sanktuloj, kaj al la tim-
 
 antoj de Via nomo, malgrandaj kaj grandaj, kaj pereigi la detruan-
 
-tojn de la tero. 
+tojn de la tero.
 
 19 Kaj malfermiĝis la enĉiela templo de Dio, kaj vidiĝis en Lia
 
 templo la kesto de Lia interligo; kaj fariĝis fulmoj kaj voĉoj kaj ton-
 
-droj kaj tertremo kaj granda hajlo. 
+droj kaj tertremo kaj granda hajlo.
 
 ĉapitro 12
 
@@ -28456,11 +27468,11 @@ droj kaj tertremo kaj granda hajlo.
 
 la luno sub ŝiaj piedoj, kaj sur ŝia kapo krono el dek du steloj; 2 kaj
 
-estante graveda, ŝi ekkriis, naskodolorigate kaj suferante por naski. 
+estante graveda, ŝi ekkriis, naskodolorigate kaj suferante por naski.
 
 3 Kaj vidiĝis alia signo en la ĉielo; kaj jen granda ruĝa drako, hav-
 
-anta sep kapojn kaj dek kornojn, kaj sur siaj kapoj sep diademojn. 
+anta sep kapojn kaj dek kornojn, kaj sur siaj kapoj sep diademojn.
 
 4 Kaj ĝia vosto trenis trionon de la steloj de la ĉielo, kaj ĵetis ilin sur la teron; kaj la drako staris antaŭ la virino naskonta, por ke, kiam
 
@@ -28472,7 +27484,7 @@ estis forkaptita supren al Dio kaj al Lia trono. 6 Kaj la virino forku-
 
 ris en la dezerton, kie ŝi havis lokon pretigitan de Dio, por ke tie oni
 
-nutru ŝin mil ducent sesdek tagojn. 
+nutru ŝin mil ducent sesdek tagojn.
 
 7 Kaj fariĝis milito en la ĉielo: Miąel kaj liaj anĝeloj ekmilitis
 
@@ -28486,25 +27498,23 @@ Satano, la trompanto de la tuta mondo; ĝi ĵetiĝis sur la teron, kaj
 
 lo, dirantan: Nun fariĝis la savo kaj la potenco kaj la reĝeco de nia
 
-478
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 Dio, kaj la aŭtoritato de Lia Kristo; ĉar ĵetiĝis malsupren la akuzanto
 
 de niaj fratoj, kiu tage kaj nokte akuzas ilin antaŭ nia Dio. 11 Kaj ili
 
-venkis ĝin pro la sango de la ˘afido, kaj pro la vorto de sia atesto; 
+venkis ĝin pro la sango de la ˘afido, kaj pro la vorto de sia atesto;
 
-kaj ili ne amis sian vivon ĝis morto mem. 12 Pro tio ĝoju, ho ĉieloj, 
+kaj ili ne amis sian vivon ĝis morto mem. 12 Pro tio ĝoju, ho ĉieloj,
 
-kaj vi, kiuj en ili loĝas. Ve al la tero kaj al la maro\! ĉar la diablo mal-
+kaj vi, kiuj en ili loĝas. Ve al la tero kaj al la maro! ĉar la diablo mal-
 
 supreniris en vin, havante grandan koleron, sciante, ke li havas nur
 
-mallongan tempon. 
+mallongan tempon.
 
 13 Kaj kiam la drako vidis, ke ĝi estas ĵetita sur la teron, ĝi perse-
 
@@ -28526,11 +27536,11 @@ buŝo. 17 Kaj la drako furiozis kontraŭ la virino, kaj foriris, por fari
 
 militon kontraŭ la restintojn de ŝia idaro, kiuj observas la ordonojn
 
-de Dio kaj havas la ateston de Jesuo; 
+de Dio kaj havas la ateston de Jesuo;
 
 ĉapitro 13
 
-1 kaj ĝi staris sur la sablo de la maro. 
+1 kaj ĝi staris sur la sablo de la maro.
 
 Kaj mi vidis beston suprenirantan el la maro, havantan dek kor-
 
@@ -28548,11 +27558,9 @@ morte vunditan; kaj la morta vundo saniĝis; kaj la tuta tero miris
 
 post la besto; 4 kaj ili adorkliniĝis al la drako, ĉar ĝi donis sian aŭto-
 
-479
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ritaton al la besto; kaj ili adorkliniĝis al la besto, dirante: Kiu estas
 
@@ -28578,7 +27586,7 @@ do. 9 Se iu havas orelon, tiu aŭskultu. 10 Se iu malliberigas, en mall-
 
 iberecon li iras; se iu per la glavo mortigos, li devas per la glavo esti
 
-mortigita. ĉi tie estas la pacienco kaj la fido de la sanktuloj. 
+mortigita. ĉi tie estas la pacienco kaj la fido de la sanktuloj.
 
 11 Kaj mi vidis alian beston suprenirantan el la tero; kaj ĝi havis
 
@@ -28602,7 +27610,7 @@ nite, ke ĝi donu spiron al la bildo de la besto, por ke eĉ parolu la
 
 bildo de la besto, kaj faru, ke ĉiuj, kiuj ne volas adorkliniĝi al la bildo de la besto, estu mortigitaj. 16 Kaj ĝi devigas ĉiujn, la malgrandajn
 
-kaj la grandajn, la riĉajn kaj la malriĉajn, la liberajn kaj la sklavajn, 
+kaj la grandajn, la riĉajn kaj la malriĉajn, la liberajn kaj la sklavajn,
 
 ricevi markon sur la dekstra mano aŭ sur la frunto; 17 por ke neniu
 
@@ -28610,15 +27618,13 @@ povu aĉeti aŭ vendi, krom tiuj, kiuj havas la markon, la nomon de
 
 la besto, aŭ la numeron de ĝia nomo. 18 ĉi tie estas saĝeco. Kiu ha-
 
-480
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 vas prudenton, tiu kalkulu la numeron de la besto; ĉar ĝi estas la
 
-numero de homo; kaj ĝia numero estas sescent sesdek ses. 
+numero de homo; kaj ĝia numero estas sescent sesdek ses.
 
 ĉapitro 14
 
@@ -28638,7 +27644,7 @@ krom la cent kvardek kvar miloj, la elaĉetitoj el la tero. 4 Ili estas tiuj, ki
 
 moj, la unuaaĵo al Dio kaj al la ˘afido. 5 Kaj en ilia buŝo ne troviĝis
 
-mensogo; ili estas senkulpaj. 
+mensogo; ili estas senkulpaj.
 
 6 Kaj mi vidis alian anĝelon, flugantan en meza ĉielo, havantan
 
@@ -28650,45 +27656,43 @@ da voĉo: Timu Dion, kaj donu al Li gloron, ĉar venis la horo de Lia
 
 juĝo; kaj adorkliniĝu al la Kreinto de la ĉielo kaj la tero kaj la maro
 
-kaj la fontoj akvaj. 
+kaj la fontoj akvaj.
 
-8 Kaj alia anĝelo, dua, sekvis, dirante: Falis, falis Babel la granda, 
+8 Kaj alia anĝelo, dua, sekvis, dirante: Falis, falis Babel la granda,
 
-kiu trinkigis ĉiujn naciojn el la vino de la kolero de ŝia malĉastaĵo. 
+kiu trinkigis ĉiujn naciojn el la vino de la kolero de ŝia malĉastaĵo.
 
 9 Kaj alia anĝelo, tria, sekvis ilin, dirante per granda voĉo: Se iu
 
 adorkliniĝas al la besto kaj al ĝia bildo, kaj ricevas markon sur sia
 
-frunto aŭ sur sia mano, 10 tiu ankaŭ trinkos el la vino de la kolero
+frunto aŭ sur sia mano, 10 tiu ankaŭ trs el la vino de la kolero
 
 de Dio, kiu estas pretigita nemiksite en la pokalo de Lia kolero, kaj
 
 li turmentiĝos en fajro kaj sulfuro antaŭ la sanktaj anĝeloj kaj an-
 
-481
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 taŭ la ˘afido; 11 kaj la fumo de ilia turmento leviĝas por ĉiam kaj
 
 eterne; kaj ne havas paŭzon tage kaj nokte tiuj, kiuj adorkliniĝas al
 
-la besto kaj al ĝia bildo, kaj ĉiu, kiu ricevas la markon de ĝia nomo. 
+la besto kaj al ĝia bildo, kaj ĉiu, kiu ricevas la markon de ĝia nomo.
 
 12 ĉi tie estas la pacienco de la sanktuloj, kiuj observas la ordonojn
 
-de Dio kaj la fidon de Jesuo. 
+de Dio kaj la fidon de Jesuo.
 
 13 Kaj mi aŭdis voĉon el la ĉielo, dirantan: Skribu: Feliĉaj estas la
 
-mortintoj, kiuj de nun mortas en la Sinjoro; vere, diras la Spirito, 
+mortintoj, kiuj de nun mortas en la Sinjoro; vere, diras la Spirito,
 
-por ke ili ripozu de siaj laboroj; ĉar iliaj faroj sekvas kun ili. 
+por ke ili ripozu de siaj laboroj; ĉar iliaj faroj sekvas kun ili.
 
-14 Kaj mi rigardis, kaj jen blanka nubo, kaj sur la nubo sidanto, 
+14 Kaj mi rigardis, kaj jen blanka nubo, kaj sur la nubo sidanto,
 
 simila al la Filo de homo, havanta sur sia kapo oran kronon, kaj en
 
@@ -28700,7 +27704,7 @@ lon, kaj rikoltu; ĉar venis la horo por rikolti, ĉar la rikolto de la tero
 
 tromaturiĝis. 16 Kaj la sidanta sur la nubo ĵetis sian rikoltilon sur la
 
-teron; kaj la tero rikoltiĝis. 
+teron; kaj la tero rikoltiĝis.
 
 17 Kaj alia anĝelo eliris el la enĉiela templo, ankaŭ havante akran
 
@@ -28720,7 +27724,7 @@ kolero de Dio. 20 Kaj la vinpremilo estis tretita ekster la urbo, kaj
 
 eliris sango el la vinpremilo, ĝis la bridoj de la ĉevaloj, en la spaco
 
-de mil sescent stadioj. 
+de mil sescent stadioj.
 
 ĉapitro 15
 
@@ -28728,13 +27732,11 @@ de mil sescent stadioj.
 
 anĝelojn havantajn sep plagojn, la finajn, ĉar en ili finiĝis la kole-
 
-ro de Dio. 
+ro de Dio.
 
-482
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 2 Kaj mi vidis kvazaŭ vitran maron, miksitan kun fajro; kaj tiu-
 
@@ -28752,11 +27754,11 @@ la nacioj. 4 Kiu ne timos, ho Sinjoro, kaj ne gloros Vian nomon? ĉar
 
 Vi sola estas sankta; ĉar ĉiuj nacioj venos kaj adorkliniĝos al Vi; ĉar
 
-Viaj justaĵoj elmontriĝis. 
+Viaj justaĵoj elmontriĝis.
 
 5 Kaj post tio mi rigardis, kaj malfermiĝis la templo de la taber-
 
-naklo de la atesto en la ĉielo; 6 kaj elvenis el la templo la sep anĝeloj, 
+naklo de la atesto en la ĉielo; 6 kaj elvenis el la templo la sep anĝeloj,
 
 havante la sep plagojn, vestite per linaĵo pura kaj luma, kaj zonite
 
@@ -28768,23 +27770,23 @@ anta por ĉiam kaj eterne. 8 Kaj la templo pleniĝis de fumo el la gloro
 
 de Dio kaj el Lia potenco; kaj neniu povis eniri en la templon, ĝis
 
-finiĝos la sep plagoj de la sep anĝeloj. 
+finiĝos la sep plagoj de la sep anĝeloj.
 
 ĉapitro 16
 
 1 Kaj mi aŭdis grandan voĉon el la templo, dirantan al la sep anĝe-
 
-loj: Iru, kaj elverŝu sur la teron la sep pelvojn de la kolero de Dio. 
+loj: Iru, kaj elverŝu sur la teron la sep pelvojn de la kolero de Dio.
 
 2 Kaj la unua foriris, kaj elverŝis sian pelvon sur la teron; kaj far-
 
 iĝis malbona kaj dolora ulcero sur la homoj, kiuj havis la markon
 
-de la besto kaj kiuj adorkliniĝis al ĝia bildo. 
+de la besto kaj kiuj adorkliniĝis al ĝia bildo.
 
-3 Kaj la dua elverŝis sian pelvon en la maron; kaj fariĝis sango, 
+3 Kaj la dua elverŝis sian pelvon en la maron; kaj fariĝis sango,
 
-kiel de mortinto; kaj mortis ĉiu vivanta estaĵo en la maro. 
+kiel de mortinto; kaj mortis ĉiu vivanta estaĵo en la maro.
 
 4 Kaj la tria elverŝis sian pelvon en la riverojn kaj en la fontojn de
 
@@ -28792,11 +27794,9 @@ akvoj; kaj fariĝis sango. 5 Kaj mi aŭdis la anĝelon de la akvoj dir-
 
 antan: Justa estas Vi, la estanta kaj estinta, la Sanktulo, ĉar Vi tiele
 
-483
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 juĝis; 6 ĉar ili elverŝis la sangon de sanktuloj kaj profetoj, kaj sang-
 
@@ -28804,7 +27804,7 @@ on Vi donis al ili trinki; ili tion meritas. 7 Kaj mi aŭdis la altaron dir-
 
 antan: Vere, ho Dio, la Sinjoro, la Plejpotenca, veraj kaj justaj estas
 
-Viaj juĝoj. 
+Viaj juĝoj.
 
 8 Kaj la kvara elverŝis sian pelvon sur la sunon; kaj estis donite
 
@@ -28812,7 +27812,7 @@ al ĝi brulvundi homojn per fajro. 9 Kaj la homoj brulvundiĝis per
 
 granda varmego, kaj ili blasfemis la nomon de Dio, kiu havas aŭto-
 
-ritaton sur tiuj plagoj; kaj ili ne pentis, por doni al Li gloron. 
+ritaton sur tiuj plagoj; kaj ili ne pentis, por doni al Li gloron.
 
 10 Kaj la kvina elverŝis sian pelvon sur la tronon de la besto; kaj
 
@@ -28820,7 +27820,7 @@ ritaton sur tiuj plagoj; kaj ili ne pentis, por doni al Li gloron.
 
 ili blasfemis la Dion de la ĉielo pro siaj doloroj kaj siaj ulceroj; kaj
 
-ili ne pentis pri siaj faroj. 
+ili ne pentis pri siaj faroj.
 
 12 Kaj la sesa elverŝis sian pelvon sur la grandan riveron, la rive-
 
@@ -28836,17 +27836,17 @@ de demonoj, farantaj signojn; ili foriras al la reĝoj de la tuta mon-
 
 do, por kolekti ilin por la milito de la granda tago de Dio, la Plejpo-
 
-tenca. 15 \(Jen mi venas kvazaŭ ŝtelisto. Feliĉa estas tiu, kiu viglas kaj
+tenca. 15 (Jen mi venas kvazaŭ ŝtelisto. Feliĉa estas tiu, kiu viglas kaj
 
 konservas siajn vestojn, por ke li ne iru nuda, kaj oni ne vidu lian
 
-honton.\) 16 Kaj oni kolektis ilin en lokon, nomatan en la Hebrea
+honton.) 16 Kaj oni kolektis ilin en lokon, nomatan en la Hebrea
 
-lingvo Har-Magedon. 
+lingvo Har-Magedon.
 
 17 Kaj la sepa anĝelo elverŝis sian pelvon sur la aeron; kaj eliris
 
-granda voĉo el la templo, for de la trono, dirante: Fariĝis\! 18 kaj oka-
+granda voĉo el la templo, for de la trono, dirante: Fariĝis! 18 kaj oka-
 
 zis fulmoj kaj voĉoj kaj tondroj; kaj okazis granda tertremo tia, kia
 
@@ -28858,11 +27858,9 @@ cioj falis; kaj Babel la granda estis memorata antaŭ Dio, por doni al
 
 ĝi la pokalon de la vino de la furiozeco de Lia kolero. 20 Kaj ĉiu in-
 
-484
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 sulo forflugis, kaj la montoj ne troviĝis. 21 Kaj granda hajlo, peza
 
@@ -28870,7 +27868,7 @@ kvazaŭ po talanto, falis el la ĉielo sur la homojn; kaj la homoj blas-
 
 femis Dion pro la plago de la hajlo; ĉar ĝia plago estas treege gran-
 
-da. 
+da.
 
 ĉapitro 17
 
@@ -28906,7 +27904,7 @@ miris per granda miro. 7 Kaj la anĝelo diris al mi: Kial vi miris? mi
 
 diros al vi la misteron de la virino, kaj de la besto, kiu portas ŝin kaj
 
-kiu havas la sep kapojn kaj la dek kornojn. 8 La besto, kiun vi vidis, 
+kiu havas la sep kapojn kaj la dek kornojn. 8 La besto, kiun vi vidis,
 
 ekzistis, sed ne ekzistas, kaj venos supren el la abismo kaj iros en
 
@@ -28920,15 +27918,13 @@ signifo, kiu havas saĝecon: la sep kapoj estas sep montoj, sur kiuj
 
 sidas la virino; 10 kaj ili estas sep reĝoj; la kvin jam falis, la unu es-
 
-485
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 tas, la alia ankoraŭ ne venis; kaj kiam li venos, li devos resti kelkan
 
-tempon. 11 Kaj la besto, kiu ekzistis kaj ne ekzistas, estas ankaŭ oka, 
+tempon. 11 Kaj la besto, kiu ekzistis kaj ne ekzistas, estas ankaŭ oka,
 
 kaj estas el la sep; kaj ĝi iras en pereon. 12 Kaj la dek kornoj, kiujn
 
@@ -28958,7 +27954,7 @@ unu intencon, kaj doni sian regnon al la besto, ĝis la vortoj de Dio
 
 plenumiĝos. 18 Kaj la virino, kiun vi vidis, estas la granda urbo, kiu
 
-havas reĝecon super la reĝoj de la tero. 
+havas reĝecon super la reĝoj de la tero.
 
 ĉapitro 18
 
@@ -28976,17 +27972,15 @@ de la kolero de ŝia malĉasteco falis ĉiuj nacioj; kaj la reĝoj de la tero
 
 malĉastis kun ŝi, kaj la komercistoj de la tero riĉiĝis per la poten-
 
-co de ŝia lukso. 
+co de ŝia lukso.
 
 4 Kaj mi aŭdis alian voĉon el la ĉielo, dirantan: Elvenu el ŝi, ho
 
 Mia popolo, por ke vi ne partoprenu en ŝiaj pekoj, kaj por ke vi ne
 
-486
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ricevu el ŝiaj plagoj; 5 ĉar ŝiaj pekoj amasiĝis ĝis la ĉielo, kaj Dio
 
@@ -29004,13 +27998,13 @@ venos ŝiaj plagoj, morto kaj funebro kaj malsatego; kaj ŝi forbrulos
 
 per fajro; ĉar forta estas Dio, la Sinjoro, kiu ŝin juĝas. 9 Kaj la reĝoj
 
-de la tero, kiuj malĉastis kun ŝi kaj voluptis, ploros kaj ĝemos pri ŝi, 
+de la tero, kiuj malĉastis kun ŝi kaj voluptis, ploros kaj ĝemos pri ŝi,
 
 kiam ili rigardos la fumon de ŝia brulado, 10 starante malproksime
 
-pro timo de ŝia turmento, dirante: Ve\! ve, la granda urbo, Babel, la
+pro timo de ŝia turmento, dirante: Ve! ve, la granda urbo, Babel, la
 
-forta urbo\! ĉar en unu horo venis via juĝo. 11 Kaj la komercistoj de
+forta urbo! ĉar en unu horo venis via juĝo. 11 Kaj la komercistoj de
 
 la tero ploras kaj lamentas pri ŝi, ĉar jam neniu aĉetas ilian komerc-
 
@@ -29034,9 +28028,9 @@ negocintoj de tiuj komercaĵoj, kiuj riĉiĝis per ŝi, malproksime sta-
 
 ros pro la timo de ŝia turmento, plorante kaj lamentante, 16 kaj dir-
 
-ante: Ve\! ve, la granda urbo, la vestita per bisino kaj purpuro kaj
+ante: Ve! ve, la granda urbo, la vestita per bisino kaj purpuro kaj
 
-skarlato, kaj ornamita per oro kaj altvaloraj ŝtonoj kaj perloj\! 17 ĉar
+skarlato, kaj ornamita per oro kaj altvaloraj ŝtonoj kaj perloj! 17 ĉar
 
 en unu horo pereis tiom da riĉeco. Kaj ĉiu ŝipestro, kaj ĉiu ien ŝipe
 
@@ -29046,25 +28040,23 @@ proksime, 18 kaj kriis, vidante la fumon de ŝia brulego, dirante: Kio
 
 similas la grandan urbon? 19 Kaj ili ĵetis polvon sur siajn kapojn, kaj
 
-kriis, plorante kaj lamentante, kaj dirante: Ve\! ve, la granda urbo\! 
+kriis, plorante kaj lamentante, kaj dirante: Ve! ve, la granda urbo!
 
-487
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 en kiu riĉiĝis ĉiuj, kiuj havis siajn ŝipojn sur la maro per ŝia lukse-
 
-go\! ĉar en unu horo ŝi dezertiĝis. 20 ¯ojegu super ŝi, ho ĉielo, kaj la
+go! ĉar en unu horo ŝi dezertiĝis. 20 ojegu super ŝi, ho ĉielo, kaj la
 
 sanktuloj, kaj la apostoloj, kaj la profetoj; ĉar Dio decidis pri ŝi laŭ
 
-via juĝo. 
+via juĝo.
 
-21 Kaj forta anĝelo prenis ŝtonon, kvazaŭ grandan muelŝtonon, 
+21 Kaj forta anĝelo prenis ŝtonon, kvazaŭ grandan muelŝtonon,
 
-kaj ĵetis ĝin en la maron, dirante: Tiel per puŝego deĵetiĝos Babel, 
+kaj ĵetis ĝin en la maron, dirante: Tiel per puŝego deĵetiĝos Babel,
 
 la granda urbo, kaj jam ne plu troviĝos. 22 Kaj voĉo de harpistoj kaj
 
@@ -29080,13 +28072,13 @@ vi; ĉar viaj komercistoj estis la granduloj de la tero; ĉar per via sor-
 
 ĉado ĉiuj nacioj trompiĝis. 24 Kaj en ŝi troviĝis la sango de profetoj
 
-kaj sanktuloj, kaj de ĉiuj mortigitoj sur la tero. 
+kaj sanktuloj, kaj de ĉiuj mortigitoj sur la tero.
 
 ĉapitro 19
 
 1 Post tio mi aŭdis kvazaŭ grandan voĉon de granda homamaso en
 
-la ĉielo, dirantan: Haleluja\! La savo kaj la gloro kaj la potenco apart-
+la ĉielo, dirantan: Haleluja! La savo kaj la gloro kaj la potenco apart-
 
 enas al nia Dio; 2 ĉar veraj kaj justaj estas Liaj juĝoj; ĉar Li juĝis la
 
@@ -29094,11 +28086,11 @@ grandan malĉastistinon, kiu infektis la teron per sia malĉasteco, kaj
 
 Li venĝis la sangon de Siaj servistoj el ŝia mano. 3 Kaj duan fojon ili
 
-diris: Haleluja\! Kaj ŝia fumo leviĝas por ĉiam kaj eterne. 4 Kaj la
+diris: Haleluja! Kaj ŝia fumo leviĝas por ĉiam kaj eterne. 4 Kaj la
 
 dudek kvar presbiteroj kaj la kvar kreitaĵoj falis kaj adorkliniĝis al
 
-Dio, la sidanta sur la trono, dirante: Amen, Haleluja\! 5 Kaj el la trono
+Dio, la sidanta sur la trono, dirante: Amen, Haleluja! 5 Kaj el la trono
 
 eliris voĉo, dirante: Laŭdu nian Dion, ĉiuj Liaj servistoj, vi, kiuj ti-
 
@@ -29106,15 +28098,13 @@ mas Lin, la malgrandaj kaj la grandaj. 6 Kaj mi aŭdis kvazaŭ voĉon
 
 de granda homamaso kaj kvazaŭ voĉon de multaj akvoj kaj kvazaŭ
 
-voĉon de fortaj tondroj, dirantajn: Haleluja\! ĉar la Sinjoro, nia Dio, 
+voĉon de fortaj tondroj, dirantajn: Haleluja! ĉar la Sinjoro, nia Dio,
 
-la Plejpotenca, reĝas. 7 Ni ĝoju kaj triumfu, kaj donu al Li la gloron; 
+la Plejpotenca, reĝas. 7 Ni ĝoju kaj triumfu, kaj donu al Li la gloron;
 
-488
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 ĉar venis la edziĝo de la ˘afido, kaj lia edzino sin pretigis. 8 Kaj estis
 
@@ -29132,7 +28122,7 @@ estas kunservisto kun vi kaj kun viaj fratoj, kiuj konservas la ates-
 
 ton de Jesuo; adorkliniĝu al Dio; ĉar la atesto de Jesuo estas la spi-
 
-rito de profetado. 
+rito de profetado.
 
 11 Kaj mi vidis la ĉielon malfermitan; kaj jen blanka ĉevalo, kaj la
 
@@ -29154,9 +28144,9 @@ ilin per fera sceptro; kaj li tretas la vinpremilon de la furiozeco de
 
 la kolero de Dio, la Plejpotenca. 16 Kaj li havas sur la vesto kaj sur
 
-la femuro nomon skribitan: RE¯O DE RE¯OJ KAJ SINJORO DE
+la femuro nomon skribitan: REO DE REOJ KAJ SINJORO DE
 
-SINJOROJ. 
+SINJOROJ.
 
 17 Kaj mi vidis unu anĝelon, starantan en la suno; kaj li ekkriis
 
@@ -29168,7 +28158,7 @@ non de reĝoj kaj karnon de milestroj kaj karnon de fortuloj kaj kar-
 
 non de ĉevaloj kaj de iliaj rajdantoj, kaj karnon de ĉiuj homoj, libe-
 
-raj kaj sklavaj, grandaj kaj malgrandaj. 
+raj kaj sklavaj, grandaj kaj malgrandaj.
 
 19 Kaj mi vidis la beston, kaj la reĝojn de la tero kaj iliajn arme-
 
@@ -29176,11 +28166,9 @@ ojn, kunigitajn, por fari militon kontraŭ la sidanta sur la ĉevalo kaj
 
 kontraŭ lia armeo. 20 Kaj la besto estis kaptita, kaj kun ĝi la falsa
 
-489
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 profeto, kiu faris antaŭ ĝi la signojn, per kiuj li trompis tiujn, kiuj
 
@@ -29190,7 +28178,7 @@ estis ĵetitaj vivaj en la lagon fajran, brulantan per sulfuro; 21 kaj la
 
 ceteraj estis mortigitaj per la glavo de la sidanta sur la ĉevalo, la gla-
 
-vo, kiu eliris el lia buŝo; kaj ĉiuj birdoj satiĝis per ilia karno. 
+vo, kiu eliris el lia buŝo; kaj ĉiuj birdoj satiĝis per ilia karno.
 
 ĉapitro 20
 
@@ -29198,15 +28186,15 @@ vo, kiu eliris el lia buŝo; kaj ĉiuj birdoj satiĝis per ilia karno.
 
 silon de la abismo kaj grandan katenon en sia mano. 2 Kaj li ekkap-
 
-tis la drakon, la antikvan serpenton, kiu estas la Diablo kaj Satano, 
+tis la drakon, la antikvan serpenton, kiu estas la Diablo kaj Satano,
 
 kaj enkatenis lin por mil jaroj, 3 kaj ĵetis lin en la abismon kaj fer-
 
-mis ĝin kaj sigelis ĝin super li, por ke li ne plu trompu la naciojn, 
+mis ĝin kaj sigelis ĝin super li, por ke li ne plu trompu la naciojn,
 
 ĝis finiĝos la mil jaroj; post tio li devos esti malligita por kelka tem-
 
-po. 
+po.
 
 4 Kaj mi vidis tronojn, kaj oni sidis sur ili, kaj juĝo estis donita al
 
@@ -29214,7 +28202,7 @@ ili; kaj mi vidis la animojn de la senkapigitaj pro la atesto de Jesuo
 
 kaj pro la vorto de Dio, kaj tiujn, kiuj ne adorkliniĝis al la besto, nek
 
-al ĝia bildo, kaj ne ricevis la markon sur sia frunto kaj sur sia mano; 
+al ĝia bildo, kaj ne ricevis la markon sur sia frunto kaj sur sia mano;
 
 kaj ili vivis, kaj ili reĝis kun Kristo mil jarojn. 5 La ceteraj mortintoj
 
@@ -29224,7 +28212,7 @@ kaj sankta estas la partoprenanto en la unua releviĝo; super tiuj la
 
 dua morto havas nenian aŭtoritaton; sed ili estos pastroj de Dio kaj
 
-de Kristo, kaj reĝos kun li mil jarojn. 
+de Kristo, kaj reĝos kun li mil jarojn.
 
 7 Kaj kiam finiĝos la mil jaroj, Satano estos ellasita el sia malli-
 
@@ -29238,19 +28226,17 @@ tas kiel la sablo de la maro. 9 Kaj ili supreniris laŭlarĝe de la tero kaj
 
 malsupreniris el la ĉielo, kaj ekstermis ilin. 10 Kaj la diablo, kiu trom-
 
-490
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 pis ilin, estis ĵetita en la lagon fajran kaj sulfuran, kie troviĝas la
 
 besto kaj la falsa profeto; kaj ili estos turmentataj tage kaj nokte por
 
-ĉiam kaj eterne. 
+ĉiam kaj eterne.
 
-11 Kaj mi vidis grandan blankan tronon, kaj la Sidanton sur ĝi, 
+11 Kaj mi vidis grandan blankan tronon, kaj la Sidanton sur ĝi,
 
 antaŭ kies vizaĝo forflugis la tero kaj la ĉielo; kaj ne troviĝis loko
 
@@ -29266,7 +28252,7 @@ tojn, kiuj estis en ili; kaj ĉiu estis juĝata laŭ siaj faroj. 14 Kaj la mor-t
 
 la fajra lago. 15 Kaj se iu ne troviĝis skribita en la libro de vivo, tiu
 
-estis ĵetita en la fajran lagon. 
+estis ĵetita en la fajran lagon.
 
 ĉapitro 21
 
@@ -29284,7 +28270,7 @@ tas kun la homoj, kaj Li loĝos kun ili, kaj ili estos Liaj popoloj, kaj
 
 Dio mem estos kun ili kaj estos ilia Dio; 4 kaj Li forviŝos ĉiun larmon
 
-el iliaj okuloj; kaj la morto jam ne ekzistos; ne plu ekzistos funebro, 
+el iliaj okuloj; kaj la morto jam ne ekzistos; ne plu ekzistos funebro,
 
 nek plorado, nek doloro; la unuaj aferoj forpasis. 5 Kaj diris la Sid-
 
@@ -29296,11 +28282,9 @@ estas la Alfa kaj la Omega, la komenco kaj la fino. Mi donos dona-
 
 ce al la soifanto el la fonto de la akvo de vivo. 7 La venkanto here-
 
-491
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 dos ĉion; kaj Mi estos por li Dio, kaj li estos por Mi filo. 8 Sed por
 
@@ -29310,7 +28294,7 @@ la timemaj kaj nekredemaj kaj abomenindaj kaj mortigistoj kaj mal-
 
 tos en la lago, brulanta per fajro kaj sulfuro; tio estas la dua mor-
 
-to. 
+to.
 
 9 Kaj venis unu el la sep anĝeloj, havantaj la sep pelvojn, plenajn
 
@@ -29324,7 +28308,7 @@ al mi la sanktan urbon Jerusalem, malsuprenirantan el la ĉielo for
 
 de Dio, 11 havantan la gloron de Dio; ĝia lumo estis simila al ŝtono
 
-plej altvalora, kvazaŭ jaspiso kristaleca; 12 kun muro granda kaj alta, 
+plej altvalora, kvazaŭ jaspiso kristaleca; 12 kun muro granda kaj alta,
 
 kun dek du pordegoj, kaj apud la pordegoj dek du anĝeloj; kaj no-
 
@@ -29336,7 +28320,7 @@ tri pordegoj, kaj okcidente tri pordegoj. 14 Kaj la muro de la urbo
 
 havis dek du fundamentojn, kaj sur ili dek du nomojn de la dek du
 
-apostoloj de la ˘afido. 15 Kaj mia kunparolanto havis mezurilon, 
+apostoloj de la ˘afido. 15 Kaj mia kunparolanto havis mezurilon,
 
 oran vergon, por mezuri la urbon kaj ĝiajn pordegojn kaj ĝian mu-
 
@@ -29354,19 +28338,17 @@ tis pura oro, simila al pura vitro. 19 La fundamentoj de la muro de
 
 la urbo estis ornamitaj per altvaloraj ŝtonoj ĉiuspecaj. La unua fun-
 
-damento estis jaspiso; la dua, safiro; la tria, kalcedonio; la kvara, 
+damento estis jaspiso; la dua, safiro; la tria, kalcedonio; la kvara,
 
-smeraldo; 20 la kvina, sardonikso; la sesa, sardio; la sepa, krizolito; 
+smeraldo; 20 la kvina, sardonikso; la sesa, sardio; la sepa, krizolito;
 
 la oka, berilo; la naŭa, topazo; la deka, krizopraso; la dek-unua, ja-
 
 cinto; la dek-dua, ametisto. 21 Kaj la dek du pordegoj estis dek du
 
-492
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 perloj, ĉiu el la pordegoj estis el unu perlo; kaj la strato de la urbo
 
@@ -29374,27 +28356,27 @@ estis pura oro, kvazaŭ travidebla vitro. 22 Kaj templon en ĝi mi ne
 
 vidis; ĉar Dio, la Sinjoro, la Plejpotenca, kaj la ˘afido estas ĝia tem-
 
-plo. 23 Kaj la urbo ne bezonas la sunon, nek la lunon, por brili al ĝi; 
+plo. 23 Kaj la urbo ne bezonas la sunon, nek la lunon, por brili al ĝi;
 
 ĉar la gloro de Dio lumis al ĝi, kaj ĝia lampo estas la ˘afido. 24 Kaj
 
 la nacioj promenos per ĝia lumo; kaj la reĝoj de la tero alportas en
 
-ĝin sian gloron. 25 Kaj ĝiaj pordegoj tute ne estos fermitaj tage \(ĉar
+ĝin sian gloron. 25 Kaj ĝiaj pordegoj tute ne estos fermitaj tage (ĉar
 
-nokto ne ekzistos tie\); 26 kaj ili alportos en ĝin la gloron kaj la hon-
+nokto ne ekzistos tie); 26 kaj ili alportos en ĝin la gloron kaj la hon-
 
 oron de la nacioj; 27 kaj tute ne eniros en ĝin io malpura, nek faran-
 
 to de abomenindaĵo kaj mensogo; sed nur la skribitaj en la libro de
 
-vivo de la ˘afido. 
+vivo de la ˘afido.
 
 ĉapitro 22
 
-1 Kaj li montris al mi riveron de akvo de vivo, helan kiel kristalo, 
+1 Kaj li montris al mi riveron de akvo de vivo, helan kiel kristalo,
 
-elirantan el la trono de Dio kaj de la ˘afido, 2 meze de ĝia strato. 
+elirantan el la trono de Dio kaj de la ˘afido, 2 meze de ĝia strato.
 
 Kaj ĉe ĉiu flanko de la rivero estis arbo de vivo, portanta dek du
 
@@ -29406,11 +28388,11 @@ en ĝi estos la trono de Dio kaj de la ˘afido; kaj Liaj servistoj Lin
 
 adoros; 4 kaj ili vidos Lian vizaĝon; kaj Lia nomo estos sur ilia frun-
 
-to. 5 Kaj nokto ne plu ekzistos; kaj ili ne bezonas lumon de lampo, 
+to. 5 Kaj nokto ne plu ekzistos; kaj ili ne bezonas lumon de lampo,
 
 nek lumon de suno; ĉar Dio, la Sinjoro, lumos al ili; kaj ili reĝos por
 
-ĉiam kaj eterne. 
+ĉiam kaj eterne.
 
 6 Kaj li diris al mi: Tiuj vortoj estas fidelaj kaj veraj; kaj la Sinj-
 
@@ -29420,15 +28402,13 @@ montri al Siaj servistoj tion, kio devas okazi baldaŭ. 7 Kaj jen mi
 
 rapide venos. Feliĉa estas tiu, kiu observas la vortojn de la profetaĵo
 
-de ĉi tiu libro. 
+de ĉi tiu libro.
 
 8 Kaj mi, Johano, estis la aŭdanto kaj la vidanto de ĉi tio. Kaj ki-
 
-493
 
 L A S A N K TA B I B L I O
 
-eLIBRO
 
 am mi aŭdis kaj vidis, mi falis, por adorkliniĝi antaŭ la piedoj de la
 
@@ -29438,7 +28418,7 @@ tion ne faru; mi estas kunservisto kun vi kaj kun viaj fratoj, la pro-
 
 fetoj, kaj kun la observantoj de la vortoj de ĉi tiu libro; adorkliniĝu
 
-al Dio. 
+al Dio.
 
 10 Kaj li diris al mi: Ne sigelu la vortojn de la profetaĵo de ĉi tiu
 
@@ -29460,19 +28440,19 @@ la urbon. 15 Ekstere estas la hundoj kaj la sorĉistoj kaj la malĉastu-
 
 loj kaj la mortigistoj kaj la idolanoj, kaj ĉiu, kiu amas kaj faras men-
 
-sogon. 
+sogon.
 
 16 Mi, Jesuo, sendis mian anĝelon, por atesti al vi ĉi tion por la
 
 eklezioj. Mi estas la markoto kaj ido de David, la hela, la matena
 
-stelo. 
+stelo.
 
 17 Kaj la Spirito kaj la fianĉino diras: Venu. Kaj la aŭdanto diru:
 
 Venu. Kaj la soifanto venu; kiu volas, tiu prenu donace la akvon de
 
-vivo. 
+vivo.
 
 18 Mi atestas al ĉiu, kiu aŭdas la vortojn de la profetaĵo de ĉi tiu
 
@@ -29480,58 +28460,45 @@ libro: Se iu aldonos al ili, Dio aldonos al li la plagojn, skribitajn en
 
 ĉi tiu libro; 19 kaj se iu forprenos el la vortoj de la libro de ĉi tiu profetaĵo, skribitaj en ĉi tiu libro, Dio forprenos lian lotaĵon el la arbo
 
-de vivo kaj el la sankta urbo. 
+de vivo kaj el la sankta urbo.
 
-20 La atestanto de tio diras: Vere, mi rapide venos. Amen; venu, 
+20 La atestanto de tio diras: Vere, mi rapide venos. Amen; venu,
 
-Sinjoro Jesuo. 
+Sinjoro Jesuo.
 
-21 La graco de la Sinjoro Jesuo estu kun ĉiuj sanktuloj. Amen. 
+21 La graco de la Sinjoro Jesuo estu kun ĉiuj sanktuloj. Amen.
 
-494
 
 L A S A N K TA B I B L I O
-
-eLIBRO
-
-http://www.omnibus.se/inko
-
-ISBN 91-7303-006-6
-
-495
-
-
-
 
 
 # Document Outline
 
-+ Enhavo  
-	+ La evangelio lau' sankta Mateo 
-	+ La evangelio lau' sankta Marko 
-	+ La evangelio lau' sankta Luko 
-	+ La evangelio lau' sankta Johano 
-	+ La agoj de la apostoloj 
-	+ La epistolo de la apostolo Pau'lo al la Romanoj 
-	+ La unua epistolo de la apostolo Pau'lo al la Korintanoj 
-	+ La dua epistolo de la apostolo Pau'lo al la Korintanoj 
-	+ La epistolo de la apostolo Pau'lo al la Galatoj 
-	+ La epistolo de la apostolo Pau'lo al la Efesanoj 
-	+ La epistolo de la apostolo Pau'lo al la Filipianoj 
-	+ La epistolo de la apostolo Pau'lo al la Koloseanoj 
-	+ La unua epistolo de la apostolo Pau'lo al la Tesalonikanoj 
-	+ La dua epistolo de la apostolo Pau'lo al laTesalonikanoj 
-	+ La unua epistolo de la apostolo Pau'lo al Timoteo 
-	+ La dua epistolo de la apostolo Pau'lo al Timoteo 
-	+ La epistolo de la apostolo Pau'lo al Tito 
-	+ La epistolo de la apostolo Pau'lo al Filemon 
-	+ La epistolo al la Hebreoj 
-	+ La epistolo g'enerala de Jakobo 
-	+ La unua epistolo g'enerala de Petro 
-	+ La dua epistolo g'enerala de Petro 
-	+ La unua epistolo g'enerala de Johano 
-	+ La dua epistolo g'enerala de Johano 
-	+ La tria epistolo g'enerala de Johano 
-	+ La epistolo g'enerala de Judas 
-	+ Apokalipso de sankta Johano
-
++ Enhavo
++ La evangelio laŭ sankta Mateo
++ La evangelio laŭ sankta Marko
++ La evangelio laŭ sankta Luko
++ La evangelio laŭ sankta Johano
++ La agoj de la apostoloj
++ La epistolo de la apostolo Paŭlo al la Romanoj
++ La unua epistolo de la apostolo Paŭlo al la Korintanoj
++ La dua epistolo de la apostolo Paŭlo al la Korintanoj
++ La epistolo de la apostolo Paŭlo al la Galatoj
++ La epistolo de la apostolo Paŭlo al la Efesanoj
++ La epistolo de la apostolo Paŭlo al la Filipianoj
++ La epistolo de la apostolo Paŭlo al la Koloseanoj
++ La unua epistolo de la apostolo Paŭlo al la Tesalonikanoj
++ La dua epistolo de la apostolo Paŭlo al laTesalonikanoj
++ La unua epistolo de la apostolo Paŭlo al Timoteo
++ La dua epistolo de la apostolo Paŭlo al Timoteo
++ La epistolo de la apostolo Paŭlo al Tito
++ La epistolo de la apostolo Paŭlo al Filemon
++ La epistolo al la Hebreoj
++ La epistolo ĝenerala de Jakobo
++ La unua epistolo ĝenerala de Petro
++ La dua epistolo ĝenerala de Petro
++ La unua epistolo ĝenerala de Johano
++ La dua epistolo ĝenerala de Johano
++ La tria epistolo ĝenerala de Johano
++ La epistolo ĝenerala de Judas
++ Apokalipso de sankta Johano

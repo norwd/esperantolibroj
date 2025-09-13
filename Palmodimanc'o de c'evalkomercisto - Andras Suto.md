@@ -1,14 +1,5 @@
-% Palmodimanc'o de c'evalkomercisto
-% Andras Suto
-
-!(images/000001.jpg)
-
-
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
-
-eLIBRO
 
 András Süt *o´´*
 
@@ -20,13 +11,9 @@ de ĉeval-
 
 komercisto
 
-I N K O
-
-1
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 András Süto´´
 
@@ -36,25 +23,14 @@ Dramo en tri aktoj
 
 Surbaze de kroniko de Heinrich von Kleist
 
-El la hungara tradukis Jozefo Horvath
+Jozefo Horvath
 
-eLIBRO
 
-Aranĝis: Franko Luin
+@omnibus.se
 
-ISBN 91-7303-172-0
-
-inko@omnibus.se
-
-http://www.omnibus.se/inko
-
-AŭGUSTO 2002
-
-2
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 Rolantoj
 
@@ -102,13 +78,11 @@ Kastelsoldulo
 
 Tribunalaj servistoj, servutuloj, burĝoj
 
-Okazas en la unua duono de la 16-a jarcento. 
+Okazas en la unua duono de la 16-a jarcento.
 
-3
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ĉu estis ĉu ne la fato
 
@@ -118,7 +92,7 @@ En Kolhaasenbrück
 
 Sur komerciston
 
-Mikel’ Kolhaas frapis la fato. 
+Mikel’ Kolhaas frapis la fato.
 
 Fulmhaste venas la fato
 
@@ -128,7 +102,7 @@ Ho ĉar sen invit’
 
 Kaj sen anonco
 
-Nigrefluge rajdas la fato. 
+Nigrefluge rajdas la fato.
 
 Sed tire pasas la fato
 
@@ -146,15 +120,13 @@ Al senĉese esperanto
 
 Mikelo Kolhaas
 
-4
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ĉi glavanĝelo
 
-Terprofunden tretos la faton. 
+Terprofunden tretos la faton.
 
 La tago de l’ justec’ ekhelos
 
@@ -166,23 +138,21 @@ Kiel Mikelo
 
 Kolhaas batalis l’ arkanĝelo
 
-5
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 UNUA AKTO
 
-Loĝejo de Mikelo Kolhaas en Kolhaasenbrück. 
+Loĝejo de Mikelo Kolhaas en Kolhaasenbrück.
 
 Pordo, fenestro malfermitaj, kvazaŭ post koŝmara
 
-nokto oni komencus tagon pli bonan \(aŭ post
+nokto oni komencus tagon pli bonan (aŭ post
 
 severa vintro printempiĝus, aŭ mortinto eldoma
 
-estus jam sepultita\) aŭ — pro ia kaŭzo — oni jam
+estus jam sepultita) aŭ — pro ia kaŭzo — oni jam
 
 povus fidi al la ekstera mondo. Sonoj de luterana
 
@@ -192,15 +162,15 @@ transprenas la melodion: devote kaj mallaŭte ŝi
 
 kantas, preĝas. Post kelka tempo estiĝas bruo sur
 
-la ĉefplaco de la urbeto \(bojado, krioj\): ”Kaptu
+la ĉefplaco de la urbeto (bojado, krioj): ”Kaptu
 
-lin\! ŝnurligu\! Bastonu lin\! Elstampfu al li la
+lin! ŝnurligu! Bastonu lin! Elstampfu al li la
 
-intestojn\! Sinjoro Günther, mi ne vidas lin\!” 
+intestojn! Sinjoro Günther, mi ne vidas lin!”
 
-\(Supozeble la voĉo de sinjoro Günther:\) ”Grego
+(Supozeble la voĉo de sinjoro Günther:) ”Grego
 
-de gapuloj\! Stultaj durcerbaj kampuloj\!” Kun tio
+de gapuloj! Stultaj durcerbaj kampuloj!” Kun tio
 
 la kriantoj brue pretersturmas. Maria
 
@@ -212,43 +182,41 @@ melodion. En la pordo al la urboplaco aperas
 
 Nagelschmidt anhelanta, kursufokata. Momenton
 
-li hezitas, ĉu enpaŝi \(Maria staras aŭ sidas dorse
+li hezitas, ĉu enpaŝi (Maria staras aŭ sidas dorse
 
-al li\), post novaj paŝobruoj Nagelschmidt
+al li), post novaj paŝobruoj Nagelschmidt
 
 enŝteliĝas kun rapidaj katopaŝoj, kaŝas sin
 
 malantaŭ la kurteno de la lavniĉo. La elpreĝeja
 
-kanto plifortiĝas, ankaŭ Maria kantas pli laŭte. 
+kanto plifortiĝas, ankaŭ Maria kantas pli laŭte.
 
 En la pordoframo haltas kastelsoldulo kun skurĝo
 
 enmane, poste li enpaŝas; kun ŝuldenda respekto
 
-li atendas, ĝis Maria finas la kantadon. 
+li atendas, ĝis Maria finas la kantadon.
 
-6
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-KASTELSOLDULO Kie troviĝas Nagelschmidt? 
+KASTELSOLDULO Kie troviĝas Nagelschmidt?
 
 MARIA
 
-Nagelschmidt? 
+Nagelschmidt?
 
-KASTELSOLDULO ĉi tien li devis enkuri. 
+KASTELSOLDULO ĉi tien li devis enkuri.
 
 MARIA
 
 Mi ne vidis lin. Sed pro kio li devus enkuri ĉi
 
-tien? 
+tien?
 
-KASTELSOLDULO ĉar li ne plu estas servisto, sed koramiko de la domsinjoro, via pieviva mastro. 
+KASTELSOLDULO ĉar li ne plu estas servisto, sed koramiko de la domsinjoro, via pieviva mastro.
 
 MARIA
 
@@ -272,21 +240,19 @@ MARIA
 
 La servutuloj de barono Günther estas pen-
 
-dumitaj. 
+dumitaj.
 
-KASTELSOLDULO Jes, sub la pendumilo ili atestis: la tirĉevalojn ŝtelis Nagelschmidt por Münzer. 
+KASTELSOLDULO Jes, sub la pendumilo ili atestis: la tirĉevalojn ŝtelis Nagelschmidt por Münzer.
 
 MARIA
 
-Münzer estas senkapigita. 
+Münzer estas senkapigita.
 
-KASTELSOLDULO Mi vidis tion. Mi mem ĉeestis, kiam oni senkapigis lin en Mülhausen. Mi staris flanke de barono Günther, ĵusproksime mi vidis, 
+KASTELSOLDULO Mi vidis tion. Mi mem ĉeestis, kiam oni senkapigis lin en Mülhausen. Mi staris flanke de barono Günther, ĵusproksime mi vidis,
 
-7
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 kiel la kapo de ĉi tiu Antikristo falis en la
 
@@ -294,17 +260,17 @@ polvon kaj forruliĝis, kaj Münzer kaptadis
 
 post ĝi, kvazaŭ li volus ĵeti sian propran kra-
 
-nion inter nin. \(Ridas.\)
+nion inter nin. (Ridas.)
 
 MARIA
 
-Dio mia, kial vi rakontas tion al mi? 
+Dio mia, kial vi rakontas tion al mi?
 
 KASTELSOLDULO Mi rakontas, ĉar barono Günther asertas, ke Nagelschmidt partianis al la Antikristo, li
 
 ŝtelis niajn tirĉevalojn kaj nun li koramikas
 
-kun honesta ĉevalkomercisto. 
+kun honesta ĉevalkomercisto.
 
 MARIA
 
@@ -334,21 +300,19 @@ to, doktoro Marteno Luther, kaj ĉiufoje li
 
 prenis ties partion, se tiu Münzer atakis kaj
 
-nomis lin baptano Kaŝmalica, Graskapulo, 
+nomis lin baptano Kaŝmalica, Graskapulo,
 
-eĉ Azenviando. 
+eĉ Azenviando.
 
-KASTELSOLDULO Kaj Nagelschmidt? 
+KASTELSOLDULO Kaj Nagelschmidt?
 
-8
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MARIA
 
-Mi petas vin, lasu min en paco\! Baldaŭ hej-
+Mi petas vin, lasu min en paco! Baldaŭ hej-
 
 menvenos sinjoro Kolhaas kaj li, ja tiel ko-
 
@@ -358,15 +322,15 @@ lombanima, eĉ regalos vin per glaso da vino
 
 ĵetas sur vin ŝtonon, reĵetu sur tiun panon —
 
-jen tia estas mia mastro. Se vi volas koni lin, 
+jen tia estas mia mastro. Se vi volas koni lin,
 
-legu la Biblion\! Kaj se vi volus koni la Bib-
+legu la Biblion! Kaj se vi volus koni la Bib-
 
 lion: ĵetu unusolan rigardon al la vivo de Mi-
 
-kelo Kolhaas\! Li estas la enkorpigita Dekalo-
+kelo Kolhaas! Li estas la enkorpigita Dekalo-
 
-go kaj ties observo en unu persono. 
+go kaj ties observo en unu persono.
 
 KASTELSOLDULO Se tiel, mi do iras. Por esti vartistino, vi tro-saĝiĝis …
 
@@ -374,7 +338,7 @@ MARIA
 
 Nur tiom, ke mi ne toleras viajn stultajn ka-
 
-lumniojn en la domo de sinjoro Kolhaas. 
+lumniojn en la domo de sinjoro Kolhaas.
 
 KASTELSOLDULO Pokaleton da vino …
 
@@ -384,31 +348,29 @@ Donu al vi via mastro, kun kiu vi plezuriĝas
 
 pri dehakitaj kapoj. Kaj se vi nun ne forpor-
 
-tos vin, mi malbenos vin. 
+tos vin, mi malbenos vin.
 
-KASTELSOLDULO \(time\) ĉu eble vi estas sorĉistino? 
+KASTELSOLDULO (time) ĉu eble vi estas sorĉistino?
 
 MARIA
 
 ĉiela Patro reganta en la alto …
 
-KASTELSOLDULO \(ŝtopante la buŝon al Maria\) Silentu\! Aŭ mi silentigos vin … Mi petegas vin …
+KASTELSOLDULO (ŝtopante la buŝon al Maria) Silentu! Aŭ mi silentigos vin … Mi petegas vin …
 
 MARIA
 
-\(liberiginte sin el la ĉirkaŭpremo de la soldulo\)
+(liberiginte sin el la ĉirkaŭpremo de la soldulo)
 
 Mi petas nur: mildeco kaj toleremo plagu
 
 vin …
 
-9
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-KASTELSOLDULO Sed ne pli … sed ne pli … \(Li forkuras.\) \(Trosufiĉis la konfido: oni devas fermi la pordon
+KASTELSOLDULO Sed ne pli … sed ne pli … (Li forkuras.) (Trosufiĉis la konfido: oni devas fermi la pordon
 
 kaj fenestrojn. Poste Maria rapidas malantaŭ-
 
@@ -418,49 +380,47 @@ la kurteno, sidiĝas al la tablo. Maria portas
 
 vinon, metas ĝin antaŭ lin. Nagelschmidt volas
 
-verŝi al si.\)
+verŝi al si.)
 
 MARIA
 
 La glaso apartenas al sinjoro Kolhaas. Propre
 
-ankaŭ la vinon mi portis por li. \(Surtabligas
+ankaŭ la vinon mi portis por li. (Surtabligas
 
-plian glason. Nagelschmidt verŝas al si, trinkas. 
+plian glason. Nagelschmidt verŝas al si, trinkas.
 
-Maria rigardas lin.\) Do tamen vi troviĝas ĉi
+Maria rigardas lin.) Do tamen vi troviĝas ĉi
 
-tie. 
+tie.
 
-NAGELSCHMIDT Hmhm. \(Trinkas.\)
+NAGELSCHMIDT Hmhm. (Trinkas.)
 
 MARIA
 
 Kio okazos, se iufoje la pordo ne estos mal-
 
-ŝlosita? \(reage al lia ekrigardo al la fenestro\)
+ŝlosita? (reage al lia ekrigardo al la fenestro)
 
-Nek la fenestro? \(post lia denova serĉrigardo\)
+Nek la fenestro? (post lia denova serĉrigardo)
 
-Nek la kamentruo. Nek la serurtruo. 
+Nek la kamentruo. Nek la serurtruo.
 
-NAGELSCHMIDT Via koro restos aperta. 
+NAGELSCHMIDT Via koro restos aperta.
 
 MARIA
 
 ĉu mia koro? Pli konsilindus klarigi vian dis-
 
-putan aferon kun sinjoro Günther. 
+putan aferon kun sinjoro Günther.
 
-NAGELSCHMIDT ĉu mi ne faradas tion senĉese? ĉiufoje, kiam li ekvidas min, li ekblekas: kaptu la ĉevalŝteliston\! Je tio mi ekfrapas la stomakon al la
+NAGELSCHMIDT ĉu mi ne faradas tion senĉese? ĉiufoje, kiam li ekvidas min, li ekblekas: kaptu la ĉevalŝteliston! Je tio mi ekfrapas la stomakon al la
 
 kastelkomandanto kaj vi …
 
-10
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MARIA
 
@@ -472,7 +432,7 @@ zorgas, ke la botopintoj ne vidiĝu el sub la
 
 kurteno. Nek vi atentas, ke per via konduto
 
-vi damaĝas la reputacion de sinjoro Kolhaas. 
+vi damaĝas la reputacion de sinjoro Kolhaas.
 
 Ofte oni vidas vin kune. Ie hazarde oni kon-
 
@@ -484,7 +444,7 @@ mi la eksservutula pasio, kriis ankaŭ lastfo-
 
 je sinjoro Günther. Kvankam eĉ mia patro
 
-ĉevalkomercis. 
+ĉevalkomercis.
 
 MARIA
 
@@ -498,33 +458,31 @@ NAGELSCHMIDT Vi uzas la vortojn de ŝia moŝto Elinjo. ŝi ka-rakterizas la natu
 
 dimanĉan. Ankaŭ al tiu pedikulo vi e˛is
 
-vort-post-vorte sinjorinon Elinjo. 
+vort-post-vorte sinjorinon Elinjo.
 
 MARIA
 
-Mi ne hontas esti la e˛o de sinjorino Elinjo. 
+Mi ne hontas esti la e˛o de sinjorino Elinjo.
 
 ŝi ja estas tiu de nia Sinjor’ Kristo …
 
-NAGELSCHMIDT Kaj mi? 
+NAGELSCHMIDT Kaj mi?
 
 MARIA
 
-ĉu vi? 
+ĉu vi?
 
-NAGELSCHMIDT Kiam mi asertas: la regantoj ne estas la ma-stroj de la glavo, do de la publika potenco, 
+NAGELSCHMIDT Kiam mi asertas: la regantoj ne estas la ma-stroj de la glavo, do de la publika potenco,
 
-11
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 sed ties servistoj. Sekve ili ne rajtus fari aj-
 
-non, kio ĝuste plaĉas al ili. Kies e˛o mi estas, 
+non, kio ĝuste plaĉas al ili. Kies e˛o mi estas,
 
-Maria, asertante tion? 
+Maria, asertante tion?
 
 MARIA
 
@@ -532,15 +490,15 @@ Asertante tion vi estas la e˛o de via kapo
 
 propra, falonta en la polvon. Grinco de viaj
 
-vertebroj en la nodo de la ekzekutista ŝnuro, 
+vertebroj en la nodo de la ekzekutista ŝnuro,
 
-fileto. 
+fileto.
 
-NAGELSCHMIDT Kaj se mi diras tion ne en mia nomo, sed laŭ Dia ordono … \(Dume enpaŝas Kolhaas, kun
+NAGELSCHMIDT Kaj se mi diras tion ne en mia nomo, sed laŭ Dia ordono … (Dume enpaŝas Kolhaas, kun
 
 lulĉevalo subbrake. Kun rideto li aŭskultas la
 
-predikantan Nagelschmidt.\) … se tiel mi paro-
+predikantan Nagelschmidt.) … se tiel mi paro-
 
 las: la potenco de la glavo apartenas al la
 
@@ -562,23 +520,21 @@ KOLHAAS
 
 kaj estos donite al vi, serĉu, kaj vi trovos, fra-
 
-pu, kaj estos malfermite al vi, Mateo sep …, 
+pu, kaj estos malfermite al vi, Mateo sep …,
 
-kara amiko Nagelschmidt. 
+kara amiko Nagelschmidt.
 
-NAGELSCHMIDT Bonvenon, Mikelo\! \(Ili interbrakumas.\)
+NAGELSCHMIDT Bonvenon, Mikelo! (Ili interbrakumas.)
 
 KOLHAAS
 
 Vi jam denove brulincitas. ĉu vi volas insti-
 
-gi Marian al ribelo? 
+gi Marian al ribelo?
 
-12
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MARIA
 
@@ -586,7 +542,7 @@ Nu, estus miraklo …
 
 KOLHAAS
 
-ĉu vi ĉiuj troviĝas en bona sano? 
+ĉu vi ĉiuj troviĝas en bona sano?
 
 MARIA
 
@@ -594,7 +550,7 @@ Dank’ al Dio, ni bone fartas, sinjoro. Sinjo-
 
 rino Elinjo kun la infano en la preĝejo, la
 
-servistoj ĉe la ĉevalaro … kaj ĉio en ordo. 
+servistoj ĉe la ĉevalaro … kaj ĉio en ordo.
 
 Kaj …
 
@@ -612,15 +568,15 @@ KOLHAAS
 
 ka kun du nigraj ĉevaloj. Hieraŭ ili ekvojis el
 
-Lejpcigo, kaj mi venis tra Dresdeno. 
+Lejpcigo, kaj mi venis tra Dresdeno.
 
-NAGELSCHMIDT ĉu vi ne vendis la nigrajn? 
+NAGELSCHMIDT ĉu vi ne vendis la nigrajn?
 
 KOLHAAS
 
 Sub tridek orguldenoj mi ne povas vendi
 
-ilin. Kiaj estas tiuj du ĉevaloj, amiko? 
+ilin. Kiaj estas tiuj du ĉevaloj, amiko?
 
 NAGELSCHMIDT Eĉ kvardek ili valoras …
 
@@ -630,13 +586,13 @@ Ne ĉevaloj ili estas, sed ebonaj statuoj paki-
 
 taj en vato. En Lejpcigo mi aĉetis mirindajn
 
-sonoriletojn por sur iliaj koloj. 
+sonoriletojn por sur iliaj koloj.
 
 MARIA
 
 Mi kuraĝus veti, sinjoro, ke laŭ la peto de
 
-mia filo vi aĉetis ilin. 
+mia filo vi aĉetis ilin.
 
 KOLHAAS
 
@@ -644,13 +600,11 @@ Senpete — laŭ lia delonga deziro. Knabino
 
 ne sopiras al sia amato, kiom via filo al bel-
 
-sonaj sonoriletoj. 
+sonaj sonoriletoj.
 
-13
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MARIA
 
@@ -660,23 +614,23 @@ anĝeleto multe messervis. Li kutimas diri:
 
 veturi sur ĉevalo kun sonorileto egalas kva-
 
-zaŭ diservon. 
+zaŭ diservon.
 
-NAGELSCHMIDT Kaj li messervas kun ĉevaloj. Gratias agamus Domino Deo nostro … \(Ridas.\)
+NAGELSCHMIDT Kaj li messervas kun ĉevaloj. Gratias agamus Domino Deo nostro … (Ridas.)
 
 MARIA
 
-Blasfemulo \(al Kolhaas\) Via moŝto faru ion
+Blasfemulo (al Kolhaas) Via moŝto faru ion
 
 por la savo de ĉi tiu homo. Sub niaj okuloj li
 
 marŝas en la inferon aŭ almenaŭ sub pen-
 
-dumilon. 
+dumilon.
 
 KOLHAAS
 
-Kion li denove misfaris? 
+Kion li denove misfaris?
 
 MARIA
 
@@ -696,37 +650,35 @@ tan potencon — kontraŭ si mem kaj ankaŭ
 
 kontraŭ ni, li ja estas amiko de la domo. Ne
 
-estu tiel tolerema al li, mi petegas vin\! To-
+estu tiel tolerema al li, mi petegas vin! To-
 
 leremo estas kulpo … Ankaŭ la tolerema bo-
 
-neco estas kulpo … \(For\)
+neco estas kulpo … (For)
 
-NAGELSCHMIDT Kulpo\! 
+NAGELSCHMIDT Kulpo!
 
 KOLHAAS
 
-Leĝere vi prenas la aferon. Aŭskultu min, 
+Leĝere vi prenas la aferon. Aŭskultu min,
 
 Karolo: la ribelo forpasis, Dio ripozigu la
 
-14
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 mortintojn. Benu la sorton, ĉar parolante pri
 
 vi, ni ne devas diri: Dio ripozigu lin. Danku
 
-la vivon al lia pastra moŝto doktoro Luther; 
+la vivon al lia pastra moŝto doktoro Luther;
 
 ke vi obeis al li, al mi kaj ne al Tomaso Mün-
 
-zer. 
+zer.
 
-NAGELSCHMIDT Mi obeis al la diablo. 
+NAGELSCHMIDT Mi obeis al la diablo.
 
 KOLHAAS
 
@@ -734,7 +686,7 @@ Se tiel vi nomas la prudenton, la pacan sol-
 
 von de aferoj …
 
-NAGELSCHMIDT … ties bagateligon. 
+NAGELSCHMIDT … ties bagateligon.
 
 KOLHAAS
 
@@ -744,9 +696,9 @@ amo anstataŭ hombuĉado, laŭleĝan validi-
 
 gon de la vero anstataŭ leĝotreto, ĉio ĉi kune
 
-estu do diablo. Vin savis ĉi tiu diablo. 
+estu do diablo. Vin savis ĉi tiu diablo.
 
-NAGELSCHMIDT ĉu doktoro Luther instruis ĉiam ĉi tion? 
+NAGELSCHMIDT ĉu doktoro Luther instruis ĉiam ĉi tion?
 
 Haku, strangolu, piku kaj batu ilin, aperte
 
@@ -768,23 +720,21 @@ de pardono. Kiu verŝas sian sangon por la
 
 superuloj, konsideriĝos vera martiro antaŭ
 
-Dio … kaj kiu mortas flanke de kampuloj, 
+Dio … kaj kiu mortas flanke de kampuloj,
 
-15
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 eterne brulos en la fulga infero. Kiu diris
 
-tion? ĉu ne doktoro Luther diris tion? 
+tion? ĉu ne doktoro Luther diris tion?
 
 KOLHAAS
 
 Mi scias. Tiam vi deturnis vin for de li. La
 
-senesperiĝo igis lin tiel paroli. 
+senesperiĝo igis lin tiel paroli.
 
 NAGELSCHMIDT Bela prozorgo. Batu, haku, piku, strangolu ilin laŭ la ordono de la amo, Epistolo dektri
 
@@ -804,19 +754,19 @@ krom ŝteli du ĉevalojn de sinjoro Günther
 
 por la ribelantoj, mi faris nenion. Mi nur
 
-konsideradis, hezitadis. 
+konsideradis, hezitadis.
 
 KOLHAAS
 
 ĉu vi insistas pri via fiksa ideo, ke vi malsaĝe
 
-preterlasis la pendumilon? La radumadon? 
+preterlasis la pendumilon? La radumadon?
 
-La ardan feron inter viaj ripoj? 
+La ardan feron inter viaj ripoj?
 
 NAGELSCHMIDT Mia samsanga frato, mia onklo kuŝas en la tero. Se ĝustatempe mi estus alkondukinta
 
-la ĉevalojn, ili ankoraŭ povus forkuri. 
+la ĉevalojn, ili ankoraŭ povus forkuri.
 
 KOLHAAS
 
@@ -824,25 +774,23 @@ Ili estus povintaj resti ankaŭ en paco. La ri-
 
 belo estas subpremita. La ribelantoj do ne
 
-pravis. 
+pravis.
 
-16
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-NAGELSCHMIDT La vero apartenas ĉiam al la venkintoj, kompreneble. 
+NAGELSCHMIDT La vero apartenas ĉiam al la venkintoj, kompreneble.
 
 KOLHAAS
 
 Kia vero estas, kiu venigas siajn portantojn
 
-sub pendumilon? Senrespondeca\! Almenaŭ
+sub pendumilon? Senrespondeca! Almenaŭ
 
 fruenaskita. Kia racio, kia saĝo estas, kiu
 
-konsideras la fruenaskitan veron vivtaŭga. 
+konsideras la fruenaskitan veron vivtaŭga.
 
 Kiel vi opinius pri la Naturo, se ĝi malsaĝi-
 
@@ -850,20 +798,19 @@ gus kolombon ovumi en februaro, bovinon
 
 idumi en kraka frosto? ĉu vi ne dirus, ke la
 
-Naturo perdis la saĝon? 
+Naturo perdis la saĝon?
 
-NAGELSCHMIDT La revolucio ne estas popola moro por konformiĝi al datoj. 
+NAGELSCHMIDT La revolucio ne estas popola moro por konformiĝi al datoj.
 
 KOLHAAS
 
-¯i konformiĝu al sia propra forto. Doktoro
+i konformiĝu al sia propra forto. Doktoro
 
 Luther povus najlpendigi siajn naŭdekkvin
 
 punktojn ankaŭ pli frue en Vitenbergo. Per
 
 indulgencoj oni ja same komercis antaŭ
-
 
 
 ## 1517. Wesel mokis la papon simio, vestita en
@@ -874,7 +821,7 @@ tamen ne fontis reformacio. Devis okazi la
 
 granda kermeso kaj la porkaĵoj de Tetzel en
 
-Saksio. Devis alveni la ŝanco\! La eblo. Kaj
+Saksio. Devis alveni la ŝanco! La eblo. Kaj
 
 tiam li ne fiaskis, ĉar li ekparolis ĝustatem-
 
@@ -882,15 +829,13 @@ pe. Kiu gardas sian buŝon, tiu gardas sian
 
 animon; kiu tro malfermas sian buŝon, tiu
 
-pereas. Memoru la sentencon de Salomono. 
+pereas. Memoru la sentencon de Salomono.
 
-17
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-NAGELSCHMIDT Espero prokrastata dolorigas la koron. Same de tie. 
+NAGELSCHMIDT Espero prokrastata dolorigas la koron. Same de tie.
 
 KOLHAAS
 
@@ -906,7 +851,7 @@ malestimis la kamparanojn; por kiuj li ja tra-
 
 dukis la Biblion nacilingven, se ne por la
 
-kamparanoj? Eĉ kiam li turnis sin kontraŭ
+kamparanoj? Eĉ kiam li turnis sntraŭ
 
 ili, li defendis iliajn interesojn, nian reformi-
 
@@ -920,9 +865,9 @@ toj de la papo kaj nia nacia afero estus defi-
 
 nitive perdita. Tiukaze vi nun sidus en la pri-
 
-zono de la papistoj. 
+zono de la papistoj.
 
-NAGELSCHMIDT Estas liberaj, kiuj sidas en malliberejo. ĉar ili faris, kion ili devis fari. Ni estas sklavoj, Mikelo: sklavoj de la malbona konscienco. 
+NAGELSCHMIDT Estas liberaj, kiuj sidas en malliberejo. ĉar ili faris, kion ili devis fari. Ni estas sklavoj, Mikelo: sklavoj de la malbona konscienco.
 
 Dum la ekzekutistoj konfesigis mian fraton
 
@@ -936,11 +881,9 @@ nion. Mi havas nek monon, nek armitojn; tre
 
 bone, se foj-foje mi povas frapfermi la buŝon
 
-18
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 al kelkaj sinjoraj spurhundoj, kastelkoman-
 
@@ -948,29 +891,29 @@ dantoj …
 
 KOLHAAS
 
-Vi devas kvietiĝi, Karolo. Elinjo\! 
+Vi devas kvietiĝi, Karolo. Elinjo!
 
-\(Elinjo venas kun Henriko ĉirkaŭ okjara.\)
+(Elinjo venas kun Henriko ĉirkaŭ okjara.)
 
 ELINJO
 
-Mikelo\! 
+Mikelo!
 
 HENRIKO
 
-Patro\! 
+Patro!
 
 KOLHAAS
 
-Karaj miaj\! Jen, kiom vi kreskis, Henriko\! 
+Karaj miaj! Jen, kiom vi kreskis, Henriko!
 
 HENRIKO
 
-Kion vi portis al mi el la foiro? 
+Kion vi portis al mi el la foiro?
 
 KOLHAAS
 
-Tuj … Se vi fermos la okulojn. 
+Tuj … Se vi fermos la okulojn.
 
 ELINJO
 
@@ -978,15 +921,15 @@ Ankaŭ en la preĝejo li senĉese demandadis:
 
 kion patro portis el la foiro? Nu, fermu la
 
-okulojn\! 
+okulojn!
 
 KOLHAAS
 
-\(Enportas la lignan ĉevaleton, lasitan en la an-
+(Enportas la lignan ĉevaleton, lasitan en la an-
 
-taŭĉambro, sidigas Henrikon sur ĝin.\) Nu, ga-
+taŭĉambro, sidigas Henrikon sur ĝin.) Nu, ga-
 
-lopo\! 
+lopo!
 
 ELINJO
 
@@ -998,13 +941,13 @@ Haku, strangolu, piku …
 
 ELINJO
 
-\(ŝtopante mane la buŝon al Henriko\) Tion ne
+(ŝtopante mane la buŝon al Henriko) Tion ne
 
-… Ni ne hakas. 
+… Ni ne hakas.
 
 KOLHAAS
 
-Ni ne glavas. 
+Ni ne glavas.
 
 ELINJO
 
@@ -1012,57 +955,55 @@ Estas la fabelo de onklo Nagelschmidt. Li
 
 nur ne havas ĉevalon por tio …
 
-NAGELSCHMIDT Ne. Sed mi havos. \(Ekiras.\)
+NAGELSCHMIDT Ne. Sed mi havos. (Ekiras.)
 
-19
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ELINJO
 
-Restu ankoraŭ, Karolo\! Tagmanĝu kun ni\! 
+Restu ankoraŭ, Karolo! Tagmanĝu kun ni!
 
-NAGELSCHMIDT El tio ree rezultos disputo. De Maria mi jam ricevis mian porcion. \(Ridas.\)
+NAGELSCHMIDT El tio ree rezultos disputo. De Maria mi jam ricevis mian porcion. (Ridas.)
 
 ELINJO
 
 Pro la dimanĉo mi ne permesas disputon. Vi
 
-ambaŭ silentos. 
+ambaŭ silentos.
 
 KOLHAAS
 
 Mi promesas …
 
-NAGELSCHMIDT Ankaŭ mi. 
+NAGELSCHMIDT Ankaŭ mi.
 
 KOLHAAS
 
-Jen kion mi portis al vi, Elinjo. 
+Jen kion mi portis al vi, Elinjo.
 
-\(Pendigas ujeton kun arĝenta ĉeno ĉirkaŭ la
+(Pendigas ujeton kun arĝenta ĉeno ĉirkaŭ la
 
-kolon de Elinjo.\)
+kolon de Elinjo.)
 
 ELINJO
 
-Amuleto\! Arĝenta amuleto\! Mi dankas. Kiel
+Amuleto! Arĝenta amuleto! Mi dankas. Kiel
 
 ĝi malfermiĝas? En ĝi loĝas fortuno. Mi ne
 
-povas malfermi ĝin. 
+povas malfermi ĝin.
 
 KOLHAAS
 
 Atendu, mi montros … Sed divenu, kio enes-
 
-tas\! 
+tas!
 
 ELINJO
 
-ĉu ne fortuno\! 
+ĉu ne fortuno!
 
 KOLHAAS
 
@@ -1070,85 +1011,83 @@ Ankaŭ. Sed por la okuloj …
 
 ELINJO
 
-Por la okuloj … kio enestas? 
+Por la okuloj … kio enestas?
 
 KOLHAAS
 
-Armeo. Mia armeo. 
+Armeo. Mia armeo.
 
-NAGELSCHMIDT ĉu armita? 
+NAGELSCHMIDT ĉu armita?
 
 KOLHAAS
 
-Anĝela. \(Malfermas, rigardas ĝin.\) Mia unu-
+Anĝela. (Malfermas, rigardas ĝin.) Mia unu-
 
-persona anĝela armeo. 
+persona anĝela armeo.
 
-NAGELSCHMIDT Nu, per ĝi ne multe ni akiros. 
+NAGELSCHMIDT Nu, per ĝi ne multe ni akiros.
 
-20
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-Nur per ĝi ni multe akiros. \(mediteme\) Post
+Nur per ĝi ni multe akiros. (mediteme) Post
 
-Dio sole per ĝi. \(Turnas la ujeton al Elinjo.\)
+Dio sole per ĝi. (Turnas la ujeton al Elinjo.)
 
-\(Elinjo rigardas ĝin senvorte, dume aŭdiĝas la
+(Elinjo rigardas ĝin senvorte, dume aŭdiĝas la
 
-voĉo de Maria el la kuirejo.\)
+voĉo de Maria el la kuirejo.)
 
 MARIA
 
-Nagelschmidt, rajdsoldulo\! 
+Nagelschmidt, rajdsoldulo!
 
-\(Nagelschmidt elpaŝas kolerimpulse, post li la
+(Nagelschmidt elpaŝas kolerimpulse, post li la
 
-infano scivole.\)
+infano scivole.)
 
 ELINJO
 
-\(post longa silento\) Kiu pentris min tiel bela? 
+(post longa silento) Kiu pentris min tiel bela?
 
 KOLHAAS
 
-Majstro el Dresdeno. ĉu ĝi plaĉas? 
+Majstro el Dresdeno. ĉu ĝi plaĉas?
 
 ELINJO
 
-Bela, pli bela ol mi. 
+Bela, pli bela ol mi.
 
 KOLHAAS
 
-Nur pala reprodukto de la vera. 
+Nur pala reprodukto de la vera.
 
 ELINJO
 
-Kiel li faris ĝin? Neniam li vidis min. 
+Kiel li faris ĝin? Neniam li vidis min.
 
 KOLHAAS
 
-ĉu ne sufiĉas, se vidas vin mi? 
+ĉu ne sufiĉas, se vidas vin mi?
 
 ELINJO
 
-Al mi certe. Al la majstro malmulte. 
+Al mi certe. Al la majstro malmulte.
 
 KOLHAAS
 
 Mi diktis al li viajn trajtojn. Diktis sub plu-
 
-mon … pli ĝuste sub penikon. 
+mon … pli ĝuste sub penikon.
 
 ELINJO
 
-Ne ruzumu\! Blonda, dudeksesjara. ¯enera-
+Ne ruzumu! Blonda, dudeksesjara. enera-
 
-laĵoj. 
+laĵoj.
 
 KOLHAAS
 
@@ -1168,13 +1107,11 @@ fluoj …
 
 ELINJO
 
-Tuta nesto da kolomboj. 
+Tuta nesto da kolomboj.
 
-21
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
@@ -1200,25 +1137,25 @@ luno, hela kiel la suno, ĝi nur ne afliktiĝu:
 
 tiam ja estas terura kiel batalantaj taĉmentoj
 
-… \(Ili ridas.\)
+… (Ili ridas.)
 
 ELINJO
 
-\(kun ludata koketemo\) Kaj plu? ŝia kolo, ŝiaj
+(kun ludata koketemo) Kaj plu? ŝia kolo, ŝiaj
 
-ŝultroj, ŝia staturo? 
+ŝultroj, ŝia staturo?
 
 KOLHAAS
 
 Poste mi tiel parolis: Kiel belaj estas ŝiaj pa-
 
-ŝoj en sandaloj, ho filino de princo\! La svin-
+ŝoj en sandaloj, ho filino de princo! La svin-
 
 gado de viaj femuroj estas kiel ĉenringoj …
 
 ELINJO
 
-ĉu tiuj de la majstro aŭ de ŝulamit? 
+ĉu tiuj de la majstro aŭ de ŝulamit?
 
 KOLHAAS
 
@@ -1236,11 +1173,9 @@ KOLHAAS
 
 Kaj via palato kiel vino bongusta, kiu en-
 
-22
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 glitiĝas ĉarmege kaj glate, kiu paroligas la
 
@@ -1280,7 +1215,7 @@ ta Damaskon … Jen kion mi diros, se iufoje
 
 mi mendos bildon pri vi. Mia amato estas
 
-blanka kaj ruĝa, distinginda inter dekmiloj. 
+blanka kaj ruĝa, distinginda inter dekmiloj.
 
 KOLHAAS
 
@@ -1288,13 +1223,13 @@ Lia kapo …
 
 ELINJO
 
-… estas kiel elektita, multekosta, pura oro, 
+… estas kiel elektita, multekosta, pura oro,
 
 liaj haroj estas buklitaj, nigraj kiel korvo …
 
 liaj vangoj estas kiel bedoj de aromaĵoj kres-
 
-kigantaj bonodorajn plantojn … Kaj kiel plu? 
+kigantaj bonodorajn plantojn … Kaj kiel plu?
 
 KOLHAAS
 
@@ -1308,11 +1243,9 @@ nefleksebla kiel ŝeol, ĝiaj brulaĵoj estas Bru-
 
 laĵoj de fajro, la flamo de la Eternulo …
 
-23
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ELINJO
 
@@ -1322,23 +1255,23 @@ lo aŭ al cervo sur la montoj de aromaĵoj …
 
 forkuru, mia Mikelo kaj rigardu, kio okazis
 
-al Nagelschmidt. 
+al Nagelschmidt.
 
-\(Ili longe ridas. Kolhaas liberigas sin el ŝia bra-
+(Ili longe ridas. Kolhaas liberigas sin el ŝia bra-
 
 kumo kaj estas elironta. En ĉi tiu momento ko-
 
 menciĝas ekstere senindulga frapbruado, laŭta
 
-intervoĉado. Oni frapas sur pordo kaj fenestro. 
+intervoĉado. Oni frapas sur pordo kaj fenestro.
 
-Unue Maria enkuras terurite kun la infano, 
+Unue Maria enkuras terurite kun la infano,
 
-poste Nagelschmidt kun ia fusilo.\)
+poste Nagelschmidt kun ia fusilo.)
 
 MARIA
 
-Ho Dio\! La tribunalaj servistoj. 
+Ho Dio! La tribunalaj servistoj.
 
 HENRIKO
 
@@ -1350,27 +1283,27 @@ KOLHAAS
 
 Ni ne batas, ni ne hakas. Maria, elkonduku
 
-la infanon\! 
+la infanon!
 
 MARIA
 
-Venu, anĝeleto\! Venu, nu preĝu\! 
+Venu, anĝeleto! Venu, nu preĝu!
 
 ELINJO
 
-Malfermu\! Oni enrompos la pordon. 
+Malfermu! Oni enrompos la pordon.
 
 NAGELSCHMIDT Enrompos mi ilian porkomuzelon …
 
 KOLHAAS
 
-Kion ili povas celi? \(Malfermas la pordon.\)
+Kion ili povas celi? (Malfermas la pordon.)
 
-NAGELSCHMIDT \(Kaptas ĉebruste la doganiston, malantaŭ kiu staras du armitaj solduloj.\) Kiel vi aŭdacas …
+NAGELSCHMIDT (Kaptas ĉebruste la doganiston, malantaŭ kiu staras du armitaj solduloj.) Kiel vi aŭdacas …
 
 En domon de honestulo, kiel vi aŭdacas tiel
 
-enrompi, vi latrono\! 
+enrompi, vi latrono!
 
 DOGANISTO
 
@@ -1378,27 +1311,25 @@ Barono Venceslao de Tronka … Formetu la
 
 manon de sur mi …
 
-24
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-Nagelschmidt\! 
+Nagelschmidt!
 
 ELINJO
 
-Karolo\! 
+Karolo!
 
 DOGANISTO
 
 Mi estas komisiito de barono Venceslao de
 
-Tronka. Formetu la manon\! 
+Tronka. Formetu la manon!
 
-NAGELSCHMIDT Kune kun via vangosako, vi hamstrovizaĝa\! 
+NAGELSCHMIDT Kune kun via vangosako, vi hamstrovizaĝa!
 
 DOGANISTO
 
@@ -1406,27 +1337,27 @@ La soldato pafos …
 
 KOLHAAS
 
-Nagelschmidt\! 
+Nagelschmidt!
 
 ELINJO
 
-Karolo, kvietiĝu\! 
+Karolo, kvietiĝu!
 
 KOLHAAS
 
-La komisiita moŝto bonvolu enveni. 
+La komisiita moŝto bonvolu enveni.
 
 DOGANISTO
 
-ĉu vi aŭdas, kio estas respekta tono? 
+ĉu vi aŭdas, kio estas respekta tono?
 
-NAGELSCHMIDT Kaj la frapego sur la pordo? 
+NAGELSCHMIDT Kaj la frapego sur la pordo?
 
 DOGANISTO
 
-ĉu mi estus hamstrovizaĝa? 
+ĉu mi estus hamstrovizaĝa?
 
-NAGELSCHMIDT Plej certe. 
+NAGELSCHMIDT Plej certe.
 
 DOGANISTO
 
@@ -1436,75 +1367,73 @@ modas … Münzer-muzelo … Dözsa-muze-
 
 lo …
 
-NAGELSCHMIDT Lasu la mortintojn, vi vermo\! 
+NAGELSCHMIDT Lasu la mortintojn, vi vermo!
 
 DOGANISTO
 
-… tia kostumo ne rekomendindas. 
+… tia kostumo ne rekomendindas.
 
 NAGELSCHMIDT Dankon por la takso. De soriko …
 
 KOLHAAS
 
-Nagelschmidt\! …
+Nagelschmidt! …
 
-NAGELSCHMIDT Mi finis. Bela afero flanke de putoro. 
+NAGELSCHMIDT Mi finis. Bela afero flanke de putoro.
 
 DOGANISTO
 
 ĉu mi havas la honoron renkonti sinjoron
 
-Kolhaas? 
+Kolhaas?
 
 KOLHAAS
 
-Mi staras je via dispono. 
+Mi staras je via dispono.
 
-25
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 DOGANISTO
 
-Kiel mi diris al ĉi tiu … \(Montras fingre al Na-
+Kiel mi diris al ĉi tiu … (Montras fingre al Na-
 
-gelschmidt.\) mi estas la nova doganisto de lia
+gelschmidt.) mi estas la nova doganisto de lia
 
 barona moŝto Venceslao de Tronka. Par-
 
-donu pro la malpacienco\! 
+donu pro la malpacienco!
 
 KOLHAAS
 
-Certe vi havis kaŭzon por ĝi. 
+Certe vi havis kaŭzon por ĝi.
 
 DOGANISTO
 
-Mia komisio urĝas. 
+Mia komisio urĝas.
 
 KOLHAAS
 
-Kaj kio ĝi estus? 
+Kaj kio ĝi estus?
 
 DOGANISTO
 
-La pasletero. 
+La pasletero.
 
 KOLHAAS
 
-Kia pasletero? 
+Kia pasletero?
 
-NAGELSCHMIDT Kiu jukas ĝuste en mia manoplato. 
+NAGELSCHMIDT Kiu jukas ĝuste en mia manoplato.
 
 DOGANISTO
 
 Sinjoro Kolhaas, mi petas vin. Se lin senĉe-
 
-se jukas la mano, mi ne povas paroli. 
+se jukas la mano, mi ne povas paroli.
 
-NAGELSCHMIDT Ne nur la mano: ankaŭ la piedo jukas. 
+NAGELSCHMIDT Ne nur la mano: ankaŭ la piedo jukas.
 
 DOGANISTO
 
@@ -1514,17 +1443,17 @@ KOLHAAS
 
 La sinjoro doganisto havas komision, ni lasu
 
-lin plenumi ĝin\! Do, kia pasletero? 
+lin plenumi ĝin! Do, kia pasletero?
 
 DOGANISTO
 
 Rilata al ĉevaloj … Certa servisto Herse de
 
-via moŝto troviĝas tie. 
+via moŝto troviĝas tie.
 
 KOLHAAS
 
-Kie tie? 
+Kie tie?
 
 DOGANISTO
 
@@ -1532,35 +1461,33 @@ En la kastelo de Tronka. Retenita. Li estis ve-
 
 ninta kun du nigraj ĉevaloj el Lejpcigo. ĉe-
 
-valoj kun sonoriletoj. 
+valoj kun sonoriletoj.
 
-26
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-¯uste. 
+uste.
 
 DOGANISTO
 
-Li ne havas pasleteron. 
+Li ne havas pasleteron.
 
 KOLHAAS
 
-Kiu ĝin postulas? 
+Kiu ĝin postulas?
 
 DOGANISTO
 
 Lia barona moŝto Venceslao. Antaŭ nelonge
 
-li ricevis ĉi tiun privilegion. 
+li ricevis ĉi tiun privilegion.
 
-\(Dume Elinjo elserĉas paperojn el kesteto, 
+(Dume Elinjo elserĉas paperojn el kesteto,
 
-transdonas ilin al Kolhaas.\)
+transdonas ilin al Kolhaas.)
 
 KOLHAAS
 
@@ -1572,15 +1499,15 @@ la kastelmastro de Tronkenburg rajtas pos-
 
 tuli pasleteron de neniu persono honeste
 
-komercanta. 
+komercanta.
 
 DOGANISTO
 
-Tio vere ĝustas. 
+Tio vere ĝustas.
 
 KOLHAAS
 
-Do? 
+Do?
 
 DOGANISTO
 
@@ -1588,7 +1515,7 @@ Laŭ mia eksterofica konvinkiĝo mi mem di-
 
 ras: li ne rajtas postuli ion tian. Ankaŭ mia
 
-patro estas ĉevalkomercisto. 
+patro estas ĉevalkomercisto.
 
 NAGELSCHMIDT Ankaŭ lia patro. Ke lian patrinon …
 
@@ -1598,35 +1525,33 @@ Bedaŭrinde mi enoficas. Ankaŭ mia opinio
 
 laŭoficas. Se mankas pasletero: ambaŭ ni-
 
-graj ĉevaloj restos transbariere, konfiskitaj. 
+graj ĉevaloj restos transbariere, konfiskitaj.
 
 ELINJO
 
-Kontraŭjure. Vi ne rajtas fari tion. 
+Kontraŭjure. Vi ne rajtas fari tion.
 
 KOLHAAS
 
-Trankviliĝu, kara\! La sinjoro doganisto ne
+Trankviliĝu, kara! La sinjoro doganisto ne
 
 kulpas prie …
 
-27
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 DOGANISTO
 
-Bedaŭrinde. 
+Bedaŭrinde.
 
 NAGELSCHMIDT Bedaŭrinde. Li eĉ bedaŭras vin. Pro nura be-daŭro li enrompas la pordon. El ofica kon-
 
 vinkiĝo. Ke la Dio de la larmanta ekzekutis-
 
-to\! Dio mia, kiam vi pendumos la larman-
+to! Dio mia, kiam vi pendumos la larman-
 
-tajn ekzekutistojn?\! Honestajn ekzekutistojn
+tajn ekzekutistojn?! Honestajn ekzekutistojn
 
 sendu al ni, Sinjoro …
 
@@ -1634,31 +1559,31 @@ KOLHAAS
 
 Ne malbonuzu la nomon de la Eternulo, via
 
-Dio\! 
+Dio!
 
-NAGELSCHMIDT Tiam benu min, Sinjoro, per la trankvilo de Kolhaas\! 
+NAGELSCHMIDT Tiam benu min, Sinjoro, per la trankvilo de Kolhaas!
 
 DOGANISTO
 
-ĉu vi bonvolas vidi, kiel ventkapa li estas? 
+ĉu vi bonvolas vidi, kiel ventkapa li estas?
 
 Mi petas la pasleteron, via moŝto, aŭ la el-
 
 aĉeton, kontante kvindek groŝojn. Alie la ĉe-
 
-valoj restos retenitaj. Tiuj belegaj ĉevaloj. 
+valoj restos retenitaj. Tiuj belegaj ĉevaloj.
 
 KOLHAAS
 
 Sed tion mi ja ne lasos …
 
-NAGELSCHMIDT Finfine\! 
+NAGELSCHMIDT Finfine!
 
 ELINJO
 
 Jen la mono. Lasu iri tiun malfeliĉan servis-
 
-ton\! Ekde semajno li jam survojas. 
+ton! Ekde semajno li jam survojas.
 
 DOGANISTO
 
@@ -1666,65 +1591,63 @@ Estas tubero en la afero, sinjorino: ankaŭ la
 
 servisto estas ja tiel Münzer-pasia. Pugne li
 
-ĵetis sin sur la armitan gardiston. 
+ĵetis sin sur la armitan gardiston.
 
 ELINJO
 
-ĉu oni ne traktis lin krude? 
+ĉu oni ne traktis lin krude?
 
 KOLHAAS
 
-Rapidu, sinjoro, kun via mono\! Liberigu la
+Rapidu, sinjoro, kun via mono! Liberigu la
 
-malfeliĉan Herse\! ĉi tiujn dudek groŝojn
+malfeliĉan Herse! ĉi tiujn dudek groŝojn
 
-28
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 transdonu al li, li jam certe konsumis la voj-
 
 provizon. Li konduku la ĉevalojn unue ĉi
 
-tien. Mi volas vidi ilin. 
+tien. Mi volas vidi ilin.
 
 DOGANISTO
 
-Mi diros, sinjoro. Dio restu kun ĉi tiu domo\! 
+Mi diros, sinjoro. Dio restu kun ĉi tiu domo!
 
-NAGELSCHMIDT Nu jes. Li ja kuniras viaspecajn. 
+NAGELSCHMIDT Nu jes. Li ja kuniras viaspecajn.
 
 DOGANISTO
 
-ĉu vi bonvolas vidi? Li rekomencas. 
+ĉu vi bonvolas vidi? Li rekomencas.
 
 KOLHAAS
 
-Dio vin benu\! 
+Dio vin benu!
 
-NAGELSCHMIDT Kio? Mia botopinto\! La pugaĉon de la mize-rulo\! Kie lia ofica konvinko sidas. 
+NAGELSCHMIDT Kio? Mia botopinto! La pugaĉon de la mize-rulo! Kie lia ofica konv sidas.
 
 DOGANISTO
 
-\(lerte elsaltinte tra la pordo antaŭ la piedfrapo\)
+(lerte elsaltinte tra la pordo antaŭ la piedfrapo)
 
-¯is repiedbato\! \(For\)
+is repiedbato! (For)
 
-NAGELSCHMIDT Talpogrilo\! Vidu, kure li reakiras sian kura-
+NAGELSCHMIDT Talpogrilo! Vidu, kure li reakiras sian kura-
 
-ĝon. 
+ĝon.
 
 ELINJO
 
-Kvietiĝu, Karolo\! Hodiaŭ nenio fareblas pere
+Kvietiĝu, Karolo! Hodiaŭ nenio fareblas pere
 
-de kuraĝo. \(Eniras la kuirejon.\)
+de kuraĝo. (Eniras la kuirejon.)
 
 KOLHAAS
 
-\(post longa silento\) Prave. Nenio fareblas pere
+(post longa silento) Prave. Nenio fareblas pere
 
 de kuraĝo …
 
@@ -1734,13 +1657,11 @@ ajn oni turnas sin: nuraj frapjukaj, malamu-
 
 zaj muzeloj alrikanas. Kaj ĉiuj, sen escepto
 
-kantas pri leĝoj. 
+kantas pri leĝoj.
 
-29
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
@@ -1748,13 +1669,13 @@ Tiuj kantas pri leĝoj: ni validigas ilin. En viaj
 
 sangonebulaj rigardoj ĝuste niaj rajtoj tur-
 
-niĝas kontraŭ ni. 
+niĝas kontraŭ ni.
 
-NAGELSCHMIDT ĉu niaj rajtoj? 
+NAGELSCHMIDT ĉu niaj rajtoj?
 
 KOLHAAS
 
-Niaj rajtoj\! ĉu la Dresdena ĉefnotario suĉis
+Niaj rajtoj! ĉu la Dresdena ĉefnotario suĉis
 
 siajn vortojn el la fingro? La princo elektis-
 
@@ -1764,13 +1685,13 @@ ordo. Vi ne scias, ĉar …
 
 NAGELSCHMIDT … ĉar per unu mano li donas leĝon kaj per la alia piedo li distretas ĝin. Piedfrapas ĝin
 
-en ĉiu tago, en ĉiu horo kaj en ĉiu minuto. 
+en ĉiu tago, en ĉiu horo kaj en ĉiu minuto.
 
 Tiu fama leĝdona mano egalas al: servista
 
 mano. Servas al imperiestraj interesoj kaj
 
-frapantaj piedoj. Latronoj de Tronka. 
+frapantaj piedoj. Latronoj de Tronka.
 
 KOLHAAS
 
@@ -1780,7 +1701,7 @@ gistaron, nek imperian asembleon. La prin-
 
 co elektisto volas rekvietiĝon …
 
-NAGELSCHMIDT Rekvietiĝon\! 
+NAGELSCHMIDT Rekvietiĝon!
 
 KOLHAAS
 
@@ -1792,21 +1713,19 @@ talis por si kvindekmil pendumilojn. La ani-
 
 mo de via propra frato sidas en la ĉielo. Kiun
 
-li elaĉetis per tio? 
+li elaĉetis per tio?
 
-NAGELSCHMIDT Sin mem. 
+NAGELSCHMIDT Sin mem.
 
 KOLHAAS
 
-Kristo elaĉetis nin ĉiujn. 
+Kristo elaĉetis nin ĉiujn.
 
-30
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-NAGELSCHMIDT Ne egalmezure. 
+NAGELSCHMIDT Ne egalmezure.
 
 KOLHAAS
 
@@ -1834,7 +1753,7 @@ formis nian kredon, jam novaj reformatoroj
 
 leviĝas, libertinoj kaj rebaptistoj, kia paco do
 
-kreskos el tio? 
+kreskos el tio?
 
 NAGELSCHMIDT Ne supozu, ke mi venis por enkonduki pa-
 
@@ -1854,17 +1773,15 @@ pereos. Ankaŭ tion diris Li. ĉu mi povas peti
 
 ion de vi? Domaĝu, se eblas, la bonan famon
 
-de mia domo\! Vi frapas la flankon al tribu-
+de mia domo! Vi frapas la flankon al tribu-
 
 nala servisto; nature, vi fuĝas al mi. Ne mis-
 
 komprenu min: venu kiel en propran hej-
 
-31
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 mon. Sed ĉiu tribunala servisto frapita sur-
 
@@ -1878,7 +1795,7 @@ jon iu bruligis la orelojn de la stelfrunta beja
 
 ĉevalo. Vi ĉikanis baronon Günther, kaj ĉi tiu
 
-amikas kun Venceslao. 
+amikas kun Venceslao.
 
 NAGELSCHMIDT Sekve pro mi vi pagis ankaŭ la pasmonon …
 
@@ -1886,13 +1803,13 @@ KOLHAAS
 
 Mi ne povas scii …
 
-NAGELSCHMIDT Tiukaze mi repagos la punon. Jen kvindek groŝoj. 
+NAGELSCHMIDT Tiukaze mi repagos la punon. Jen kvindek groŝoj.
 
 KOLHAAS
 
-Mi ne volis ofendi vin. 
+Mi ne volis ofendi vin.
 
-NAGELSCHMIDT Mi ne volis damaĝi vin. 
+NAGELSCHMIDT Mi ne volis damaĝi vin.
 
 KOLHAAS
 
@@ -1906,37 +1823,35 @@ Elinjo kaj mia filo. Kial vi vundas min per
 
 tio, ke mi viasupoze domaĝas kvindek mize-
 
-rajn groŝojn? 
+rajn groŝojn?
 
-NAGELSCHMIDT Vi timas perdi vian kvindekgroŝan trankvilon. 
+NAGELSCHMIDT Vi timas perdi vian kvindekgroŝan trankvilon.
 
 KOLHAAS
 
-ĉu por tiom vi taksas miajn principojn? 
+ĉu por tiom vi taksas miajn principojn?
 
 NAGELSCHMIDT Por tiom taksis tiuj el Tronka …
 
-32
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-\(eksplode\) Sufiĉas\! Nun jam sufiĉu, Karolo\! 
+(eksplode) Sufiĉas! Nun jam sufiĉu, Karolo!
 
 Se ne aliloke: en nia interrilato ĉesigu la
 
-leĝorompon\! ĉesigu la leĝotreton\! 
+leĝorompon! ĉesigu la leĝotreton!
 
-NAGELSCHMIDT \(ride\) ĉu mi?\! Nagelschmidt, la leĝorompulo, la leĝotretulo\! 
+NAGELSCHMIDT (ride) ĉu mi?! Nagelschmidt, la leĝorompulo, la leĝotretulo!
 
 KOLHAAS
 
 Estas mia laŭleĝa rajto, ke vi ne ofendu min
 
-en mia honoro\! De Dio ricevita rajto mia
+en mia honoro! De Dio ricevita rajto mia
 
 estas ŝirmi eĉ kontraŭ vi la trankvilon de mia
 
@@ -1944,9 +1859,9 @@ familio. ĉu vi konsideras min solulo? ĉu vi
 
 pensas: mortintoj vivas ĉi tie kun mi? Fanto-
 
-moj? 
+moj?
 
-NAGELSCHMIDT Dio\! Vi revenigis lian voĉon\! 
+NAGELSCHMIDT Dio! Vi revenigis lian voĉon!
 
 KOLHAAS
 
@@ -1958,19 +1873,19 @@ tiu senkulpa infano havas nur unusolan vi-
 
 von; antaŭ Dio mi ŝuldas respondecon por
 
-ili. Aŭ la Di-Sinjoro konfidis ilin al vi? 
+ili. Aŭ la Di-Sinjoro konfidis ilin al vi?
 
-NAGELSCHMIDT ĉefanĝela alvoko\! 
+NAGELSCHMIDT ĉefanĝela alvoko!
 
 KOLHAAS
 
 Se tio estas por vi kvindekgroŝa honoro …
 
-NAGELSCHMIDT Mi diris: trankvilo. 
+NAGELSCHMIDT Mi diris: trankvilo.
 
 KOLHAAS
 
-Indiferente\! Se kvindekgroŝa: estu do tia. Kaj
+Indiferente! Se kvindekgroŝa: estu do tia. Kaj
 
 kiomas la via? La sorton de kiom da animoj
 
@@ -1978,41 +1893,39 @@ vi portadas? Katenojn surmetitajn de kiom
 
 da kreitoj perdutaj sen vi? ĉiutage vi povos
 
-33
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 riski vian haŭton; vi estas libera — en la sen-
 
-respondeco. En la kurado kontraŭmuren\! 
+respondeco. En la kurado kontraŭmuren!
 
-NAGELSCHMIDT Kaj ankoraŭ en kio? 
+NAGELSCHMIDT Kaj ankoraŭ en kio?
 
 KOLHAAS
 
-En lasi vin buĉi\! Lasi vin suprentiri sur pen-
+En lasi vin buĉi! Lasi vin suprentiri sur pen-
 
-dumilo\! Lasi vin radumi\! Sed nur vin mem\! 
+dumilo! Lasi vin radumi! Sed nur vin mem!
 
-Ne ludu je la vivo de aliuloj\! Tiu bandito
+Ne ludu je la vivo de aliuloj! Tiu bandito
 
 nomis vin Münzer-vizaĝa. Münzer-pasia vi
 
 estas, jen la tubero en la afero. Per nura
 
-pasio nenio akireblas. 
+pasio nenio akireblas.
 
-NAGELSCHMIDT Nek per preĝo\! 
+NAGELSCHMIDT Nek per preĝo!
 
 KOLHAAS
 
-Ne per preĝo. Nek per via venĝsoifo. Haku, 
+Ne per preĝo. Nek per via venĝsoifo. Haku,
 
-piku, tranĉu\! Tiel vi gurdas al aliuloj, ja eĉ al
+piku, tranĉu! Tiel vi gurdas al aliuloj, ja eĉ al
 
-mia filo\! Al sensciulo\! Haku, piku\! Ja tiel via
+mia filo! Al sensciulo! Haku, piku! Ja tiel via
 
 Münzer: ni lasu kuri la popolon al sia certo
 
@@ -2020,79 +1933,77 @@ Münzer: ni lasu kuri la popolon al sia certo
 
 promesoj. ĉar ĝi malestimas, ĉu ne, la kvin-
 
-dekgroŝan trankvilon. ĉar ĝi preferas, ĉu ne, 
+dekgroŝan trankvilon. ĉar ĝi preferas, ĉu ne,
 
 esti palisumata kaj ke la superforto sternu
 
-ĝiajn intestojn sur bariloj\! La superforto, Na-
+ĝiajn intestojn sur bariloj! La superforto, Na-
 
-gelschmidt\! La subtaksita kontraŭulo kaj la
+gelschmidt! La subtaksita kontraŭulo kaj la
 
 stulteco. Ne tuŝu vian malamikon, dum vi
 
-ne certas, ke vi povas senkapigi lin\! De-kia-
+ne certas, ke vi povas senkapigi lin! De-kia-
 
 ma estas ĉi tiu averto? Al kiuj ĝi parolas, se
 
 ne al stultuloj, aventuristoj, falintaj en mili-
 
-34
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 taj sciencoj kaj aritmetiko: doganistoj de la
 
-facilkredemo. 
+facilkredemo.
 
-NAGELSCHMIDT Tiel mi amas vin\! Pli laŭte per tiu voĉo\! 
+NAGELSCHMIDT Tiel mi amas vin! Pli laŭte per tiu voĉo!
 
 KOLHAAS
 
-Ne moku\! Dekmiloj da orfoj kaj vidvinoj pri-
+Ne moku! Dekmiloj da orfoj kaj vidvinoj pri-
 
-ploras la falintan facilkredemon. Notu al vi, 
+ploras la falintan facilkredemon. Notu al vi,
 
 Nagelschmidt: kiu incitas ribelon kaj ne ven-
 
-kigas ĝin: estas masakrulo. 
+kigas ĝin: estas masakrulo.
 
-NAGELSCHMIDT \(ĉi-foje ankaŭ li ekster si\) Vi mensogas\! \(Elinjo enpaŝas.\)
+NAGELSCHMIDT (ĉi-foje ankaŭ li ekster si) Vi mensogas! (Elinjo enpaŝas.)
 
 KOLHAAS
 
 ĉu mi mensogas? Al tio ĉi mi povas respondi
 
-nur per glavo … for de ĉi tie\! For el mia
+nur per glavo … for de ĉi tie! For el mia
 
-domo\! 
+domo!
 
 ELINJO
 
-Mikelo\! Kio okazas? Karolo, per amo de
+Mikelo! Kio okazas? Karolo, per amo de
 
 Dio …
 
-NAGELSCHMIDT Promenas lia menso. 
+NAGELSCHMIDT Promenas lia menso.
 
 ELINJO
 
-ĉu neniam finiĝos ĉi tiu disputo\! Kion vi
+ĉu neniam finiĝos ĉi tiu disputo! Kion vi
 
 atendas de la barono de Tronka, se tiel aĉe vi
 
 mordas unu la alian? Mikelo, kara, repru-
 
-dentiĝu\! Tiel sangoŝaŭma neniam mi vidis
+dentiĝu! Tiel sangoŝaŭma neniam mi vidis
 
-vin. Glason da akvo … Sedativon … \(For\)
+vin. Glason da akvo … Sedativon … (For)
 
-NAGELSCHMIDT Pardonu min, Mikelo. 
+NAGELSCHMIDT Pardonu min, Mikelo.
 
 KOLHAAS
 
-Vi bone scias, Karolo, Münzer mi kritikas, 
+Vi bone scias, Karolo, Münzer mi kritikas,
 
 sed ne akuzas. Kvankam ploras mia koro. Vi
 
@@ -2100,21 +2011,19 @@ ja mem povis vidi vojaĝante al Lejpcigo kaj
 
 eĉ pli preter Frankenhausen la larmokulajn
 
-35
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-postrestintojn de murditaj kamparanoj. 
+postrestintojn de murditaj kamparanoj.
 
 Onidire, sur la batalkampo eĉ nun amase
 
 vagadas virinoj, infanoj …
 
-\(Elinjo envenas kun glaso da akvo, metas ĝin
+(Elinjo envenas kun glaso da akvo, metas ĝin
 
-senvorte antaŭ Kolhaas.\)
+senvorte antaŭ Kolhaas.)
 
 KOLHAAS
 
@@ -2128,7 +2037,7 @@ porton de Melanchton? Kaj la malfeliĉuloj
 
 nur restis starantaj kaj kantadis. Ni petas
 
-vin, ho Sankta Spirito\! Kvazaŭ freneziĝintaj, 
+vin, ho Sankta Spirito! Kvazaŭ freneziĝintaj,
 
 ili nek defendis sin, nek forkuris. La princaj
 
@@ -2138,9 +2047,9 @@ certigadis al ili: ne timu, Li ŝirmkaptos ja
 
 ĉiujn kuglojn, Dio ja tiel promesis. Kvankam
 
-Dio promesis al neniu ion tian. 
+Dio promesis al neniu ion tian.
 
-NAGELSCHMIDT \(Nur geste indikas, ke Melanchton diris ne la veron, poste\) Kaj kio farendas ĉi-kaze? 
+NAGELSCHMIDT (Nur geste indikas, ke Melanchton diris ne la veron, poste) Kaj kio farendas ĉi-kaze?
 
 KOLHAAS
 
@@ -2148,85 +2057,81 @@ Restas la vojo de la leĝo, la Sankteco de la
 
 Leĝo. Ni tenu nin al la proklamitaj leĝoj:
 
-ankaŭ tio sufiĉas kiel delikto. 
+ankaŭ tio sufiĉas kiel delikto.
 
-\(Bojado defore, poste sonorileta sono: laŭritme
+(Bojado defore, poste sonorileta sono: laŭritme
 
 de tirpaŝoj sonas du sonoriletoj. Kolhaas kaj
 
 Elinjo rapidas alfenestre. ŝultrofale Nagel-
 
-schmidt restas sidanta.\)
+schmidt restas sidanta.)
 
-36
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ELINJO
 
-Herse\! Li alvenis …
+Herse! Li alvenis …
 
 KOLHAAS
 
-Kun miaj ebonaj selĉevaloj pakitaj en vato. 
+Kun miaj ebonaj selĉevaloj pakitaj en vato.
 
-Ni rigardos la ĉevalojn, Karolo, ĉu? 
-
-ELINJO
-
-Maria\! Jen via filo, Maria\! 
-
-\(Herse enpaŝas, duone mortbatita, kun la sono-
-
-riletoj de la ĉevaloj enmane.\)
+Ni rigardos la ĉevalojn, Karolo, ĉu?
 
 ELINJO
 
-Sankta ĉielo\! Maria\! 
+Maria! Jen via filo, Maria!
+
+(Herse enpaŝas, duone mortbatita, kun la sono-
+
+riletoj de la ĉevaloj enmane.)
+
+ELINJO
+
+Sankta ĉielo! Maria!
 
 MARIA
 
-\(enkuras eksplode\) Herse\! Kio al vi, filo mia? 
+(enkuras eksplode) Herse! Kio al vi, filo mia?
 
-ĉu vi mutiĝis? Mutiĝis aŭ ebriiĝis? 
+ĉu vi mutiĝis? Mutiĝis aŭ ebriiĝis?
 
 NAGELSCHMIDT Ambaŭ …
 
 ELINJO
 
-Plena de koto\! Plena de sangobluoj. 
+Plena de koto! Plena de sangobluoj.
 
 KOLHAAS
 
 La ĉevaloj, kie ili restas? Kie vi lasis la ĉeva-
 
-lojn? 
+lojn?
 
 MARIA
 
-Kvazaŭ el inter porkoj leviĝinta … parolu, 
+Kvazaŭ el inter porkoj leviĝinta … parolu,
 
 kio okazis al vi? ĉu mi demetu al vi la jakon
 
 … Sidiĝu, malfeliĉa. Li ŝanceliĝas … Bonvo-
 
-lu ne koleri lin, via moŝto. Vi bonvolas lin
+lu ne koleri lin, via moŝto. Vi bonvolas lni … Li ne kutimas fari ion tian … Herse …
 
-koni … Li ne kutimas fari ion tian … Herse …
-
-Filo Herse\! 
+Filo Herse!
 
 KOLHAAS
 
 Kie restas la ĉevaloj? Mi konfidis al vi la ĉe-
 
-valojn. Kial vi deprenis la sonoriletojn? 
+valojn. Kial vi deprenis la sonoriletojn?
 
 ELINJO
 
-Trinku iom da teo, mia filo\! 
+Trinku iom da teo, mia filo!
 
 MARIA
 
@@ -2234,39 +2139,37 @@ Peston, ne teon. Kial vi ne respondas al lia
 
 moŝto? Kie oni drinkigis vin, Dia plago? Via
 
-37
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 moŝto bonvolu ne koleri lin. Vi bonvolas
 
-scii, meminiciate li neniam drinkas. \(Frotas
+scii, meminiciate li neniam drinkas. (Frotas
 
-la kapon al Herse.\) Lia kapo plenas de lezoj, 
+la kapon al Herse.) Lia kapo plenas de lezoj,
 
 sinjorina moŝto. De kie tiom da lezoj sur via
 
 kapo, he, filo? De drinkaĵo ne eblas. Diru, ĉu
 
-vi falis el la selo? 
+vi falis el la selo?
 
 KOLHAAS
 
 Elrigardu, Karolo, ĉu la ĉevaloj ne staras en
 
-la korto? 
+la korto?
 
-NAGELSCHMIDT Se ili ne glitis tra lia gorĝo, ili troviĝas ie. 
+NAGELSCHMIDT Se ili ne glitis tra lia gorĝo, ili troviĝas ie.
 
-\(For\)
+(For)
 
 ELINJO
 
-Ni kuŝigu lin\! Humidan kompreson sur lin, 
+Ni kuŝigu lin! Humidan kompreson sur lin,
 
-Maria. 
+Maria.
 
 MARIA
 
@@ -2276,39 +2179,37 @@ pa kapo …
 
 KOLHAAS
 
-Kie vi lasis la ĉevalojn, Herse? 
+Kie vi lasis la ĉevalojn, Herse?
 
 MARIA
 
 Morgaŭ li diros, via moŝto. Li fariĝis tre
 
-vortŝpara. ĉu vi ne mutiĝis? La ĉevalojn\! Kio
+vortŝpara. ĉu vi ne mutiĝis? La ĉevalojn! Kio
 
-okazis? Respondu al lia moŝto\! 
+okazis? Respondu al lia moŝto!
 
 HERSE
 
-Mi … trabatita. 
+Mi … trabatita.
 
 MARIA
 
 Trabatita. Vi ne mutiĝis. Vi nur lasas pendi
 
-la kapon. \(Frapetas al li la vangojn, poste ek-
+la kapon. (Frapetas al li la vangojn, poste ek-
 
-kolere vangofrapas lin.\) Rekonsciiĝu\! Sankta
+kolere vangofrapas lin.) Rekonsciiĝu! Sankta
 
-Maria en la ĉielo\! Via moŝto … Sinjorina mo-
+Maria en la ĉielo! Via moŝto … Sinjorina mo-
 
-ŝto … Bonvolu alrigardi\! Sango fluas el lia
+ŝto … Bonvolu alrigardi! Sango fluas el lia
 
-buŝo … El liaj pulmoj … Filo amata\! 
+buŝo … El liaj pulmoj … Filo amata!
 
-38
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
@@ -2322,11 +2223,9 @@ Filo Herse … Filo amata …
 
 KURTENO
 
-39
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 DUA AKTO
 
@@ -2334,79 +2233,77 @@ UNUA BILDO
 
 Scenejo: sama kiel en la unua akto. Elinjo
 
-vojpreparas sin. Henriko sur sia lulĉevalo. 
+vojpreparas sin. Henriko sur sia lulĉevalo.
 
-Somera tago. Pordo malfermita. 
+Somera tago. Pordo malfermita.
 
 HENRIKO
 
-Haku\! Haku\! 
+Haku! Haku!
 
 ELINJO
 
-Ni ne hakas. 
+Ni ne hakas.
 
 HENRIKO
 
-Strangolu\! 
+Strangolu!
 
 ELINJO
 
-Ni ne strangolas. 
+Ni ne strangolas.
 
 HENRIKO
 
-Strangolu\! Piku\! 
+Strangolu! Piku!
 
 ELINJO
 
 Kiomfoje ripeti al vi, Henriko? Jam ĉesu
 
-strangolumi\! Elseliĝu, iru preni interman-
+strangolumi! Elseliĝu, iru preni interman-
 
-ĝon. 
+ĝon.
 
 HENRIKO
 
-Panjo\! Vi kien? 
+Panjo! Vi kien?
 
 ELINJO
 
-Mi foriros, sed baldaŭ mi revenos. 
+Mi foriros, sed baldaŭ mi revenos.
 
 HENRIKO
 
-Baldaŭ? De kie? 
+Baldaŭ? De kie?
 
 ELINJO
 
 De ĉi-nefore. Mi hejmenkondukos la ĉeva-
 
-lojn de via patro. 
+lojn de via patro.
 
 HENRIKO
 
-ĉu patro ne povas rekonduki ilin? 
+ĉu patro ne povas rekonduki ilin?
 
 ELINJO
 
-Li havas aliajn farendojn. 
+Li havas aliajn farendojn.
 
 HENRIKO
 
-Al mi kion vi portos? 
+Al mi kion vi portos?
 
-40
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ELINJO
 
 Kion vi petis. Sonorileton por sur la kolo de
 
-via ĉevalo. Iru, fileto, manĝi\! 
+via ĉevalo. Iru, fileto, manĝi!
 
 HENRIKO
 
@@ -2414,23 +2311,23 @@ Kunportu min, panjo …
 
 ELINJO
 
-Kien kunporti vin? Kien vi ŝatus? 
+Kien kunporti vin? Kien vi ŝatus?
 
 HENRIKO
 
-Nenien, nenien\! Vi nur kunportu min\! 
+Nenien, nenien! Vi nur kunportu min!
 
 ELINJO
 
 Ho, neeble. Rajdistoj tie tre galopas. Jen kiel
 
-nun ĉi tie. 
+nun ĉi tie.
 
-\(Defore krioj, huffrapado, poste Nagelschmidt
+(Defore krioj, huffrapado, poste Nagelschmidt
 
 ensaltas tra la pordo kaj de tie rekte malantaŭ
 
-la lavniĉon.\)
+la lavniĉon.)
 
 HENRIKO
 
@@ -2438,31 +2335,31 @@ Karolo …
 
 ELINJO
 
-ĉit\! 
+ĉit!
 
-KASTELSOLDULO \(En.\) Pardonon, sinjorina moŝto …
+KASTELSOLDULO (En.) Pardonon, sinjorina moŝto …
 
 ELINJO
 
 Nenia pardono. Kiel vi aŭdacas tiel rompen-
 
-veni? 
+veni?
 
 KASTELSOLDULO ĉevalŝtelisto …
 
 ELINJO
 
-Nenia ĉevalŝtelisto\! En domo de nobelo ne
+Nenia ĉevalŝtelisto! En domo de nobelo ne
 
-serĉu ĉevalŝteliston\! 
+serĉu ĉevalŝteliston!
 
 HENRIKO
 
-Haku … \(Elinjo ŝtopas al li la buŝon.\)
+Haku … (Elinjo ŝtopas al li la buŝon.)
 
 ELINJO
 
-Ne ĝenu la interparolon\! 
+Ne ĝenu la interparolon!
 
 KASTELSOLDULO Haku … Do ankaŭ la infano …
 
@@ -2470,15 +2367,13 @@ ELINJO
 
 La servistoj ekstere hakas rapon. De ili li ler-
 
-nis. 
+nis.
 
-KASTELSOLDULO Hm. 
+KASTELSOLDULO Hm.
 
-41
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ELINJO
 
@@ -2486,9 +2381,9 @@ Sed se vi volas havi ankaŭ vian kapon mik-
 
 sita furaĝe inter rapoj, trankvile ĝisatendu
 
-mian edzon. 
+mian edzon.
 
-KASTELSOLDULO Mian saluton al lia moŝto. \(Rapide for.\) NAGELSCHMIDT \(Ridante aperas.\) Bone vi timigis lin, Elinjo. 
+KASTELSOLDULO Mian saluton al lia moŝto. (Rapide for.) NAGELSCHMIDT (Ridante aperas.) Bone vi timigis lin, Elinjo.
 
 Se li scius, ke Mikelo reĵetus sur lin nur pa-
 
@@ -2496,17 +2391,17 @@ non. Ne koleru. Mi promesas: mi ne plu fa-
 
 ras leĝon por mi. ĉi tiu estis mia lasta indig-
 
-no. 
+no.
 
 ELINJO
 
-Kion vi refoje fifaris? 
+Kion vi refoje fifaris?
 
 NAGELSCHMIDT Certaj moŝtaj personoj, ĉu ne, deŝiradis la ĉemizon, pantalonon de Herse. Tramordadis
 
-liajn gantojn, duone konsumis liajn orelojn. 
+liajn gantojn, duone konsumis liajn orelojn.
 
-Kaj mi venenis ilin. 
+Kaj mi venenis ilin.
 
 ELINJO
 
@@ -2514,57 +2409,55 @@ Nu ne …
 
 NAGELSCHMIDT Ok kadavroj … ok kaj duono, ĉar unu for-
 
-trenis sin. 
+trenis sin.
 
 ELINJO
 
-Jesuo\! 
+Jesuo!
 
-NAGELSCHMIDT Aŭskultu ja, kia silento ekregis ĉirkaŭ la kastelo\! Nek bojado, nek hojlado. La hundaro
+NAGELSCHMIDT Aŭskultu ja, kia silento ekregis ĉirkaŭ la kastelo! Nek bojado, nek hojlado. La hundaro
 
 transdormiĝis en pli noblan eston. Kiel kvie-
 
-tas, ĉu ne, la atmosfero? \(Hundo hojlas.\)
+tas, ĉu ne, la atmosfero? (Hundo hojlas.)
 
 ELINJO
 
-Anstataŭ hundo Dio donas hundon. 
+Anstataŭ hundo Dio donas hundon.
 
-42
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-NAGELSCHMIDT ĉi tiu estas la duonmorta. Restis nur kvin-dekprocenta hundo. Min ĝi malbenadas. 
+NAGELSCHMIDT ĉi tiu estas la duonmorta. Restis nur kvin-dekprocenta hundo. Min ĝi malbenadas.
 
-Rajte de la lasta hojlo. 
+Rajte de la lasta hojlo.
 
 ELINJO
 
 Kaj miaflanke la lasta averto, Karolo …
 
-NAGELSCHMIDT Mi ĵuras, ekde hodiaŭ nur la leĝo … Kion Lia Sankteco La Leĝo diras. 
+NAGELSCHMIDT Mi ĵuras, ekde hodiaŭ nur la leĝo … Kion Lia Sankteco La Leĝo diras.
 
 HENRIKO
 
-Kiu leĝo? Kie la leĝo loĝas? 
+Kiu leĝo? Kie la leĝo loĝas?
 
-NAGELSCHMIDT ĉu Lia Sankteco La Leĝo? ĉu onklo Leĝo? 
+NAGELSCHMIDT ĉu Lia Sankteco La Leĝo? ĉu onklo Leĝo?
 
-Mi klarigos. 
+Mi klarigos.
 
 ELINJO
 
-\(Prenas la infanon en la sinon kaj elirante\) Ni
+(Prenas la infanon en la sinon kaj elirante) Ni
 
-ne edukas banditon el la infano. 
+ne edukas banditon el la infano.
 
 NAGELSCHMIDT Banditon. Por eviti kulpojn li ja bezonas scii: onklo Leĝo egalas al la imperiestro, la princo elektisto, Venceslao de Tronka kaj la kan-
 
 celario. Onklo Leĝo reguligas la konduton, la
 
-laboron, la amon, en ¯enevo — kiel ni aŭdis
+laboron, la amon, en enevo — kiel ni aŭdis
 
 — la jupolongon kaj la virtojn fermigante en
 
@@ -2582,31 +2475,29 @@ sonĝu, kion ni legu, pri kio kiamaniere ni
 
 opiniu … Unuvorte, onklo Leĝo tranĉas al ni
 
-43
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 la padon, sur kiu ni pasu. Sur ĝi li bastonpe-
 
-las nin al la paradizo. 
+las nin al la paradizo.
 
 ELINJO
 
-\(aŭskultinta el la pordoframo\) ĉiu vorto via
+(aŭskultinta el la pordoframo) ĉiu vorto via
 
 estas regulrompo. Se kun vi mi iros al Berli-
 
-no, la princa korpogardo arestos vin. 
+no, la princa korpogardo arestos vin.
 
-NAGELSCHMIDT Mi restos muta. 
+NAGELSCHMIDT Mi restos muta.
 
 ELINJO
 
 Via hundvenena pasio estas ĉizita al vi sur la
 
-vizaĝo. 
+vizaĝo.
 
 NAGELSCHMIDT Proksime al nia reganto mi alprenos mian plej mildan fizionomion. Mi kondutos laŭ-
 
@@ -2616,7 +2507,7 @@ paras min por la vojo, Elinjo. Anstataŭ sker-
 
 mado mi ekzercis min ankaŭ hodiaŭ en la
 
-fideleco al la imperiestro. 
+fideleco al la imperiestro.
 
 ELINJO
 
@@ -2624,17 +2515,17 @@ Kvazaŭ ornamitan pordegon, propramane vi
 
 skulptas vian pendumilon. Kaj la kaleŝo an-
 
-koraŭ ne veturpretas. 
+koraŭ ne veturpretas.
 
-NAGELSCHMIDT \(ekiras vigle eksteren, zumkantante\) ĉar ne decas, nek necesas por montano simpla
+NAGELSCHMIDT (ekiras vigle eksteren, zumkantante) ĉar ne decas, nek necesas por montano simpla
 
 fost’ …
 
-\(Kolhaas venas kun Francisko Müller.\)
+(Kolhaas venas kun Francisko Müller.)
 
 KOLHAAS
 
-Elinjo\! Nia savanto, sinjoro Francisko Mül-
+Elinjo! Nia savanto, sinjoro Francisko Mül-
 
 ler, la plej dokta jurdoktoro de Brandenbur-
 
@@ -2642,41 +2533,39 @@ go …
 
 ELINJO
 
-Francisko\! 
+Francisko!
 
-44
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
-Nu vidu\! Elinjo ne ĉikanas, ĉar iam mi petis
+Nu vidu! Elinjo ne ĉikanas, ĉar iam mi petis
 
 por ŝia mano. Mikelo senĉese sinjormülleru-
 
-mas min. 
+mas min.
 
 ELINJO
 
-Certe tone de respekto. 
+Certe tone de respekto.
 
 KOLHAAS
 
-Kial ne respekti lin\! La plej altan konsilanton
+Kial ne respekti lin! La plej altan konsilanton
 
 de la princa kancelario, frekventantan eĉ la
 
 Berlinan kortegon … Nian peticion formulos
 
-do li, Francisko. 
+do li, Francisko.
 
 MÜLLER
 
 Francisko formulos ĝin kaj sinjoro Müller
 
-kondukos Elinjon antaŭ la reganton. 
+kondukos Elinjon antaŭ la reganton.
 
 ELINJO
 
@@ -2684,7 +2573,7 @@ Eterne mi dankos vin, Francisko. Loku vin
 
 oportune kaj rakontu iom … Dio mia …
 
-kiom da jaroj ni ne vidis unu la alian? 
+kiom da jaroj ni ne vidis unu la alian?
 
 MÜLLER
 
@@ -2708,7 +2597,7 @@ joro Müller: la obsedito de juraj sciencoj, de
 
 malvarmaj paragrafoj. Finfine, kiel vi ambaŭ
 
-scias, mi kunligis min kun la jurisprudenco. 
+scias, mi kunligis min kun la jurisprudenco.
 
 Sen virino, infano mia vivo dezertas, sed …
 
@@ -2716,11 +2605,9 @@ kiel diri … libere mi juĝas nun pri tio, de kio
 
 mi iam estis obsedito. Lasu veni al mi la in-
 
-45
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 fanojn, la venĝon, la ĵaluzon, la amon, lasu
 
@@ -2734,13 +2621,13 @@ vultistinojn, la falsajn profetojn, la perseku-
 
 tatojn kaj persekutantojn, la trompantojn
 
-kaj trompitojn, la sinjoron kaj lian serviston, 
+kaj trompitojn, la sinjoron kaj lian serviston,
 
 edzon kaj amatinon, la nepagitan imposton
 
 kaj la neglektatan preĝon, la erarintan pas-
 
-tron kaj la vagantan hundon, ĉion, kio vivas, 
+tron kaj la vagantan hundon, ĉion, kio vivas,
 
 kio spiras, do pekas. ĉar ne ekzistas pli fale-
 
@@ -2748,27 +2635,27 @@ ma estaĵo ol la homo. Juĝata laŭ nia nuna
 
 jurisdikcio: se li ekparolas, li kulpas per ĉiu
 
-sia centa … centtria vorto kontraŭ iu leĝo. 
+sia centa … centtria vorto kontraŭ iu leĝo.
 
 Kaj ĉu vi havas ideon pri tio, kion la homoj
 
 kunbabilas de mateno ĝis vespero? Kion
 
-kungestas surdmutuloj? 
+kungestas surdmutuloj?
 
 ELINJO
 
 Kaj kiu observas tion? Ke per ĉiu centa …
 
-centtria …? 
+centtria …?
 
 MÜLLER
 
-Kiuj oficas tiucele. Ja. 
+Kiuj oficas tiucele. Ja.
 
 ELINJO
 
-Terure. 
+Terure.
 
 MÜLLER
 
@@ -2776,35 +2663,33 @@ Kiel senkulpigi la homon, se liaj kulpoj ne
 
 estas registritaj? La socio samas kiel … an-
 
-serhepato en fritpleto\! Ne atentata, ĝi mis-
+serhepato en fritpleto! Ne atentata, ĝi mis-
 
-brulas. 
+brulas.
 
-46
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ELINJO
 
 Lasu veni al mi … Antaŭ tribunalon. La sa-
 
-mon diras Nagelschmidt. 
+mon diras Nagelschmidt.
 
 MÜLLER
 
-Kiu Nagelschmidt? 
+Kiu Nagelschmidt?
 
 ELINJO
 
 Ho, nenio. Nur io venis al mi en la kapon. Vi
 
-ja havas enorman potencon en la mano\! 
+ja havas enorman potencon en la mano!
 
 MÜLLER
 
-Ja ne\! Ankaŭ super mi staras iu kaj ĉi tiu di-
+Ja ne! Ankaŭ super mi staras iu kaj ĉi tiu di-
 
 ras: lasu veni al mi sinjoron Müller. Kaj iom
 
@@ -2816,17 +2701,17 @@ plej supera mano. En kiun li, ni esperas, Eli-
 
 njo povos meti la plendon de la brava ĉeval-
 
-komercisto. Nia amiko Mikelo malsereniĝis. 
+komercisto. Nia amiko Mikelo malsereniĝis.
 
 ELINJO
 
-Kio malbona, kara? 
+Kio malbona, kara?
 
 KOLHAAS
 
 Mi nur enpensiĝis. Kunkalkulis miajn kul-
 
-pojn. 
+pojn.
 
 ELINJO
 
@@ -2836,7 +2721,7 @@ sorton havos Mikelo, se viaj registristoj me-
 
 tos sub akuzon la tutan homaron, la tutan
 
-anserhepaton? 
+anserhepaton?
 
 MÜLLER
 
@@ -2844,21 +2729,19 @@ Absolvo, memkompreneble. Kun li ni reko-
 
 mencos la Edenajn tagojn. Kaj mi, kiel Luci-
 
-fero envios lin plu pro la beleco de Eva. \(Ili
+fero envios lin plu pro la beleco de Eva. (Ili
 
-ridas.\)
+ridas.)
 
 ELINJO
 
 Por la komplimento mi portos ion por trin-
 
-ki. Kaj ensendos Herse por la peticio. \(For\)
+ki. Kaj ensendos Herse por la peticio. (For)
 
-47
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
@@ -2870,11 +2753,11 @@ co. Do la afero komenciĝis tiel, ke barono
 
 Venceslao de Tronka retenis vian serviston
 
-kun la du nigraj ĉevaloj. \(Skribas.\)
+kun la du nigraj ĉevaloj. (Skribas.)
 
 KOLHAAS
 
-Kaj de tiam li vomas sangon. 
+Kaj de tiam li vomas sangon.
 
 MÜLLER
 
@@ -2886,57 +2769,55 @@ mo, devas esti redaktata. Alimaniere ĝi res-
 
 tas senefika. Do oni postulis senrajte pasle-
 
-teron de via servisto … \(Herse envenas.\) …
+teron de via servisto … (Herse envenas.) …
 
 kvankam la Dresdena ĉefnotariejo … jes …
 
-Kio poste okazis? 
+Kio poste okazis?
 
 KOLHAAS
 
-Rakontu, Herse, kio poste okazis? 
+Rakontu, Herse, kio poste okazis?
 
 HERSE
 
-ĉu post la draŝado? 
+ĉu post la draŝado?
 
 MÜLLER
 
-Ankaŭ la draŝado restas por la fino. 
+Ankaŭ la draŝado restas por la fino.
 
 HERSE
 
-Tuj ĉe la komenco mi ricevis ĝin. 
+Tuj ĉe la komenco mi ricevis ĝin.
 
 MÜLLER
 
-Kiel la afero komenciĝis? 
+Kiel la afero komenciĝis?
 
 HERSE
 
 La kastelkomandanto demandas: de kie mi
 
-venas? Mi diras: mi iras hejmen. 
+venas? Mi diras: mi iras hejmen.
 
 MÜLLER
 
-Pro tia respondo ankaŭ mi igus vin draŝi. 
+Pro tia respondo ankaŭ mi igus vin draŝi.
 
 Diru precize: kial oni ĵetis la ĉevalojn en kar-
 
 ceron, post kiam via mastro, sinjoro Kolhaas
 
-pagis la kvindek groŝojn al la doganisto? 
+pagis la kvindek groŝojn al la doganisto?
 
 HERSE
 
-ĉu la ĉevalojn? En karceron? En stalon. 
+ĉu la ĉevalojn? En karceron? En stalon.
 
-48
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
@@ -2944,27 +2825,27 @@ En karceron. La princo elektisto estas ŝate-
 
 ganto de ĉevaloj. Do ni devas igi lin ekdoma-
 
-ĝi la ĉevalojn. ĉu oni batis la ĉevalojn? 
+ĝi la ĉevalojn. ĉu oni batis la ĉevalojn?
 
 HERSE
 
-Min oni batis\! 
+Min oni batis!
 
 MÜLLER
 
 Tio estas alia afero. ĉu oni mistraktis la ĉe-
 
-valojn? 
+valojn?
 
 HERSE
 
 Kontraŭe. Algalopis sinjorido Venceslao kaj
 
-lia amiko Günther. Kiom mi postulas por ili? 
+lia amiko Günther. Kiom mi postulas por ili?
 
 Kvardek orguldenojn. Tro multas, ĉu ne? Mi
 
-montru la pasleteron. Mi ne havas ion tian. 
+montru la pasleteron. Mi ne havas ion tian.
 
 La doganisto forgalopis por la kvindek gro-
 
@@ -2972,7 +2853,7 @@ La doganisto forgalopis por la kvindek gro-
 
 ligu la ĉevalojn en la stalon. La stalo estis
 
-plena; mi do konduku ilin en la porkejon. 
+plena; mi do konduku ilin en la porkejon.
 
 Sed tien neniel mi povas konduki ilin. La
 
@@ -2990,17 +2871,15 @@ kelkajn glavofrapojn sur mia dorso. Tio ek-
 
 sufiĉis al mi, kaj ek en la selon, rekte al la
 
-ĉefpordego. La kastelkomandanto ekfajfis, 
+ĉefpordego. La kastelkomandanto ekfajfis,
 
-oni fermis la pordegon, du gardistoj depuŝis, 
+oni fermis la pordegon, du gardistoj depuŝis,
 
 piedtraktis min, unu tretis al mi sur la vent-
 
-49
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ron, aperis hundoj, ili tiris-ŝiris, tramordadis
 
@@ -3008,49 +2887,49 @@ min, jen rigardu min, kaj por ne morti tie, en
 
 la korto, oni ĵetis min trans la barilon. Mi
 
-svenis. Kaj jen nun mi estas ĉi tie. \(Krie.\)
+svenis. Kaj jen nun mi estas ĉi tie. (Krie.)
 
-Bonvolu alrigardi\! 
+Bonvolu alrigardi!
 
 MÜLLER
 
-Dankon. Vi povas foriri. 
+Dankon. Vi povas foriri.
 
 HERSE
 
 Mi forgesis diri, ke mi ankaŭ strangolis du
 
-hundojn. 
+hundojn.
 
 MÜLLER
 
-Tion ni ne emfazu. 
+Tion ni ne emfazu.
 
 KOLHAAS
 
 La princo elektisto ŝategas ankaŭ la hun-
 
-dojn. 
+dojn.
 
 HERSE
 
 Do preferindus, via moŝto, transbaptigi nin
 
-al hundoj. \(For\)
+al hundoj. (For)
 
 MÜLLER
 
-Kaj ĝuste li miras, se oni draŝas lin. 
+Kaj ĝuste li miras, se oni draŝas lin.
 
 KOLHAAS
 
-Kaj ĉu vi ne miras? 
+Kaj ĉu vi ne miras?
 
 MÜLLER
 
 Jam la miro mem egalas ian mildan specon
 
-de eksceso. Do la ĉevaloj restis tie. 
+de eksceso. Do la ĉevaloj restis tie.
 
 KOLHAAS
 
@@ -3064,17 +2943,15 @@ elspeziĝis por tio. La barona moŝto Vence-
 
 slao igis min voki, por transpreni la du ni-
 
-grajn ĉevalojn. El la porkejo. 
+grajn ĉevalojn. El la porkejo.
 
 MÜLLER
 
-\(Rapide skribas.\) El la porkejo …
+(Rapide skribas.) El la porkejo …
 
-50
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
@@ -3086,19 +2963,19 @@ du kotŝmiritajn ĉevalaĉojn kuntenatajn de
 
 nuraj ostoj kaj haŭto. Mia postulo en la dua
 
-parto de la proceso estis: estu redonita al mi, 
+parto de la proceso estis: estu redonita al mi,
 
 kio estis forprenita. En la Dresdena prokure-
 
 jo oni dormigis mian apelacion en la tirkes-
 
-to. 
+to.
 
 MÜLLER
 
-Ne dormigis. Oni false prijuĝis ĝin. La ofico, 
+Ne dormigis. Oni false prijuĝis ĝin. La ofico,
 
-kara amiko, estas unueca, solidara familio. 
+kara amiko, estas unueca, solidara familio.
 
 Ne konsilindas kalumnii eĉ unu membron
 
@@ -3106,7 +2983,7 @@ de la familio. Do …
 
 KOLHAAS
 
-Oni dormigis ĝin\! 
+Oni dormigis ĝin!
 
 MÜLLER
 
@@ -3120,15 +2997,15 @@ sin en mian aferon. Sinjoro Hinz, la trink-
 
 verŝisto de la reganto kaj sinjoro Kunz, kor-
 
-tega ĉambristo. \(ĉi tion Müller ne skribas. 
+tega ĉambristo. (ĉi tion Müller ne skribas.
 
-Ankaŭ poste: nur kion li konsideras ĝusta.\) Tiel
+Ankaŭ poste: nur kion li konsideras ĝusta.) Tiel
 
 okazis, ke la supera instanco resendis mian
 
 plendon por prijuĝo al tiu, kontraŭ kiu mi
 
-prezentis ĝin: al la kastelmastro de Tronka. 
+prezentis ĝin: al la kastelmastro de Tronka.
 
 ĉi tiu formo de la leĝotreto nun jam ĝene-
 
@@ -3136,11 +3013,9 @@ ralas. Sekve de tio plendantoj, anstataŭ esti
 
 laŭleĝe defendataj, venas en la manojn de la
 
-51
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 plenditoj: viktimoj al la pugnoj de la aten-
 
@@ -3148,7 +3023,7 @@ cintoj. ĉu estas vere, ke vi murdis ĉi tiun
 
 homon? Kalumnio, insinuo — krias la mur-
 
-dinto kaj oni frapas la buŝon al la kadavro. 
+dinto kaj oni frapas la buŝon al la kadavro.
 
 MÜLLER
 
@@ -3180,7 +3055,7 @@ miajn ĉevalojn, alie li igos min malliberigi
 
 pro ribeligo. Min, pri kies leĝrespekto kaj
 
-honesto, se necesas, atestos doktoro Luther? 
+honesto, se necesas, atestos doktoro Luther?
 
 Mikelon Kolhaas en karceron? Nun mi jam
 
@@ -3190,21 +3065,19 @@ ciati la proceson. Mi daŭrigus ĝin eĉ, se te-
 
 mus ne pri du altvaloraj rajdĉevaloj, sed pri
 
-fava kataĉo. 
+fava kataĉo.
 
 MÜLLER
 
-Tio restu inter ni. 
+Tio restu inter ni.
 
 KOLHAAS
 
-Kio restu? 
+Kio restu?
 
-52
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
@@ -3212,11 +3085,11 @@ La kato. ĉi tiu troigita pretendo de jurosen-
 
 to ĉe vi, simila al ora pesilo. Alivorte: la ka-
 
-tideca naiveco. 
+tideca naiveco.
 
 KOLHAAS
 
-Jurosento … ĉu naiveco? 
+Jurosento … ĉu naiveco?
 
 MÜLLER
 
@@ -3224,43 +3097,43 @@ Se vi pensas tiel, ke la vero estas tajlata laŭ
 
 ĉies korpa mezuro: tiam nepre. La vero de la
 
-leĝo estas ĝenerala, kaj bedaŭrinde: averaĝa. 
+leĝo estas ĝenerala, kaj bedaŭrinde: averaĝa.
 
-Kiel soldataj botetoj. ¯ia celo estas ne la
+Kiel soldataj botetoj. ia celo estas ne la
 
 vero de unuopulo, kiun cetere ĝi neniam
 
 povas malkovri, do ne la protektado de indi-
 
-viduaj kaloj, sed la ŝirmado de la tuta korpo, 
+viduaj kaloj, sed la ŝirmado de la tuta korpo,
 
-de la Ordo, de la socia paco. \(Skribas.\) Pete-
+de la Ordo, de la socia paco. (Skribas.) Pete-
 
-gante por pardono pro mia falema naturo, 
+gante por pardono pro mia falema naturo,
 
 inklina al malordemo, koncipita en peko …
 
 KOLHAAS
 
-Mi ne inklinas al malordemo\! 
+Mi ne inklinas al malordemo!
 
 MÜLLER
 
-Tion malpravigas ja via levita voĉo. 
+Tion malpravigas ja via levita voĉo.
 
 KOLHAAS
 
-Mi petas ne pardonon\! Mi postulas mian
+Mi petas ne pardonon! Mi postulas mian
 
 veron kaj punon de tiuj …
 
 MÜLLER
 
-Haltu, haltu\! Ni komencis per humila peto, 
+Haltu, haltu! Ni komencis per humila peto,
 
 vi daŭrigas per postulo kaj kulminigas per
 
-puno vian petskribon. Via ofendo bagatelas; 
+puno vian petskribon. Via ofendo bagatelas;
 
 negrava skrapeto sur la pura vizaĝo de la
 
@@ -3270,11 +3143,9 @@ formulos. Via postulo kompare al tio estas
 
 troigo, elvokanta do suspekton. En la loko
 
-53
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 de la imperiestra prokuroro mi demandus:
 
@@ -3288,19 +3159,19 @@ estas finfine bagatela? ĉu ĉi tiu pasieco de la
 
 jurosento ne kovras sekretan ribelon kon-
 
-traŭ la ekzistanta reĝimo? 
+traŭ la ekzistanta reĝimo?
 
 KOLHAAS
 
 ĉu akuza parolo? ĉu vi laŭtlegas la akuzan
 
-akton de la defendo? 
+akton de la defendo?
 
 MÜLLER
 
 Ne mi diras tion. Mi pensas per la kapo de la
 
-prokuroro. 
+prokuroro.
 
 KOLHAAS
 
@@ -3312,15 +3183,15 @@ mia defendo. Ni ne daŭrigu. Per via menso
 
 lerta pri kontraŭaj konceptoj vi turnos finfi-
 
-ne la ofendon kontraŭ mi. 
+ne la ofendon kontraŭ mi.
 
 MÜLLER
 
-Povus turni iu, se tiel li dezirus interpreti ĝin. 
+Povus turni iu, se tiel li dezirus interpreti ĝin.
 
 KOLHAAS
 
-ĉu la skribita vorto ne plu havas sencon? 
+ĉu la skribita vorto ne plu havas sencon?
 
 MÜLLER
 
@@ -3328,11 +3199,11 @@ Nur sencinterpreton, kara amiko. La senco
 
 de niaj vortoj sidas en la kapoj de tiuj, kiuj
 
-ilin legas. 
+ilin legas.
 
 KOLHAAS
 
-Egalas do, kion ni skribas. 
+Egalas do, kion ni skribas.
 
 MÜLLER
 
@@ -3342,15 +3213,13 @@ la vero de la reganto, via ofendo fariĝos lia
 
 ofendo; se konvinke ni malkovros, ke la mis-
 
-54
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ago de sinjoro Venceslao ĵetas ombron sur
 
-lian majeston, ni havos gajnitan aferon. 
+lian majeston, ni havos gajnitan aferon.
 
 KOLHAAS
 
@@ -3364,7 +3233,7 @@ iĝinte pri tio, mi, Mikelo Kolhaas protestas…
 
 MÜLLER
 
-Ne moku, tiel eĉ paŝeton ni ne progresos. 
+Ne moku, tiel eĉ paŝeton ni ne progresos.
 
 KOLHAAS
 
@@ -3374,13 +3243,13 @@ don al la reganto. Povas esti, ke vi pli bone
 
 scias, kiuj estas falsaj vojoj kaj kiuj kondukas
 
-al la vero; mi povas nur diri: malgraŭ Hinz, 
+al la vero; mi povas nur diri: malgraŭ Hinz,
 
 Kunz, Kallheim mi kredas je la leĝo, je la bo-
 
-neco kaj senpartieco de la reganto. \(Müller
+neco kaj senpartieco de la reganto. (Müller
 
-skribas.\) Se mi estas kolerimpulsa, klarigu
+skribas.) Se mi estas kolerimpulsa, klarigu
 
 tion per ĉi tiu mia kredo. Mi bezonas vin, ĉar
 
@@ -3398,47 +3267,45 @@ cesadi. Mi sentas min bone inter miaj frukt-
 
 arboj kaj sur foirplacoj, kaj kune kun nia
 
-Sinjor’ Kristo mi diras al la ofenditoj: petu, 
+Sinjor’ Kristo mi diras al la ofenditoj: petu,
 
 kaj estos donite al vi, serĉu kaj vi trovos, fra-
 
-pu kaj estos malfermite al vi. 
+pu kaj estos malfermite al vi.
 
-55
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
 Pli bele ankaŭ mi ne povus formuli. Jen ĉi tie
 
-kuŝas via vero, Mikelo, en la vortoj de Jesuo. 
+kuŝas via vero, Mikelo, en la vortoj de Jesuo.
 
-\(Elinjo venas kun vinbotelo, glasoj.\) Elinjo, 
+(Elinjo venas kun vinbotelo, glasoj.) Elinjo,
 
-bela virino\! Via edzo superis min en elo-
+bela virino! Via edzo superis min en elo-
 
 kvento. Se min trafos missorto, lin mi petos
 
-por la plenda parolo. 
+por la plenda parolo.
 
 ELINJO
 
-Li timigas siajn kontraŭulojn per sia mildo. 
+Li timigas siajn kontraŭulojn per sia mildo.
 
 KOLHAAS
 
-\(verŝas\) Ni dankas al Francisko por la preĝ-
+(verŝas) Ni dankas al Francisko por la preĝ-
 
-simila peticio. 
+simila peticio.
 
 ELINJO
 
 Kaj ke li venigos min antaŭ la vizaĝon de la
 
-reganto. 
+reganto.
 
 MÜLLER
 
@@ -3452,37 +3319,35 @@ de mia tuta jura agado: frapu kaj estos mal-
 
 fermite al vi … En paco kaj ĝojo ni revidu
 
-unu la alian\! Frapu\! \(For\)
+unu la alian! Frapu! (For)
 
 KOLHAAS
 
-Dio benu vin\! 
+Dio benu vin!
 
 ELINJO
 
-Dio benu vian moŝton\! \(Pli malfrue.\) Kiam
+Dio benu vian moŝton! (Pli malfrue.) Kiam
 
-mi devos aperi? 
+mi devos aperi?
 
 KOLHAAS
 
-Sabate je la naŭa matene. 
+Sabate je la naŭa matene.
 
 ELINJO
 
-ĉu vere antaŭvizaĝe de la reganto? 
+ĉu vere antaŭvizaĝe de la reganto?
 
 KOLHAAS
 
 Eble eĉ la imperiestro ĉeestos. Aŭdu, en kiel
 
-altan sferon leviĝis nia afero\! \(Legas.\) Al Ka-
+altan sferon leviĝis nia afero! (Legas.) Al Ka-
 
-56
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 rolo, pro Dia graco elektita Romia imperies-
 
@@ -3496,7 +3361,7 @@ ceteraj, arkiduko de Aŭstrio, princo de Bur-
 
 gundio, grafo de Habsburgo, Flandrio kaj
 
-Tirolo … Timige, ĉu? 
+Tirolo … Timige, ĉu?
 
 ELINJO
 
@@ -3506,27 +3371,27 @@ da titoloj, tiom da oficoj …
 
 KOLHAAS
 
-Mi kuniros vin. 
+Mi kuniros vin.
 
 ELINJO
 
 Superflue. Sinjoro Müller ja diris: oni rigar-
 
-das vin per nebonvolaj okuloj en la kastelo. 
+das vin per nebonvolaj okuloj en la kastelo.
 
 Malgaja, senhelpa virina persono … tiel di-
 
-ris Francisko … gajnos la koron eĉ de tirano. 
+ris Francisko … gajnos la koron eĉ de tirano.
 
-Gardu Henrikon\! 
+Gardu Henrikon!
 
 KOLHAAS
 
-Gardu vin\! 
+Gardu vin!
 
 ELINJO
 
-Ne prozorgu\! Io ajn okazu: faru nenion\! 
+Ne prozorgu! Io ajn okazu: faru nenion!
 
 KOLHAAS
 
@@ -3534,37 +3399,35 @@ Mi atendos vin. Nagelschmidt ĵure promesis
 
 bremsi sian impulsemon. Tamen mi zorgas
 
-pro vi. 
+pro vi.
 
 ELINJO
 
 Ankaŭ mia ŝirmanĝelo, ĉi tiu amuleto ĉie
 
-kunestos min. \(Legas la tekston ĉizitan sur la
+kunestos min. (Legas la tekston ĉizitan sur la
 
-dorso de la ujeto.\) Mi leviĝos kaj irados tra la
+dorso de la ujeto.) Mi leviĝos kaj irados tra la
 
-urbo; sur la stratoj kaj placoj mi serĉos tiun, 
+urbo; sur la stratoj kaj placoj mi serĉos tiun,
 
 kiun mia animo amas … La infano jam dor-
 
-57
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-mas … Kisu lin anstataŭ mi\! Mi jam parolas
+mas … Kisu lin anstataŭ mi! Mi jam parolas
 
-poete, kiel reĝo Salomono. \(Ili ridas.\) Kial vi
+poete, kiel reĝo Salomono. (Ili ridas.) Kial vi
 
-skribis, ke mi leviĝos, kaj irados tra la urbo? 
+skribis, ke mi leviĝos, kaj irados tra la urbo?
 
 KOLHAAS
 
-ĉu vi memoras, tiutempe mi ĉiam survojis. 
+ĉu vi memoras, tiutempe mi ĉiam survojis.
 
-Al Dresdeno, Lejpcigo, Brandenburgo. 
+Al Dresdeno, Lejpcigo, Brandenburgo.
 
 ELINJO
 
@@ -3582,17 +3445,17 @@ kigis la sesan verson de la tria ĉapitro. Hen-
 
 riko ridis pri mi. Vi okulserĉas la fumkolo-
 
-non, li diris, kaj mi mian patron. \(Zumkan-
+non, li diris, kaj mi mian patron. (Zumkan-
 
-tas.\) Kiu estas li, kiu venas el la dezerto, kiel
+tas.) Kiu estas li, kiu venas el la dezerto, kiel
 
-kolono de fumo? ĉu bela? 
+kolono de fumo? ĉu bela?
 
 KOLHAAS
 
 Doktoro Luther povus preni ĝin inter siajn
 
-preĝejajn kantojn. 
+preĝejajn kantojn.
 
 ELINJO
 
@@ -3600,7 +3463,7 @@ Pri via malfeliĉa Elinjo, kompreneble, ne
 
 pensis la kantema reĝo. Kiu estas ŝi, kiu iras
 
-el la dezerto, kiel kolono de fumo? 
+el la dezerto, kiel kolono de fumo?
 
 KOLHAAS
 
@@ -3608,7 +3471,7 @@ Kvar blankaj ĉevaloj miaj flugigos ŝin tien
 
 kaj reen. La bastono de Nagelschmidt estos
 
-la kolono de fumo. 
+la kolono de fumo.
 
 ELINJO
 
@@ -3616,23 +3479,21 @@ Kie mi trovos mian vojaĝtukon? ĉar ankaŭ
 
 ĝi estas donace portita de mia sinjoro. Mi
 
-58
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-ĝin serĉis, sed mi ĝin ne trovis, mi volis ĝin, 
+ĝin serĉis, sed mi ĝin ne trovis, mi volis ĝin,
 
-sed ĝi ne respondis al mi\! 
+sed ĝi ne respondis al mi!
 
 KOLHAAS
 
-Al mi ĝi respondis, ĉar jen ĉi tie ĝi troviĝas. 
+Al mi ĝi respondis, ĉar jen ĉi tie ĝi troviĝas.
 
-\(Sterninte la tukon sur la ŝultrojn de Elinjo.\) Ne
+(Sterninte la tukon sur la ŝultrojn de Elinjo.) Ne
 
-malvarmumu dumvoje\! 
+malvarmumu dumvoje!
 
 ELINJO
 
@@ -3644,89 +3505,87 @@ vi estos dironta en vi: mi ŝin serĉis, sed mi
 
 ŝin ne trovis, mi vokis ŝin, sed ŝi ne respon-
 
-dis\! — mi jam estos ĉi tie kun la pravigo far
+dis! — mi jam estos ĉi tie kun la pravigo far
 
-la reganto. 
+la reganto.
 
-NAGELSCHMIDT \(Enpaŝas.\) Aŭ kun lia kapo. \(je la malaproba gesto de Kolhaas\) Mi ŝercis. 
+NAGELSCHMIDT (Enpaŝas.) Aŭ kun lia kapo. (je la malaproba gesto de Kolhaas) Mi ŝercis.
 
 KOLHAAS
 
-Elinjo kaj via vivo. 
+Elinjo kaj via vivo.
 
-NAGELSCHMIDT Dio min tiel ŝirmu\! 
+NAGELSCHMIDT Dio min tiel ŝirmu!
 
 KOLHAAS
 
 Kiel vi respondos, se per ŝtono oni deman-
 
-dos vin? 
+dos vin?
 
-NAGELSCHMIDT Per pano, sinjoro. Kaj kuko. 
+NAGELSCHMIDT Per pano, sinjoro. Kaj kuko.
 
 KOLHAAS
 
-¯uste. Kion vi jungos, se oni konfiskos ĉiujn
+uste. Kion vi jungos, se oni konfiskos ĉiujn
 
-kvar ĉevalojn viajn? 
+kvar ĉevalojn viajn?
 
-NAGELSCHMIDT Mian langon, sinjoro. Mian muzelaĉon. Al ĉiuj mi rekomendos la samon. 
+NAGELSCHMIDT Mian langon, sinjoro. Mian muzelaĉon. Al ĉiuj mi rekomendos la samon.
 
-\(ĉiuj tri eliras. La sonoriletoj de la ĉevaloj aŭdi-
+(ĉiuj tri eliras. La sonoriletoj de la ĉevaloj aŭdi-
 
-ĝas, dum la scenejo mallumiĝas.\)
+ĝas, dum la scenejo mallumiĝas.)
 
-59
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 DUA BILDO
 
-Scenejo: la sama, unu semajnon poste. Dimanĉas. 
+Scenejo: la sama, unu semajnon poste. Dimanĉas.
 
 Mallaŭta, fora orgenado. Kolhaas sidas ĉefenestre
 
-kun Henriko en la sino. 
+kun Henriko en la sino.
 
 KOLHAAS
 
-ĉu vi vidas ion? 
+ĉu vi vidas ion?
 
 HENRIKO
 
-Ne. 
+Ne.
 
 KOLHAAS
 
-Mi ja same ne. 
+Mi ja same ne.
 
 HENRIKO
 
-Kantu ankaŭ vi la hejmenvokan kanton\! 
+Kantu ankaŭ vi la hejmenvokan kanton!
 
 KOLHAAS
 
-Mi ne konas ĝin. 
+Mi ne konas ĝin.
 
 HENRIKO
 
-\(zumkante\) Kiu estas ŝi, kiu venas el la dezer-
+(zumkante) Kiu estas ŝi, kiu venas el la dezer-
 
 to, kiel kolono de fumo? ĉu Berlino mal-
 
-proksimas? 
+proksimas?
 
 KOLHAAS
 
 Tre malproksimas. Sed semajno jam forpa-
 
-sis. Via patrino devas alveni. 
+sis. Via patrino devas alveni.
 
 HENRIKO
 
-Kion ŝi portos al mi? 
+Kion ŝi portos al mi?
 
 KOLHAAS
 
@@ -3736,11 +3595,11 @@ Punon. Nu, vi ne devas ektimi. Por ni ambaŭ
 
 la barona sinjorido de Tronka … frapo sur la
 
-nazo. 
+nazo.
 
 HENRIKO
 
-ĉu frapo? 
+ĉu frapo?
 
 KOLHAAS
 
@@ -3750,33 +3609,31 @@ la reganto, en kiu estas ordonite: niaj du ni-
 
 graj ĉevaloj regrasigitaj, estu senprokraste
 
-restituitaj. 
+restituitaj.
 
-60
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 HENRIKO
 
-ĉu li povas senprokraste regrasigi ilin? 
+ĉu li povas senprokraste regrasigi ilin?
 
 KOLHAAS
 
-\(mirfrapite\) Ne senprokraste. Nur laŭvice. 
+(mirfrapite) Ne senprokraste. Nur laŭvice.
 
 HENRIKO
 
-Do kial vi diris ”senprokraste”? 
+Do kial vi diris ”senprokraste”?
 
 KOLHAAS
 
-Mi forgesis, ke ĉio okazas nur laŭvice. 
+Mi forgesis, ke ĉio okazas nur laŭvice.
 
 HENRIKO
 
-ĉu ĉio? 
+ĉu ĉio?
 
 KOLHAAS
 
@@ -3788,45 +3645,45 @@ taj, Herse trabatita kaj neniu volas restarigi
 
 la justecon. Estas bona nur, kio venas laŭ-
 
-vice. 
+vice.
 
 HENRIKO
 
-Forte kaj laŭvice? 
+Forte kaj laŭvice?
 
 KOLHAAS
 
-Iom post iom. 
+Iom post iom.
 
 HENRIKO
 
-Patro, kiuj venigas la malfeliĉon? 
+Patro, kiuj venigas la malfeliĉon?
 
 KOLHAAS
 
-Intriguloj. 
+Intriguloj.
 
 HENRIKO
 
-Kaj la intrigulojn? kiu ilin venigas? 
+Kaj la intrigulojn? kiu ilin venigas?
 
 KOLHAAS
 
 ĉi tiujn? La malfeliĉo. ĉu insekto flugis en
 
-vian orelon? 
+vian orelon?
 
 HENRIKO
 
-Mi nur skue reĝustigas mian menson. 
+Mi nur skue reĝustigas mian menson.
 
 KOLHAAS
 
-ĉu ĝi ne sidis ĝustaloke? 
+ĉu ĝi ne sidis ĝustaloke?
 
 HENRIKO
 
-Ne … por tio, kion vi diris. 
+Ne … por tio, kion vi diris.
 
 KOLHAAS
 
@@ -3838,11 +3695,9 @@ kaŭ la ĉevalidoj, libere ni iros-venos al gran-
 
 daj foiroj. Tribunalaj servistoj ne frapos sur
 
-61
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 pordoj, ili verŝajne retiriĝos kultivi teron. Se
 
@@ -3850,29 +3705,29 @@ ni iros vizite al Berlino, kun plendo ni ne
 
 turnos nin al la imperiestro, sed ni nur pro-
 
-menos riverborde, plezurboatos sur lagoj, 
+menos riverborde, plezurboatos sur lagoj,
 
 manĝos fritaĵojn, rigardos iluziistojn. Ho …
 
-kio videblas tie\! 
+kio videblas tie!
 
 HENRIKO
 
-Hm. Estus bone tuj plenkreski. 
+Hm. Estus bone tuj plenkreski.
 
 KOLHAAS
 
 Estus bone. Sed tiam mi tuj maljuniĝus. Kaj
 
-ankaŭ via patrino. Tion vi ne dezirus, ĉu? 
+ankaŭ via patrino. Tion vi ne dezirus, ĉu?
 
 HENRIKO
 
-Neniel estas bone. 
+Neniel estas bone.
 
 MARIA
 
-\(ekscitita enkuras\) Via moŝto\! Nagelschmidt
+(ekscitita enkuras) Via moŝto! Nagelschmidt
 
 … Sola kaj surĉevale … Tra la kampoj … eĉ
 
@@ -3886,73 +3741,71 @@ baŭ …
 
 MARIA
 
-Dio mia, Jesu-Kristo\! Kio do okazis? 
+Dio mia, Jesu-Kristo! Kio do okazis?
 
 HENRIKO
 
-Patro\! Ne forsendu min\! Ne forsendu …
+Patro! Ne forsendu min! Ne forsendu …
 
 KOLHAAS
 
-Vi povos tuj reveni, Henriko. 
+Vi povos tuj reveni, Henriko.
 
 HENRIKO
 
-ĉu tuj? Ne laŭvice? 
+ĉu tuj? Ne laŭvice?
 
 KOLHAAS
 
-Tuj, fileto. Iru do\! \(Maria, Henriko for.\)
+Tuj, fileto. Iru do! (Maria, Henriko for.)
 
-NAGELSCHMIDT \(en\) Ni devas veturi al Schwerin, Mikelo, urĝe\! 
+NAGELSCHMIDT (en) Ni devas veturi al Schwerin, Mikelo, urĝe!
 
 KOLHAAS
 
-Al Schwerin? Kial? 
+Al Schwerin? Kial?
 
-NAGELSCHMIDT Al Elinjo. Sinjoro Müller transportis ŝin tien. 
+NAGELSCHMIDT Al Elinjo. Sinjoro Müller transportis ŝin tien.
 
-62
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-Transportis? 
+Transportis?
 
-NAGELSCHMIDT Ni kuŝigis ŝin inter kusenojn, kuracisto akompanis ŝin el Berlino, al la gepatroj. 
+NAGELSCHMIDT Ni kuŝigis ŝin inter kusenojn, kuracisto akompanis ŝin el Berlino, al la gepatroj.
 
 Kvankam li donis severan ordonon ne halti
 
-kun ŝi ĝishejme, sed ĉe Potsdam ŝi dormiĝis. 
+kun ŝi ĝishejme, sed ĉe Potsdam ŝi dormiĝis.
 
 La kuracisto diris: se Schwerin pli proksi-
 
-mas, ni devas tuj transporti ŝin tien. 
+mas, ni devas tuj transporti ŝin tien.
 
 KOLHAAS
 
-Kio okazis? 
+Kio okazis?
 
-NAGELSCHMIDT Iu korpogardisto de la reganto batis ŝin per lancofusto en la bruston. 
-
-KOLHAAS
-
-Kial? 
-
-NAGELSCHMIDT ŝi tro proksimiris al la princo elektisto. 
+NAGELSCHMIDT Iu korpogardisto de la reganto batis ŝin per lancofusto en la bruston.
 
 KOLHAAS
 
-Kie staris sinjoro Müller? 
+Kial?
+
+NAGELSCHMIDT ŝi tro proksimiris al la princo elektisto.
+
+KOLHAAS
+
+Kie staris sinjoro Müller?
 
 NAGELSCHMIDT Kelkajn paŝojn for. Antaŭtage li interkonsentis kun la estro de la korpogardo, ke la
 
 soldatoj preterlasos Elinjon, por ke ŝi povu
 
-persone transdoni la peticion al la reganto. 
+persone transdoni la peticion al la reganto.
 
 Sed tiom opis la petantoj, ke antaŭ la Bran-
 
@@ -3966,15 +3819,13 @@ te, svingante sian Lejpcigan tukon laŭinter-
 
 konsente en unu mano kaj kun la peticio en
 
-la alia al la reganto, kiu ne povis rimarki ŝin, 
+la alia al la reganto, kiu ne povis rimarki ŝin,
 
 ĉar li devis resaluti al la laŭtaj jubiloj. Laŭ
 
-63
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 sinjoro Müller la estro de la korpogardo es-
 
@@ -3998,23 +3849,23 @@ ler, ke la amaso ne morttretis ŝin. La peticion
 
 elprenis bonvola kavaliro el ŝia mano. Li
 
-eble transigis ĝin al la reganto. 
+eble transigis ĝin al la reganto.
 
 KOLHAAS
 
-Kaj kie vi dume restis? 
+Kaj kie vi dume restis?
 
-NAGELSCHMIDT Laŭ la instrukcio de Elinjo sur la korto de la gastejo, veturprete. 
-
-KOLHAAS
-
-Kion diris la kuracisto? 
-
-NAGELSCHMIDT Longedaŭran resaniĝon. 
+NAGELSCHMIDT Laŭ la instrukcio de Elinjo sur la korto de la gastejo, veturprete.
 
 KOLHAAS
 
-ĉu monaton? Unu jaron? 
+Kion diris la kuracisto?
+
+NAGELSCHMIDT Longedaŭran resaniĝon.
+
+KOLHAAS
+
+ĉu monaton? Unu jaron?
 
 NAGELSCHMIDT Tiom li diris. Kiam ni kuŝigis ŝin en la ĉaron, ŝi rekonsciiĝis. Sidiĝis inter la kusenoj, vin
 
@@ -4024,33 +3875,31 @@ mi ne sidigas lin apud ŝin. Tra nazo-buŝo ek-
 
 fluis al ŝi la sango, sed tio daŭris ne longe. La
 
-kuracisto diris, ke ĉi tiu movo bonfaris al ŝi, 
+kuracisto diris, ke ĉi tiu movo bonfaris al ŝi,
 
-alie ŝi estus sufokita de la koagulita sango. 
+alie ŝi estus sufokita de la koagulita sango.
 
-64
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-\(post longa silento\) En la tago de ŝia resaniĝo
+(post longa silento) En la tago de ŝia resaniĝo
 
 mi metos la mortan verdikton de tiu korpo-
 
-gardisto sur ŝian tablon. 
+gardisto sur ŝian tablon.
 
-NAGELSCHMIDT Kun kies subskribo? 
+NAGELSCHMIDT Kun kies subskribo?
 
 KOLHAAS
 
 Tiu de la reganto. De la imperiestro. Mi ek-
 
-laborigos ĉiujn advokatojn de Eŭropo. 
+laborigos ĉiujn advokatojn de Eŭropo.
 
-NAGELSCHMIDT Granda havaĵo necesas por tio. 
+NAGELSCHMIDT Granda havaĵo necesas por tio.
 
 KOLHAAS
 
@@ -4062,9 +3911,9 @@ nomo bonvole transveni en afero grava an-
 
 kaŭ por li. Post duonhoro ni ekveturos al
 
-Schwerin. Post kvaronhoro. 
+Schwerin. Post kvaronhoro.
 
-NAGELSCHMIDT \(renkontas sursojle sinjoron Mann\) Sinjoro Mann\! 
+NAGELSCHMIDT (renkontas sursojle sinjoron Mann) Sinjoro Mann!
 
 MANN
 
@@ -4074,11 +3923,11 @@ joron Nagelschmidt hejmenrajdi kaprompe
 
 kaj sola. ĉu okazis denove io malfeliĉa … Mi
 
-petas vin, rakontu ajnon. Nur malfeliĉon ne. 
+petas vin, rakontu ajnon. Nur malfeliĉon ne.
 
 La kolero de la Di-Sinjoro, ni esperas, for-
 
-pasos de ĉi tie aliloken. 
+pasos de ĉi tie aliloken.
 
 KOLHAAS
 
@@ -4088,17 +3937,15 @@ domo. Bonvolu sidiĝi, sinjoro Mann. Dum
 
 kelkaj minutoj mi volus fari interkonsenton
 
-kun vi. \(Li puŝas plumon kaj inkujon antaŭ lin.\)
+kun vi. (Li puŝas plumon kaj inkujon antaŭ lin.)
 
-65
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 Skribu, kalkulu: kiom valoras por vi mia far-
 
-mo ĉe la bordo de Havel? 
+mo ĉe la bordo de Havel?
 
 MANN
 
@@ -4106,29 +3953,29 @@ Mi ne scias … tiel eke … kun tia subito …
 
 KOLHAAS
 
-Kiom vi promesis pasintjare? 
+Kiom vi promesis pasintjare?
 
 MANN
 
 Pasintjare? Kiom mi memoras: kvindek. Sed
 
-mi petas vin, sinjoro najbaro …, kio okazis? 
+mi petas vin, sinjoro najbaro …, kio okazis?
 
 KOLHAAS
 
-Mi ja rakontos. Mian domon en Dresdeno, 
+Mi ja rakontos. Mian domon en Dresdeno,
 
-por kiom vi aĉetos? 
+por kiom vi aĉetos?
 
 MANN
 
 Mi ne scias. Eĉ konjekton mi ne havas. Vi
 
-komplete perpleksis min. 
+komplete perpleksis min.
 
 KOLHAAS
 
-ĉu ĝi valoras cent por vi? 
+ĉu ĝi valoras cent por vi?
 
 MANN
 
@@ -4140,19 +3987,19 @@ KOLHAAS
 
 Suburbo, ses ĉambroj, grundo, fruktoĝarde-
 
-no. Se multe por vi, skribu sepdek. Skribu, 
+no. Se multe por vi, skribu sepdek. Skribu,
 
-mi petas vin\! Plu\! El miaj kvardek paroj da
+mi petas vin! Plu! El miaj kvardek paroj da
 
 ĉevaloj — ĉu vi volas aĉeti dudek? Paro valo-
 
-ras tridek orguldenojn, kiom tio sumas? 
+ras tridek orguldenojn, kiom tio sumas?
 
 MANN
 
-Mi ne povas tiel kalkuli\! Ne konsideru min
+Mi ne povas tiel kalkuli! Ne konsideru min
 
-uzurpatoro\! Kaj se mi estus tio, vin eĉ per
+uzurpatoro! Kaj se mi estus tio, vin eĉ per
 
 ĝroŝeto mi ne malriĉigus …
 
@@ -4162,39 +4009,37 @@ Mi scias. Skribu: dudek paroj da ĉevaloj —
 
 kvarcent. La lasta oferto: mia domo. Mia
 
-66
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-hejmo. ĉi tiu domo. Ne miru, sinjoro Mann\! 
+hejmo. ĉi tiu domo. Ne miru, sinjoro Mann!
 
-Kiom vi donos por ĉi tiu domo? 
+Kiom vi donos por ĉi tiu domo?
 
 MANN
 
 Por amo al Dio, sinjoro najbaro … Ne ekko-
 
-leru min … vi estas ekster via menso … pala, 
+leru min … vi estas ekster via menso … pala,
 
-kaj viaj manoj tremas … Maria\! Maria, gla-
+kaj viaj manoj tremas … Maria! Maria, gla-
 
-son da akvo al sinjoro Kolhaas\! Kien vi in-
+son da akvo al sinjoro Kolhaas! Kien vi in-
 
 tencas transloĝiĝi? ĉu vi ne volas forvagi en
 
-la mondon?\! Almenaŭ vi diru, kio okazis\! ĉu
+la mondon?! Almenaŭ vi diru, kio okazis! ĉu
 
-bankrotis iu via grandformata entrepreno? 
+bankrotis iu via grandformata entrepreno?
 
-Diru al mi, mi helpos vin per prunto. 
+Diru al mi, mi helpos vin per prunto.
 
-\(Maria envenas kun glaso da akvo, metas ĝin
+(Maria envenas kun glaso da akvo, metas ĝin
 
 senvorte sur la tablon, kaj kiel veninta, larman-
 
-te ŝi eliras.\)
+te ŝi eliras.)
 
 KOLHAAS
 
@@ -4202,39 +4047,37 @@ Prunton mi ne povas preni. Ne certas, ĉu mi
 
 povos redoni ĝin. Mi komencos novan pro-
 
-ceson. 
+ceson.
 
 MANN
 
-Kontraŭ kiu vi procesos, kaj kial? 
+Kontraŭ kiu vi procesos, kaj kial?
 
 KOLHAAS
 
-Kontraŭ kiu? Kontraŭ Venceslao de Tronka, 
+Kontraŭ kiu? Kontraŭ Venceslao de Tronka,
 
 la Berlina Korpogardo, la Dresdena Tribu-
 
-nalo, sinjoro Hinz kaj sinjoro Kunz, Saksio, 
+nalo, sinjoro Hinz kaj sinjoro Kunz, Saksio,
 
-Brandenburgo kaj kontraŭ la tuta imperio. 
+Brandenburgo kaj kontraŭ la tuta imperio.
 
 Kaj kial? Por ajne magra rekompenco, sin-
 
 joro Mann, por guteto da fido, kiun mi po-
 
-vas anticipi al Saksio; por fajrero da kredo, 
+vas anticipi al Saksio; por fajrero da kredo,
 
-kiu retenas min fariĝi bandito. 
+kiu retenas min fariĝi bandito.
 
-67
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MANN
 
-Mi ne povas tion mense kapti. 
+Mi ne povas tion mense kapti.
 
 KOLHAAS
 
@@ -4242,7 +4085,7 @@ Por kvarcent mi aĉetis la domon, vendas ĝin
 
 por tricent, la kontrakton formulu poste, ĉi
 
-tiun malplenan folion mi subskribos al vi. 
+tiun malplenan folion mi subskribos al vi.
 
 MANN
 
@@ -4258,7 +4101,7 @@ de nia koro, Li submetis eĉ sian fidelan filon
 
 Abrahamo al provo — petante pruve la san-
 
-gon de Isaako. 
+gon de Isaako.
 
 KOLHAAS
 
@@ -4272,7 +4115,7 @@ Lia potenco, ne de nia alkroĉiĝo. Mi havas
 
 nenian povon; mi bezonas ne dubi pri via
 
-honesteco. Kiom grandas tiu sumo? 
+honesteco. Kiom grandas tiu sumo?
 
 MANN
 
@@ -4280,7 +4123,7 @@ Cent orguldenoj antaŭpage, en la Dresdena
 
 banko. Kontrakton ni ne faros, nur se vi re-
 
-paciĝos, sinjoro Kolhaas. 
+paciĝos, sinjoro Kolhaas.
 
 KOLHAAS
 
@@ -4288,89 +4131,85 @@ Mi dankas vin. Por la mebloj mi sendos ĉa-
 
 regon el Schwerin. La malgrandan abion mi
 
-kunportos el la ĝardeno. Elinjo plantis ĝin, 
+kunportos el la ĝardeno. Elinjo plantis ĝin,
 
-kiam nia filo naskiĝis. 
+kiam nia filo naskiĝis.
 
-68
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MARIA
 
-\(terurite\) Via moŝto … la doganisto de Tron-
+(terurite) Via moŝto … la doganisto de Tron-
 
 ka kun du armitaj servistoj …
 
 KOLHAAS
 
-Mi ne vidu lin ĉi tie, alie mi mortpafos lin\! 
+Mi ne vidu lin ĉi tie, alie mi mortpafos lin!
 
-\(Li malpendigas fusilon de la muro.\) Mi mort-
+(Li malpendigas fusilon de la muro.) Mi mort-
 
-pafos la kanajlon\! \(Li demetas la armilon.\)
+pafos la kanajlon! (Li demetas la armilon.)
 
-\(Frapo sur la pordo alstrata. Kolhaas relevas la
+(Frapo sur la pordo alstrata. Kolhaas relevas la
 
 armilon. Sinjoro Mann timigite kaptas lian
 
-brakon.\)
+brakon.)
 
 MANN
 
-Sinjoro najbaro, kara amiko … Remildiĝu\! 
+Sinjoro najbaro, kara amiko … Remildiĝu!
 
 Mi ne rekonas vin. Vian kristanan pacien-
 
-con. 
+con.
 
 KOLHAAS
 
 ĉu ankoraŭ ekzistas kristaneco? ĉu ankoraŭ
 
-eblas pacienco? 
+eblas pacienco?
 
 MANN
 
-Kie malaperis la malnova, milda Kolhaas? 
+Kie malaperis la malnova, milda Kolhaas?
 
 KOLHAAS
 
-Kie li malaperis? ĉu min vi demandas? \(rea-
+Kie li malaperis? ĉu min vi demandas? (rea-
 
-ge al la denova frapado\) Enen, putoroj\! An-
+ge al la denova frapado) Enen, putoroj! An-
 
-kaŭ mi jam liberas en la agado. 
+kaŭ mi jam liberas en la agado.
 
 MANN
 
-Vi ne liberas. Vi havas familion\! Vi havas ho-
+Vi ne liberas. Vi havas familion! Vi havas ho-
 
-noron. 
+noron.
 
 KOLHAAS
 
 Mi havis. Se mi havis. Per kuglo mi ankoraŭ
 
-povas reakiri ĝin. \(Müller enpaŝas.\) Sinjoro
+povas reakiri ĝin. (Müller enpaŝas.) Sinjoro
 
-Müller\! Francisko\! Kion sciigas al mi Elinjo? 
+Müller! Francisko! Kion sciigas al mi Elinjo?
 
 Kion diras la kuracisto? ĉu tuj ni povos hej-
 
 menveturigi ŝin? Ne ĉare sur skuaj vojoj. Per
 
-69
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-kaleŝo\! Bele, mildveture … Sur bona vojo …
+kaleŝo! Bele, mildveture … Sur bona vojo …
 
-Per kovrita kaleŝo ne estas riske, ĉu? 
+Per kovrita kaleŝo ne estas riske, ĉu?
 
 MÜLLER
 
@@ -4378,41 +4217,41 @@ Elinjo sciigas …
 
 KOLHAAS
 
-Jam diru\! 
+Jam diru!
 
 MÜLLER
 
-Pardonu tiujn, kiuj kulpis kontraŭ vi. 
+Pardonu tiujn, kiuj kulpis kontraŭ vi.
 
 KOLHAAS
 
 ĉu nur tiom? ĉu nur ĉi tiun katenon ŝi sen-
 
-das? 
+das?
 
 MÜLLER
 
-ĉi tiuj estis ŝiaj lastaj vortoj. 
+ĉi tiuj estis ŝiaj lastaj vortoj.
 
 KOLHAAS
 
-ĉu ŝiaj lastaj vortoj? 
+ĉu ŝiaj lastaj vortoj?
 
 MÜLLER
 
-Kaj ŝia lasta deziro, sciigi tion al vi. 
+Kaj ŝia lasta deziro, sciigi tion al vi.
 
 KOLHAAS
 
-\(Transprenas la pendujon kun kolĉeno.\) Di-
+(Transprenas la pendujon kun kolĉeno.) Di-
 
-Sinjoro, kiam? 
+Sinjoro, kiam?
 
 MÜLLER
 
 ŝi mortis je la kvara matene. La internan
 
-sangadon la kuracisto ne plu scipovis ĉesigi. 
+sangadon la kuracisto ne plu scipovis ĉesigi.
 
 KOLHAAS
 
@@ -4420,27 +4259,25 @@ Ne scipovis … Ne povis ja vidi … Aŭ eble li
 
 tute ne estis kuracisto. Sed kunkulpulo de la
 
-korpogardistoj. Sed por kio mi parolas? … \(al
+korpogardistoj. Sed por kio mi parolas? … (al
 
-la enpaŝanta Nagelschmidt\) Karolo … mi
+la enpaŝanta Nagelschmidt) Karolo … mi
 
 mortigis mian edzinon … Mi ne devus lasi
 
-ŝin iri. ŝi mortis viktime de mia malkuraĝo. 
+ŝin iri. ŝi mortis viktime de mia malkuraĝo.
 
-Mildanima virino … kun preĝsimila peticio. 
+Mildanima virino … kun preĝsimila peticio.
 
-Mi ĵetis ŝin al la fiuloj kiel peticion. 
+Mi ĵetis ŝin al la fiuloj kiel peticion.
 
 MÜLLER
 
 Vi ja scias, ŝi insistis …
 
-70
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
@@ -4450,13 +4287,13 @@ rigardos ŝian malfortecon pli favorkore. Ilia
 
 koro ekkompatos la oferindan ŝafon. La san-
 
-gon de Isaako petis la Di-Sinjoro nur prove. 
+gon de Isaako petis la Di-Sinjoro nur prove.
 
 Tiun de Elinjo Li akceptis. Li forgesis la an-
 
-ĝelon, kiu ĝustatempe retenus mian manon. 
+ĝelon, kiu ĝustatempe retenus mian manon.
 
-NAGELSCHMIDT Aliulan kulpon ne prenu sur vin, Mikelo\! 
+NAGELSCHMIDT Aliulan kulpon ne prenu sur vin, Mikelo!
 
 KOLHAAS
 
@@ -4470,77 +4307,73 @@ viroj ni serĉu la veron per armeo de petici-
 
 antaj virinoj, pri kies ŝajno ni finfine kon-
 
-tentiĝus. 
+tentiĝus.
 
 MARIA
 
-\(Venas kun Herse. ŝi premas la pendujon en la
+(Venas kun Herse. ŝi premas la pendujon en la
 
 mano de Kolhaas al sia vizaĝo kaj kisas ĝin. ŝi
 
-eksplodas en laŭtan ploron.\)
+eksplodas en laŭtan ploron.)
 
 KOLHAAS
 
 Ni elfalis, Maria, el la graco de Dio. Sed eĉ el
 
-Lia intenco. \(Ie el la ĝardeno aŭdiĝas la kan-
+Lia intenco. (Ie el la ĝardeno aŭdiĝas la kan-
 
 to de Henriko: ”Kiu estas ŝi, kiu venas el la de-
 
-zerto …\) Kiu estas ŝi, kiu venas el la dezerto
+zerto …) Kiu estas ŝi, kiu venas el la dezerto
 
-kiel kolono de fumo? Kiu? \(De ekstere aŭdi-
+kiel kolono de fumo? Kiu? (De ekstere aŭdi-
 
-ĝas orgenado indikanta la finon de la diservo. 
+ĝas orgenado indikanta la finon de la diservo.
 
 Nagelschmidt abrupte paŝas al la fenestro, vo-
 
 las preni la fusilon de sur la tablo, Kolhaas ne
 
-permesas al li.\)
+permesas al li.)
 
-71
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MARIA
 
-\(time\) Tribunalaj servistoj\! 
+(time) Tribunalaj servistoj!
 
 VOĉO
 
-\(de ekstere\) Nagelschmidt\! 
+(de ekstere) Nagelschmidt!
 
 KOLHAAS
 
-\(prenas la armilon en la manojn, malfermas la
+(prenas la armilon en la manojn, malfermas la
 
-fenestron.\) Mi mem respondos. \(Pafas. Tri-
+fenestron.) Mi mem respondos. (Pafas. Tri-
 
 bunala servisto ekkrias, Kolhaas turnas sin al
 
-Nagelschmidt.\) Kiom da ĉevaloj mi havas
+Nagelschmidt.) Kiom da ĉevaloj mi havas
 
-hejme? 
+hejme?
 
-NAGELSCHMIDT Sep. 
+NAGELSCHMIDT Sep.
 
 KOLHAAS
 
 Sep homoj, sep fusiloj, sep ĉevaloj. El la
 
-tombo ni ekmarŝos al Tronka. 
+tombo ni ekmarŝos al Tronka.
 
 KURTENO
 
-72
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 TRIA AKTO
 
@@ -4552,33 +4385,33 @@ Scenejo: kastelo de Tronka, kies pluraj apertaj
 
 manĝoĉambro, dekstre la ofica ejo de la
 
-kastelkomandanto, maldekstre familia kapeleto. 
+kastelkomandanto, maldekstre familia kapeleto.
 
-Kiam la kurteno leviĝas: fratino Antonia preĝas, 
+Kiam la kurteno leviĝas: fratino Antonia preĝas,
 
-en la granda manĝoĉambro sinjoroj festenas. 
+en la granda manĝoĉambro sinjoroj festenas.
 
-ĉeestas: barono Venceslao, barono Günther, 
+ĉeestas: barono Venceslao, barono Günther,
 
-Hinz, Kunz, Kallheim, prokuroro Zauner, 
+Hinz, Kunz, Kallheim, prokuroro Zauner,
 
 prokuroro Eibenmeyer. En la dekstra ĉambreto la
 
-kastelkomandanto kartludas kun la doganisto. 
+kastelkomandanto kartludas kun la doganisto.
 
 GÜNTHER
 
-Amikoj\! Baronaj moŝtoj, sinjoroj prokuroroj, 
+Amikoj! Baronaj moŝtoj, sinjoroj prokuroroj,
 
-mi petas silenton. 
+mi petas silenton.
 
 VENCESLAO
 
-\(tablokape\) Ni aŭdu Günther\! 
+(tablokape) Ni aŭdu Günther!
 
 PLURAJ
 
-Ni aŭdu, ni aŭdu\! 
+Ni aŭdu, ni aŭdu!
 
 GÜNTHER
 
@@ -4592,25 +4425,23 @@ PLURAJ
 
 Ni ja scias. Ni konas ĝin. Publika sekreto. Ne
 
-cervo, nek leporo. 
+cervo, nek leporo.
 
 GÜNTHER
 
 Ne cervo, nek leporo. Sed amazono. ĉu vi
 
-vidis ŝin? 
+vidis ŝin?
 
-73
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 PLURAJ
 
 Kiu ne vidis? Kiu ne admiris ŝin? Kiun ŝi ne
 
-delektis? 
+delektis?
 
 GÜNTHER
 
@@ -4618,35 +4449,35 @@ Jes ja, ni vidis ŝin. Sed kiu atentis al nia gasti-
 
 ganto? ĉu li alfajrumis almenaŭ unufoje pre-
 
-terfuĝantan sovaĝbeston? 
+terfuĝantan sovaĝbeston?
 
 HINZ
 
-Pafon ja ni ne aŭdis. 
+Pafon ja ni ne aŭdis.
 
 GÜNTHER
 
 ĉar li sonigis nur sian koron. Ili sidiĝis sur
 
-pitoreska herbejo, kaj … kion ili kantis? 
+pitoreska herbejo, kaj … kion ili kantis?
 
 KUNZ
 
-Disiĝi jam ne povas mi de ŝi … \(Ridado\)
+Disiĝi jam ne povas mi de ŝi … (Ridado)
 
 GÜNTHER
 
-Kaj kial? ĉar: \(li kantas\)
+Kaj kial? ĉar: (li kantas)
 
 Mi ekkonis ŝin, horo ho tre rava …
 
 ĉIUJ
 
-ekardis korp’, animo en amoro, 
+ekardis korp’, animo en amoro,
 
-ŝin nur vidas mi ekde temp’ tiama, 
+ŝin nur vidas mi ekde temp’ tiama,
 
-koron mian katenis ŝia bono, 
+koron mian katenis ŝia bono,
 
 disiĝi jam ne povas mi de ŝi …
 
@@ -4656,15 +4487,15 @@ Disiĝi jam ne povas mi de ŝi …
 
 VENCESLAO
 
-Sinjoro Kunz scias nome nur ĉi unu verson. 
+Sinjoro Kunz scias nome nur ĉi unu verson.
 
-\(Ili ridas.\)
+(Ili ridas.)
 
 KUNZ
 
 La postsekvon de la interkonatiĝo. La aferon
 
-plej gravan. 
+plej gravan.
 
 GÜNTHER
 
@@ -4674,49 +4505,47 @@ konteto, se ni ĉiuj havus iometon da ĉi-spe-
 
 caj postsekvoj. Kie estas, Venceslao, la kna-
 
-binoj de la pasinta fojo? 
+binoj de la pasinta fojo?
 
-74
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 HINZ
 
-\(entuziasme\) La knabinoj\! 
+(entuziasme) La knabinoj!
 
 VENCESLAO
 
-\(kantas\) Kie la knabinoj? 
+(kantas) Kie la knabinoj?
 
 ĉIUJ
 
-Kie la knabinoj, 
+Kie la knabinoj,
 
-la silke jupitoj, 
+la silke jupitoj,
 
 kun knabinoj tage, nokte
 
-La kiso dolĉas. 
+La kiso dolĉas.
 
 KUNZ
 
-La kiso dolĉas\! 
+La kiso dolĉas!
 
 VENCESLAO
 
-Sinjoro Kunz blovas jam denove la esencon\! 
+Sinjoro Kunz blovas jam denove la esencon!
 
 KUNZ
 
-Li blovas kaj atendas ĝin. 
+Li blovas kaj atendas ĝin.
 
-\(Ili ridas, intertintigas la pokalojn, trinkas.\)
+(Ili ridas, intertintigas la pokalojn, trinkas.)
 
-KASTELKOMANDANTO \(frapĵetas la kartojn, ekstaras, prenas sian mantelon\) La diablo forprenis nian partion. 
+KASTELKOMANDANTO (frapĵetas la kartojn, ekstaras, prenas sian mantelon) La diablo forprenis nian partion.
 
-Mi povas ekiri, por kolekti jupulinojn. 
+Mi povas ekiri, por kolekti jupulinojn.
 
 DOGANISTO
 
@@ -4726,37 +4555,35 @@ KASTELKOMANDANTO Kvazaŭ vi ne konus ilin. Kiam ili ekgur-das ”la silke jupito
 
 kapon, kiujn mi prenu el la kampoj. Sed ĝis
 
-ĉi tio nenio malfacilas. Oni alfajfas, ili venas. 
+ĉi tio nenio malfacilas. Oni alfajfas, ili venas.
 
-¯is la ĉaro. Sed ĉe la surĉarigo ili jam ŝrikas
+is la ĉaro. Sed ĉe la surĉarigo ili jam ŝrikas
 
 kiel porkidoj, iuj rezistas, sen vipo eĉ ne mo-
 
 viĝas kaj krivokas la patron. Tiam venas la
 
-patro, frato, bofrato, ili grincas la dentojn, 
+patro, frato, bofrato, ili grincas la dentojn,
 
 oni devas ilin enkarcerigi, kaj la laboro sufe-
 
-ras. Multan monon kostas al ni ĉi tiu kanto. 
+ras. Multan monon kostas al ni ĉi tiu kanto.
 
-75
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 VENCESLAO
 
-Komandanto\! 
+Komandanto!
 
-KASTELKOMANDANTO \(en\) Jes s’joro\! 
+KASTELKOMANDANTO (en) Jes s’joro!
 
 VENCESLAO
 
 Kie la knabinoj, la silke jupitoj …
 
-KASTELKOMANDANTO Kiom ordonas via moŝto? 
+KASTELKOMANDANTO Kiom ordonas via moŝto?
 
 VENCESLAO
 
@@ -4764,55 +4591,53 @@ Ni nombru … Günther, Hinz, Kunz, Kall-
 
 heim, Eibenmeyer …
 
-KASTELKOMANDANTO Bonvolu tiel kalkuli, ke ankaŭ sur la kampoj restu kelkaj. 
+KASTELKOMANDANTO Bonvolu tiel kalkuli, ke ankaŭ sur la kampoj restu kelkaj.
 
 VENCESLAO
 
-Tiel ni kalkulos. 
+Tiel ni kalkulos.
 
 KASTELKOMANDANTO Ni restos sen aveno. Estu permesite al mi rimarki, ke ĉi tiu kanto prenos ĉiun nian
 
-avenon. 
+avenon.
 
 VENCESLAO
 
-Jam denove vi prozorgas? 
+Jam denove vi prozorgas?
 
-KASTELKOMANDANTO ĉu tri sufiĉas? 
-
-VENCESLAO
-
-ĉaron da ili\! 
-
-KASTELKOMANDANTO ĉu urĝe aŭ post lavado? 
+KASTELKOMANDANTO ĉu tri sufiĉas?
 
 VENCESLAO
 
-Tiel, kiel ili statas. Kun tero kaj cetero. \(For\)
+ĉaron da ili!
 
-KASTELKOMANDANTO \(en la ĉambreto al la doganisto\) Restu ĉi tie por la kazo, se io ankoraŭ enkapiĝus al ili. 
+KASTELKOMANDANTO ĉu urĝe aŭ post lavado?
 
-\(Ekiras malsupren sur la longa ŝtuparo. La do-
+VENCESLAO
+
+Tiel, kiel ili statas. Kun tero kaj cetero. (For)
+
+KASTELKOMANDANTO (en la ĉambreto al la doganisto) Restu ĉi tie por la kazo, se io ankoraŭ enkapiĝus al ili.
+
+(Ekiras malsupren sur la longa ŝtuparo. La do-
 
 ganisto malfermas la fenestron, poste pretigas
 
-sin por dormi.\)
+sin por dormi.)
 
 GÜNTHER
 
 Sed ankaŭ ĝis tiam: ĉu gustumeto da jupu-
 
-linoj ne troviĝas en via tuta rezidejo? 
+linoj ne troviĝas en via tuta rezidejo?
 
-76
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KUNZ
 
-Kie la knabinoj? La kiso dolĉas. 
+Kie la knabinoj? La kiso dolĉas.
 
 VENCESLAO
 
@@ -4820,47 +4645,47 @@ Se ne ni honoros fratinon Antonia per fin-
 
 gringo da vino …
 
-\(Fratino Antonia, kiun la festenado ankaŭ pli
+(Fratino Antonia, kiun la festenado ankaŭ pli
 
-frue ĝenis, komencas subaŭskulti ĉe la pordo.\)
+frue ĝenis, komencas subaŭskulti ĉe la pordo.)
 
 HINZ
 
-Kun la fratino tage, nokte dolĉas la kiso. \(Ili
+Kun la fratino tage, nokte dolĉas la kiso. (Ili
 
-ridas.\)
+ridas.)
 
 KUNZ
 
-\(kantas\)
+(kantas)
 
 Frateto marŝetis ame
 
 kun fratino man-en-mane
 
-Majo estis, aj, aj, oj, oj\! 
+Majo estis, aj, aj, oj, oj!
 
 VENCESLAO
 
-\(atentige\) Fianĉino de Jesuo. 
+(atentige) Fianĉino de Jesuo.
 
 GÜNTHER
 
-Jesuo foras. Ni pli proksimas. \(Rido.\)
+Jesuo foras. Ni pli proksimas. (Rido.)
 
 VENCESLAO
 
-Fratino Antonia\! 
+Fratino Antonia!
 
 ANTONIA
 
-\(en, ektime\) Mi preĝis ĝuste …
+(en, ektime) Mi preĝis ĝuste …
 
 VENCESLAO
 
 Nur gluteton … Buŝpleneton … Belega fian-
 
-ĉino de Jesuo. \(karesas ŝin, post kio la aliaj ĵe-
+ĉino de Jesuo. (karesas ŝin, post kio la aliaj ĵe-
 
 tas sin sur ŝin. Ili deŝiras ŝian vestaĵon, kisadas
 
@@ -4868,75 +4693,73 @@ tas sin sur ŝin. Ili deŝiras ŝian vestaĵon, kisadas
 
 buŝon trinkigas ŝin, kaptadas ŝin el brako en
 
-brakon. Voĉoj: ”Fianĉino de Jesuo\! Rosfreŝa
+brakon. Voĉoj: ”Fianĉino de Jesuo! Rosfreŝa
 
-korpo\! Sentuŝiteco\! Senkulpeco\! Frateto marŝe-
+korpo! Sentuŝiteco! Senkulpeco! Frateto marŝe-
 
-tis ame\! Kun fratino man-en-mane\!”\)
+tis ame! Kun fratino man-en-mane!”)
 
 ANTONIA
 
-Lasu min\! Helpo\! Jesuo mia, helpo\! 
+Lasu min! Helpo! Jesuo mia, helpo!
 
-77
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 VENCESLAO
 
-Kie estas Jesuo? Li tre distas\! 
+Kie estas Jesuo? Li tre distas!
 
 ANTONIA
 
-Helpo\! Jesuo mia, helpo\! Doktoro Luther\! 
+Helpo! Jesuo mia, helpo! Doktoro Luther!
 
-Doktoro Luther\! Helpo\! Sovaĝbestoj\! Vi ĉiuj
+Doktoro Luther! Helpo! Sovaĝbestoj! Vi ĉiuj
 
-venos al la infero. \(Voĉoj: ”Dolĉa povas esti la
+venos al la infero. (Voĉoj: ”Dolĉa povas esti la
 
-infero kun fratino Antonia\! Ni ĉiuj falegos en la
+infero kun fratino Antonia! Ni ĉiuj falegos en la
 
-inferon\! Kun ŝi kaj per ŝi\!”\)
+inferon! Kun ŝi kaj per ŝi!”)
 
 VENCESLAO
 
-\(vidante, ke la fratino prenas tranĉilon\) La
+(vidante, ke la fratino prenas tranĉilon) La
 
-tranĉilon\! Forprenu de ŝi la tranĉilon\! 
+tranĉilon! Forprenu de ŝi la tranĉilon!
 
 ANTONIA
 
-Dio pardonu vin\! \(Puŝas la tranĉilon en la
+Dio pardonu vin! (Puŝas la tranĉilon en la
 
-koron.\)
+koron.)
 
 VENCESLAO
 
-\(post kiam en konsterna silento oni kovras la
+(post kiam en konsterna silento oni kovras la
 
-mortinton\) Mi ja forgesis doktoron Luther. 
+mortinton) Mi ja forgesis doktoron Luther.
 
 Morgaŭ li devus inici nin ĉiujn en la refor-
 
-mitan religion. 
+mitan religion.
 
 KALLHEIM
 
-Oni ekscios la aferon supre en la kortego. 
+Oni ekscios la aferon supre en la kortego.
 
 EIBENMEYER
 
 Vi ofertos kelkajn el viaj papistaj parencoj al
 
-la reformacio. 
+la reformacio.
 
 ZAUNER
 
 Tra deĵorantaj oreloj tuj ekaŭdos tion ankaŭ
 
-la princo elektisto. 
+la princo elektisto.
 
 EIBENMEYER
 
@@ -4944,25 +4767,23 @@ Se tiel, jam nun oni povas pligrandigi la
 
 oferton da parencoj. Ni enterigos ŝin en la
 
-ĝardeno. 
+ĝardeno.
 
 GÜNTHER
 
 Sinjoro prokuroro Zauner, ni esperas, vi ne
 
-apartenas al la deĵorantaj oreloj. 
+apartenas al la deĵorantaj oreloj.
 
-78
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ZAUNER
 
 Mi esperas: nek sinjoro prokuroro Eibenme-
 
-yer. 
+yer.
 
 EIBENMEYER
 
@@ -4980,49 +4801,47 @@ amiko, drinkkamarado. Aŭ nek li, nur lia
 
 orelo, kiu fremdiĝinte de sia mastro, mem-
 
-stariĝinte, sen ties konscia konsento laboras, 
+stariĝinte, sen ties konscia konsento laboras,
 
-tio estas subaŭskultas. Mi diras ekzemplon. 
+tio estas subaŭskultas. Mi diras ekzemplon.
 
 Nia amiko prokuroro Francisko Müller, kiu
 
-ne ĉeestas, ĉu ne, kiel priavancis nin ĉiujn, 
+ne ĉeestas, ĉu ne, kiel priavancis nin ĉiujn,
 
 kaj promociiĝis ĵusnune imperiestra proku-
 
 roro? Ankoraŭ ne scieblas, ĉu ne sur niaj
 
-dorsoj li tranĉis al si ŝtuparon por la leviĝo? 
+dorsoj li tranĉis al si ŝtuparon por la leviĝo?
 
-\(Lanco enflugas, kaj frapiĝas en trabon. Ven-
+(Lanco enflugas, kaj frapiĝas en trabon. Ven-
 
-ceslao prenas paperrulaĵon de ĝi.\)
+ceslao prenas paperrulaĵon de ĝi.)
 
 VENCESLAO
 
-Deĵorantaj Oreloj, atenton\! Sennecese, teru-
+Deĵorantaj Oreloj, atenton! Sennecese, teru-
 
 radi unu la alian. Jen legeblas timigo por ni
 
-ĉiuj. \(Legas.\) Al barono de Tronka kaj liaj
+ĉiuj. (Legas.) Al barono de Tronka kaj liaj
 
 kompanoj. Aŭdu min, vi degenerinto disde
 
 Dio, predisto misnaskita el mikso de hunda
 
-fikemo kaj azena seksardo\! Mi alvokas vin, 
+fikemo kaj azena seksardo! Mi alvokas vin,
 
 restituu al mi en dudekkvar horoj du miajn
 
-79
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 konfiskitajn ĉevalojn, kvindek groŝojn ŝteli-
 
-tajn el mia poŝo, la alproprigitajn mantelon, 
+tajn el mia poŝo, la alproprigitajn mantelon,
 
 ĉapelon kaj vojaĝsakon de mia servisto Her-
 
@@ -5036,7 +4855,7 @@ kaj pippurigilon, en kontraŭa kazo mi bruli-
 
 gos vian kastelon, ebenigos ĝin kun viaj te-
 
-roj, kaj vin kune kun via amiko Günther, 
+roj, kaj vin kune kun via amiko Günther,
 
 inde distranĉitajn manĝigos per viaj korpaj-
 
@@ -5044,15 +4863,15 @@ animaj proksimuloj, la porkoj. Dato en
 
 Schwerin, anno domini, kaj tiel plu, subskri-
 
-bo: Mikelo Kolhaas, arkanĝelo. 
+bo: Mikelo Kolhaas, arkanĝelo.
 
-\(Konsterna silento. De ie paŝobruo.\)
+(Konsterna silento. De ie paŝobruo.)
 
 KUNZ
 
-\(kun timo\) Venas la knabinoj. 
+(kun timo) Venas la knabinoj.
 
-\(Günther estas kaptita de konvulsia ridego. Iom
+(Günther estas kaptita de konvulsia ridego. Iom
 
 post iom ĉiuj komencas ridegi. Dume Nagel-
 
@@ -5060,71 +4879,69 @@ schmidt, poste Herse ensaltas tra la fenestro de
 
 la malgranda ĉambro. Ili kaptas la dormantan
 
-doganiston.\)
+doganiston.)
 
 HERSE
 
-ĉu ni tradraŝu lin? 
+ĉu ni tradraŝu lin?
 
-NAGELSCHMIDT \(signalas, ke ili elĵetos lin tra la fenestro\) ĉi tiu sonĝos, ke li flugas. Se dumfluge al li kreskos
+NAGELSCHMIDT (signalas, ke ili elĵetos lin tra la fenestro) ĉi tiu sonĝos, ke li flugas. Se dumfluge al li kreskos
 
-flugiloj, li saviĝos. 
+flugiloj, li saviĝos.
 
-\(Ili elĵetas lin. Post kelka tempo hurlado.\)
+(Ili elĵetas lin. Post kelka tempo hurlado.)
 
-80
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 HERSE
 
-Ne kreskis. 
+Ne kreskis.
 
-\(Paŝobruo. La sinjoroj ridegas. Sur la ŝtuparo
+(Paŝobruo. La sinjoroj ridegas. Sur la ŝtuparo
 
-aperas du pliaj armitaj ĉevalistoj.\)
+aperas du pliaj armitaj ĉevalistoj.)
 
 VENCESLAO
 
-Kaj ankaŭ la pippurigilon\! \(Ili ridas.\)
+Kaj ankaŭ la pippurigilon! (Ili ridas.)
 
 GÜNTHER
 
-Ankaŭ la tindron\! 
+Ankaŭ la tindron!
 
 HINZ
 
-La fajroŝtonon\! \(Ili sufokiĝas pro ridego.\)
+La fajroŝtonon! (Ili sufokiĝas pro ridego.)
 
-\(En la malantaŭa pordo aperas Kolhaas. Al la
+(En la malantaŭa pordo aperas Kolhaas. Al la
 
 sinjoroj suspendiĝas la spiro. Nur Venceslao
 
 ankoraŭ ridegas, ĉar li ne vidas Kolhaas. El la
 
-malgranda ĉambro enpaŝas Nagelschmidt, 
+malgranda ĉambro enpaŝas Nagelschmidt,
 
 Herse kaj la ceteraj du ĉevalistoj. Pliaj tri ĉeva-
 
-listoj post Kolhaas.\)
+listoj post Kolhaas.)
 
 KOLHAAS
 
-\(antaŭeniĝas. Venceslao eltiras la glavon, Kol-
+(antaŭeniĝas. Venceslao eltiras la glavon, Kol-
 
-haas elbatas ĝin per unu movo el lia mano.\)
+haas elbatas ĝin per unu movo el lia mano.)
 
 Vian vivon mi ne bezonas, sinjoro. Mi pli
 
 insistas pri la pippurigilo. Kaj post grasigo:
 
-pri miaj ĉevaloj. 
+pri miaj ĉevaloj.
 
 VENCESLAO
 
-La ĉevalojn forportis la senfeligisto. 
+La ĉevalojn forportis la senfeligisto.
 
 KOLHAAS
 
@@ -5132,27 +4949,25 @@ KOLHAAS
 
 bedaŭras, barona moŝto. Vi postiros ilin sur
 
-la ĉevalo de la Osta Falĉisto. 
+la ĉevalo de la Osta Falĉisto.
 
 NAGELSCHMIDT Por la ĝojo de la senfeligistoj ni devos fari el vi hundonutraĵon. Mi nur ne scias, laŭ kiu
 
 recepto prepari ĝin: ĉu kun kaĉo aŭ miksitan
 
-kun brano. 
+kun brano.
 
-81
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
-Pardonu al li, se li iom neelekteme parolas. 
+Pardonu al li, se li iom neelekteme parolas.
 
 VENCESLAO
 
-Ankaŭ via alvoko ne tro diferencas. 
+Ankaŭ via alvoko ne tro diferencas.
 
 KOLHAAS
 
@@ -5160,13 +4975,13 @@ Helpis li en la konceptado. Bedaŭrinde an-
 
 kaŭ la sciigon pri via morto mi publikigos
 
-pere de li. Je elektema stilo do ne kalkulu, 
+pere de li. Je elektema stilo do ne kalkulu,
 
-barona moŝto. 
+barona moŝto.
 
 VENCESLAO
 
-\(senespere\) Komandanto\! 
+(senespere) Komandanto!
 
 KOLHAAS
 
@@ -5174,7 +4989,7 @@ Ankaŭ je la gardistoj ne kalkulu. Ili jam dor-
 
 mas — aliloke en la transmondo. La koman-
 
-danto same. 
+danto same.
 
 VENCESLAO
 
@@ -5188,7 +5003,7 @@ tojn …
 
 KOLHAAS
 
-Havis. 
+Havis.
 
 HINZ
 
@@ -5196,49 +5011,47 @@ En Lützen mi havas kvindekkapan trupon …
 
 KOLHAAS
 
-Kiu disfalis. 
+Kiu disfalis.
 
-NAGELSCHMIDT Kune kun via kastelo, sinjoro. 
+NAGELSCHMIDT Kune kun via kastelo, sinjoro.
 
 KUNZ
 
-Kaj Pleissenburg? 
+Kaj Pleissenburg?
 
 KOLHAAS
 
-¯ispolve bruligita. 
+ispolve bruligita.
 
 KALLHEIM
 
 Mia intendanto en Vitenbergo iel sciiĝos pri
 
-la afero. 
+la afero.
 
 KOLHAAS
 
 Vitenbergo estas indulgita. La sola escepto:
 
-via kastelo, prokurora moŝto Kallheim. 
+via kastelo, prokurora moŝto Kallheim.
 
-82
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 EIBENMEYER
 
-Kaj Lejpcigo? 
+Kaj Lejpcigo?
 
 KOLHAAS
 
 En Lejpcigo montriĝis la domo de prokuro-
 
-ra moŝto Eibenmeyer superflua. 
+ra moŝto Eibenmeyer superflua.
 
 EIBENMEYER
 
-Kaj mia familio? La domanoj? 
+Kaj mia familio? La domanoj?
 
 KOLHAAS
 
@@ -5248,7 +5061,7 @@ havis. Sinjoro Zauner trankviliĝu, Dresde-
 
 non ni ne tuŝis. ĉu iu ankoraŭ intencas inte-
 
-resiĝi pri sia bonfarto? 
+resiĝi pri sia bonfarto?
 
 GÜNTHER
 
@@ -5256,7 +5069,7 @@ Kun ordinaraj servutuloj ribelantaj, banditoj
 
 kaj infanmurdistoj ni ne konversacias. En
 
-Jassen mi havas arsenalon, soldularon. 
+Jassen mi havas arsenalon, soldularon.
 
 KOLHAAS
 
@@ -5266,19 +5079,19 @@ monigis ĉion mian. Samkiel sinjorido Ven-
 
 ceslao senigis min je ĉio. Je mia paca inten-
 
-co kaj patrino de miaj infanoj. 
+co kaj patrino de miaj infanoj.
 
 GÜNTHER
 
-Mia patro sciiĝos prie. 
+Mia patro sciiĝos prie.
 
-NAGELSCHMIDT Nur jam en la ĉielo. Se fakte li tien venis. 
+NAGELSCHMIDT Nur jam en la ĉielo. Se fakte li tien venis.
 
 GÜNTHER
 
-Ankaŭ lin vi murdis\! Hundoj\! 
+Ankaŭ lin vi murdis! Hundoj!
 
-\(Günther ĵetas sin sur Kolhaas, kiun de malan-
+(Günther ĵetas sin sur Kolhaas, kiun de malan-
 
 taŭe ankaŭ Venceslao ekatakas. Komenciĝas
 
@@ -5286,37 +5099,35 @@ taŭe ankaŭ Venceslao ekatakas. Komenciĝas
 
 ĉevalistoj post ili. Nagelschmidt mortpikas
 
-Günther, poste ĵetas sin sur Zauner.\)
+Günther, poste ĵetas sin sur Zauner.)
 
 KOLHAAS
 
-Zauner ne tuŝu\! 
+Zauner ne tuŝu!
 
-83
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ZAUNER
 
 Dankon, sinjoro Kolhaas. Mi rekompencos
 
-vin. \(For\)
+vin. (For)
 
 KOLHAAS
 
-\(kaptinte Venceslaon ĉebruste\) ŝnuron, Karo-
+(kaptinte Venceslaon ĉebruste) ŝnuron, Karo-
 
-lo\! 
+lo!
 
-NAGELSCHMIDT Feron al li, ne ŝnuron\! \(Elkurante.\) Herse. 
+NAGELSCHMIDT Feron al li, ne ŝnuron! (Elkurante.) Herse.
 
-ŝnureton al la Tronkaano\! 
+ŝnureton al la Tronkaano!
 
 VENCESLAO
 
-Ni dividos ĝin. Unu fino ĉirkaŭos vian kolon. 
+Ni dividos ĝin. Unu fino ĉirkaŭos vian kolon.
 
 KOLHAAS
 
@@ -5332,19 +5143,19 @@ tribunalaj konstruaĵoj; preter la justodonaj
 
 potenculoj; unue mi montros vin al la leĝo
 
-— nome de la leĝo … \(Ellasas Venceslaon; \(ĉi
+— nome de la leĝo … (Ellasas Venceslaon; (ĉi
 
 tiu regresas al la enirejo de la kapelo. Li malfer-
 
-mus ĝin, sed la pordo estas ŝlosita.\)
+mus ĝin, sed la pordo estas ŝlosita.)
 
 VENCESLAO
 
-Kiu punfrapos vin. 
+Kiu punfrapos vin.
 
 KOLHAAS
 
-Vi eraras, fiĝermo de rato\! Mi jam staras
+Vi eraras, fiĝermo de rato! Mi jam staras
 
 eksterleĝe. Ekster ĉio, kion iam mi konside-
 
@@ -5352,7 +5163,7 @@ ris deviga, diodevena. Eĉ la propran morton
 
 mi transpasis. Mi loĝas, kie mia edzino: en
 
-Nenio, en tombejo. 
+Nenio, en tombejo.
 
 VENCESLAO
 
@@ -5362,15 +5173,13 @@ trenadis eĉ elsubtere sur brulŝtiparon. Ne
 
 fidu al via unusola feliĉa horo, Kolhaas. Vi
 
-84
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ne havas armeon tiel grandan, kiel la duko
 
-de Meissen, de la princo elektisto. 
+de Meissen, de la princo elektisto.
 
 KOLHAAS
 
@@ -5410,99 +5219,95 @@ doj. Nun mi mem prenas la leĝon en la ma-
 
 non, la leĝon, kiu devus gardi min. Miajn
 
-rajtojn. \(Elĵetas brulantan torĉon tra la fenes-
+rajtojn. (Elĵetas brulantan torĉon tra la fenes-
 
-tro.\)
+tro.)
 
 VENCESLAO
 
-Rajtojn de bruligisto? 
+Rajtojn de bruligisto?
 
 KOLHAAS
 
-\(elĵetas plian torĉon\) Mian hejmon. Edzinon. 
+(elĵetas plian torĉon) Mian hejmon. Edzinon.
 
-\(Post la tria torĉo.\) Mian pacan intencon. 
+(Post la tria torĉo.) Mian pacan intencon.
 
 VENCESLAO
 
-Kiu jen, estis mensogo. 
+Kiu jen, estis mensogo.
 
-85
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 KOLHAAS
 
 ĉar mi konstruis sur akvo. Sur mensogoj de
 
-instancoj. Sur mia facilkredemo\! \(Fumo salt-
+instancoj. Sur mia facilkredemo! (Fumo salt-
 
-leviĝas el la kastela korto.\) Bela incensa fumo, 
+leviĝas el la kastela korto.) Bela incensa fumo,
 
 ĉu ne? Fumo de miaj peticioj. De la atenda-
 
 toj. De la petskribo, kiun oni elbatis per lan-
 
-co el la mano de mia Elinjo. Elinjo\! Kiu par-
+co el la mano de mia Elinjo. Elinjo! Kiu par-
 
 donos al mi, ke mi ĵetis ŝin inter la lancojn
 
-de korpogardistoj?\! Kaj kion ja mi komencus
+de korpogardistoj?! Kaj kion ja mi komencus
 
 kun la pardono? Kion mi komencos, Tron-
 
-kaano? Genuen, fripono\! Mi aŭdu vian las-
+kaano? Genuen, fripono! Mi aŭdu vian las-
 
-tan preĝon\! 
+tan preĝon!
 
 VENCESLAO
 
-Indulgon, Kolhaas\! Ankaŭ vi estas en la
+Indulgon, Kolhaas! Ankaŭ vi estas en la
 
-mano de Dio. 
+mano de Dio.
 
 KOLHAAS
 
-Estis. Nun jam mi estas lia mano. 
+Estis. Nun jam mi estas lia mano.
 
-\(La virinoj, rifuĝintaj en la kapelon, kantas.\)
+(La virinoj, rifuĝintaj en la kapelon, kantas.)
 
 Indulgu min Dio
 
-pro kulpemo mia, 
+pro kulpemo mia,
 
 kompatu al koro
 
 ĉi melankolia …
 
-NAGELSCHMIDT \(enkuras kun ŝnuro en la mano\) Brulas la foj-nejoj. 
+NAGELSCHMIDT (enkuras kun ŝnuro en la mano) Brulas la foj-nejoj.
 
 KOLHAAS
 
-Ili brulu\! 
+Ili brulu!
 
-NAGELSCHMIDT ĉu mi ligu lin? 
+NAGELSCHMIDT ĉu mi ligu lin?
 
 KOLHAAS
 
-Nenecese. Mi kondamnis lin al morto. 
+Nenecese. Mi kondamnis lin al morto.
 
-86
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 VENCESLAO
 
-Indulgu min\! Jesuo ĉi-apudas\! Jesuo sur la
+Indulgu min! Jesuo ĉi-apudas! Jesuo sur la
 
 kruco. En via proksimo …
 
-NAGELSCHMIDT Fia hipokritulo\! 
+NAGELSCHMIDT Fia hipokritulo!
 
 KOLHAAS
 
@@ -5510,41 +5315,41 @@ Lia kruco validas mola kuseno rilate al la
 
 mia, sur kiun vi surnajlis min, murdisto de
 
-Elinjo\! 
+Elinjo!
 
-NAGELSCHMIDT Unue ni devus iom rosti lin. 
+NAGELSCHMIDT Unue ni devus iom rosti lin.
 
 KOLHAAS
 
 Mi nur suferas, vidante lin viva. Li mortaĉu
 
-laŭeble plej rapide\! 
+laŭeble plej rapide!
 
-NAGELSCHMIDT For la ŝakristojn de ĉi tie\! 
+NAGELSCHMIDT For la ŝakristojn de ĉi tie!
 
-\(ĉi-momente enpaŝas Marteno Luther.\)
+(ĉi-momente enpaŝas Marteno Luther.)
 
 LUTHER
 
-Mikelo Kolhaas\! Kolhaas\! Kion vi arogas al
+Mikelo Kolhaas! Kolhaas! Kion vi arogas al
 
-vi? Kiel vi aŭdacas enrompi armile ĉi tien? 
+vi? Kiel vi aŭdacas enrompi armile ĉi tien?
 
 Blindigita homo, malfermu la okulojn: antaŭ
 
-kiu vi staras? 
+kiu vi staras?
 
 KOLHAAS
 
 Antaŭ persono plej kara al mia koro, kiun
 
-iam ajn mi konis. Doktoro Luther. 
+iam ajn mi konis. Doktoro Luther.
 
 LUTHER
 
 Rigardu al la vundoj de la Nazaretano, ne al
 
-mi, vi fatale misvojinta malfeliĉulo\! Kiel vi
+mi, vi fatale misvojinta malfeliĉulo! Kiel vi
 
 povis ŝajnigi vin esti la misiito de la ĉiela
 
@@ -5556,29 +5361,27 @@ vi mem juĝu super kristanoj laŭ propra kapo
 
 kaj mapo en la ebrio de venĝemo? Kiel vi
 
-87
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 sola povas serĉi vian veron, se ankaŭ vi mem
 
-estas ĝisoste infektita per maljusto? 
+estas ĝisoste infektita per maljusto?
 
 KOLHAAS
 
-Kun tristo, via pastra moŝto. 
+Kun tristo, via pastra moŝto.
 
 LUTHER
 
-Por la homa tristo estas promesita konsolo; 
+Por la homa tristo estas promesita konsolo;
 
-por maljusto damno. 
+por maljusto damno.
 
 KOLHAAS
 
-Kun mi okazis maljusto. 
+Kun mi okazis maljusto.
 
 LUTHER
 
@@ -5600,7 +5403,7 @@ princon elektiston? Kiu retiris vian rajton
 
 ricevi laŭleĝan rekompencon pere de la su-
 
-perularo? 
+perularo?
 
 KOLHAAS
 
@@ -5624,11 +5427,9 @@ kaj ankaŭ trans via morto? Via proceso ha-
 
 vos tiamaniere neniam finon. Kiel vi povos
 
-88
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 akuzi la teran superularon en la ĉielo, se tiu
 
@@ -5640,7 +5441,7 @@ gogutantaj manoj neniam mi vidis, des mal-
 
 pli mi mistraktis lin. Tion povos diri la supe-
 
-rularo antaŭ la trono de Dio. Kaj ĝi pravos. 
+rularo antaŭ la trono de Dio. Kaj ĝi pravos.
 
 Anstataŭ proprajuĝado kial vi ne pli humi-
 
@@ -5664,13 +5465,13 @@ revolton. Ho karaj sinjoroj, kun kia plezuro
 
 la Sinjoro batos inter vi, maljunaj argilaĵoj
 
-per sia ferbastono\! ĉi tiujn vortojn diris
+per sia ferbastono! ĉi tiujn vortojn diris
 
-Münzer, nun jen, oni atribuas ilin al vi. 
+Münzer, nun jen, oni atribuas ilin al vi.
 
 KOLHAAS
 
-ĉi tiujn vortojn mi ne elparolis, sinjoro. 
+ĉi tiujn vortojn mi ne elparolis, sinjoro.
 
 LUTHER
 
@@ -5680,43 +5481,41 @@ ligadojn, manifestojn najlitajn sur la muro
 
 de kasteloj. Vian tutan senesperan entrepre-
 
-non. La plej bona el miaj plej bonaj adeptoj, 
+non. La plej bona el miaj plej bonaj adeptoj,
 
-89
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-Kolhaas\! Kiel vi povis tiom forpuŝi vin de
+Kolhaas! Kiel vi povis tiom forpuŝi vin de
 
-Dio? 
+Dio?
 
 KOLHAAS
 
-Mi helpis mian esperon, via pastra moŝto, 
+Mi helpis mian esperon, via pastra moŝto,
 
-per mia senespero. 
+per mia senespero.
 
 LUTHER
 
-Kia esprimo\! Per senespero\! Via senespero
+Kia esprimo! Per senespero! Via senespero
 
 meritas ŝtiparfajron. ĉu nun vi uzas ĉi tiun
 
 paganan vorton, kiam nia liberigita religio
 
-definitive solidiĝas? 
+definitive solidiĝas?
 
 KOLHAAS
 
-ĉio solidiĝas. Nur mia vivo kolapsis. 
+ĉio solidiĝas. Nur mia vivo kolapsis.
 
 LUTHER
 
 ĉar vi estas egoisto, blindigita en via mal-
 
-feliĉo kaj malamiko de nia reformita kredo. 
+feliĉo kaj malamiko de nia reformita kredo.
 
 Se vi ne scius, Romo preparas sin al nova
 
@@ -5724,23 +5523,23 @@ atako, ne via ĉevalo kaj sako: la afero de ni
 
 ĉiuj staras sur la karto, ni bezonas konkor-
 
-don, kaj ne diskordon. 
+don, kaj ne diskordon.
 
 KOLHAAS
 
-Tiel devus esti. 
+Tiel devus esti.
 
-NAGELSCHMIDT Via pastra moŝto\! La imperiestron vi mem nomis tirano kaj la saksan princon porko? 
+NAGELSCHMIDT Via pastra moŝto! La imperiestron vi mem nomis tirano kaj la saksan princon porko?
 
 Ke unu doganon post la alia, unu imposton
 
 post alia postulante ili agas, ke tio eĉ de ra-
 
-bistoj kaj friponoj trous — vi mem diris tion, 
+bistoj kaj friponoj trous — vi mem diris tion,
 
 via pastra moŝto, antaŭ la granda popolle-
 
-viĝo? 
+viĝo?
 
 LUTHER
 
@@ -5748,11 +5547,9 @@ LUTHER
 
 historio ĉiu horo havas alian ordonon, kaj io
 
-90
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ĉiam pli gravas, ol estis antaŭe, tiu ne aŭda-
 
@@ -5762,7 +5559,7 @@ afero estas la reformacio, nia komuna mal-
 
 amiko estas Romo. En Parizo kaj Venecio
 
-oni tiras niajn samkredanojn al brulŝtiparo\! 
+oni tiras niajn samkredanojn al brulŝtiparo!
 
 La papistoj ne diferencas laŭ bienuloj kaj
 
@@ -5774,13 +5571,13 @@ nivelo de la pensado de kvarpieduloj murda-
 
 das ĉi-lande tiujn, kiuj revenis al la pura
 
-evangelio? 
+evangelio?
 
 KOLHAAS
 
 Ankaŭ mia edzino, fidelĵurinta kunulino re-
 
-venis, sinjoro. ĉu vi scias, kio okazis kun ŝi? 
+venis, sinjoro. ĉu vi scias, kio okazis kun ŝi?
 
 LUTHER
 
@@ -5808,35 +5605,33 @@ no la Sinjoro alparolas vin: pardonu al viaj
 
 ŝuldantoj …
 
-91
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-\(Je la mansigno de Luther Venceslao paŝas
+(Je la mansigno de Luther Venceslao paŝas
 
-apud Kolhaas.\)
+apud Kolhaas.)
 
 KOLHAAS
 
 Mi ne povas fari, via pastra moŝto. Eĉ preze
 
-de mia saviĝo. 
+de mia saviĝo.
 
-\(En la kvar anguloj de la kastelo eksonas kor-
+(En la kvar anguloj de la kastelo eksonas kor-
 
-noj.\)
+noj.)
 
 LUTHER
 
 La komuna armeo de la duko de Meissen kaj
 
-la reganta princo. Ne mi venigis ĝin kontraŭ
+la reganta princo. Ne mi venigis ĝntraŭ
 
 vi. Kvankam mi devus tion fari. ĉu vi ne do-
 
-nos al mi la manon, Kolhaas? 
+nos al mi la manon, Kolhaas?
 
 KOLHAAS
 
@@ -5860,7 +5655,7 @@ ion ajn retiri, ĉar nek konsilindas, nek salut-
 
 indas ion ajn fari kontraŭ nia konscienco. Mi
 
-malhavas la intencon kompari min kun viro, 
+malhavas la intencon kompari min kun viro,
 
 antaŭ kiu nun mi staras, kiun dekomence mi
 
@@ -5870,11 +5665,9 @@ er. Mi ne havas instruojn; mi povis doni ne-
 
 nion grandan, valoran al la homoj, kies reti-
 
-92
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ron iu ajn postulus de mi. Sed kiom nesigni-
 
@@ -5882,7 +5675,7 @@ fa estas mia persono: tiom terura kaj neripa-
 
 rebla estas mia perdo. Vi certe pravas: ĉio ĉi
 
-grandas kiel polvero en via potenca vero. 
+grandas kiel polvero en via potenca vero.
 
 Sed kiu kulpas pri tio, ke kiel polveron ni
 
@@ -5926,19 +5719,17 @@ viro, la iama doktoro Marteno Luther same
 
 rektiĝis en la imperiestra asembleo en
 
-93
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 Worms, kaj diris: jen ĉi tie mi staras, alie agi
 
-mi ne povas. Dio min tiel helpu, amen. 
+mi ne povas. Dio min tiel helpu, amen.
 
 LUTHER
 
-\(pli milde\) La iama Marteno Luther ankaŭ
+(pli milde) La iama Marteno Luther ankaŭ
 
 hodiaŭ pretas morti por la vero de la Filo de
 
@@ -5954,7 +5745,7 @@ paŝas kaj difektiĝas. ĉar kiu troviĝas inter la
 
 vivuloj, tiu havas esperon; ĉar eĉ al hundo
 
-vivanta estas pli bone, ol al leono mortinta. 
+vivanta estas pli bone, ol al leono mortinta.
 
 Sufiĉa puno estas por ni la konscio pri la
 
@@ -5962,25 +5753,25 @@ morto. Por ties plenumiĝo necesas vira ku-
 
 raĝo, ĉar mortintoj scias nenion, kaj por ili
 
-jam ne ekzistas rekompenco. 
+jam ne ekzistas rekompenco.
 
 KOLHAAS
 
-Tio jam delonge plenumiĝis pri mi. 
+Tio jam delonge plenumiĝis pri mi.
 
 LUTHER
 
 Tiu rekondukos vin en la vivon, pri kies bon-
 
-volemo vi armile dubis. Legu, barona moŝto\! 
+volemo vi armile dubis. Legu, barona moŝto!
 
-\(Transdonas paperrulaĵon al Venceslao.\)
+(Transdonas paperrulaĵon al Venceslao.)
 
 VENCESLAO
 
-Ni, princo elektisto de Saksio, konsiderante, 
+Ni, princo elektisto de Saksio, konsiderante,
 
-ke Marteno Luther antaŭ ni pledis por li, 
+ke Marteno Luther antaŭ ni pledis por li,
 
 persone ekzamenis la plendon de la ĉevalko-
 
@@ -5990,11 +5781,9 @@ fekte prava. Sekve: ni ordonas la redebaton
 
 de lia proceso kaj la punon de ĉiuj, kiuj ma-
 
-94
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 lobeis la leĝojn de la paca komercado kaj nia
 
@@ -6008,7 +5797,7 @@ menton. Ni kondiĉigas, ke nomita ĉevalko-
 
 mercisto en tri tagoj post la ricevo de jena
 
-dispono demetos kaj demetigos la armilon, 
+dispono demetos kaj demetigos la armilon,
 
 plue ĉiun lian militan predon li liveros kiel
 
@@ -6016,7 +5805,7 @@ princan proprietaĵon al la tribunalo de Lüt-
 
 zen. Dato, kiel supre … Kaj la ofendo farita al
 
-mi? Kio okazos kun ĝi, via pastra moŝto? 
+mi? Kio okazos kun ĝi, via pastra moŝto?
 
 LUTHER
 
@@ -6024,41 +5813,39 @@ Petu, kaj estos donite al vi … Frapu, kaj estos
 
 malfermite al vi. Kolhaas, demetu la armi-
 
-lon\! \(Kolhaas frapĵetas sian glavon en la tra-
+lon! (Kolhaas frapĵetas sian glavon en la tra-
 
-bon.\)
+bon.)
 
-NAGELSCHMIDT \(kriante\) Mikelo\! Vi trompis min\! Vi perfidis min\! 
+NAGELSCHMIDT (kriante) Mikelo! Vi trompis min! Vi perfidis min!
 
 LUTHER
 
 Petu, kaj estos donite al vi … Frapu, kaj estos
 
-malfermite al vi\! \(For\)
+malfermite al vi! (For)
 
-\(La sceno mallumiĝas, la tumulto iom post iom
+(La sceno mallumiĝas, la tumulto iom post iom
 
-silentiĝas.\)
+silentiĝas.)
 
-95
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 DUA BILDO
 
-Foirplaco de Dresdeno. Jubilanta amaso, 
+Foirplaco de Dresdeno. Jubilanta amaso,
 
 tribunala tablo. Fone podio, kovrita de blanka
 
 tuko. Eniras Kolhaas, Nagelschmidt, Herse kaj
 
-kun ili kelkaj ĉevalistoj. Voĉoj: ”Vivu Kolhaas\! 
+kun ili kelkaj ĉevalistoj. Voĉoj: ”Vivu Kolhaas!
 
-Justecon al Kolhaas\! Punon al la Tronkaano\! 
+Justecon al Kolhaas! Punon al la Tronkaano!
 
-Fajren kun li\!” Kolhaas kaj liaj kompanoj sidiĝas
+Fajren kun li!” Kolhaas kaj liaj kompanoj sidiĝas
 
 sur benko antaŭ la podio. Venceslao venas dum la
 
@@ -6068,37 +5855,37 @@ transdoni al li sian lokon sur la benko, sed li ne
 
 akceptas ĝin. Li restas staranta. La membroj de la
 
-tribunalo marŝas sur la podion: Zauner, 
+tribunalo marŝas sur la podion: Zauner,
 
-Eibenmeyer, Müller, flanke sidas: Kallheim, Hinz, 
+Eibenmeyer, Müller, flanke sidas: Kallheim, Hinz,
 
-Kunz. 
+Kunz.
 
 EIBENMEYER
 
-Kuncivitanoj\! Mi petas silenton, ordon\! La
+Kuncivitanoj! Mi petas silenton, ordon! La
 
 princo elektisto ordonis la proklamadon de
 
 la verdikto ĉi tie, sur la foirplaco de Dresde-
 
-no ne por bruado, sed por ekzemplodono. 
+no ne por bruado, sed por ekzemplodono.
 
 Niaj armitaj gardistoj arestos surloke la
 
 rompintojn de la ordo. Lia barona moŝto
 
-Venceslao de Tronka\! ĉu ĉeestas? 
+Venceslao de Tronka! ĉu ĉeestas?
 
 VENCESLAO
 
-ĉeestas. 
+ĉeestas.
 
 EIBENMEYER
 
-Kolhaas, Mikelo, ĉevalkomercisto. \(Kolhaas
+Kolhaas, Mikelo, ĉevalkomercisto. (Kolhaas
 
-stariĝas.\) Jes. Bonvolu resti staranta. Ni de-
+stariĝas.) Jes. Bonvolu resti staranta. Ni de-
 
 vas aŭskulti la verdikton de la princo elektis-
 
@@ -6106,11 +5893,9 @@ to kaj la imperiestro. Prokurora moŝto Zau-
 
 ner …
 
-96
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ZAUNER
 
@@ -6120,9 +5905,9 @@ plenan lumon sur vian veron. Post kiam mi
 
 garantiis al vi liberan foriron el Tronka, de-
 
-talon post detalo mi ekzamenis vian celon, 
+talon post detalo mi ekzamenis vian celon,
 
-kiu puŝis vin tien. Ni konstatis, ke vin kon-
+kiu puŝis vin tien. Ni konstatis, ke vn-
 
 dukis nek rabista intenco, nek servutula pa-
 
@@ -6132,13 +5917,13 @@ ekskluzive la reakiro de viaj pokaj proprie-
 
 taĵoj, eroj de via vero. La superularon desti-
 
-nitan de Dio, sian regnestron honoras tiu, 
+nitan de Dio, sian regnestron honoras tiu,
 
 kiu restas fidela al ties proklamitaj veroj. Je
 
 la pano estas senigita tiu, kiu lasas perdi ties
 
-erojn. ¯uste pro tio ni ordonis en ĉi tiu tago:
+erojn. uste pro tio ni ordonis en ĉi tiu tago:
 
 viaj du nigraj ĉevaloj estu restituitaj en sta-
 
@@ -6150,13 +5935,13 @@ dek groŝoj kaj la manteloj, ĉapelo, vojaĝsako
 
 de via servisto nomata Herse kun la perso-
 
-naj objektoj trovitaj en ĝi, nome: argila pipo, 
+naj objektoj trovitaj en ĝi, nome: argila pipo,
 
 tindro, fajroŝtono, dekdu groŝoj kaj unu pip-
 
 purigilo kun osta tenilo. Dato en Branden-
 
-burgo. Princo elektisto Frederiko … Kiu, 
+burgo. Princo elektisto Frederiko … Kiu,
 
 signe de sia favoro, dezirus komuniki sian
 
@@ -6166,11 +5951,9 @@ pardonon, Mikelo Kolhaas, sed hodiaŭ li
 
 devas gastigi la imperiestron. Ankaŭ la im-
 
-97
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 periestro petas vian pardonon, ke pro sia
 
@@ -6188,9 +5971,9 @@ MÜLLER
 
 Karolo la Kvina, pro dia graco nia Romia
 
-Imperiestro, ĉiama pliiganto de la imperio, 
+Imperiestro, ĉiama pliiganto de la imperio,
 
-reĝo de Germanio, Hispanio, ambaŭ Sicilioj, 
+reĝo de Germanio, Hispanio, ambaŭ Sicilioj,
 
 Jerusalemo, Hungario, Dalmatio, Kroatio kaj
 
@@ -6214,23 +5997,21 @@ kancelario sinjoroj Hinz, Kunz kaj Kallheim:
 
 en la hodiaŭa tago ĉiujn tri ni eksigas el siaj
 
-oficoj. \(La amaso ekjubilas.\) Kaj ĉar ĉiu lezo
+oficoj. (La amaso ekjubilas.) Kaj ĉar ĉiu lezo
 
 de la leĝo ofendas la Personon de la Plej Su-
 
 pera Leĝdonanto, estu kondamnita barono
 
-Venceslao de Tronka al dujara prizona puno. 
+Venceslao de Tronka al dujara prizona puno.
 
-\(Silento de konsterniĝo. En tiu momento ekso-
+(Silento de konsterniĝo. En tiu momento ekso-
 
 nas kornoj, poste aŭdiĝas kanonpafo. El la ne-
 
-98
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 videblaj anguloj de la placo miksiĝas en la
 
@@ -6242,9 +6023,9 @@ Kolhaas la mantelon, ĉapelon, vojaĝsakon de
 
 Herse. La amaso rapide disiĝas. Krioj: ”Jen la
 
-imperiestro\! Ni renkontu la imperiestron\! Vivu
+imperiestro! Ni renkontu la imperiestron! Vivu
 
-la imperiestro\!” En severa teniĝo restas nur kel-
+la imperiestro!” En severa teniĝo restas nur kel-
 
 kaj armitaj tribunalaj servistoj en la proksimeco
 
@@ -6254,59 +6035,57 @@ la pezo de la neatendita venko. Li gapas post la
 
 amaso tumultanta en la direkto al la kanonpa-
 
-fo.\)
+fo.)
 
 KOLHAAS
 
-Homoj bonaj\! ĉu nun vi lasas min sola? ĉu
+Homoj bonaj! ĉu nun vi lasas min sola? ĉu
 
-neniu plu scivolas pri la orgojla Tronkaano? 
+neniu plu scivolas pri la orgojla Tronkaano?
 
-Homoj\! Vivu la imperiestro\! Li alportis mian
+Homoj! Vivu la imperiestro! Li alportis mian
 
-palmodimanĉon … Vivu la imperiestro\! \(Al
+palmodimanĉon … Vivu la imperiestro! (Al
 
 Nagelschmidt, kvazaŭ finreplike al ĉiuj iliaj dis-
 
-putoj.\) Vivu la imperiestro\! \(Nagelschmidt
+putoj.) Vivu la imperiestro! (Nagelschmidt
 
-senmovas.\) Eĉ se malfrue … Li alportis mian
+senmovas.) Eĉ se malfrue … Li alportis mian
 
 palmodimanĉon. ĉu vi aŭdas, Karolo? Ven-
 
 ceslao de Tronka estu juĝita al dujara prizo-
 
-na puno. \(Ebrie li gustumas la vorton.\) Juĝita
+na puno. (Ebrie li gustumas la vorton.) Juĝita
 
 … Juĝita … Elinjo sendas ombron da konsolo
 
-el sia tombo: Juĝita\! \(Triumfe.\) Ripetu, Mül-
+el sia tombo: Juĝita! (Triumfe.) Ripetu, Mül-
 
 ler, kara amiko, kiel blinda muelejo turnu via
 
-lango la vorton: juĝita. 
+lango la vorton: juĝita.
 
-99
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
-\(emociigite kaj ŝvitoplene\) Juĝita. 
+(emociigite kaj ŝvitoplene) Juĝita.
 
 KOLHAAS
 
-Ho, se ankaŭ Elinjo aŭdus tion, Karolo\! \(Li
+Ho, se ankaŭ Elinjo aŭdus tion, Karolo! (Li
 
-brakumas Nagelschmidt.\)
+brakumas Nagelschmidt.)
 
-NAGELSCHMIDT ŝi aŭdas certe. 
+NAGELSCHMIDT ŝi aŭdas certe.
 
 KOLHAAS
 
-ŝi alportus al mi …, al ni ĉi tiun mesaĝon. 
+ŝi alportus al mi …, al ni ĉi tiun mesaĝon.
 
 Kiel povas tiom distiĝi homo kaj kvitiĝo unu
 
@@ -6314,9 +6093,9 @@ de la alia? Mi dankas vin, Karolo, ke vi stari-
 
 ĝis apud mi … Almenaŭ ĉi solan torĉan vor-
 
-ton — juĝita\! — ni povis reakiri azile. 
+ton — juĝita! — ni povis reakiri azile.
 
-NAGELSCHMIDT Malmulta. 
+NAGELSCHMIDT Malmulta.
 
 MÜLLER
 
@@ -6326,13 +6105,13 @@ tro. ĉar kiom ajn mallongas la tera vivo de la
 
 homo, kaj kiom ajn longas kaj turmentas la
 
-vojo de la vero: neniu rajtas ĝin serĉi arbitre, 
+vojo de la vero: neniu rajtas ĝin serĉi arbitre,
 
-sur flankopadoj. 
+sur flankopadoj.
 
 KOLHAAS
 
-Kiel ĉi tiu Tronkaa porko\! 
+Kiel ĉi tiu Tronkaa porko!
 
 MÜLLER
 
@@ -6342,67 +6121,65 @@ justa maniero proksimiĝas al ĝi; ĉar rajton
 
 oni povas akiri nur per rajto, saviĝon de la
 
-animo nur per humileco. Vi rericevis ĉion, 
+animo nur per humileco. Vi rericevis ĉion,
 
 Mikelo Kolhaas, ĉion, je kio vi estis prirajti-
 
 gita, sed ne forgesu, dum oni postkuras la
 
-veron: oni ankaŭ ŝuldiĝas. 
+veron: oni ankaŭ ŝuldiĝas.
 
 KOLHAAS
 
-Mi ĉipvendis ĉion mian. 
+Mi ĉipvendis ĉion mian.
 
-100
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
-Nun jamas via vico senŝuldigi vin. 
+Nun jamas via vico senŝuldigi vin.
 
-NAGELSCHMIDT ĉu lia? Eble tiu de la Tronkaa Antikristo\! 
+NAGELSCHMIDT ĉu lia? Eble tiu de la Tronkaa Antikristo!
 
 ĉiuj perditaj proprietaĵoj de Kolhaas estu re-
 
-stituitaj\! 
+stituitaj!
 
 MÜLLER
 
-\(laŭgrade severiĝinte, elŝirinte sin el la ĝena li-
+(laŭgrade severiĝinte, elŝirinte sin el la ĝena li-
 
-giteco de la amika rilato\) Nun jamas via vico
+giteco de la amika rilato) Nun jamas via vico
 
-senŝuldigi vin. 
+senŝuldigi vin.
 
-\(Kolhaas rigardas Müller ĉiam pli frapite.\)
+(Kolhaas rigardas Müller ĉiam pli frapite.)
 
-NAGELSCHMIDT Ni ne senŝuldigas nin\! Ni postulas. 
+NAGELSCHMIDT Ni ne senŝuldigas nin! Ni postulas.
 
 EIBENMEYER
 
 Vera instruo estas la instruo de la imperies-
 
-tro. 
+tro.
 
 MÜLLER
 
-\(legas\) Vi bruligis kastelojn, estingis homajn
+(legas) Vi bruligis kastelojn, estingis homajn
 
 vivojn, por la juro vi tretis sur la vojon de la
 
 jurrompo …
 
-NAGELSCHMIDT Kion alian li povus fari? Kiel ni alproksimu la krucumitan veron, se latronoj de Pilato gardas ĝin — kontraŭ ni\! Kiel oni povus liberi-
+NAGELSCHMIDT Kion alian li povus fari? Kiel ni alproksimu la krucumitan veron, se latronoj de Pilato gardas ĝin — kontraŭ ni! Kiel oni povus liberi-
 
 gi la juron el sia sigelita tombo sen disbati la
 
-armeon de la fariseoj? Prokurora moŝto\! ĉu
+armeon de la fariseoj? Prokurora moŝto! ĉu
 
-nia pleja vero, al kiu ni konstruis preĝejojn, 
+nia pleja vero, al kiu ni konstruis preĝejojn,
 
 venis eble pace kaj kun humilaj peticioj al
 
@@ -6412,15 +6189,13 @@ rokofendo liberigis kaj levis al si Dio sian
 
 solenaskitan filon? ĉu unusolan vojon desti-
 
-101
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 nis al ni la imperiestro? Por unusola irebla
 
-vojo — iun neireblan? 
+vojo — iun neireblan?
 
 EIBENMEYER
 
@@ -6428,33 +6203,33 @@ Nagelschmidt konfuzas sin kaj siajn bruli-
 
 gistajn kompanojn kun la Leĝo kaj …
 
-NAGELSCHMIDT Tie ja la homo komenciĝas\! Kiam li konfuzas sin kun ĉio, je kio li estas senigita. 
+NAGELSCHMIDT Tie ja la homo komenciĝas! Kiam li konfuzas sin kun ĉio, je kio li estas senigita.
 
 EIBENMEYER
 
-Gardo\! 
+Gardo!
 
-\(Du soldatoj silentigas Nagelschmidt.\)
+(Du soldatoj silentigas Nagelschmidt.)
 
 MÜLLER
 
-Mikelo Kolhaas, loĝanta en Kolhaasenbrück, 
+Mikelo Kolhaas, loĝanta en Kolhaasenbrück,
 
-naskita la dekduan de junio 1502 en Schwe-
+naskita la dekduan de en Schwe-
 
 rin, estas kondamnita en ĉi tiu tago al mor-
 
 to per ŝnuro. Dato kiel supre, propramana
 
-subskribo de la imperiestro. 
+subskribo de la imperiestro.
 
-NAGELSCHMIDT Dio mia\! Oni trompis vin\! Oni trompis vin\! 
+NAGELSCHMIDT Dio mia! Oni trompis vin! Oni trompis vin!
 
 Latronoj, vi trompis lin, priinsidis lin, faligis
 
 lin en kaptilon, kial ni obeis vin? Oj, mi stul-
 
-ta, kiu nur pli ol Mikelo Kolhaas stultis\! …
+ta, kiu nur pli ol Mikelo Kolhaas stultis! …
 
 Mi povus scii … ĉiuj iliaj vortoj haladzas je
 
@@ -6462,41 +6237,39 @@ hiena fetoro, kaj per ĉiuj siaj ruzaj cedoj ili
 
 nur kamuflas siajn finajn celojn. Sinjoro
 
-Müller\! Vi pruntis vian langon al la malno-
+Müller! Vi pruntis vian langon al la malno-
 
 bla verdikto — elŝiru al vi la langon. Vi prun-
 
 tis al ĝi vian voĉon — tratranĉu al vi la gor-
 
-ĝon\! 
+ĝon!
 
-102
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 MÜLLER
 
 La voĉo estis mia — la decido tiu de la impe-
 
-riestro, Mikelo. Pardonu min. 
+riestro, Mikelo. Pardonu min.
 
 KOLHAAS
 
-ĉu via lasta deziro? \(Konvulsia ridego.\) La las-
+ĉu via lasta deziro? (Konvulsia ridego.) La las-
 
 ta deziro de la proklamantoj de verdiktoj: ni
 
-pardonu ilin. \(Lian denovan ridegon interrom-
+pardonu ilin. (Lian denovan ridegon interrom-
 
 pas la triumfa-moka ridego de Venceslao. La
 
-sinjoroj akompanas la Tronkaanon eksteren. 
+sinjoroj akompanas la Tronkaanon eksteren.
 
-Kolhaas, postrigardante lin.\) Ni ankoraŭ ren-
+Kolhaas, postrigardante lin.) Ni ankoraŭ ren-
 
-kontiĝos\! \(Al Müller.\) Sed kun vi neniam. 
+kontiĝos! (Al Müller.) Sed kun vi neniam.
 
 Fari konton same ni ne plu ne bezonas …
 
@@ -6508,11 +6281,11 @@ trudo de la cirkonstancoj rezultas, ke …
 
 KOLHAAS
 
-Estu la potenco facila al vi\! Ripozu trankvi-
+Estu la potenco facila al vi! Ripozu trankvi-
 
-le\! 
+le!
 
-\(Müller eliras. Sur la scenejo restas nur la kon-
+(Müller eliras. Sur la scenejo restas nur la kon-
 
 cernitoj de la pendumado. Armita gardisto, ek-
 
@@ -6522,23 +6295,21 @@ kuto ktp. Dum la pendumilo estas surloke stari-
 
 gata, Nagelschmidt rigardas Mikelon senespe-
 
-re, kun malpleniĝinta rigardo.\)
+re, kun malpleniĝinta rigardo.)
 
 KOLHAAS
 
-Vi plenkreskigos Henrikon, ĉu ne? \(Li pendi-
+Vi plenkreskigos Henrikon, ĉu ne? (Li pendi-
 
-gas la amuleton ĉirkaŭ la kolon de Karolo.\) La
+gas la amuleton ĉirkaŭ la kolon de Karolo.) La
 
 disputo de ni ambaŭ finiĝis. La ekzekutisto
 
 punkton metas post ĝi. La malgrandan pi-
 
-103
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
 ceon transplantu el la angulo de nia ĝarde-
 
@@ -6546,11 +6317,11 @@ no al Schwerin. Mi plantis ĝin laŭ la deziro
 
 de Elinjo, ĉe la naskiĝo de nia infano. Aten-
 
-tu, ne lezu ĝiajn radikojn. Akvumadu ĝin, 
+tu, ne lezu ĝiajn radikojn. Akvumadu ĝin,
 
 por ke ĝi refortiĝu. Kiel mildas nun via viza-
 
-ĝo, Karolo. Neniam mi vidis vin tiel milda. 
+ĝo, Karolo. Neniam mi vidis vin tiel milda.
 
 Kvazaŭ vi uzus la viŝtukon de Jesuo. Sur kiu
 
@@ -6558,9 +6329,9 @@ konserviĝis liaj trajtoj. Ni estus bezonintaj
 
 lian paciencon — unu al la alia en la komu-
 
-na danĝero. \(Nagelschmidt viŝas al si la lar-
+na danĝero. (Nagelschmidt viŝas al si la lar-
 
-mojn.\) Henriko ne vidu viajn larmojn. ĉu vi
+mojn.) Henriko ne vidu viajn larmojn. ĉu vi
 
 opinias, ke firmiĝos tiu malgranda piceo en
 
@@ -6568,17 +6339,17 @@ Schwerin? La sonoriletojn religu sur la
 
 kolojn de la du nigraj ĉevaloj. Kiun vojon vi
 
-iros? 
+iros?
 
-NAGELSCHMIDT Kiu kondukas al Tomaso Münzer. 
+NAGELSCHMIDT Kiu kondukas al Tomaso Münzer.
 
 KOLHAAS
 
 Tiu konvenas. Plej mallongas. Kondukas hej-
 
-men. 
+men.
 
-\(La ekzekutisto haltas antaŭ Kolhaas. Tambu-
+(La ekzekutisto haltas antaŭ Kolhaas. Tambu-
 
 rado, poste silento. De fore aŭdiĝas la sonorile-
 
@@ -6586,15 +6357,13 @@ toj de la du nigraj ĉevaloj. Eksonas sonoriloj
 
 honore al la imperiestro. La scenejo laŭgrade
 
-mallumiĝas.\)
+mallumiĝas.)
 
-104
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-NAGELSCHMIDT \(lia voĉo\)
+NAGELSCHMIDT (lia voĉo)
 
 ĉu estis ĉu ne la fato
 
@@ -6604,19 +6373,12 @@ En Kolhaasenbrück
 
 Sur komerciston
 
-Mikel’ Kolhaas frapis la fato. 
+Mikel’ Kolhaas frapis la fato.
 
 KURTENO
 
-105
 
 PALMODIMANĉO DE ĉEVALKOMERCISTO
 
-eLIBRO
 
-www.omnibus.se/inko
-
-ISBN 91-7303-172-0
-
-106
-
+www.omnibus.se/

@@ -1,30 +1,12 @@
-% Prologo
-% Augeno Mih'alski
-
-!(images/000001.jpg)
-
-
-PROLOGO
-
-eLIBRO
-
-eLIBRO
-
 Eŭgeno Miąlski
 
 Prologo
 
 Originalaj poemoj
 
-1918–1928
-
-I N K O
-
-1
 
 PROLOGO
 
-eLIBRO
 
 Eŭgeno Miąlski
 
@@ -32,33 +14,22 @@ PROLOGO
 
 Originalaj poemoj 1918–1928
 
-eLIBRO
 
-Aranĝis: Franko Luin
+@omnibus.se
 
-ISBN 91-7303-150-4
-
-inko@omnibus.se
-
-http://www.omnibus.se/inko
-
-AŭGUSTO 2002
-
-2
 
 PROLOGO
 
-eLIBRO
 
 Enkonduko
 
-Al Vi, nekaptebla ”os”, 
+Al Vi, nekaptebla ”os”,
 
-neniam kaj ĉiam as’anta, 
+neniam kaj ĉiam as’anta,
 
 mi sendas poemojn de pensoj-ąos’
 
-el mia menso serĉanta. 
+el mia menso serĉanta.
 
 ”Is”, ”As”, ”Os” —
 
@@ -66,29 +37,27 @@ tri elementoj de Tuto —
 
 finito, vivato,ąos’ —
 
-problemo de Absoluto. 
+problemo de Absoluto.
 
-Triunuo de hom-superstiĉ’, 
+Triunuo de hom-superstiĉ’,
 
-triunu’ de profeta humano, 
+triunu’ de profeta humano,
 
-Vi tra vivo miljaris fetiĉ’, 
+Vi tra vivo miljaris fetiĉ’,
 
-Vi — amboso por di’ kaj satano. 
+Vi — amboso por di’ kaj satano.
 
-Vi — serĉata de l’viv’ eliksir’, 
+Vi — serĉata de l’viv’ eliksir’,
 
-viva akvo, fabel-talismano, 
+viva akvo, fabel-talismano,
 
-paroksisma freneza delir’, 
+paroksisma freneza delir’,
 
-temp-maŝino de Wells’a romano. 
+temp-maŝino de Wells’a romano.
 
-3
 
 PROLOGO
 
-eLIBRO
 
 Sub sekcanta mens-analiz’
 
@@ -96,105 +65,97 @@ de progresanta scienco
 
 kun ĝusta skrupula preciz’
 
-iam klariĝos esenco. 
+iam klariĝos esenco.
 
 ”Is — as” = estiv’
 
-sekvigas ”os”-energion, 
+sekvigas ”os”-energion,
 
 tiel socia viv’
 
-produktas konscion. 
+produktas konscion.
 
-Al Vi, sfinkse-enigma ”os”, 
+Al Vi, sfinkse-enigma ”os”,
 
-ĝis la scienco Vin solvos, 
+ĝis la scienco Vin solvos,
 
 kun poezia patos’
 
-mi florojn-poemojn disvolvos. 
+mi florojn-poemojn disvolvos.
 
 Sintezante en vorto-parol’
 
 ĝiajn fortojn de l’en’ kaj ekstero, mi la menson risortos je Vol’
 
-sur la vojo al plena libero. 
+sur la vojo al plena libero.
 
-4
 
 PROLOGO
 
-eLIBRO
 
-”Is” — ”As” — ”Os” 
+”Is” — ”As” — ”Os”
 
-tri elementoj de l’Tuto, 
+tri elementoj de l’Tuto,
 
 finito, vivato,ąos’, —
 
-problemo de Absoluto. 
+problemo de Absoluto.
 
-Voznesensk, Januaro 1928. 
+Voznesensk, .
 
-5
 
 PROLOGO
 
-eLIBRO
 
 Dediĉo al L. Ivn
 
-Al Vi, amik’, dediĉas mi verkoton el la intimprofunda kora en’; 
+Al Vi, amik’, dediĉas mi verkoton el la intimprofunda kora en’;
 
-se trovos Vi en ĝi ver-koton, 
+se trovos Vi en ĝi ver-koton,
 
-purigu ĝin per propra kor-seren’. 
+purigu ĝin per propra kor-seren’.
 
-Komencos mi sinceran retrospekton de miaj pensoj dum junula aĝ’, 
+Komencos mi sinceran retrospekton de miaj pensoj dum junula aĝ’,
 
-kaj du sitelojn per balanca vekto sur fajna ŝnur’ mi portas kun kuraĝ’. 
+kaj du sitelojn per balanca vekto sur fajna ŝnur’ mi portas kun kuraĝ’.
 
-En unu — akvo malvarmege-brula, 
+En unu — akvo malvarmege-brula,
 
-kaj en la dua — vaporanta brog’; 
+kaj en la dua — vaporanta brog’;
 
-en unu flank’ de l’ŝnur’ — nebulo, kaj en la dua — sun-prolog’. 
+en unu flank’ de l’ŝnur’ — nebulo, kaj en la dua — sun-prolog’.
 
-Kienas mi? Ne donos mi respondon, 
+Kienas mi? Ne donos mi respondon,
 
-ĝin mi ne scias ankaŭ mem; 
+ĝin mi ne scias ankaŭ mem;
 
-similas mi ribelvagantan ondon, 
+similas mi ribelvagantan ondon,
 
-batantan kontraŭ bordoj de problem’. 
+batantan kontraŭ bordoj de problem’.
 
-ĉu la isas’ produktas la konscion, aŭ male ĝin estigas la konsci’, 
+ĉu la isas’ produktas la konscion, aŭ male ĝin estigas la konsci’,
 
-ĉu cia penso, hom’, eligas ĉion, 
+ĉu cia penso, hom’, eligas ĉion,
 
-aŭ nur en ĉio onas ci? 
+aŭ nur en ĉio onas ci?
 
-6
 
 PROLOGO
 
-eLIBRO
 
 Nervece turnas-turnas mia penso
 
-foliojn de l’kreiva libr’, 
+foliojn de l’kreiva libr’,
 
 kaj en sonanta preĝ-incenso
 
-eknaĝas rememoroj-vibr’. 
+eknaĝas rememoroj-vibr’.
 
-Voznesensk, 5 Decembro 1923. 
+Voznesensk, 5 .
 
-7
 
 PROLOGO
 
-eLIBRO
 
 Al L. Ivn
 
@@ -204,159 +165,151 @@ mi agordis mian kreivon
 
 kaj el vivo banala kaj prema
 
-mi transiĝis alian vivon. 
+mi transiĝis alian vivon.
 
-Per sonoraj sonaroj mi spiris, 
+Per sonoraj sonaroj mi spiris,
 
-promenante en rimo-aleoj, 
+promenante en rimo-aleoj,
 
-kaj literajn ensorĉojn mi diris, 
+kaj literajn ensorĉojn mi diris,
 
-mi, grandegulo-pigmeo. 
+mi, grandegulo-pigmeo.
 
 Sur sonanta ale’ mi renkontis
 
 vivan fonton de vorto-magio, —
 
-mi ne timis plu morton estontan, 
+mi ne timis plu morton estontan,
 
-ĉar eternas kreeca genio. 
+ĉar eternas kreeca genio.
 
-Kaj, vagante sur proza bulvardo, 
+Kaj, vagante sur proza bulvardo,
 
-kie stumpoj glatstultaj fieris, 
+kie stumpoj glatstultaj fieris,
 
-mi renkontis hazarde vin, bardo, 
+mi renkontis hazarde vin, bardo,
 
-vi modeste kaj grize aperis. 
+vi modeste kaj grize aperis.
 
 Sed pro ena konscio nevole
 
-mia ”mio” en ”vio” sin solvis, 
+mia ”mio” en ”vio” sin solvis,
 
 kaj en la seriozo frivola
 
-belpetalojn kunrozo disvolvis. 
+belpetalojn kunrozo disvolvis.
 
-8
 
 PROLOGO
 
-eLIBRO
 
 Komuniis min via spirito
 
 el kaliko de l’son-sakramento, —
 
-kaj fariĝis mi via kaptito, 
+kaj fariĝis mi via kaptito,
 
-ho, amiko de mia belsento. 
+ho, amiko de mia belsento.
 
-V oznesensk, 1 Junio 1933
+V oznesensk, 1
 
-9
 
 PROLOGO
 
-eLIBRO
 
 Letero al L. Ivn
 
-El malproksima proksim’, 
+El malproksima proksim’,
 
-denove kun Vi mi parolas, 
+denove kun Vi mi parolas,
 
-kaj ĝojas la korda anim’, 
+kaj ĝojas la korda anim’,
 
-pri eblo de l’kara intim’. 
+pri eblo de l’kara intim’.
 
-Mi volas, 
+Mi volas,
 
 mi volas varian humoron
 
-enstampi sur blanka foli’, 
+enstampi sur blanka foli’,
 
 en versojn enspiri la koron
 
-de l’poezia delir’, 
+de l’poezia delir’,
 
 partumi plezuron, doloron
 
-kun Vi. 
+kun Vi.
 
 Ho, kiom kolombas la koro
 
 en vana aspir’
 
-al kuniĝo. 
+al kuniĝo.
 
 Ho ve, rememoro
 
 pri l’horo-
 
--disiĝo. 
+-disiĝo.
 
-Krajon’ en hezito haltas, 
+Krajon’ en hezito haltas,
 
-zigzagas la duboj je l’menso, 
+zigzagas la duboj je l’menso,
 
 falas kaj saltas
 
-akre-vibranta penso. 
+akre-vibranta penso.
 
-10
 
 PROLOGO
 
-eLIBRO
 
 Krei —
 
-dolĉe-amara destino; 
+dolĉe-amara destino;
 
-suferas la menso en penoj, 
+suferas la menso en penoj,
 
-ĝojas la kor’ en la sino. 
+ĝojas la kor’ en la sino.
 
-Krei\!? —
+Krei!? —
 
 Postulas la tuto:
 
-amo, naturo, socio, 
+amo, naturo, socio,
 
-eĉ bruto. 
+eĉ bruto.
 
-Krei en sonoj —ąmeleonoj, 
+Krei en sonoj —ąmeleonoj,
 
-sunoradioj — varioj. 
+sunoradioj — varioj.
 
 Krei, —
 
-perei, naskiĝi kaj droni, 
+perei, naskiĝi kaj droni,
 
 sveni
 
-ĉiam, konstante, subite. 
+ĉiam, konstante, subite.
 
 Ho, mia revo —
 
 devo
 
-de l’baraktanta spirito. 
+de l’baraktanta spirito.
 
-Vi nur ĝin povas kompreni, 
+Vi nur ĝin povas kompreni,
 
-kanto-amik’ — satelito. 
+kanto-amik’ — satelito.
 
-11
 
 PROLOGO
 
-eLIBRO
 
-Novo, malnovo, 
+Novo, malnovo,
 
-kutimoj, 
+kutimoj,
 
 movo
 
@@ -364,163 +317,153 @@ de l’hezitantaj rimoj — limoj
 
 Eterna flagranto —
 
-tra densa mallum, 
+tra densa mallum,
 
-diamanto. 
+diamanto.
 
 ĉu Vi ion komprenis
 
-tra fragmenta deliro, 
+tra fragmenta deliro,
 
-amiko? 
+amiko?
 
-Furiozaj, ĝojaj kaj rapidaj dancoj korpon mian pikas kvazaŭ akraj lancoj, koron mian ŝiras kaj turmentas ili, tamen mi deziras trili, trili, 
+Furiozaj, ĝojaj kaj rapidaj dancoj korpon mian pikas kvazaŭ akraj lancoj, koron mian ŝiras kaj turmentas ili, tamen mi deziras trili, trili,
 
-trili. 
+trili.
 
-Voznesensk, 20 Majo 1923. 
+Voznesensk, 20 .
 
-12
 
 PROLOGO
 
-eLIBRO
 
 Mi stelojn jungos…
 
-Mi stelojn jungos al revado, 
+Mi stelojn jungos al revado,
 
 kaj ili portos min tra bluo
 
-en landon de la nemortado, 
+en landon de la nemortado,
 
-de la eterna vivo-ĝuo. 
+de la eterna vivo-ĝuo.
 
-Do, arogantu mia kanto, 
+Do, arogantu mia kanto,
 
-do, akresonu mia verso. 
+do, akresonu mia verso.
 
 Mi estas forto kaj giganto
 
-kaj regontul’ de l’universo. 
+kaj regontul’ de l’universo.
 
-La morto?\! Ho, ĝi plu ne tedos, 
+La morto?! Ho, ĝi plu ne tedos,
 
-restinte sole nur simbolo; 
+restinte sole nur simbolo;
 
 je l’universo nur procedos
 
-la menso de l’scienca volo. 
+la menso de l’scienca volo.
 
-Voznesensk, 26 Oktobro 1921. 
+Voznesensk, 26 .
 
-13
 
 PROLOGO
 
-eLIBRO
 
 Mi estas…
 
-Mi estas pokalo de belpoezio; 
+Mi estas pokalo de belpoezio;
 
-Mi estas martelo de ver’, 
+Mi estas martelo de ver’,
 
-Mi estas fontano de versfantazio, Potenca liber’\! 
+Mi estas fontano de versfantazio, Potenca liber’!
 
-Mi estas modesta, sen celo je ”nomo”; Mi estas fluganta la vent’; 
+Mi estas modesta, sen celo je ”nomo”; Mi estas fluganta la vent’;
 
-Mi estas de floroj flosanta aromo, Ribela torent’. 
+Mi estas de floroj flosanta aromo, Ribela torent’.
 
-Mi estas realo. Mi estas fantomo. 
+Mi estas realo. Mi estas fantomo.
 
-Mi estas de l’am’ sakrament’. 
+Mi estas de l’am’ sakrament’.
 
-Mi estas animo kaj koro de l’homo, Rapida moment’. 
+Mi estas animo kaj koro de l’homo, Rapida moment’.
 
-Mi flugas tra l’mondo kaj ĉiuj min kantas. 
+Mi flugas tra l’mondo kaj ĉiuj min kantas.
 
-Mi flugas per kanto-flugil’. 
+Mi flugas per kanto-flugil’.
 
-Mi flugas fajrere kaj flamdiamantas En koroj per tril’. 
+Mi flugas fajrere kaj flamdiamantas En koroj per tril’.
 
-Mi celas ne famon. Mi celas ne ”nomon”. 
+Mi celas ne famon. Mi celas ne ”nomon”.
 
-Mi celas ne brilon de l’or’. 
+Mi celas ne brilon de l’or’.
 
-Mi celas ne laŭrojn, nek bardan diplomon, Nek pompon de l’glor’. 
+Mi celas ne laŭrojn, nek bardan diplomon, Nek pompon de l’glor’.
 
-14
-
-PROLOGO
-
-eLIBRO
-
-Mi kreas por krei. Sen ia kromcelo. 
-
-Mi kreas poemon el kor’. 
-
-Mi kreas per ĝi monumenton de l’Belo En versa kolor’. 
-
-Saratov, 28 Decembro 1918. 
-
-15
 
 PROLOGO
 
-eLIBRO
+
+Mi kreas por krei. Sen ia kromcelo.
+
+Mi kreas poemon el kor’.
+
+Mi kreas per ĝi monumenton de l’Belo En versa kolor’.
+
+Saratov, 28 .
+
+
+PROLOGO
+
 
 Perlas per la belo stelo-stilo
 
-Perlas per la belo stelo-stilo, 
+Perlas per la belo stelo-stilo,
 
 kun facilo spruĉas Esperanto —
 
 gaja tril’ de l’najtingalbabilo
 
-dum trankvilo de l’printempa kanto. 
+dum trankvilo de l’printempa kanto.
 
 Amo de l’universeca koro
 
 en kristalo de l’penetra penso
 
-brilnuancas en bukedo-˛oro, 
+brilnuancas en bukedo-˛oro,
 
-sonparfumas en versaĵ-incenso, 
+sonparfumas en versaĵ-incenso,
 
 vibras en la melodioj-ĉarmoj —
 
 fibroj de l’animo poezia, —
 
-en ĝoj-ploro aŭ maldolĉaj larmoj, en intimo kun revad’ vizia. 
+en ĝoj-ploro aŭ maldolĉaj larmoj, en intimo kun revad’ vizia.
 
 Torenteco de l’pasi-deziro
 
-sur la verda kampo de la amo, 
+sur la verda kampo de la amo,
 
 radieco de l’revad-inspiro
 
-kaj neniam foriĝanta flamo. 
+kaj neniam foriĝanta flamo.
 
-Antaŭ la ĝardeno de l’beleco, 
+Antaŭ la ĝardeno de l’beleco,
 
-permanenta celo al grandiozo, 
+permanenta celo al grandiozo,
 
 for de l’korpo en la animeco
 
-estas mia farnient-ripozo. 
+estas mia farnient-ripozo.
 
-Voznesensk, 1 Aprilo 1922. 
+Voznesensk, 1 .
 
-16
 
 PROLOGO
 
-eLIBRO
 
 Ciklo de l’Arĝenta Astro
 
-Dediĉas al Nekrasov N. 
+Dediĉas al Nekrasov N.
 
 l
 
@@ -528,7 +471,7 @@ Aspergas mi per spermo de l’espero virginon de l’arĝenta astro
 
 en la arom’ de ŝia sino ĉasta
 
-dum farniento de l’vespero. 
+dum farniento de l’vespero.
 
 Aspiras mi per spiro de l’pasio
 
@@ -536,45 +479,41 @@ elkrei novan mondon de la sonoj —
 
 mi, nova pastro de l’venonta dio: virgino de l’arĝenta astro
 
-de l’fantaziaj tonoj. 
+de l’fantaziaj tonoj.
 
 Al foraj kaj viziaj regionoj
 
-mi venas de l’estonto gasto, 
+mi venas de l’estonto gasto,
 
 virginon aŭreolos mi per kronoj
 
-el fonto de l’anim’ elasta. 
+el fonto de l’anim’ elasta.
 
 Karesvario — ritmo de l’mezuro
 
-de mia am’ senfunde-ĝua; 
+de mia am’ senfunde-ĝua;
 
-kaj kisoj dolĉaj — rimoj-uverturo de l’delikatpasio blua. 
+kaj kisoj dolĉaj — rimoj-uverturo de l’delikatpasio blua.
 
-17
 
 PROLOGO
 
-eLIBRO
 
-Kaj sakramentas mi dum la vespero, mi nova, juna kaj onteca pastro, 
+Kaj sakramentas mi dum la vespero, mi nova, juna kaj onteca pastro,
 
 virginon de l’arĝenta astro
 
-aspergas mi per spermo de l’espero. 
+aspergas mi per spermo de l’espero.
 
-18
 
 PROLOGO
 
-eLIBRO
 
 II
 
 En ornato orname orita
 
-ĉe altaro de l’vorto mi staras, 
+ĉe altaro de l’vorto mi staras,
 
 kiel orfo ĉe pordo fermita
 
@@ -594,11 +533,11 @@ kore celas dezire-ribela
 
 oremuso de mia belsento
 
-aspire …. 
+aspire ….
 
 Oro, ornamo, ornato
 
-alternas en alto interna …. 
+alternas en alto interna ….
 
 Mi — pastro de la nekonato —
 
@@ -606,91 +545,85 @@ staras ĉe ĝia altaro
 
 lumate de l’astro eterna
 
-arĝenta. 
+arĝenta.
 
-19
 
 PROLOGO
 
-eLIBRO
 
 III
 
-Per akraj strofoj mi traversos vivon, kreante revan riĉon, 
+Per akraj strofoj mi traversos vivon, kreante revan riĉon,
 
 amaran forgesante efektivon
 
-kaj malfeliĉon. 
+kaj malfeliĉon.
 
 El kaĝo de l’tagvica trivialo
 
-mi celas al mistera transo, 
+mi celas al mistera transo,
 
-mi — Don Ki˛ot naivkristala —, 
+mi — Don Ki˛ot naivkristala —,
 
-por esti for de Sanĉo-Panso. 
+por esti for de Sanĉo-Panso.
 
 Per trilflugiloj de koloroj-versoj nuancas mi per skvamoj-asonancoj
 
 kaj ronde-flugas tra la universo
 
-en furioz-ebriaj dancoj. 
+en furioz-ebriaj dancoj.
 
-Por iu ”danse macabre”, — por mi nur gajo kaj senfineco de l’mezuro, 
+Por iu ”danse macabre”, — por mi nur gajo kaj senfineco de l’mezuro,
 
-por iu — vintro, sed por mi — floranta majo kaj brila suno en lazuro. 
+por iu — vintro, sed por mi — floranta majo kaj brila suno en lazuro.
 
 ĉu iu kredos mian religion —
 
-ne interesas min ja tio, 
+ne interesas min ja tio,
 
 sed mi adoras fantazion, —
 
-ĝi estas mia dio. 
+ĝi estas mia dio.
 
-20
 
 PROLOGO
 
-eLIBRO
 
 Kaj antaŭ la altaro de Fabeloj
 
-incensas mi, poeto-pastro; 
+incensas mi, poeto-pastro;
 
 Virginon de l’arĝenta astro
 
-adoras mi en himnoj belaj. 
+adoras mi en himnoj belaj.
 
-21
 
 PROLOGO
 
-eLIBRO
 
 IV
 
-En maten’ perlamote flagranta, 
+En maten’ perlamote flagranta,
 
-kiam brilis la ros’ en petaloj, 
+kiam brilis la ros’ en petaloj,
 
 al surlagaj lilioj-pokaloj
 
-vidis mi beljuninon kurantan. 
+vidis mi beljuninon kurantan.
 
-Diafanis la korpo gracia, 
+Diafanis la korpo gracia,
 
 en la faldoj de lag-arbetaro
 
 papiliis orece la haro
 
-sub la kisoj de l’suna radio. 
+sub la kisoj de l’suna radio.
 
 Kaj aero karese vualis
 
-belfiguron de l’stranga junino; 
+belfiguron de l’stranga junino;
 
-sed subite ŝi falis, 
+sed subite ŝi falis,
 
 en unu momento
 
@@ -698,15 +631,13 @@ mi alkuris, rekonis:
 
 Virgino
 
-de l’astro arĝenta. 
+de l’astro arĝenta.
 
-Voznesensk, 28 Novembro 1922
+Voznesensk, 28
 
-22
 
 PROLOGO
 
-eLIBRO
 
 Amaj Melodioj
 
@@ -714,7 +645,7 @@ I
 
 Finiĝas nokto. En ĉirkaŭpreno
 
-ci kisas min, karesas, flustras kun pasio. 
+ci kisas min, karesas, flustras kun pasio.
 
 Susuras silko sur kuseno …
 
@@ -730,93 +661,87 @@ Leviĝas mi, malfermas pordon al ĝardeno …
 
 Parfumas mole akacio…
 
-Kaj ĉio vokas, logas al promeno; 
+Kaj ĉio vokas, logas al promeno;
 
 kaj spiras vera poezio
 
-en tiu ĉi vilaĝ-edeno. 
+en tiu ĉi vilaĝ-edeno.
 
 Ci levas ankaŭ cin kaj min pro ĝeno elpelas for kun koketema krio:
 
 ”Ho, iru tuj — ne estas ja konveno ĉeesti dum ceremonio
 
-de la vestado.” 
+de la vestado.”
 
-— ”Granda Dio\! 
+— ”Granda Dio!
 
-Pro kio tia ĉi kateno\! 
+Pro kio tia ĉi kateno!
 
-23
-
-PROLOGO
-
-eLIBRO
-
-Cin ĝui volas mi ja ankaŭ dum mateno …” 
-
-Sed pordo frap\! eĉ malgraŭ mia peno kaj malgraŭ mia opinio. 
-
-Saratov, 19 Januaro 1921
-
-24
 
 PROLOGO
 
-eLIBRO
+
+Cin ĝui volas mi ja ankaŭ dum mateno …”
+
+Sed pordo frap! eĉ malgraŭ mia peno kaj malgraŭ mia opinio.
+
+Saratov, 19
+
+
+PROLOGO
+
 
 II
 
 HEINE-ECAĵO
 
-Puto profunda — jen Via rigardo, 
+Puto profunda — jen Via rigardo,
 
-puto kun akvo serena; 
+puto kun akvo serena;
 
 tamen, junino, mi estu singarda:
 
-eble ĝi estas venena\!? 
+eble ĝi estas venena!?
 
-Bluo ĉiela — jen Via rigardo, 
+Bluo ĉiela — jen Via rigardo,
 
-bluo karese-edena; 
+bluo karese-edena;
 
 tamen, karino, mi estu singarda:
 
-eble ĝi estas gehena\!? 
+eble ĝi estas gehena!?
 
-Lango korala — jen Via ponardo, 
+Lango korala — jen Via ponardo,
 
-lango alloge-kaprica; 
+lango alloge-kaprica;
 
 tamen, belino, mi estu singarda:
 
-eble ĝi estas malica\!? 
+eble ĝi estas malica!?
 
 Via buŝeto, brulanta en ardo, —
 
-— rozo ravanta kaj bena; 
+— rozo ravanta kaj bena;
 
-tamen, junino, mi restu singarda:, eble ĝi estas venena\!?\! 
+tamen, junino, mi restu singarda:, eble ĝi estas venena!?!
 
-Voznesensk, Oktobro 1921. 
+Voznesensk, .
 
-25
 
 PROLOGO
 
-eLIBRO
 
 III
 
 Mi min kaŝis en bosko kaŝtana
 
-en krepusk’ de l’printempa vesper’, sur la musk’ sub la kron’ diafana kuŝis mi. Simfoniis mister’. 
+en krepusk’ de l’printempa vesper’, sur la musk’ sub la kron’ diafana kuŝis mi. Simfoniis mister’.
 
-La mister’ de l’natur’ simfoniis: en folioj susuris fabel’, 
+La mister’ de l’natur’ simfoniis: en folioj susuris fabel’,
 
 en river’ en reflektoj helstriis
 
-per la plektoj arboja ombrel’\! 
+per la plektoj arboja ombrel’!
 
 Kaj mi ĝoja en reva krepusko
 
@@ -824,379 +749,353 @@ sur la lim’ de la lum’ kaj mallum’
 
 ne evitis fatalan embuskon
 
-kaj fariĝis viktim’ de l’parfum’. 
+kaj fariĝis viktim’ de l’parfum’.
 
 De l’parfum’ de la korpo virina
 
-aperinta subite en bosk’, 
+aperinta subite en bosk’,
 
-saturite mi svenis al sino, 
+saturite mi svenis al sino,
 
-kien logis potence la mosk’. 
+kien logis potence la mosk’.
 
 Kaj kadence trembatis la koro
 
-pro alflu’ de l’volupta pasi’; 
+pro alflu’ de l’volupta pasi’;
 
 kaj en ĝu’ de l’virgeca doloro
 
-mi abruptis kaj dronis en ŝi …. 
+mi abruptis kaj dronis en ŝi ….
 
-26
 
 PROLOGO
 
-eLIBRO
 
 Disburĝonis kaŝtanaj la floroj
 
-kun kreiv-geedziga polen’, 
+kun kreiv-geedziga polen’,
 
 ĝi miksiĝis kun niaj odoroj
 
-en mistera pasia solen’. 
+en mistera pasia solen’.
 
-Voznesensk, 11 Decembro 1923. 
+Voznesensk, 11 .
 
-27
 
 PROLOGO
 
-eLIBRO
 
 IV
 
-En koloroj de vespero am’ fabelas, lulas senton de la koroj am’, 
+En koloroj de vespero am’ fabelas, lulas senton de la koroj am’,
 
-jen mantelas per etero, jen nebulas firmamenton je l’disiĝo-gam’. 
+jen mantelas per etero, jen nebulas firmamenton je l’disiĝo-gam’.
 
 Nin ĉirkaŭas freŝgirlando el la floroj, de l’muziko bela rava son’ …
 
-Vokoj-ploroj el verando kun mistiko de ribela fluas violon’. 
+Vokoj-ploroj el verando kun mistiko de ribela fluas violon’.
 
-Inspirite de ĉi-sonoj mi cin kisas, tremas cia kortuŝite brust’, 
+Inspirite de ĉi-sonoj mi cin kisas, tremas cia kortuŝite brust’,
 
-nin kulisas floraj kronoj …mi cin premas, dolĉo mia … benas nin arbust’. 
+nin kulisas floraj kronoj …mi cin premas, dolĉo mia … benas nin arbust’.
 
 Sed jam falis noktaj horoj … mortis kantoj, kiujn pure najtingalis kor’ …
 
 Diamantoj-rememoroj restis nure …
 
-… amaj ĉarmoj pasis for. 
+… amaj ĉarmoj pasis for.
 
-Saratov, 14 Decembro 1918. 
+Saratov, 14 .
 
-28
 
 PROLOGO
 
-eLIBRO
 
 Paraleloj
 
 l
 
-… Novo — malnovo, 
+… Novo — malnovo,
 
-eterno — momento, 
+eterno — momento,
 
-potenco — senpovo, 
+potenco — senpovo,
 
-feliĉo — turmento. 
+feliĉo — turmento.
 
 II
 
-Edeno — infero, 
+Edeno — infero,
 
-kompato — kruelo, 
+kompato — kruelo,
 
-beato — sufero, 
+beato — sufero,
 
-mildeco — ribelo. 
+mildeco — ribelo.
 
 III
 
-Revado — konfeso, 
+Revado — konfeso,
 
-timemo — arogo, 
+timemo — arogo,
 
-memoro — forgeso, 
+memoro — forgeso,
 
-vereco — mensogo. 
+vereco — mensogo.
 
-29
 
 PROLOGO
 
-eLIBRO
 
 IV
 
-Amemo — pasio, 
+Amemo — pasio,
 
-hontemo — senĝeno, 
+hontemo — senĝeno,
 
-tuteco — nenio, 
+tuteco — nenio,
 
-libero — kateno. 
+libero — kateno.
 
 V
 
-Kareso — insulto, 
+Kareso — insulto,
 
-konfido — ĵaluzo, 
+konfido — ĵaluzo,
 
-konstanto — adulto, 
+konstanto — adulto,
 
-sincero — amuzo. 
+sincero — amuzo.
 
 VI
 
-Adoro — malamo, 
+Adoro — malamo,
 
-promeso — ĵurrompo, 
+promeso — ĵurrompo,
 
-trankvilo — ekflamo, 
+trankvilo — ekflamo,
 
-fidelo — fi-trompo. 
+fidelo — fi-trompo.
 
-30
 
 PROLOGO
 
-eLIBRO
 
 VII
 
-Trotakso — banalo, 
+Trotakso — banalo,
 
-diigo — profano, 
+diigo — profano,
 
-vizio — realo, 
+vizio — realo,
 
-anĝelo — satano. 
+anĝelo — satano.
 
 VIII
 
-Modero — senbrido, 
+Modero — senbrido,
 
-tolero — postulo, 
+tolero — postulo,
 
-kolombo — aspido, 
+kolombo — aspido,
 
-sindono — spekulo. 
+sindono — spekulo.
 
 IX
 
-Naturo — komerco, 
+Naturo — komerco,
 
-pureco — malĉasto, 
+pureco — malĉasto,
 
-malsperto — ekzerco, 
+malsperto — ekzerco,
 
-similo — kontrasto. 
+similo — kontrasto.
 
-31
 
 PROLOGO
 
-eLIBRO
 
 X
 
-Ekflugo kaj falo, 
+Ekflugo kaj falo,
 
-heroo kaj vermo, 
+heroo kaj vermo,
 
-espero — fatalo, 
+espero — fatalo,
 
-naskiĝo — ekstermo. 
+naskiĝo — ekstermo.
 
 Jen estas varioj de l’amo —
 
-burlesko kaj dramo\! 
+burlesko kaj dramo!
 
-Saratov 5 Aŭgusto 1918. 
+Saratov 5 .
 
-32
 
 PROLOGO
 
-eLIBRO
 
-El CikIo ”Frenezo” 
+El CikIo ”Frenezo”
 
-Dediĉas al Hohlov N. 
+Dediĉas al Hohlov N.
 
 l
 
 Vi estas mia ĝemelo
 
-de nasko ĝis morto mem. 
+de nasko ĝis morto mem.
 
-Ofte vi estas anĝelo, 
+Ofte vi estas anĝelo,
 
-pli ofte — anatem’. 
+pli ofte — anatem’.
 
 Vi akompanas kvazaŭ la ombro
 
-dum tago kaj dum nokt’, 
+dum tago kaj dum nokt’,
 
-de lulilo ĝis tombo, 
+de lulilo ĝis tombo,
 
-dum ĝoj’ kaj dum vivsufok’. 
+dum ĝoj’ kaj dum vivsufok’.
 
 Kaj vana estas la peno
 
 min liberigi je vi:
 
-Vi estas dolĉo, kateno, 
+Vi estas dolĉo, kateno,
 
-jen siblo, jen belmelodi’, 
+jen siblo, jen belmelodi’,
 
-jen konscienca riproĉo, 
+jen konscienca riproĉo,
 
-jen elintenca malbon’, 
+jen elintenca malbon’,
 
-jen de l’spirito diboĉo, 
+jen de l’spirito diboĉo,
 
-jen adoro antaŭ madon’. 
+jen adoro antaŭ madon’.
 
-33
-
-PROLOGO
-
-eLIBRO
-
-ĉiam nur disduiĝeco, 
-
-sopiro al mensa tut’, 
-
-de l’cerbo kaj kor’ — sanga peco, dram’ de l’individu’. 
-
-Voznesensk, 19 Februaro 1922. 
-
-34
 
 PROLOGO
 
-eLIBRO
+
+ĉiam nur disduiĝeco,
+
+sopiro al mensa tut’,
+
+de l’cerbo kaj kor’ — sanga peco, dram’ de l’individu’.
+
+Voznesensk, 19 .
+
+
+PROLOGO
+
 
 II
 
 En ringecaj ĉirkaŭprenoj
 
-mi mortpremos vin. 
+mi mortpremos vin.
 
 Viaj ĝemoj kaj malbenoj
 
-ne haltigos min. 
+ne haltigos min.
 
-Vi ja estas Bon’ — Malbono; 
+Vi ja estas Bon’ — Malbono;
 
-tial mortu vi, 
+tial mortu vi,
 
 ĉar la Bono estas krono
 
-de la iluzi’. 
+de la iluzi’.
 
 Iluzio estas peza
 
-por verama kor’. 
+por verama kor’.
 
-Sed mi estas ja freneza\! 
+Sed mi estas ja freneza!
 
-Tial, ĉio, for\! 
+Tial, ĉio, for!
 
-35
 
 PROLOGO
 
-eLIBRO
 
 III
 
-Mi estas freneza — mi tion konscias; sed en la frenezo — geni’. 
+Mi estas freneza — mi tion konscias; sed en la frenezo — geni’.
 
-Mi vin abomenas kaj vin ne envias pri via banal-harmoni’. 
+Mi vin abomenas kaj vin ne envias pri via banal-harmoni’.
 
-Per miaj frenezaj kaj akraj okuloj penetras al transa mi viv’, 
+Per miaj frenezaj kaj akraj okuloj penetras al transa mi viv’,
 
-kaj kion de vi kaŝas densaj nebuloj por mi estas ĝi — efektiv’. 
+kaj kion de vi kaŝas densaj nebuloj por mi estas ĝi — efektiv’.
 
-Voznesensk, 2 Oktobro 1921. 
+Voznesensk, 2 .
 
-36
 
 PROLOGO
 
-eLIBRO
 
 IV
 
-Super mi etendiĝis kupolo, 
+Super mi etendiĝis kupolo,
 
-kupolo, simbolo de Io, 
+kupolo, simbolo de Io,
 
-de Io, fulmanta radio, 
+de Io, fulmanta radio,
 
 radio en strangaŭreolo
 
-Super mi etendiĝis kupolo. 
+Super mi etendiĝis kupolo.
 
-Jen sub mi disegiĝis profundo, 
+Jen sub mi disegiĝis profundo,
 
-profundo, senfundo nigranta, 
+profundo, senfundo nigranta,
 
-nigranta en rido faŭkanta, 
+nigranta en rido faŭkanta,
 
 faŭkanta simile al hundo
 
-Jen sub mi disegiĝis profundo. 
+Jen sub mi disegiĝis profundo.
 
-ĉiuflanke gardadas min muroj, 
+ĉiuflanke gardadas min muroj,
 
-min muroj — obturoj ĉirkaŭas, 
+min muroj — obturoj ĉirkaŭas,
 
-ĉirkaŭas, moviĝon kontraŭas, 
+ĉirkaŭas, moviĝon kontraŭas,
 
 kontraŭas kun pezaj murmuroj
 
-ĉiuflanke gardadas min muroj. 
+ĉiuflanke gardadas min muroj.
 
-37
 
 PROLOGO
 
-eLIBRO
 
-Mi kun koro ribela deziras, 
+Mi kun koro ribela deziras,
 
-deziras, sopiras Liberon, 
+deziras, sopiras Liberon,
 
-Liberon, purigan aeron, 
+Liberon, purigan aeron,
 
 aeron … Premite mi spiras …
 
-Mi ribela Liberon deziras. 
+Mi ribela Liberon deziras.
 
-˘arkov, 12 Aprilo 1919
+˘arkov, 12
 
-38
 
 PROLOGO
 
-eLIBRO
 
 V
 
-ĉu aŭdis vi ion dum nokto silenta? 
+ĉu aŭdis vi ion dum nokto silenta?
 
-ĉu vidis vi ion tra densaj nebuloj? 
+ĉu vidis vi ion tra densaj nebuloj?
 
-ĉu aŭdis vi ion en bruo torenta? 
+ĉu aŭdis vi ion en bruo torenta?
 
-ĉu vidis vi ion en ŝiaj okuloj? 
+ĉu vidis vi ion en ŝiaj okuloj?
 
 Dum nokto silenta
 
@@ -1206,7 +1105,7 @@ mi vidis flagrantan de l’vero ekflamon; en bruo torenta
 
 mi aŭdis belegan de l’kor’ simfonion; en ŝiaj okuloj
 
-mi vidis aŭroron de l’amo kaj amon. 
+mi vidis aŭroron de l’amo kaj amon.
 
 Dum nokta silento
 
@@ -1216,49 +1115,47 @@ mi vidis iradon de strangaj mortuloj; en bruo torenta
 
 mi aŭdis mokridon de l’sorto sensenta; en ŝiaj okuloj
 
-mi vidis jam morton de l’amaj ekbruloj. 
+mi vidis jam morton de l’amaj ekbruloj.
 
-Voznesensk, 1919. 
+Voznesensk, 1919.
 
-39
 
 PROLOGO
 
-eLIBRO
 
 VI
 
 Sur deklivo de mia amo
 
-mi konstruis palacon de l’ĝuo; 
+mi konstruis palacon de l’ĝuo;
 
 en sensone obtuza malbruo
 
-nevidita okazis dramo. 
+nevidita okazis dramo.
 
-Belaj gastoj palacon vizitis, 
+Belaj gastoj palacon vizitis,
 
-eksonoris pokaloj pasiaj; 
+eksonoris pokaloj pasiaj;
 
 sed la koron la menso spitis, —
 
-estingiĝis la sunoradioj. 
+estingiĝis la sunoradioj.
 
-Kaj en alta palaca turo, 
+Kaj en alta palaca turo,
 
-kie miozotas memor’, 
+kie miozotas memor’,
 
 jen eksonis uverturo
 
-de l’rekviema ˛or’. 
+de l’rekviema ˛or’.
 
-Kaj la gastoj toastis Eternon, 
+Kaj la gastoj toastis Eternon,
 
-sed la ombroj dancadis tra muro, 
+sed la ombroj dancadis tra muro,
 
 kaj mi vidis faŭkantan kavernon
 
-en blindiga purpuro. 
+en blindiga purpuro.
 
 Kaj en halo de l’sento senbrida
 
@@ -1266,37 +1163,33 @@ violonon ekludis la Strango:
 
 uragane-rapida
 
-40
 
 PROLOGO
 
-eLIBRO
 
 ĉiujn premis muzika lavango
 
-de violon’, 
+de violon’,
 
-sed la arĉo krevis en kreo, 
+sed la arĉo krevis en kreo,
 
 eę mortis lasta son’ —
 
-Pereo. 
+Pereo.
 
-Sur deklivo de mia amo, 
+Sur deklivo de mia amo,
 
-kie staris palaco de l’ĝuo, 
+kie staris palaco de l’ĝuo,
 
 nevidita okazis dramo
 
-en sensone-obtuza malbruo. 
+en sensone-obtuza malbruo.
 
-Voznesensk, 24 Junio 1923. 
+Voznesensk, 24 .
 
-41
 
 PROLOGO
 
-eLIBRO
 
 VII
 
@@ -1304,135 +1197,127 @@ Antaŭ altar’ de l’Eterna Spirito
 
 staras mi, — splito de Malnova mond’ —
 
-kun kron’ el superstiĉoj, kun sceptro el mitoj, kun de l’antaŭjuĝoj rond’. 
+kun kron’ el superstiĉoj, kun sceptro el mitoj, kun de l’antaŭjuĝoj rond’.
 
-Kandel’ de la kred’ estingiĝas, finbrulas, svene aromas incens’, 
+Kandel’ de la kred’ estingiĝas, finbrulas, svene aromas incens’,
 
 sed en la cerbo arogi stimulas
 
-sakrilegia pens’. 
+sakrilegia pens’.
 
-Mi falas genuen kaj preĝas-profanas, al kiu, pri kio ne scias mi mem, 
+Mi falas genuen kaj preĝas-profanas, al kiu, pri kio ne scias mi mem,
 
-sed mi antaŭsentas, ke mian malsanon kuracos finsolvo de tiu problem’. 
+sed mi antaŭsentas, ke mian malsanon kuracos finsolvo de tiu problem’.
 
 Voznesensk, 1923
 
-42
 
 PROLOGO
 
-eLIBRO
 
 VIII
 
-ĉe abrupto zigzage faŭkanta, 
+ĉe abrupto zigzage faŭkanta,
 
 ĉe abrupto de alta rok’
 
-staris mi meditanta, 
+staris mi meditanta,
 
-ĉu riski je arog’. 
+ĉu riski je arog’.
 
-Variis-vibris la deziroj, 
+Variis-vibris la deziroj,
 
-kaj svarmis pensoj en la cerb’; 
+kaj svarmis pensoj en la cerb’;
 
 mi sakramentis en aspiroj
 
-al la ĉielo for de l’ter’. 
+al la ĉielo for de l’ter’.
 
 Sed faŭkis malsupre abrupto
 
-kaj tiris potence al si, 
+kaj tiris potence al si,
 
 kaj en turmentiga volupto
 
-falis mi. 
+falis mi.
 
 Sed mi ne atingis la subon
 
-kaj ie kroĉiĝis en mez’, 
+kaj ie kroĉiĝis en mez’,
 
 kaj suĉas min akra inkubo
 
-en la paroksism’ de l’frenez’. 
+en la paroksism’ de l’frenez’.
 
-Voznesensk, 28 Novembro 1922
+Voznesensk, 28
 
-43
 
 PROLOGO
 
-eLIBRO
 
 IX
 
-Kial, amik’, ne vizitas vi min? 
+Kial, amik’, ne vizitas vi min?
 
-Mi ja brulas, finbrulas en Fajro sen fin’. 
+Mi ja brulas, finbrulas en Fajro sen fin’.
 
 Sed neniam en ĝi
 
-fincindriĝos mi, 
+fincindriĝos mi,
 
 nur suferos en fum’ …
 
-El post lando de Fajr’, 
+El post lando de Fajr’,
 
 jen Mallum’
 
 sen ekĉes’ por moment’
 
-alrampadas kaj pikas min ĝi, 
+alrampadas kaj pikas min ĝi,
 
 je l’tempi’
 
-per duobla langeto-serpent’. 
+per duobla langeto-serpent’.
 
-Ho, kunlig’ de Helfajr’ kun eterna Mallum’, ĉu min longe mordetos Vi?\! 
+Ho, kunlig’ de Helfajr’ kun eterna Mallum’, ĉu min longe mordetos Vi?!
 
-. . . . . . . . . . . . . . . . . . . . . . . . . 
+. . . . . . . . . . . . . . . . . . . . . . . . .
 
 Brulas-brulas mi
 
-en fajra pasi’. 
+en fajra pasi’.
 
 Sed ekbrilos Radi’
 
 en triumfa moment’
 
-el homara sufer’ kaj turment’. 
+el homara sufer’ kaj turment’.
 
-44
 
 PROLOGO
 
-eLIBRO
 
 Tiam en kvietec’ mortos mi
 
-Ho, amik’, 
+Ho, amik’,
 
-ja ekbrilos Radi’. 
+ja ekbrilos Radi’.
 
-Saratov, 11 Septembro 1917. 
+Saratov, 11 .
 
-45
 
 PROLOGO
 
-eLIBRO
 
 X
 
 Ombroj vesperaj — movoj misteraj
 
-rampas …. 
+rampas ….
 
-¯emas piano, kvazaŭ infano
+emas piano, kvazaŭ infano
 
-ploras, 
+ploras,
 
 lampo
 
@@ -1440,9 +1325,9 @@ finbrulas…
 
 Mi rememoras …
 
-Rememoroj enlulas. 
+Rememoroj enlulas.
 
-En malproksimo ie en nigra senlimo Vagas spirito sola simile al splito de ”memo”; 
+En malproksimo ie en nigra senlimo Vagas spirito sola simile al splito de ”memo”;
 
 nenie
 
@@ -1450,59 +1335,54 @@ nenie
 
 realon en foro simbola …
 
-Ombroj-spiritoj sin movas; 
+Ombroj-spiritoj sin movas;
 
 ploras piano kun ĝemo
 
 Interplektiĝas la ombroj sin puŝas, pereas…
 
-Koro silentas, duboj ĝin tuŝas, 
+Koro silentas, duboj ĝin tuŝas,
 
-sonoj lamentas, 
+sonoj lamentas,
 
-46
 
 PROLOGO
 
-eLIBRO
 
 veas
 
 al vivo-pasio…
 
-Lampo finbrulis, restis nenio; 
+Lampo finbrulis, restis nenio;
 
-nokto tegmentas. 
+nokto tegmentas.
 
-30 Decembto 1911. 
+30 Decembto 1911.
 
-47
 
 PROLOGO
 
-eLIBRO
 
 El Abismo al Suno
 
 Ciklo de Poemoj
 
-” …Vi, Esperanto, estas mia prismo, Tra kiu vidas mi el mia ĉiel’. 
+” …Vi, Esperanto, estas mia prismo, Tra kiu vidas mi el mia ĉiel’.
 
-Tra vi mi vidas nigron de abismo, Tra vi mi vidas blankon de ĉiel.” 
+Tra vi mi vidas nigron de abismo, Tra vi mi vidas blankon de ĉiel.”
 
-N. NEKRASOV. 
+N. NEKRASOV.
 
-La vivo estas varia. ¯i kieląmeleono jen tiel kolorbri-las, jen tute alian brilon disradias. 
+La vivo estas varia. i kieląmeleono jen tiel kolorbri-las, jen tute alian brilon disradias.
 
 Kaj, ĉar la kor’ de poeto estas de l’vivo spegulo, evi-dentas, ke ĝi ankaŭąmeleonas, varias en multefacetaj kristaloj de l’verso, trile nuancas, najtingalon simile; ravas la muzikeman aŭdivon per torente-rapida tonaro, son-imitas la naturon, sian patrinon, aspiras al ĝi kaj nure el ĝi ĉerpas forton por plua batado …
 
 Sed iufoje, kelkiam, venas tro pezaj minutoj. ĉielo de l’vivo tegiĝas je nigraj teruraj nubegoj; tondras kaj fulmas; fulmeroj rapidaj, kiel korbatoj timigitaj, subite por ioma tempero ekbrilas kaj montras inversan bildon de l’vivo; ili montras profundajn abismojn de l’subkonscio, kie vane-vane baraktas la menso, celante ilin forlasi…
 
-Vane\! Ili montras lagon ŝlimitan, kie dronas-aperas spi-48
+Vane! Ili montras lagon ŝlimitan, kie dronas-aperas spi-48
 
 PROLOGO
 
-eLIBRO
 
 rito, celante al roko alta sur bordo; ili montras ankoraŭ multon, multon…
 
@@ -1514,111 +1394,105 @@ Kaj tiuj diversespecaj fenomenoj, ofte tute nerimarke-blaj al la simpla koro, ra
 
 La poeta kor’, malgraŭ sia amplekso, povas tamen ne ĉiujn sonsignojn enhavi; kaj ĝi unue pro sia komuniki-
 
-ĝemo, due pro simpla bezono partumi ĉion inter ĉiuj, ĉion donitan, fokusitan de l’naturo en unu koro — ha-vigi al ĉiuj, al vasta rondo, la kor’ de poeto eldiras tiujn postesignojn-impresojn, eldiras en gamoj de sonoj-vor-toj, proksimum-ĝuste esprimantaj esprimendon de l’ko-ro; ilin eldiras tiel, kiel ili venas en la koron, t.e. varie, ąmeleone, fragmente, abrupte aŭ konsekvence. 
+ĝemo, due pro simpla bezono partumi ĉion inter ĉiuj, ĉion donitan, fokusitan de l’naturo en unu koro — ha-vigi al ĉiuj, al vasta rondo, la kor’ de poeto eldiras tiujn postesignojn-impresojn, eldiras en gamoj de sonoj-vor-toj, proksimum-ĝuste esprimantaj esprimendon de l’ko-ro; ilin eldiras tiel, kiel ili venas en la koron, t.e. varie, ąmeleone, fragmente, abrupte aŭ konsekvence.
 
-Tial ankaŭ en poemoj ”Ajno”, ”Papilio” kaj ”Printempaĵoj”1 vi vidos tre akrajn ŝanĝojn de l’ritmo, ĉar same akre abruptas, nuancas la pensoj, ĵetataj nervece de l’ideo, sub kiu zigzage-tremas la grundo, ĝin produktanta. 
+Tial ankaŭ en poemoj ”Ajno”, ”Papilio” kaj ”Printempaĵoj”1 vi vidos tre akrajn ŝanĝojn de l’ritmo, ĉar same akre abruptas, nuancas la pensoj, ĵetataj nervece de l’ideo, sub kiu zigzage-tremas la grundo, ĝin produktanta.
 
-1 Rim. de l’aŭtoro: ”Papilio” kaj ”Printempaĵoj” pro miskom-preno aperis aparte de l’unua poemo ”Ajno” en libreto sub titolo ”Du poemoj”. Ankaŭ la antaŭskizo verkita de l’aŭtoro mem estis erare atribuita al k-do Krassovski N. 
+1 Rim. de l’aŭtoro: ”Papilio” kaj ”Printempaĵoj” pro miskom-preno aperis aparte de l’unua poemo ”Ajno” en libreto sub titolo ”Du poemoj”. Ankaŭ la antaŭskizo verkita de l’aŭtoro mem estis erare atribuita al k-do Krassovski N.
 
-49
 
 PROLOGO
 
-eLIBRO
 
 Ajno
 
-Dediĉas al amiko Izgur E. 
+Dediĉas al amiko Izgur E.
 
 Rapide
 
-Streĉvervas muskoloj …. 
+Streĉvervas muskoloj ….
 
-Posthorizontas la suno. 
+Posthorizontas la suno.
 
 Krepuskas la kor’
 
-en sopiro. 
+en sopiro.
 
-Golgotas la vivo. 
+Golgotas la vivo.
 
-Nigras du krucoj. 
+Nigras du krucoj.
 
-Grakas amasoj da korvoj, 
+Grakas amasoj da korvoj,
 
-sentante mortontojn. 
+sentante mortontojn.
 
-Manon al mi amikino, 
+Manon al mi amikino,
 
 lipojn sur lipojn
 
-de l’ama konfid’. 
+de l’ama konfid’.
 
 Golgotas la vivo…
 
 Nigras du krucoj …
 
-. . . . . . . . . . . . . . . . . . . . . . . . . 
+. . . . . . . . . . . . . . . . . . . . . . . . .
 
-50
 
 PROLOGO
 
-eLIBRO
 
-Knaras radoj, krakas pordoj, 
+Knaras radoj, krakas pordoj,
 
 fajfsirenas aŭtoj …
 
 Brilas vitroj magazenaj …
 
-Kalvas placa rond’. 
+Kalvas placa rond’.
 
 ĉielenas templa pinto
 
-reliefe. 
+reliefe.
 
-La dekdua. 
+La dekdua.
 
-Estingiĝas lum’. 
+Estingiĝas lum’.
 
-Glitas ombroj fantomecaj, 
+Glitas ombroj fantomecaj,
 
 malaperas en la grizo
 
-de nebula ŝalo. 
+de nebula ŝalo.
 
 ŝi kaj mi
 
 en densa maro
 
-de banalo. 
+de banalo.
 
 Dereliĝis tramvagono —
 
-kaj ekbluis la fajrero; 
+kaj ekbluis la fajrero;
 
-tra la grizo kri’ eksonis, 
+tra la grizo kri’ eksonis,
 
-kri’ de malespero. 
+kri’ de malespero.
 
-Golgotas la vivo. 
+Golgotas la vivo.
 
 Du krucoj. —
 
-ŝi kaj mi. 
+ŝi kaj mi.
 
-51
 
 PROLOGO
 
-eLIBRO
 
 l
 
-Super urbo pendas nebulo peza, 
+Super urbo pendas nebulo peza,
 
-lanternoj palpebrumas; 
+lanternoj palpebrumas;
 
 estas noktomezo
 
@@ -1626,101 +1500,95 @@ malluma…
 
 Mi straten eliris enpensa, sopira: min jam vivo tedis
 
-per kutima iro. 
+per kutima iro.
 
-Mi oscedis. 
+Mi oscedis.
 
-Mi spertis en vivo pri multo, 
+Mi spertis en vivo pri multo,
 
-travivis maldolĉon kaj ĝuon; 
+travivis maldolĉon kaj ĝuon;
 
 en mez’ de banalo kaj stulto
 
-mi trovis enuon. 
+mi trovis enuon.
 
-Mi vidis de l’Scio palacojn, 
+Mi vidis de l’Scio palacojn,
 
-loĝatajn de alta scienco, 
+loĝatajn de alta scienco,
 
 kaj tie nur trovis grimacojn
 
-de saĝa sensenco. 
+de saĝa sensenco.
 
-Mi templojn vizitis de Dio, 
+Mi templojn vizitis de Dio,
 
-mi vidis en ili brilpompon, 
+mi vidis en ili brilpompon,
 
 kaj trovis en masko de pio
 
-profiton kaj trompon. 
+profiton kaj trompon.
 
-52
 
 PROLOGO
 
-eLIBRO
 
 Mi amis per koro juneca
 
-kaj revis estante poeto, 
+kaj revis estante poeto,
 
 sed estis en am’ multespeca
 
-ĉiama ripeto. 
+ĉiama ripeto.
 
 Mi volis en lego forgesi
 
-premantan sufokon de l’vivo, 
+premantan sufokon de l’vivo,
 
 sed fine mi devis konfesi
 
-pri mia naivo. 
+pri mia naivo.
 
-Kaj en nokto nebula mi hejmon forlasis kun ĝia komforta ripozo …. 
+Kaj en nokto nebula mi hejmon forlasis kun ĝia komforta ripozo ….
 
-Kun sento malvarma je ŝton’ mi frakasis violonon de prozo. 
+Kun sento malvarma je ŝton’ mi frakasis violonon de prozo.
 
-¯i ektintis obtuze, mortante kun ĝemo …
+i ektintis obtuze, mortante kun ĝemo …
 
-Ekpendis malluma silento. 
+Ekpendis malluma silento.
 
 Tiele post la rekviemo
 
-venas ĉerka tegmento. 
+venas ĉerka tegmento.
 
 En noktaĵon mi iras tra malseka pavimo —
 
-mi ĉasas al novo kaj freŝo; 
+mi ĉasas al novo kaj freŝo;
 
 en la proksimo
 
-ekbruis kaleŝo; 
+ekbruis kaleŝo;
 
-53
 
 PROLOGO
 
-eLIBRO
 
-preter mi ĝi ruliĝas, tie sidas junino belega sub ŝalo aĵura. 
+preter mi ĝi ruliĝas, tie sidas junino belega sub ŝalo aĵura.
 
-— ”Haltu, virino\! 
+— ”Haltu, virino!
 
 ĉu Vi konsentos je la promenado plezura tra nebuloj de sento volupta
 
-al ĝuo abrupta?” 
+al ĝuo abrupta?”
 
 — ”Mi volas.” ŝi simple rediris
 
-kaj elkaleŝiĝis rapide. 
+kaj elkaleŝiĝis rapide.
 
-… Ni ekiris. 
+… Ni ekiris.
 
-54
 
 PROLOGO
 
-eLIBRO
 
 II
 
@@ -1732,23 +1600,23 @@ Al vizaĝo ŝia mi rigardas, ŝi kviete dormas, ŝiaj belaj formoj
 
 de l’korpo pasia
 
-estas karesataj de la sunradioj, 
+estas karesataj de la sunradioj,
 
-penetrantaj tra l’kurteno. 
+penetrantaj tra l’kurteno.
 
 Kial silente mi staras, ĉu mi bedaŭras, ke nokto finiĝis, ne daŭras
 
-la iluzio? 
+la iluzio?
 
-ĉe la lito mi ekkaŭras, 
+ĉe la lito mi ekkaŭras,
 
-longe, longe sidas tiel, ŝin rigardas, ŝian sanan dormon gardas, 
+longe, longe sidas tiel, ŝin rigardas, ŝian sanan dormon gardas,
 
-dormon de ripozo dolĉa. 
+dormon de ripozo dolĉa.
 
-Ho, virino sorĉa\! 
+Ho, virino sorĉa!
 
-Ne\! pli vere — korpo sorĉa, korpo dia en nudeco sia\! 
+Ne! pli vere — korpo sorĉa, korpo dia en nudeco sia!
 
 Ci, — ekstremo de komenco, —
 
@@ -1756,13 +1624,11 @@ ci, — komenco de ekstremo, —
 
 frenezigas per potenco
 
-de eterna am-problemo. 
+de eterna am-problemo.
 
-55
 
 PROLOGO
 
-eLIBRO
 
 Ruĝa disko elnaĝas en grizekolora ĉielo, perlas roseroj en vazoj sur floroj, nuancas panelo
 
@@ -1770,49 +1636,47 @@ en ĉielarkaj koloroj …
 
 Ludas radioj petolaj sur lipoj de la kuŝantino, sur lipoj — pokalo de ĝuo …
 
-alloge-incite defalis kovrilo de sur la junino, postulas la kisojn ŝia neĝblanka genuo. 
+alloge-incite defalis kovrilo de sur la junino, postulas la kisojn ŝia neĝblanka genuo.
 
 ŝi dormas en paco
 
 post laco
 
-pro nokta kares’ malmodera. 
+pro nokta kares’ malmodera.
 
-— ”Virino, adiaŭ\! 
+— ”Virino, adiaŭ!
 
-min vokas ”hodiaŭ” 
+min vokas ”hodiaŭ”
 
-per bruo enurba por laboro afera.” 
+per bruo enurba por laboro afera.”
 
 Velkis ombroj lastaj de l’mateno, —
 
 ridas tago en sereno
 
-de la suna brilo; 
+de la suna brilo;
 
 blekas-fajfas la sireno
 
-de aŭtomobilo. 
+de aŭtomobilo.
 
-56
 
 PROLOGO
 
-eLIBRO
 
 III
 
 Hejmen mi venis. La mastrino leteron donas al mi parfumantan
 
-je subtila odoro de la akaci’. 
+je subtila odoro de la akaci’.
 
 Ekrigardis mi la skrib-eksteron
 
 virindelikatan, bel-elegantan …
 
-”Kies estas ĝi? 
+”Kies estas ĝi?
 
-Unuafoje mi vidas … Virino? Sed kiu? 
+Unuafoje mi vidas … Virino? Sed kiu?
 
 Pli rapide deŝiru koverton kaj sciu:
 
@@ -1820,33 +1684,31 @@ Pli rapide deŝiru koverton kaj sciu:
 
 kaj tial kuraĝas Vin peti
 
-Hodiaŭ je l’10-a vespere. Kaj nun ĝis revido\! 
+Hodiaŭ je l’10-a vespere. Kaj nun ĝis revido!
 
-\(La strato de l’Venko, dom’ la 80-a, 2-a etaĝo, pordo la 31-a\)” 
+(La strato de l’Venko, dom’ la 80-a, 2-a etaĝo, pordo la 31-a)”
 
 Kaj netralegebla parafo la streka —
 
-fin’ de l’skribaĵ’ rendevua. 
+fin’ de l’skribaĵ’ rendevua.
 
-57
 
 PROLOGO
 
-eLIBRO
 
 IV
 
-ĵus eklumis la elektraj lampionoj, superŝutas ĉion je lumstrioj; 
+ĵus eklumis la elektraj lampionoj, superŝutas ĉion je lumstrioj;
 
-rapidege brue kuras tramvagonoj, 
+rapidege brue kuras tramvagonoj,
 
 ne atentas tute pri stacioj
 
-plenplenegaj de amaso. 
+plenplenegaj de amaso.
 
 Poezio de l’dudeka jarocento —
 
-bruo de la urbo multfaceta, 
+bruo de la urbo multfaceta,
 
 vulgarec’ de l’degenera sentimento kaj falseco de l’kalvaĵo kabineta —
 
@@ -1854,35 +1716,33 @@ vulgarec’ de l’degenera sentimento kaj falseco de l’kalvaĵo kabineta —
 
 porpoeta …
 
-58
 
 PROLOGO
 
-eLIBRO
 
 V
 
-Kaj vizitis mi Cin, mia karo, 
+Kaj vizitis mi Cin, mia karo,
 
-mia helo kaj belo radia; 
+mia helo kaj belo radia;
 
 sur kanapo en la buduaro
 
 jen Ci kuŝis kun simplo gracia
 
-La krepusko de l’ĉambro ekpendis, araneis nigraĵojn sur pluŝo; 
+La krepusko de l’ĉambro ekpendis, araneis nigraĵojn sur pluŝo;
 
-diafanajn Ci manojn etendis, 
+diafanajn Ci manojn etendis,
 
-kaj ni ambaŭ svenetis en tuŝo. 
+kaj ni ambaŭ svenetis en tuŝo.
 
-Sed ne prenis mi Cin. Cin profani?\! 
+Sed ne prenis mi Cin. Cin profani?!
 
-Cin, ekamon de mia animo?\! 
+Cin, ekamon de mia animo?!
 
 Mi permesis nur kisojn fontani
 
-en ĉi-tiu danĝera intimo. 
+en ĉi-tiu danĝera intimo.
 
 Piko de kiso … Volupto kaj ardo …
 
@@ -1890,9 +1750,9 @@ Bril’ de okuloj, dezira rigardo …
 
 Brusto ondanta …
 
-Spiro bruliga, spiro-ponardo …. 
+Spiro bruliga, spiro-ponardo ….
 
-¯uo loganta …
+uo loganta …
 
 Flustro de nokto … Batbatoj de koro …
 
@@ -1900,57 +1760,53 @@ Flos’ de parfumoj … Narkota odoro …
 
 Spic’ romantika …
 
-59
 
 PROLOGO
 
-eLIBRO
 
 Dolĉo amara …Saniga doloro …
 
-Estu fortika\! 
+Estu fortika!
 
 Ci ne komprenis mian foriron
 
-tiom nervecan, rapidan, 
+tiom nervecan, rapidan,
 
 sed en Cia rigardo deziron
 
 vidis mi tiom avidan …
 
-Ci ne komprenis, jes, ne komprenis\! 
+Ci ne komprenis, jes, ne komprenis!
 
 sendis leteron-inviton …
 
 Sed mi ne povis kaj mi ne venis —
 
-timis mi korpo-eksciton. 
+timis mi korpo-eksciton.
 
-Mi deziris tamen ankaŭ tion, 
+Mi deziris tamen ankaŭ tion,
 
-pro dezir’ mi brulis; 
+pro dezir’ mi brulis;
 
-korpon korp’ postulis, 
+korpon korp’ postulis,
 
 sed profani mi ne povis poezion —
 
 kaj en versoj mi forgesis la doloron kaj en sonĝoj kvietigis mian koron …
 
-Tamen brulo restis, 
+Tamen brulo restis,
 
 kvankam revo festis
 
-venkon provizoran. 
+venkon provizoran.
 
-60
 
 PROLOGO
 
-eLIBRO
 
 VI
 
-Kaj duan fojon mi serĉi eliris, 
+Kaj duan fojon mi serĉi eliris,
 
 vagis denove ĝis laco
 
@@ -1958,7 +1814,7 @@ tra tiom senfina viv-spaco
 
 kaj nur la malsanon akiris
 
-de l’korpo kaj menso; 
+de l’korpo kaj menso;
 
 anstataŭ kompenso
 
@@ -1966,31 +1822,29 @@ ricevis de ŝajna feliĉo temperon
 
 kaj plen-malesperon
 
-de sento kaj penso. 
+de sento kaj penso.
 
-Montoj, abismar’ senfunda; de ĉielo blu’ profunda Monotona step’ enua … Paŝas mi en horo frua. 
+Montoj, abismar’ senfunda; de ĉielo blu’ profunda Monotona step’ enua … Paŝas mi en horo frua.
 
-Densarbaro grumblas ion, piedpremas mi folion; 
+Densarbaro grumblas ion, piedpremas mi folion;
 
-ĝi jam flavas, ĝi susuras, kaj fabelojn ĝi murmuras. 
+ĝi jam flavas, ĝi susuras, kaj fabelojn ĝi murmuras.
 
-Al la lando malproksima, 
+Al la lando malproksima,
 
 al palac’ de l’rev’ intima
 
 iras mi
 
-tra flav-foli’. 
+tra flav-foli’.
 
-Akvofal’ potence-brua ŝpruce-kantas, muĝeflua kaj batalas kontraŭ bordo kun titane-akra mordo, en koler’ obtuze spiras. ¯ian forton mi admiras. 
+Akvofal’ potence-brua ŝpruce-kantas, muĝeflua kaj batalas kontraŭ bordo kun titane-akra mordo, en koler’ obtuze spiras. ian forton mi admiras.
 
-Estas ĝi mirinde bela en batalo ekribela. 
+Estas ĝi mirinde bela en batalo ekribela.
 
-61
 
 PROLOGO
 
-eLIBRO
 
 Al la lando malproksima
 
@@ -1998,15 +1852,15 @@ iras rekte mi sentima
 
 kun admir’
 
-je l’akva spir’. 
+je l’akva spir’.
 
-Jen river’ kviete fluas. La venteto kanon skuas. 
+Jen river’ kviete fluas. La venteto kanon skuas.
 
 Nur malofte fiŝ’ ekplaŭdas. Pli orel’ nenion aŭdas …
 
-Jen fiŝisto kun la reto klindormetas en ŝipeto. 
+Jen fiŝisto kun la reto klindormetas en ŝipeto.
 
-Ludas en herbej’ infanoj — ridas kun arog’ cejanoj. 
+Ludas en herbej’ infanoj — ridas kun arog’ cejanoj.
 
 Al la lando dezirata
 
@@ -2014,15 +1868,15 @@ iras mi tra bordo glata
 
 de l’river’
 
-kun kor-esper’. 
+kun kor-esper’.
 
-Urbo brua, peke-krima, kun sonoro trapavima. 
+Urbo brua, peke-krima, kun sonoro trapavima.
 
-Homamaso sur prospekto. Polican’ — sever-aspekto. 
+Homamaso sur prospekto. Polican’ — sever-aspekto.
 
-Nokto tutan urbon prenis — ĝin per dormo enkatenis. 
+Nokto tutan urbon prenis — ĝin per dormo enkatenis.
 
-Senhomiĝis trotuaroj. Nur malofte pasas paroj. 
+Senhomiĝis trotuaroj. Nur malofte pasas paroj.
 
 Al la lando de la belo
 
@@ -2030,19 +1884,17 @@ iras mi kun rekta celo
 
 kaj sen tim’
 
-tra la pavim’. 
+tra la pavim’.
 
-62
 
 PROLOGO
 
-eLIBRO
 
-”Vi enuas, Vi sinjoro?\! Lasu pensi pri doloro. 
+”Vi enuas, Vi sinjoro?! Lasu pensi pri doloro.
 
-Min Vi sekvu tra ĝardeno. Vin atendas ama sveno.” 
+Min Vi sekvu tra ĝardeno. Vin atendas ama sveno.”
 
-Ekkrigardis mi figuron kaj eksentis kor-teruron: Ho, similis la virino je l’amata fianĉino\! 
+Ekkrigardis mi figuron kaj eksentis kor-teruron: Ho, similis la virino je l’amata fianĉino!
 
 Kaj la celon mi perfidis —
 
@@ -2050,343 +1902,325 @@ interrompi mi decidis
 
 ĝin por hor’
 
-pro kon-esplor’. 
+pro kon-esplor’.
 
 Kaj humile-rapideme paŝis mi kun ŝi nerveme; Voluptante brulosente ŝi rigardis, ardis tente …
 
 «Ni jam venis hejmon mian. Nu, demetu palton Vian”…
 
-ŝi enbrakis min pasie. Mi pasivis malkonscie. 
+ŝi enbrakis min pasie. Mi pasivis malkonscie.
 
-Mi la landon revi ĉesis, 
+Mi la landon revi ĉesis,
 
 pri la celo mi forgesis
 
 en admir’
 
-pro ama spir’\! 
+pro ama spir’!
 
-”Kial Vi observas mute?\! Senvestiĝu tuj kaj tute\! 
+”Kial Vi observas mute?! Senvestiĝu tuj kaj tute!
 
-Ne ŝajnigu naivulon\! Kontentigos mi postulon\!‘” 
+Ne ŝajnigu naivulon! Kontentigos mi postulon!‘”
 
-Per blankeco ŝi brilante min karesis premiĝante. 
+Per blankeco ŝi brilante min karesis premiĝante.
 
-63
 
 PROLOGO
 
-eLIBRO
 
-Pro nudeco malkovrita estis mi pasiigita. 
+Pro nudeco malkovrita estis mi pasiigita.
 
-Kaj la revon mi forgesis, 
+Kaj la revon mi forgesis,
 
-min la land’ ne interesis, 
+min la land’ ne interesis,
 
 en pasi’
 
-ekdronis mi. 
+ekdronis mi.
 
-La volupto korpon skuis. Kiskaresojn mi plenĝuis. 
+La volupto korpon skuis. Kiskaresojn mi plenĝuis.
 
 Jen laciĝis — ebriiĝis, ripozinte reflamiĝis…
 
-Al mi ŝajnis, al mi ŝajnis, ke mi”ŝian” amon gajnis, Ke jen ”ŝi” al mi premiĝis kaj amante fordoniĝis. 
+Al mi ŝajnis, al mi ŝajnis, ke mi”ŝian” amon gajnis, Ke jen ”ŝi” al mi premiĝis kaj amante fordoniĝis.
 
 Al mi ŝajnis atingita
 
-la Bellando dezirita, 
+la Bellando dezirita,
 
 sub kisar’
 
-de l’amaltar’. 
+de l’amaltar’.
 
 Jen vekiĝis urb’ malnova… De tramvoj’ sonoro mova…
 
 Lasis mi komforton litan, ŝin rigardis, la amitan:
 
-”Estas nur prostituino — de la vivo ĵetfilino\! 
+”Estas nur prostituino — de la vivo ĵetfilino!
 
-ŝajno estas de la vero, nekapteblo kaj ˛imero\!” 
+ŝajno estas de la vero, nekapteblo kaj ˛imero!”
 
-Kie estas land’ — lazuro? 
+Kie estas land’ — lazuro?
 
-Staras nur de l’nokto muro. 
+Staras nur de l’nokto muro.
 
-Baras ĝi, 
+Baras ĝi,
 
-kaj haltis mi. 
+kaj haltis mi.
 
-64
 
 PROLOGO
 
-eLIBRO
 
-Kun akuta dolor’ lasis ĉambron mi for. 
+Kun akuta dolor’ lasis ĉambron mi for.
 
-Kun la kor’, kiu ploris premite. 
+Kun la kor’, kiu ploris premite.
 
 Kaj denove en sol’ iris for de popol’, sen konsol’ iris kompromitite
 
-el kuŝejo de l’pseŭdo-karin’\! 
+el kuŝejo de l’pseŭdo-karin’!
 
 Supre pendis nebul’, paŝis mi solecul’
 
-en cirkul’ de amaso frivola, 
+en cirkul’ de amaso frivola,
 
 kaj mi pensis al ”ŝi” — mia sola radi’, fantazi’ aŭ realo simbola
 
-de ĉiama dezir’ al rafin’. 
+de ĉiama dezir’ al rafin’.
 
 Mi nenion konsciis —
 
-eble mi fantaziis, 
+eble mi fantaziis,
 
-eble estis nur sola imago. 
+eble estis nur sola imago.
 
-Tamen, ĉu ne egale?\! 
+Tamen, ĉu ne egale?!
 
 Tra nebulo korale
 
-aperetis la astro de l’tago. 
+aperetis la astro de l’tago.
 
-Kaj kareso pasia de la suno radia en la koran penetris profundon, 
+Kaj kareso pasia de la suno radia en la koran penetris profundon,
 
-kaj kvieton donacis, kaj ameme kuracis, kaj iome dolĉigis la vundon. 
+kaj kvieton donacis, kaj ameme kuracis, kaj iome dolĉigis la vundon.
 
-65
 
 PROLOGO
 
-eLIBRO
 
 VII
 
 En silento de nokto malluma kaj peza, sub la ŝarĝo de pensoj tedeme venantaj, sub la prem’ de pasio volupte tentanta, for de mia junino amate-amanta
 
-min ekkaptis la paroksismo freneza. 
+min ekkaptis la paroksismo freneza.
 
 En koŝmaro de nokto, kun stranga amem’
 
-mi ekamis min mem. 
+mi ekamis min mem.
 
 Sed ne kisoj dolĉaj sonis reciproke, ne pasia korp’ al korp’ kontaktis —
 
-en volupto mi baraktis. 
+en volupto mi baraktis.
 
-Faŭkis la mallumo moke. 
+Faŭkis la mallumo moke.
 
 Luktis mi malforte-forta, luktis …
 
-vane penis, sed nenio fruktis. 
+vane penis, sed nenio fruktis.
 
-Sola ”ŝi” min savi povus de mi mem, per karesoj patrinecaj kaj sentem’. 
+Sola ”ŝi” min savi povus de mi mem, per karesoj patrinecaj kaj sentem’.
 
-Sola ”ŝi”… Sed estas revo, iluzio?\! 
+Sola ”ŝi”… Sed estas revo, iluzio?!
 
-ĉu solviĝos iam tiu ĉi problem’? 
+ĉu solviĝos iam tiu ĉi problem’?
 
-Estas ĉio kaj nenio. 
+Estas ĉio kaj nenio.
 
-66
-
-PROLOGO
-
-eLIBRO
-
-ĉu ekzistas eĉ ”mi mem”? 
-
-Eble ”mi” estas nur fantazio\!?\! 
-
-Saratov, 1918-19. 
-
-67
 
 PROLOGO
 
-eLIBRO
+
+ĉu ekzistas eĉ ”mi mem”?
+
+Eble ”mi” estas nur fantazio!?!
+
+Saratov, 1918-19.
+
+
+PROLOGO
+
 
 Papilio
 
-Dediĉas al amiko Polakov V. 
+Dediĉas al amiko Polakov V.
 
 Estas mi — papili’
 
-gajflirtanta en aero, 
+gajflirtanta en aero,
 
 dancas mi, ĝojas mi
 
-tutan tempon dum somero. 
+tutan tempon dum somero.
 
 De la lun’, ĝis la sun’
 
-kun korjun, 
+kun korjun,
 
-flugas mi; 
+flugas mi;
 
-de la ter’, de mizer’, 
+de la ter’, de mizer’,
 
 de sufer’
 
-fuĝas mi. 
+fuĝas mi.
 
 Kantas mi, gaja tril’
 
-ĉie flugas kun sincero, 
+ĉie flugas kun sincero,
 
-brilas mi per flugil’, 
+brilas mi per flugil’,
 
-ĉiujn vokas al etero. 
+ĉiujn vokas al etero.
 
-Firmament’, dolĉa sent’, 
+Firmament’, dolĉa sent’,
 
 sorĉa tent’
 
-regas min. 
+regas min.
 
-68
 
 PROLOGO
 
-eLIBRO
 
-Sunradi’\! Harmoni’\! 
+Sunradi’! Harmoni’!
 
 Dancas mi
 
-en senfin’\! 
+en senfin’!
 
 Mi estas filo
 
-de suna brilo, 
+de suna brilo,
 
 kaj per flugilo
 
-koketas mi. 
+koketas mi.
 
-Senzorge spiras, 
+Senzorge spiras,
 
-naturon miras, 
+naturon miras,
 
-mi kantas — liras, 
+mi kantas — liras,
 
-sonetas mi. 
+sonetas mi.
 
-Aromojn glutas, 
+Aromojn glutas,
 
-petolojn ŝutas, 
+petolojn ŝutas,
 
 ampersekutas
 
-kuninon mi. 
+kuninon mi.
 
-Ho, ŝi rifuzas, 
+Ho, ŝi rifuzas,
 
-min korkontuzas, 
+mrkontuzas,
 
-sed ne ĵaluzas, 
+sed ne ĵaluzas,
 
-belinon mi. 
+belinon mi.
 
-69
 
 PROLOGO
 
-eLIBRO
 
 Mi pluen vojaĝas
 
-sen ia difino, 
+sen ia difino,
 
 mi dronas, elnaĝas
 
-tra nuba river’; 
+tra nuba river’;
 
 naturo pejzaĝas
 
-sen limo, sen fino …. 
+sen limo, sen fino ….
 
 Kaj mi ne domaĝas
 
-pri laso de l’ter’\! 
+pri laso de l’ter’!
 
 Tie sube post mi restis plene
 
 maljusteco, envio, dolor’, —
 
-ĝi inkube torturis katene, 
+ĝi inkube torturis katene,
 
-ĝis mi lasis kaj flugis mi for. 
+ĝis mi lasis kaj flugis mi for.
 
-Min turmentis kruela ofendo, 
+Min turmentis kruela ofendo,
 
 profanado al mia korpur’, —
 
 Mi ne pensis pri vana defendo
 
-kaj formigris al vasta lazur’. 
+kaj formigris al vasta lazur’.
 
 Tie, ĉie
 
 helradie
 
-suno ridas jen; 
+suno ridas jen;
 
-70
 
 PROLOGO
 
-eLIBRO
 
 brile-trile
 
 mi facile
 
-flugas tra seren’. 
+flugas tra seren’.
 
 Mi estas papilio
 
-kun varianta koro, 
+kun varianta koro,
 
 ne scias pri envio
 
-kaj pri koler-memoro. 
+kaj pri koler-memoro.
 
-Mi flirtas, gajas, ridas, 
+Mi flirtas, gajas, ridas,
 
 nuancas per koloro
 
 kaj vivi ĝu-rapidas
 
-dum regas varma horo. 
+dum regas varma horo.
 
-”Al sun’, al sun’ ” ridetas la naturo, 
+”Al sun’, al sun’ ” ridetas la naturo,
 
 ”Al sun’, al sun’ ” batbatas mia kor’ …
 
-Baniĝas mi en suna uverturo, 
+Baniĝas mi en suna uverturo,
 
-konkordas mi kun kosma fluga hor’. 
+konkordas mi kun kosma fluga hor’.
 
-Kaj malsupre restis montoj kaj abismoj faŭkaj, kie raŭpis mi en stato de malforto, kaj de kie sonis voĉoj nazetone-raŭkaj, kie min minacis ekposedi morto. 
+Kaj malsupre restis montoj kaj abismoj faŭkaj, kie raŭpis mi en stato de malforto, kaj de kie sonis voĉoj nazetone-raŭkaj, kie min minacis ekposedi morto.
 
-71
 
 PROLOGO
 
-eLIBRO
 
-Frostoj kaj glacio, fal’ abrupt-subita, monstroj, strangaj monstroj kun simil’ je homoj, erupci’ de puso el vulkan’ zenita kaj senĉesaj fluoj de mucidaj vomoj. 
+Frostoj kaj glacio, fal’ abrupt-subita, monstroj, strangaj monstroj kun simil’ je homoj, erupci’ de puso el vulkan’ zenita kaj senĉesaj fluoj de mucidaj vomoj.
 
-Ne, mi ne bedaŭras, ke lasis mi subon, mi libera iĝis en ĉielen-flugo; 
+Ne, mi ne bedaŭras, ke lasis mi subon, mi libera iĝis en ĉielen-flugo;
 
-mi flirtante celas tra nubon kaj nubon, al la suno hela celas mi en fugo. 
+mi flirtante celas tra nubon kaj nubon, al la suno hela celas mi en fugo.
 
 Mi malsupre havis floron, belan rozon, kiu sola povis doni la ripozon
 
-dum alveno de krepusko. 
+dum alveno de krepusko.
 
 Mi vizitis ofte la amatan floron
 
@@ -2396,57 +2230,53 @@ Rozo kreskis inter musko …
 
 Foje mi alflugis. Rozon jam ne trovis —
 
-ŝin kruela vento, vento ŝin forblovis, kaj por mi survenis la krepusko. 
+ŝin kruela vento, vento ŝin forblovis, kaj por mi survenis la krepusko.
 
-72
 
 PROLOGO
 
-eLIBRO
 
-Natur’ ne atentis, 
+Natur’ ne atentis,
 
-ke mortis la floro; 
+ke mortis la floro;
 
 la koro lamentis
 
-pri rozo-viktim’. 
+pri rozo-viktim’.
 
 Mi restis en solo
 
-kun mia doloro, 
+kun mia doloro,
 
 sen ĉia konsolo
 
-je mia anim’. 
+je mia anim’.
 
-Tamen sun’ ekbrilis, 
+Tamen sun’ ekbrilis,
 
-najtingal’ ektrilis, 
+najtingal’ ektrilis,
 
-kaj sekiĝis miaj larmoj for. 
+kaj sekiĝis miaj larmoj for.
 
-Sed la koro febris, 
+Sed la koro febris,
 
 amon ĝi funebris
 
-kaj ploregis pri la amaŭror’. 
+kaj ploregis pri la amaŭror’.
 
 Ne, mi ne bedaŭras, ke teron forlasis —
 
-\(ĉu povas mi vivi, se mankas kunuloj?\) Kaj jen mi ekmigris, feliĉon ekĉasis: ja, eble, ĝin trovos mi inter nebuloj. 
+(ĉu povas mi vivi, se mankas kunuloj?) Kaj jen mi ekmigris, feliĉon ekĉasis: ja, eble, ĝin trovos mi inter nebuloj.
 
-73
 
 PROLOGO
 
-eLIBRO
 
-Mi vin adiaŭs, ho raŭpoj rampantaj, mi flugu superen sen vol’ je reveno; ĉielaj profundoj min logas bluantaj, libere mi spiras en pura sereno. 
+Mi vin adiaŭs, ho raŭpoj rampantaj, mi flugu superen sen vol’ je reveno; ĉielaj profundoj min logas bluantaj, libere mi spiras en pura sereno.
 
-Mi papilio estas, 
+Mi papilio estas,
 
-infan’ de sunradi’, 
+infan’ de sunradi’,
 
 mi sunbriladon festas
 
@@ -2454,221 +2284,209 @@ kaj himnas mi al ĝi:
 
 ”Nur vi, nur sola vi —
 
-ja estas amo, vero, 
+ja estas amo, vero,
 
-eterna poezi’, 
+eterna poezi’,
 
-eterna junlibero\!” 
+eterna junlibero!”
 
-˘arkov, 10 Aprilo 1919. 
+˘arkov, 10 .
 
-74
 
 PROLOGO
 
-eLIBRO
 
 Printempaĵoj
 
-Dediĉas al mia edzino-amiko. 
+Dediĉas al mia edzino-amiko.
 
 Vento karesis miajn buklojn
 
 Kvazaŭ amatino dum horo de l’amo; kisis la vento miajn lipojn —
 
-sur ili mi sentis ebrion de l’amo. 
+sur ili mi sentis ebrion de l’amo.
 
-Mi komprenis grandan sakramenton, sakramenton de l’naturo; 
+Mi komprenis grandan sakramenton, sakramenton de l’naturo;
 
-mi ekamis arde-flugan venton, 
+mi ekamis arde-flugan venton,
 
-kiu kisis min en puro. 
+kiu kisis min en puro.
 
-¯i min kisis, — malaperis, 
+i min kisis, — malaperis,
 
-jen aperis, jen foriĝis, 
+jen aperis, jen foriĝis,
 
 jen kliniĝis, jen aeris —
 
-mi pro kisoj ebriiĝis. 
+mi pro kisoj ebriiĝis.
 
-Vento, kiso, ĉirkaŭpreno, 
+Vento, kiso, ĉirkaŭpreno,
 
-korpa sveno, ventofluoj, 
+korpa sveno, ventofluoj,
 
-kaj turkiso — firmamento, 
+kaj turkiso — firmamento,
 
-farniento, amoĝuoj. 
+farniento, amoĝuoj.
 
-75
 
 PROLOGO
 
-eLIBRO
 
-Mi vin gloras en la kanto, 
+Mi vin gloras en la kanto,
 
-vin adoras la animo; 
+vin adoras la animo;
 
-estas ankaŭ mi vaganto, 
+estas ankaŭ mi vaganto,
 
-vi — aera, mi — en ŝimo. 
+vi — aera, mi — en ŝimo.
 
 Tial amas koro mia
 
-vin, Potenca, flugpasia. 
+vin, Potenca, flugpasia.
 
 Mi estas bardo
 
-de suna ardo, 
+de suna ardo,
 
-al ĝi kantadas kore mi; 
+al ĝi kantadas kore mi;
 
 ĝi estas dio
 
 de poezio
 
-kaj de pasi’. 
+kaj de pasi’.
 
-Dum ĝi karesas, 
+Dum ĝi karesas,
 
 mi plenforgesas
 
-kaj mi ripozas je banal’; 
+kaj mi ripozas je banal’;
 
-la pens’ vojaĝas, 
+la pens’ vojaĝas,
 
 en revoj naĝas
 
-al Ideal’. 
+al Ideal’.
 
-76
 
 PROLOGO
 
-eLIBRO
 
-Suno, varmo, bluo, 
+Suno, varmo, bluo,
 
-ĉarmo, juno, oro, 
+ĉarmo, juno, oro,
 
-rido, larmo, ĝuo, 
+rido, larmo, ĝuo,
 
-varmo en la koro. 
+varmo en la koro.
 
-Simfonio de printempo. Junaj tuŝoj de la vento blovetanta. 
+Simfonio de printempo. Junaj tuŝoj de la vento blovetanta.
 
-Harmonio, dolĉa tempo. Sunaj duŝoj; mararĝento strietanta. 
+Harmonio, dolĉa tempo. Sunaj duŝoj; mararĝento strietanta.
 
-Sur bulvardo verdiĝanta sidas paro: gefianĉoj ŝajnas ili; 
+Sur bulvardo verdiĝanta sidas paro: gefianĉoj ŝajnas ili;
 
 amrigardo korpikanta; ridas maro; arbobranĉoj ŝajnas trili:
 
-”Amu vin, amu, junkoroj, 
+”Amu vin, amu, junkoroj,
 
-dum tempo-juno torentas, 
+dum tempo-juno torentas,
 
-dum ekburĝonas la floroj, 
+dum ekburĝonas la floroj,
 
-dum la amemon vi sentas”. 
+dum la amemon vi sentas”.
 
 Nokto trankvila surnaĝas al lúna mar’
 
-ĉio ekdormis en tuta ĉirkaŭ’, 
+ĉio ekdormis en tuta ĉirkaŭ’,
 
 nur aŭdiĝetas korbatoj de l’júna par’
 
-kaj iufoje de katoj: ”miaŭ’, miaŭ’”. 
+kaj iufoje de katoj: ”miaŭ’, miaŭ’”.
 
-77
 
 PROLOGO
 
-eLIBRO
 
 Brilas okuloj, plenplenaj de áma larm’
 
 pro dolĉatendo, ekstazo kaj rav’; tamen en koro sentiĝas de drám’ alarm’
 
-kaj al ĝi ŝajnas jam plendi: ”miaŭ’, miaŭ’ ….” 
+kaj al ĝi ŝajnas jam plendi: ”miaŭ’, miaŭ’ ….”
 
 Pasos amtempo simile al mára ond’, venos kruela kun am’ adiaŭ’…
 
 Koro tremetas, kaj eąs amár-respond’:
 
-”Miaŭ’, miaŭ’, miaŭ’…” 
+”Miaŭ’, miaŭ’, miaŭ’…”
 
 ”Fji, fji, fji …” sonas melodi’ —
 
 ŝute-trilas najtingalo …
 
-Tsss … Aŭskultu ni. 
+Tsss … Aŭskultu ni.
 
-”Mi estas malgranda birdeto, 
+”Mi estas malgranda birdeto,
 
-modesta kun griza plumar’, 
+modesta kun griza plumar’,
 
-kaj tamen mi estas poeto, 
+kaj tamen mi estas poeto,
 
-helpanto en amo-deklar’. 
+helpanto en amo-deklar’.
 
-Min ĉiuj amantoj tre ŝatas, 
+Min ĉiuj amantoj tre ŝatas,
 
-aŭskultas al mia gajtril’, 
+aŭskultas al mia gajtril’,
 
 dum koroj iliaj trilbatas
 
-sub nokta silenta kovril’. 
+sub nokta silenta kovril’.
 
-78
 
 PROLOGO
 
-eLIBRO
 
-Mi kantas nur aman plezuron, 
+Mi kantas nur aman plezuron,
 
-belaĵojn, belecon de l’viv’, 
+belaĵojn, belecon de l’viv’,
 
-ĉar mem ili spertos teruron, 
+ĉar mem ili spertos teruron,
 
-banalon de l’prem-efektiv’. 
+banalon de l’prem-efektiv’.
 
-Nu, ili nun amu sincere, 
+Nu, ili nun amu sincere,
 
-dum pulsas en kor’ emoci’, 
+dum pulsas en kor’ emoci’,
 
 ĝis venos kruele-severe
 
-la tempo de l’viv-konvulsi’. 
+la tempo de l’viv-konvulsi’.
 
-Al ili mi kantos fabelon, 
+Al ili mi kantos fabelon,
 
-dormigan fabelon de l’sud’, 
+dormigan fabelon de l’sud’,
 
-ĝis luno forlasos ĉielon, 
+ĝis luno forlasos ĉielon,
 
-ĝis tago banalos en krud’. 
+ĝis tago banalos en krud’.
 
 Dorlotu, ho kanto, junkorojn
 
-per trilaj koloroj de l’am’, 
+per trilaj koloroj de l’am’,
 
-dum ili ne scias dolorojn, 
+dum ili ne scias dolorojn,
 
-dum vivo nur ŝajnas ornam’.” 
+dum vivo nur ŝajnas ornam’.”
 
-Nokto svenigas nin; tera parfumas sin’; korpo sopiras al ĝu’. 
+Nokto svenigas nin; tera parfumas sin’; korpo sopiras al ĝu’.
 
-Steloj smeraldas jen … Stele-briletas ben’, ben’ de ĉiela helblu’. 
+Steloj smeraldas jen … Stele-briletas ben’, ben’ de ĉiela helblu’.
 
-79
 
 PROLOGO
 
-eLIBRO
 
-Spiras natur’ je l’am’, flosas satur-balzam’, koron plenigas dezir’. 
+Spiras natur’ je l’am’, flosas satur-balzam’, koron plenigas dezir’.
 
 Lipojn kunligas kis’, kaŝas arbust-kulis’
 
@@ -2676,45 +2494,43 @@ korpojn en ama delir’…
 
 Matenruĝo nin surprizas
 
-lacajn de l’pasi-ebrio; 
+lacajn de l’pasi-ebrio;
 
 ĝiaj strioj nin avizas
 
-pri venonta sunradio. 
+pri venonta sunradio.
 
 Ni nin levas de-sur molaj
 
-herboj verdaj, rosebrilaj, 
+herboj verdaj, rosebrilaj,
 
 kaj revenas mut-parolaj
 
-kun la koroj pac-trankvilaj. 
+kun la koroj pac-trankvilaj.
 
-Harkov 26 Aprilo 1919. 
+Harkov 26 .
 
-80
 
 PROLOGO
 
-eLIBRO
 
 Torento
 
-Dediĉas al mia unua amiko L Gonĉar De monto alta, en fal’ senhalta, 
+Dediĉas al mia unua amiko L Gonĉar De monto alta, en fal’ senhalta,
 
-torento kuras, 
+torento kuras,
 
-perlante fluas, liberon ĝuas, 
+perlante fluas, liberon ĝuas,
 
-karesmurmuras. 
+karesmurmuras.
 
-Tra tuta mondo ŝaŭmadas ondo, 
+Tra tuta mondo ŝaŭmadas ondo,
 
-freŝecon spiras; 
+freŝecon spiras;
 
 pelante ŝlimon, ĝi la animon
 
-al Puro tiras. 
+al Puro tiras.
 
 En akvo ludas la sun’ korala
 
@@ -2724,196 +2540,162 @@ Nuancas akvo en flu’ defala
 
 kaj flustras ĝi:
 
-”…Venu al mi, ĉiuj junaj, 
+”…Venu al mi, ĉiuj junaj,
 
-kun varma, kun freŝa la kor’; 
+kun varma, kun freŝa la kor’;
 
-fluos ni fortaj kaj kunaj, 
+fluos ni fortaj kaj kunaj,
 
-la sunon kantante en ˛or’. 
+la sunon kantante en ˛or’.
 
-”Suno hela, suno varma, 
+”Suno hela, suno varma,
 
-lumradia, 
+lumradia,
 
 sur la bela, sur la ĉarma
 
-firmament’, 
+firmament’,
 
-81
 
 PROLOGO
 
-eLIBRO
 
 al vi iras nun sincera
 
-kanto nia, 
+kanto nia,
 
 vin aspiras jen libera
 
-la torent’. 
+la torent’.
 
-Diamanta, en purpuro, 
+Diamanta, en purpuro,
 
-varmodona, 
+varmodona,
 
-sun’ brilanta en lazuro, 
+sun’ brilanta en lazuro,
 
-en altec’, 
+en altec’,
 
 ni vin gloras, ho Potenco
 
-orekrona, 
+orekrona,
 
 vin adoras, ho Esenco
 
-de Belec’.” 
+de Belec’.”
 
-Verdaj ondoj trabatas graniton, 
+Verdaj ondoj trabatas graniton,
 
-ĉion voje forportas kun si, 
+ĉion voje forportas kun si,
 
-al Malnovo deklaras militon, 
+al Malnovo deklaras militon,
 
-belkantante en mova pasi’. 
+belkantante en mova pasi’.
 
-Verdaj ondoj kunportas fervoron, 
+Verdaj ondoj kunportas fervoron,
 
-flamigante per nova rimed’, 
+flamigante per nova rimed’,
 
-donas povon, instigas laboron, 
+donas povon, instigas laboron,
 
-pligrandigas fortecon de l’kred’. 
+pligrandigas fortecon de l’kred’.
 
-82
 
 PROLOGO
 
-eLIBRO
 
-ŝprucas akveroj de l’Helo, 
+ŝprucas akveroj de l’Helo,
 
-ŝprucas tra la universo; 
+ŝprucas tra la universo;
 
-brilas perleroj de l’Belo, 
+brilas perleroj de l’Belo,
 
-ŝutas kolorojn en verso. 
+ŝutas kolorojn en verso.
 
-Kantas la ondoj pri Vero, 
+Kantas la ondoj pri Vero,
 
 diras pri fin’ de turmento …
 
 Vokas al plena libero
 
-verda libera torento. 
+verda libera torento.
 
 Saratov 1918
 
-83
 
 PROLOGO
 
-eLIBRO
 
 Enhavo
 
 Enkonduko
 
-3
 
 Dediĉo al L. Ivn
 
-6
 
 Al L. Ivn
 
-8
 
 Letero al L. Ivn
 
-10
 
 Mi stelojn jungos…
 
-13
 
 Mi estas…
 
-14
 
 Perlas per la belo stelo-stilo
 
-16
 
 Ciklo de l’Arĝenta Astro
 
-17
 
 Amaj Melodioj
 
-23
 
 Paraleloj
 
-29
 
-El CikIo ”Frenezo” 
+El CikIo ”Frenezo”
 
-33
 
 El Abismo al Suno
 
-48
 
 I. Ajno
 
-50
 
 II. Papilio
 
-68
 
 III. Printempaĵoj
 
-75
 
 IV. Torento
 
-81
-
-84
 
 PROLOGO
 
-eLIBRO
 
-www.omnibus.se/inko
-
-ISBN 91-7303-150-4
-
-85
-
-
-
-
+www.omnibus.se/
 
 # Document Outline
 
-+ Enhavo  
-	+ Enkonduko  
-	+ Dedic'o al L. Ivn  
-	+ Al L. Ivn  
-	+ Letero al L. Ivn  
-	+ Mi stelojn jungos…  
-	+ Mi estas…  
-	+ Perlas per la belo stelo-stilo  
-	+ Amaj Melodioj  
-	+ Paraleloj  
-	+ El CikIo ”Frenezo”  
-	+ El Abismo al Suno   
-		+  I. Ajno  
-		+  II. Papilio  
-		+  III. Printempaj'oj  
-		+  IV. Torento
-
++ Enhavo
++ Enkonduko
++ Dediĉo al L. Ivn
++ Al L. Ivn
++ Letero al L. Ivn
++ Mi stelojn jungos…
++ Mi estas…
++ Perlas per la belo stelo-stilo
++ Amaj Melodioj
++ Paraleloj
++ El CikIo ”Frenezo”
++ El Abismo al Suno
++ I. Ajno
++ II. Papilio
++ III. Printempaĵoj
++ IV. Torento

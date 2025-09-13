@@ -1,11 +1,3 @@
-% La brava soldato S'vejk, 3
-% Jaroslav Has'ek
-
-!(images/000001.png)
-
-
-LA BRAVA SOLDATO ÔVEJK
-
 *e* LIBRO
 
 *e* LIBRO
@@ -18,7 +10,6 @@ soldato Ôvejk
 
 *3 • Glora batregalo*
 
-**I N K O**
 
 **1**
 
@@ -38,21 +29,16 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-*Aranĝis: Franko Luin*
 
-**ISBN 91-7303-093-7**
+*@omnibus.se*
 
-*inko@omnibus.se*
+** · **
 
-**INKO · SE-13542 TYRESÖ · SVEDIO**
+*http://www.omnibus.se/*
 
-*http://www.omnibus.se/inko*
-
-**JUNIO 2001**
 
 **2**
 
-!(images/000000.png)
 
 LA BRAVA SOLDATO ÔVEJK
 
@@ -62,7 +48,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 Fine ĉiuj ĝisatendis tiun momenton, kiam oni ŝtopis ilin en
 
-vagonojn en proporcio de kvardek du viroj al ok ĉevaloj. 
+vagonojn en proporcio de kvardek du viroj al ok ĉevaloj.
 
 ĉevaloj kompreneble vojaĝis pli komforte ol la viraro, ĉar ili
 
@@ -70,7 +56,7 @@ povis dormi stare, sed tio ne gravis. Soldata trajno ree vetu-
 
 rigis en Galicion novan grupon da homoj, pelataj al milta bu-
 
-ĉejo. 
+ĉejo.
 
 Sed ĝenerale tiuj kreaĵoj sentis kompreneble tamen nur
 
@@ -84,11 +70,11 @@ mortkondamnitoj, kiuj kun timo atendas, kiam venos por ili
 
 la ekzekutisto. Kaj poste sekvos trankviliĝo, ke tio estos jam
 
-finita. 
+finita.
 
-Tial ia soldato kriegis el vagono kiel frenezulo: ”Ni veturas, 
+Tial ia soldato kriegis el vagono kiel frenezulo: ”Ni veturas,
 
-ni veturas\!” 
+ni veturas!”
 
 **3**
 
@@ -96,9 +82,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-La ĉefserĝento-kontisto plene pravis, kiam li diris al Ôvejk, 
+La ĉefserĝento-kontisto plene pravis, kiam li diris al Ôvejk,
 
-ke ne necesas rapidi. 
+ke ne necesas rapidi.
 
 Antaŭ ol venis la momento por grimpi en vagonojn, pasis
 
@@ -112,7 +98,7 @@ veturo de la antaŭa marŝko. Se estas konservaĵoj, la milita
 
 meso forfalas. En mala okazo la milito meso estas kompen-
 
-so por konservaĵoj. 
+so por konservaĵoj.
 
 Kaj tiel anstataŭ gulaŝkonservaĵoj aperis ĉefkurato Ibl, kiu
 
@@ -120,13 +106,13 @@ mortigis tri muŝojn per unu bato. Li servis la militan meson
 
 por tri infanteriaj batalionoj samtempe, al du el ili donis be-
 
-non por la vojo en Serbion kaj al la tria en Rusion. 
+non por la vojo en Serbion kaj al la tria en Rusion.
 
 Li parolis ĉe tio kun granda entuziasmo kaj vidiĝis, ke la
 
 materialon por sia parolo li prenis el soldataj jarlibroj. Estis
 
-tio tiel kortuŝa parolo, ke kiam ili trajne rapidis al Moson, 
+tio tiel kortuŝa parolo, ke kiam ili trajne rapidis al Moson,
 
 Ôvejk, kiu estis kune kun Vanêk en vagono adaptita al kance-
 
@@ -144,11 +130,11 @@ de vunditaj viroj kaj lamentadon de la loĝantaro, al kiu bru-
 
 las la kabanoj super la kapo. Al mi tre plaĉas, kiam homoj
 
-babilas tiajn idiotajn idiotaĵojn.” 
+babilas tiajn idiotajn idiotaĵojn.”
 
 Vanêk konsente kapjesis: ”Estis tio diable kortuŝa okazin-
 
-taĵo.” 
+taĵo.”
 
 ”Tio estis tre bela kaj instrua,” diris Ôvejk; ”mi memoras
 
@@ -168,7 +154,7 @@ lan ekzemplon el la historio de nia armeo, kiam ankoraŭ sol-
 
 datis Radeckë kaj kun vespera ĉielruĝo kunfandiĝis fajro de
 
-brulantaj garbejoj sur batalkampo, kvazaŭ li tion vidus.” 
+brulantaj garbejoj sur batalkampo, kvazaŭ li tion vidus.”
 
 Kaj la saman tagon la ĉefkurato Ibl estis jam en Vieno kaj
 
@@ -176,7 +162,7 @@ tie al alia marŝbataliono denove rakontis la kortuŝan histori-
 
 on, kiun menciis Ôvejk kaj kiu plaĉis al li tiom, ke li nomis ĝin
 
-idiota idiotaĵo. 
+idiota idiotaĵo.
 
 ”Karaj soldatoj,” oratoris la ĉefkurato Ibl, ”imagu do, ke
 
@@ -184,13 +170,13 @@ estas la jaro 1848 kaj ke venke finiĝis la batalo ĉe Custozza**1**, kie post d
 
 la sangokovritan batalejon al la patro de niaj soldatoj, la mar-
 
-ŝalo Radeckë, kiu en okdekkvara jaro de sia vivo**2** akiris tiel brilan venkon. 
+ŝalo Radeckë, kiu en okdekkvara jaro de sia vivo**2** akiris tiel brilan venkon.
 
-Kaj jen, karaj soldatoj\! Sur altaĵo antaŭ la konkerita Custoz-
+Kaj jen, karaj soldatoj! Sur altaĵo antaŭ la konkerita Custoz-
 
 za haltis la maljunega militestro. ĉirkaŭ li liaj fidelaj koman-
 
-dantoj. Seriozeco de la momento falis sur la tutan grupeton, 
+dantoj. Seriozeco de la momento falis sur la tutan grupeton,
 
 soldatoj, ĉar en malgrandeta distanco de la marŝalo vidiĝis
 
@@ -206,11 +192,9 @@ rigidiĝanta dekstra mano. ĉe ekvido de la nobla marŝalo an-
 
 koraŭfoje vigliĝis lia korbatado, la kripligitan korpon penet-
 
-1
 
-en la batalo ĉe Custozza \(26.7.1848\) la armeo de la marŝalo Radeckë venkis kontraŭ itala reĝo Karolo Alberto, kiu al la Aŭstrio devis poste cedi Lombardion
+en la batalo ĉe Custozza (26.7.1848) la armeo de la marŝalo Radeckë venkis kontraŭ itala reĝo Karolo Alberto, kiu al la Aŭstrio devis poste cedi Lombardion
 
-2
 
 en la jaro de la batalo ĉe Custozza Radeckë aĝis okdek du jarojn
 
@@ -222,13 +206,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 ris lasta resto de forto kaj la mortanto kun superhoma peno
 
-provis rampi renkonten al sia marŝalo. 
+provis rampi renkonten al sia marŝalo.
 
-’Trankvile kuŝu, mia brava soldato,’ vokis al li la marŝalo, 
+’Trankvile kuŝu, mia brava soldato,’ vokis al li la marŝalo,
 
-descendis de sur la ĉevalo kaj volis prezenti al li la manon. 
+descendis de sur la ĉevalo kaj volis prezenti al li la manon.
 
-’Tio ne eblas, sinjoro marŝalo,’ diris la mortanta soldato, 
+’Tio ne eblas, sinjoro marŝalo,’ diris la mortanta soldato,
 
 ’mi havas ambaŭ manojn forhakitaj, sed mi petas pri unu afe-
 
@@ -254,7 +238,7 @@ kis, klopodante kisi la manon de sia komandanto. ’Kiel longe
 
 vi soldatas?’ demandis ĉi tiu. ’Pli ol kvardek jarojn, sinjoro
 
-marŝalo\! ĉe Aspern mi akiris oran medalon. Mi estis ankaŭ
+marŝalo! ĉe Aspern mi akiris oran medalon. Mi estis ankaŭ
 
 ĉe Lepsiko, ankaŭ kanonkrucon mi havas**3**, kvinfoje mi estis
 
@@ -264,19 +248,18 @@ kaj ĝojo, ke mi ĝisvivis la hodiaŭan tagon. Kial mi bedaŭrus
 
 mian morton, se ni akiris gloran venkon kaj al la imperiestro
 
-redonita lia teritorio\!’
+redonita lia teritorio!’
 
 En tiu momento, karaj soldatoj, eksonis el la tendaro ma-
 
 jestaj tonoj de nia himno ’Gardu, Dio, Lian moŝton’, poten-
 
-3
 
-la ordenon \(pli precize insignon\) ”kanonkruco” fondis Francisko Jozefo la unua por soldatoj, kiuj eminentiĝis en batalo kontraŭ Napoleono ĉe Lepsiko \(16.-18.10.1813\). La ordenon \(insignon\) en la formo de kruco oni fabrikis el kanonoj, militakiritaj en la menciita batalo. 
+la ordenon (pli precize insignon) ”kanonkruco” fondis Francisko Jozefo la unua por soldatoj, kiuj eminentiĝis en batalo kontraŭ Napoleono ĉe Lepsiko (16.-18.10.1813). La ordenon (insignon) en la formo de kruco oni fabrikis el kanonoj, militakiritaj en la menciita batalo.
 
 La batalo mem estas konata ankaŭ sub la nomo ”la batalo de naci-
 
-oj” 
+oj”
 
 **6**
 
@@ -284,13 +267,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ce kaj noble flugis tra la batalejo. La falinta soldato, adiaŭanta la vivon, provis ankoraŭfoje retrovi la fortojn. 
+ce kaj noble flugis tra la batalejo. La falinta soldato, adiaŭanta la vivon, provis ankoraŭfoje retrovi la fortojn.
 
-’Gloron al Aŭstrio,’ li vokis entuziasme, ’gloron al Aŭstrio\! 
+’Gloron al Aŭstrio,’ li vokis entuziasme, ’gloron al Aŭstrio!
 
-Oni daŭrigu tiun brilan kanton\! Gloron al nia militestro\! Vivu
+Oni daŭrigu tiun brilan kanton! Gloron al nia militestro! Vivu
 
-la armeo\!’
+la armeo!’
 
 La mortanto ankoraŭfoje klinis sin al la dekstra mano de
 
@@ -302,17 +285,17 @@ kadavro de unu el la plej bravaj soldatoj. ’Tiu ĉi bela fino es-
 
 tas vere enviinda,’ diris la emociita marŝalo, klinante sian vi-
 
-zaĝon al interplektitaj manplatoj. 
+zaĝon al interplektitaj manplatoj.
 
 Karaj soldatoj, ankaŭ mi al vi deziras, ke vi ĉiuj ĝisatendu
 
-tian belan finon.” 
+tian belan finon.”
 
 Rememorante tiun ĉi parolon de la ĉefkurato Ibl, Ôvejk ve-
 
 re povis lin nomi idiota idioto sen tio, ke li eĉ ajnete lin ho-
 
-norofendus. 
+norofendus.
 
 Poste Ôvejk komencis paroli pri konataj ordonoj, kiujn oni
 
@@ -324,21 +307,19 @@ fo Ferdinando, la ĉefkomandanto de la orienta armeo kaj kor-
 
 puso, kiuj ambaŭ koncernis la okazaĵojn en la intermonto ĉe
 
-Dukla la 3an de aprilo 1915, kiam du batalionoj de la dude-
+Dukla la 3an de , kiam du batalionoj de la dude-
 
-koka regimento eĉ kun oficiroj transiris al la rusoj**4** ĉe sonoj de la regimenta kapelo. 
+koka regimento eĉ kun oficiroj transiris al la rusoj**4** ĉe sonoj de la regimenta kapelo.
 
 Ambaŭ ordonojn oni legis al ili tremvoĉe kaj ili tekstis en
 
 la ĉeą traduko:
 
-Armea ordono, eldonita la 17an de aprilo 1915:
 
 ”Superplenigita de doloro mi ordonas, ke i.r. infanteria re-
 
 gimento nro 28 estu forstrekita el mia armeo pro malkuraĝo
 
-4
 
 vera dato kaj okazintaĵo
 
@@ -356,33 +337,33 @@ hodiaŭa tago ĉesas ekzisti regimento, kiu, morale venenita el
 
 la hejmo, ekmarŝis sur batalkampon por kulpiĝi pri ŝtatperfi-
 
-do.” 
+do.”
 
 Francisko Jozefo la unua
 
 Ordono de la arkiduko Jozefo Ferdinando:
 
-”Dum la militiro ĉeąj trupunuoj trompis niajn esperojn, 
+”Dum la militiro ĉeąj trupunuoj trompis niajn esperojn,
 
 precipe en la lastaj bataloj. Ili trompis precipe ĉe la defendo
 
-de pozicioj, en kiuj ili estis sufiĉe longan tempon en tranĉeoj, 
+de pozicioj, en kiuj ili estis sufiĉe longan tempon en tranĉeoj,
 
 kion ofte eluzis la malamiko por ligi interrilatojn kaj kontak-
 
-ton kun damnindaj elementoj de tiuj ĉi trupunuoj. 
+ton kun damnindaj elementoj de tiuj ĉi trupunuoj.
 
-La atakoj de la malamiko, subtenata de tiuj ĉi perfiduloj, 
+La atakoj de la malamiko, subtenata de tiuj ĉi perfiduloj,
 
 ĉiam plejparte celis kontraŭ tiuj partoj de la fronto, kiujn oku-
 
-pis tiaj trupunuoj. 
+pis tiaj trupunuoj.
 
 La malamiko ofte sukcesis surprizi niajn trupunuojn, pre-
 
-skaŭ sen rezisto penetri en niajn poziciojn kaj militkapti egan, 
+skaŭ sen rezisto penetri en niajn poziciojn kaj militkapti egan,
 
-grandan kvanton da defendantoj. 
+grandan kvanton da defendantoj.
 
 Milfojan malhonoron, malestimon kaj malrespekton al tiuj
 
@@ -392,19 +373,19 @@ kaj makulas ne nur la honoron de gloraj standardoj de nia
 
 eminenta kaj brava armeo, sed ankaŭ la honoron de tiu na-
 
-cieco, kiun ili proklamas kiel sian. 
+cieco, kiun ili proklamas kiel sian.
 
 Pli aŭ malpli frue atingos ilin kuglo aŭ ŝnurego de la ekze-
 
-kutisto. 
+kutisto.
 
 Devo de ĉiu unuopa ĉeą soldato, kiu havas la honoron en
 
 la korpo, estas anonci al sia komandanto tian fiulon, provo-
 
-kulon kaj perfidulon. 
+kulon kaj perfidulon.
 
-Kiu tion ne faros, mem estas tia perfidulo kaj fiulo. 
+Kiu tion ne faros, mem estas tia perfidulo kaj fiulo.
 
 **8**
 
@@ -414,13 +395,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 Tiun ĉi ordonon oni tralegu al ĉiuj soldatoj ĉe ĉeąj regi-
 
-mentoj. 
+mentoj.
 
 Laŭ la ordono de nia monarko la i.r. regimento nro 28 es-
 
 tas jam strekita el la armeo kaj ĉiuj kaptitaj transkurintoj de
 
-la regimento pagos la pezan kulpon per sia sango.” 
+la regimento pagos la pezan kulpon per sia sango.”
 
 La arkiduko Jozefo Ferdinando
 
@@ -430,13 +411,13 @@ ege miras, ke oni legis al ni tion nur nun, se sinjoro imperies-
 
 tro eldonis tiun ordonon jam la 17an de aprilo. Tio povus veki
 
-supozon, kvazaŭ pro iaj kaŭzoj oni ne igus legi al ni tion tuj. 
+supozon, kvazaŭ pro iaj kaŭzoj oni ne igus legi al ni tion tuj.
 
-Se mi estus sinjoro imperiestro, mi ne lasus min tiel forpuŝi. 
+Se mi estus sinjoro imperiestro, mi ne lasus min tiel forpuŝi.
 
 Se li eldonis ordonon la 17an de aprilo, do ankaŭ la deksepan
 
-oni devas legi ĝin ĉe ĉiuj regimentoj, okazu kio ajn.” 
+oni devas legi ĝin ĉe ĉiuj regimentoj, okazu kio ajn.”
 
 Kontraŭ Vanêk ĉe alia flanko de la vagono sidis la kuiris-
 
@@ -452,21 +433,21 @@ sterne klarigante al la telefonisto Chodounskë, ke tio ne es-
 
 tas lia kulpo, se en tiu hompuŝiĝo dum envagoniĝado li ne
 
-povis trapuŝi sin en oficiran vagonon al sia ĉefleŭtenanto. 
+povis trapuŝi sin en oficiran vagonon al sia ĉefleŭtenanto.
 
 Chodounskë lin teruris, ke nun ĉesas ĉia amuzo, ke tion
 
-oni punos per kuglo. 
+oni punos per kuglo.
 
-”Kiam estos jam fino de tiu turmento,” lamentis Baloun, 
+”Kiam estos jam fino de tiu turmento,” lamentis Baloun,
 
-”jam foje mi estis en mortdanĝero dum manovroj ĉe Votice. 
+”jam foje mi estis en mortdanĝero dum manovroj ĉe Votice.
 
 Tie ni marŝis, malsatante kaj soifante, kaj kiam ĉevalrajdis al
 
 ni bataliona adjutanto, mi ekkriis: ’Donu al ni akvon kaj pa-
 
-non\!’ Li turnis la ĉevalon al mi kaj diris, ke se tio estus en
+non!’ Li turnis la ĉevalon al mi kaj diris, ke se tio estus en
 
 milito, mi devus elliri el la vico kaj li igus min mortpafi kaj ke **9**
 
@@ -480,17 +461,17 @@ feliĉon, ĉar kiam li rajdis por anonci tion ĉe la stabo, lia ĉe-
 
 valo dumvoje konfuziĝis, li falis kaj, dank’ al dio, rompis al si
 
-la nukon.” 
+la nukon.”
 
 Baloun profunde ekĝemis kaj sufokiĝe ektusis pro panglu-
 
 to en la gorĝo, kaj respirinte, li avide ekrigardis du sakojn de
 
-la ĉefleŭtenanto Lukáô, kiujn li gardis. 
+la ĉefleŭtenanto Lukáô, kiujn li gardis.
 
 ”Ili ricevis,sinjoroj oficiroj,” li diris melankolie, ”hepatkon-
 
-servaĵojn kaj hungaran salamon. Havi almenaŭ peceton.” 
+servaĵojn kaj hungaran salamon. Havi almenaŭ peceton.”
 
 ĉe tio li rigardis tiujn du sakojn de sia ĉefleŭtenanto tiel
 
@@ -498,7 +479,7 @@ avide kiel hundeto forlasita de ĉiuj, kiu malsatas kiel lupo kaj
 
 sidas ĉe pordo de fumaĵista vendejo, enspirante vaporojn el
 
-kuirata kolbaso. 
+kuirata kolbaso.
 
 ”Ne malutilus,” diris Chodounskë, ”se oni atendus nin ie
 
@@ -550,7 +531,7 @@ tuta lago. Mi memoras, ke en iu stacio moŝtulinoj kaj fraŭli-
 
 netoj regalis nin per biero kaj ni urinis en ilian ladkruĉon kun
 
-biero, kaj tiuj kuregis de la vagono\! 
+biero, kaj tiuj kuregis de la vagono!
 
 Dum la tuta vojo ni ĉiuj estis kiel sub narkotiko, mi ne per-
 
@@ -560,7 +541,7 @@ te ordono kaj ĉio elvagoniĝi, ni eĉ ne finludis kartojn. Kapo-
 
 ralo, mi jam ne memoras lian nomon, kriis al siaj soldatoj, ke
 
-ili kantu: ’Kaj la serboj devas vidi, ke ni, aŭstrianoj, venkas, 
+ili kantu: ’Kaj la serboj devas vidi, ke ni, aŭstrianoj, venkas,
 
 venkas.’ Sed iu de malantaŭe lin piedbatis kaj li rulfalis su
 
@@ -576,7 +557,7 @@ liona komandanto kaj kunvokis ĉiujn al konsiliĝo, kaj poste
 
 venis nia ĉefleŭtenanto Macek, ortodoksa ĉe˛o sed parolanta
 
-nur germane kaj diris, pala kiel kreto, ke veturi plu ne eblas, 
+nur germane kaj diris, pala kiel kreto, ke veturi plu ne eblas,
 
 ke oni eksplodigis la relojn en aeron, ke la serboj nokte trans-
 
@@ -586,7 +567,6 @@ stra alo. Sed tio estas de ni ankoraŭ malproksime. Nin laŭdire
 
 plifortigos pluaj trupoj kaj poste ni ilin dishakos. Se io ko-
 
-5
 
 3-6 soldatoj starigas siajn fusilojn per la kolbo teren tiel, ke la fusiloj reciproke sin subtenas kaj memorigas do tiel piramidon. Tiu ĉi ordono signifis ripozon post longa marŝo, sed ankaŭ tion, ke tiu ĉi ripozo ne daŭros longe
 
@@ -624,13 +604,13 @@ veturis municia trajno kaj tiu ŝajne jam falis en serbajn manojn. La ĉefleŭte
 
 ŝtoniĝinta kaj poste, mem ne sciante, kial, li donis ordonon
 
-’Surmeti bajonetojn\!’, nur tiel en senespero, por ke oni ion
+’Surmeti bajonetojn!’, nur tiel en senespero, por ke oni ion
 
 faru. Sufiĉe longe ni staris denove batalpretaj, poste ni al-
 
 teriĝis sur ŝpalojn, ĉar aperis aeroplano kaj suboficiroj krie-
 
-gis: ’ĉiuj en kaŝejon, en kaŝejon\!’ Poste montriĝis, ke temis pri
+gis: ’ĉiuj en kaŝejon, en kaŝejon!’ Poste montriĝis, ke temis pri
 
 nia aeroplano kaj nia artilerio pro eraro ĝin forpafis. Ni do
 
@@ -652,7 +632,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ciroj, ’direkte al la valo, unu post la alia\!’ Kaj poste tio ko-
+ciroj, ’direkte al la valo, unu post la alia!’ Kaj poste tio ko-
 
 menciĝis. Kvazaŭ oni tion atendus, oni komencis pafi kontraŭ
 
@@ -662,7 +642,7 @@ kaj tie dancis ĉiuj diabloj. Ni ŝovrampis helpe de la kvar membroj en la valon
 
 ŝpaloj. La ĉefleŭtenanton Macek trafis tio de flanke en la ka-
 
-pon kaj li ne diris eĉ vorton. Antaŭ ol ni forkuris en la valon, 
+pon kaj li ne diris eĉ vorton. Antaŭ ol ni forkuris en la valon,
 
 estis multe da mortigitoj kaj vunditoj. Tiujn ni tie lasis kaj
 
@@ -682,7 +662,7 @@ orfoj, neniu volis ion pri ni scii kaj oni alvicigis nin al la sepdektria regime
 
 granda ĝojo, sed unue ni devis proksimume unu tagon marŝi
 
-antaŭen, ol ni venis al la sepdektria regimento. Poste ni…” 
+antaŭen, ol ni venis al la sepdektria regimento. Poste ni…”
 
 Jam neniu lin aŭskultis, ĉar Ôvejk kun Vanêk ludis mari-
 
@@ -692,9 +672,9 @@ nadi novan teozofian revuon, Baloun dormetis sur benko, kaj
 
 tiel al la telefonisto Chodounskë restis nenio alia ol ripeti:
 
-”Jes, tion mi ne forgesos…” 
+”Jes, tion mi ne forgesos…”
 
-Li leviĝis kaj iris kibici al mariaĝo. 
+Li leviĝis kaj iris kibici al mariaĝo.
 
 ”Vi povus almenaŭ ekbruligi al mi la pipon,” diris Ôvejk
 
@@ -712,15 +692,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 vangobatus. Kial mi ankoraŭ momenton ne retenis tiun re-
 
-ĝon, ĝuste nun venis al mi damo. Mi estas idioto.” 
+ĝon, ĝuste nun venis al mi damo. Mi estas idioto.”
 
 Intertempe la kuiristo-okultisto finis sian leteron kaj legis
 
 ĝin kun senduba kontento, kiel bele li skribis tion por super-
 
-ruzi la soldatan cenzuron. 
+ruzi la soldatan cenzuron.
 
-”Kara edzino\! 
+”Kara edzino!
 
 Kiam vi ricevos tiujn ĉi liniojn, mi estos jam kelke da tagoj
 
@@ -736,7 +716,7 @@ mi kuiros al niaj sinjoroj oficiroj gulaŝon laŭ la Szegeda ma-
 
 niero, sed mia espero ne plenumiĝis. Eble kiam ni alveturos
 
-Galicion, mi havos la okazon kuiri veran galician soŭleton, 
+Galicion, mi havos la okazon kuiri veran galician soŭleton,
 
 anseron stufitan en grio aŭ rizo. Kredu al mi, kara Helenja, ke
 
@@ -750,15 +730,15 @@ mi povu, eĉ se per malriĉaj rimedoj, levi la oficiran militkui-
 
 rejon en la fronto al la plej alta nivelo. ĉu vi memoras, kara
 
-Helenja, ke vi deziris al mi ĉe mia rekrutiĝo al la regimento, 
+Helenja, ke vi deziris al mi ĉe mia rekrutiĝo al la regimento,
 
-ke mi ricevu bonanimajn superulojn? Via deziro plenumiĝis, 
+ke mi ricevu bonanimajn superulojn? Via deziro plenumiĝis,
 
 kaj ne nur ke mi tute ne povas plendi, male, ĉiuj sinjoroj ofi-
 
 ciroj estas niaj veraj amikoj, kaj precipe al mi ili kondutas kiel la patro. Kiom eble plej baldaŭ mi sciigos al vi la numeron de
 
-nia feldpoŝto…” 
+nia feldpoŝto…”
 
 Tiu ĉi letero estis eldevigita de cirkonstancoj, kiam la kui-
 
@@ -782,15 +762,15 @@ kun marŝko al la fronto, konfidinte la oficiran kuirejon de la
 
 regimento al kompatinda instruisto de la blindulinstituto en
 
-Klárov. 
+Klárov.
 
 La kuiristo-okultisto ankoraŭfoje fluglegis, kion li skribis
 
 kaj kio ŝajnis al li esti tre diplomata por teni sin tamen nur
 
-iom pli malproksime de la batalkampo, ĉar, oni diru kion ajn, 
+iom pli malproksime de la batalkampo, ĉar, oni diru kion ajn,
 
-estas tio tamen nur eskapo ankaŭ en la fronto. 
+estas tio tamen nur eskapo ankaŭ en la fronto.
 
 Aliflanke, kiam ankoraŭ en la civila vivo li estis redaktoro
 
@@ -798,7 +778,7 @@ kaj posedanto de okulta revuo por postmortaj sciencoj, li
 
 skribis longan meditplenan artikolon pri tio, ke neniu timu la
 
-morton kaj pri metempsikozo. 
+morton kaj pri metempsikozo.
 
 Ankaŭ li alpaŝis al Ôvejk kaj Vanêk por fari kibicon. Inter
 
@@ -806,25 +786,24 @@ ambaŭ ludantoj tiutempe vidiĝis neniu diferenco en la solda-
 
 ta rango. La mariaĝon ludis jam ne tiuj du, sed tri, kun Cho-
 
-dounskë. 
+dounskë.
 
 La kuriero Ôvejk vulgare insultis la ĉefserĝenton-kontiston
 
-Vanêk: ”Mi miras al vi, ke vi povas ludi tiel idiote. Ja vi vidas, ke li ludas betlon**6**. Mi havas neniujn karoojn, kaj vi ne elmetis la okon, kiel la plej stulta bruto vi ĵetas la trefbubon kaj li, 
+Vanêk: ”Mi miras al vi, ke vi povas ludi tiel idiote. Ja vi vidas, ke li ludas betlon**6**. Mi havas neniujn karoojn, kaj vi ne elmetis la okon, kiel la plej stulta bruto vi ĵetas la trefbubon kaj li,
 
-senspritulo, gajnis la ludon.” 
+senspritulo, gajnis la ludon.”
 
 ”Tiom da kriego pro unu malgajnita betlo,” sonis deca re-
 
-spondo de la ĉefserĝento-kontisto, ”vi mem ludas kiel idioto. 
+spondo de la ĉefserĝento-kontisto, ”vi mem ludas kiel idioto.
 
 Mi elsuĉu el la fingro la karoan okon, se ankaŭ mi havas ne-
 
-niujn karoojn, mi havis nur altrangajn pikojn kaj trefojn, vi, 
+niujn karoojn, mi havis nur altrangajn pikojn kaj trefojn, vi,
 
-gastejaĉulo.” 
+gastejaĉulo.”
 
-6
 
 en la kartludo mariaĝo, betlo havas avantaĝon antaŭ normala ludo
 
@@ -844,7 +823,7 @@ kun rideto, ”tio estas same tiel kiel foje sube en ’ĉe Valŝa’, tie anka�
 
 ĝin, la plej malaltrangajn kartojn li ĉiam formetis en talonon
 
-kaj ebligis al ĉiu ludi betlon. Sed kiajn kartojn li havis\! De ĉiuj koloroj la plej altrangajn. Kiel nun mi havus nenion el tio, se
+kaj ebligis al ĉiu ludi betlon. Sed kiajn kartojn li havis! De ĉiuj koloroj la plej altrangajn. Kiel nun mi havus nenion el tio, se
 
 vi ludus dur˛on, ankaŭ tiam mi gajnus nenion kaj same an-
 
@@ -858,13 +837,13 @@ ludi kion li volas, ni tenu la langon malantaŭ la dentoj, li laŭ-
 
 dire finstudis universitaton. Sed por tio li pagis kare. La ga-
 
-stejestro estis nia konato, la kelnerinon ni konis eĉ tro intime, 
+stejestro estis nia konato, la kelnerinon ni konis eĉ tro intime,
 
 tiel ni klarigis al patrolo, ke ĉio estas en ordo. Unue, ke estas
 
-de li arogantaĵo rompi la noktan silenton kaj voki patrolon, 
+de li arogantaĵo rompi la noktan silenton kaj voki patrolon,
 
-se li ie antaŭ gastejo falis sur glacikovrita vojo kaj glitis sur ĝi per la nazo, ĝis li ĝin al si rompvundis. Ke ni lin eĉ ne tuŝis, 
+se li ie antaŭ gastejo falis sur glacikovrita vojo kaj glitis sur ĝi per la nazo, ĝis li ĝin al si rompvundis. Ke ni lin eĉ ne tuŝis,
 
 kiam li falsludis mariaĝon, kaj kiam tio malkaŝiĝis, li elkuris
 
@@ -878,15 +857,14 @@ scias kia sinjoro, ĉar li estis universitata profesoro, kaj mari-
 
 aĝon li komprenis kiel bovo muzikon. Do, kiu nun havas la
 
-devon disdoni kartojn?” 
+devon disdoni kartojn?”
 
-”Ni ludu cvikon**7**,” proponis la kuiristo-okultisto, ”por unu kaj du dudekhelerojn:” 
+”Ni ludu cvikon**7**,” proponis la kuiristo-okultisto, ”por unu kaj du dudekhelerojn:”
 
-7
 
 komence de la ludo ĉiu ludanto metas en la bankon interkonsenti-
 
-tan sumon \(Jurajda proponas dudekheleran moneron\) kaj ricevas
+tan sumon (Jurajda proponas dudekheleran moneron) kaj ricevas
 
 kvar kartojn; kian ajn kvanton da ili li rajtas ŝanĝi por aliaj. Poste li povas aŭ rezigni la ludon, aŭ provi akiri iun prenon; sed se li ne ha-16
 
@@ -898,7 +876,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ĉefserĝento-kontisto Vanêk, ”kiel vi rakontis tion al fraŭlino
 
-en la kantino, kiam vi frakasis al vi la nazon.” 
+en la kantino, kiam vi frakasis al vi la nazon.”
 
 ”Pri tiu metempsikozo mi ankaŭ jam aŭdis,” ekparolis
 
@@ -906,7 +884,7 @@ en la kantino, kiam vi frakasis al vi la nazon.”
 
 pardono diras, mi memkleriĝos por ne resti neinstruita, kaj
 
-mi vizitadis la legoĉambron de la Industria unuiĝo en Prago, 
+mi vizitadis la legoĉambron de la Industria unuiĝo en Prago,
 
 sed ĉar mi estis vestita en ĉifonoj kaj sur miaj sidvangoj lumis
 
@@ -926,7 +904,7 @@ formiĝis en simion, el la simio li iĝis melo kaj el la melo estis
 
 ministro. Poste en la soldatservo mi konvinkiĝis, ke en tio
 
-devas esti iom da vero, ĉar ĉiu, kiu havis ian rangosteleton, 
+devas esti iom da vero, ĉar ĉiu, kiu havis ian rangosteleton,
 
 nomis soldatojn aŭ marporkoj aŭ per alia bestonomo, kaj el
 
@@ -936,11 +914,11 @@ estis gloraj militestroj. Sed se eksplodis la milito, estas tia
 
 transmigrado de animoj tre stulta afero. Diablo scias, kiom-
 
-foje la homo devas transformiĝi ol li iĝos, ni diru, telefonisto, 
+foje la homo devas transformiĝi ol li iĝos, ni diru, telefonisto,
 
-vas eĉ unu prenon, li devas ĉe la sekvanta ludo pagi pli altan inter-konsentitan sumon \(Jurajda proponas du dudekhelerajn monerojn\). 
+vas eĉ unu prenon, li devas ĉe la sekvanta ludo pagi pli altan inter-konsentitan sumon (Jurajda proponas du dudekhelerajn monerojn).
 
-ĉiun el la kvar prenoj akiras tiu, kiu metis sur la tablon la plej alt-rangan karton de la elmetita koloro, aŭ, se li tian ne havas, karton en koloro de atuto. Pri koloro de atuto decidas karto, reversigita sur la tablo kiel la lasta post disdono de kartoj al ĉiuj ludantoj. Tiun karton povas la ludanto disdonanta kartojn preni \(alproprigi al si\); se temas pri sepo aŭ aso, li devas ĝin preni. Se li poste rezignas, li pagas duobligitan bazan sumon, aŭ la saman sumon, kiu estas en la
+ĉiun el la kvar prenoj akiras tiu, kiu metis sur la tablon la plej alt-rangan karton de la elmetita koloro, aŭ, se li tian ne havas, karton en koloro de atuto. Pri koloro de atuto decidas karto, reversigita sur la tablo kiel la lasta post disdono de kartoj al ĉiuj ludantoj. Tiun karton povas la ludanto disdonanta kartojn preni (alproprigi al si); se temas pri sepo aŭ aso, li devas ĝin preni. Se li poste rezignas, li pagas duobligitan bazan sumon, aŭ la saman sumon, kiu estas en la
 
 banko, se li ne rezignis kaj ne akiris almenaŭ du prenojn
 
@@ -962,19 +940,19 @@ animo tuj transloĝiĝas en bovinon ĉe trajnotrupo, el tiu bo-
 
 vino oni kuiras gulaŝon por la viraro kaj la animo tuj migras
 
-el la bovino ekzemple en telefoniston, el la telefonisto…” 
+el la bovino ekzemple en telefoniston, el la telefonisto…”
 
 ”Mi miras,” diris la telefonisto Chodounskë, okulfrape
 
-ofendita, ”ke ĝuste mi devas esti celo de idiotaj spritaĵoj”. 
+ofendita, ”ke ĝuste mi devas esti celo de idiotaj spritaĵoj”.
 
 ”ĉu tiu Chodounskë, kiu havas privatan detektivan insti-
 
-tuton kun la okulo kiel la Dia Triunuo**8**, ne estas via parenco?” 
+tuton kun la okulo kiel la Dia Triunuo**8**, ne estas via parenco?”
 
-demandis Ôvejk senkulpe. ”Mi tre ŝatas privatajn detektivojn. 
+demandis Ôvejk senkulpe. ”Mi tre ŝatas privatajn detektivojn.
 
-Foje antaŭ jaroj mi soldatservis ankaŭ kun privata detektivo, 
+Foje antaŭ jaroj mi soldatservis ankaŭ kun privata detektivo,
 
 laŭnome Stendler. Tiu havis la kapon tiel elipsoida, ke nia
 
@@ -982,7 +960,7 @@ laŭnome Stendler. Tiu havis la kapon tiel elipsoida, ke nia
 
 multe da soldataj kurbaj kapoj, sed ke pri tia elipsoido li eĉ
 
-enmense ne havis imagon. ’Aŭdu, Stendler,’ li diris al li ĉiam, 
+enmense ne havis imagon. ’Aŭdu, Stendler,’ li diris al li ĉiam,
 
 ’se nunjare ne estus manovroj, via elipsoida kapo eĉ ne taŭ-
 
@@ -998,7 +976,6 @@ bonŝancon, ankaŭ kiel privata detektivo. Kelkfoje li rakontis
 
 al ni en kantino pri tio, kian turmenton li ofte havis. Li rice-
 
-8
 
 en Vodiâka-strato en Prago estis iam privata detektiva instituto de Stefano Chodounskë, kiu proponis siajn servojn en gazetoj kaj sur
 
@@ -1028,7 +1005,7 @@ preskaŭ ploris, rakontante al ni, ke ĉiuj volis, ke li traftrovu
 
 salivoj el la buŝo kiel al salivumanta hundo, preter kiu oni
 
-portas kuiritan ŝinkon, kiam li rakontis al ni pri ĉiuj tiuj diversaj pozicioj, en kiuj li trovis tiujn parojn. Kiam ni havis mal-
+portas kuiritan ŝn, kiam li rakontis al ni pri ĉiuj tiuj diversaj pozicioj, en kiuj li trovis tiujn parojn. Kiam ni havis mal-
 
 permeson forlasi la kazernon, li ĉiam tion al ni desegnis. ’Tiel
 
@@ -1040,7 +1017,7 @@ ne ĉagrenis tiom kiel tio, ke mi prenis subaĉetojn. Unu tian
 
 subaĉeton mi ne forgesos ĝismorte. Li nuda, ŝi nuda. En ho-
 
-telo kaj ili ne riglis la pordon, idiotoj\! Sur divano ili ne havis sufiĉe da loko, ĉar ambaŭ estis grasaj, ili do petolis sur tapiŝo
+telo kaj ili ne riglis la pordon, idiotoj! Sur divano ili ne havis sufiĉe da loko, ĉar ambaŭ estis grasaj, ili do petolis sur tapiŝo
 
 kiel katidoj. Kaj la tapiŝo estis tute tretdifektita, polvokovri-
 
@@ -1048,9 +1025,8 @@ ta kaj kuŝaĉis sur ĝi cigarstumpoj. Kiam mi eniris, ambaŭ ek-
 
 saltis, li staris kontraŭ mi kaj tenis la manon kiel figfolion. Kaj ŝi dorsturnis sin al mi kaj sur ŝia haŭto vidiĝis, ke ŝi havas
 
-9
 
-\(el la latina\): ĉe la faro \(traftrovi iun ĉe la faro\)
+(el la latina): ĉe la faro (traftrovi iun ĉe la faro)
 
 **19**
 
@@ -1132,7 +1108,7 @@ edzinon, kiu laŭdire havas amanton. Kaj sinjoro Stach diris
 
 nenion pli ol: ’Aha, sinjoro Stendler estas in flagranti kun sin-
 
-jorino Grot, mi gratulas\!’ Li senbrue denove fermis la pordon
+jorino Grot, mi gratulas!’ Li senbrue denove fermis la pordon
 
 kaj foriris. ’Nun estas ĉio jam egala,’ diris sinjorino Grot, ’vi
 
@@ -1164,17 +1140,17 @@ ien sendas por plenumi ofican devon kaj dungitoj de la kon-
 
 kurenca instituto trovas lin in flagranti. ’De tiu tempo,’ diris
 
-ĉiam sinjoro Stendler, kiam la parolo venis al tiu ĉi punkto, 
+ĉiam sinjoro Stendler, kiam la parolo venis al tiu ĉi punkto,
 
 ’mi havas la cerbujon ankoraŭ pli elipsoida.’
 
-”Do, ĉu ni ludu por kvin — dek?” Ili ludis. 
+”Do, ĉu ni ludu por kvin — dek?” Ili ludis.
 
 La trajno haltis en la stacio Moson. Estis jam vespero kaj
 
-oni permesis al neniu eliri el vagono. 
+oni permesis al neniu eliri el vagono.
 
-Kiam la trajno moviĝis, el iu vagono eksonis forta voĉo, 
+Kiam la trajno moviĝis, el iu vagono eksonis forta voĉo,
 
 kvazaŭ ĝi volus superkrii la brue ruliĝantan trajnon. En pia
 
@@ -1190,9 +1166,9 @@ kriego prikantis la silentan nokton, proksimiĝantan al hung-
 
 araj ebenaĵoj:
 
-*”Bonan nokton\! Bonan nokton\! *
+*”Bonan nokton! Bonan nokton! *
 
-*¯in al lacaj ni deziras. *
+*in al lacaj ni deziras. *
 
 *Tag’ ŝtelkaŝe jam foriras, *
 
@@ -1200,13 +1176,13 @@ araj ebenaĵoj:
 
 *ĝis mateno tre silenta. *
 
-*Bonan nokton\! Bonan nokton\!” *
+*Bonan nokton! Bonan nokton!” *
 
 ”Fermu la faŭkon, kanajlo,” interrompis iu la sentimenta-
 
-lan kantanton, kiu silentiĝis. 
+lan kantanton, kiu silentiĝis.
 
-Oni detiris lin de fenestro. 
+Oni detiris lin de fenestro.
 
 Sed diligentaj manoj ne ripozis ĝis la mateno. Same kiel ĉie
 
@@ -1218,25 +1194,25 @@ petrola lampeto pendigita sur vando oni plu ludis cvikon kaj
 
 klamis, ke tio estas la plej justa ludo, ĉar ĉiu povas ŝanĝi tiom
 
-da kartoj, kiom li volas. 
+da kartoj, kiom li volas.
 
 ”ĉe cviko,” asertis Ôvejk, ”oni devas alpreni nur atutan ason
 
 kaj sepon, sed poste oni povas rezigni. Ceterajn atutojn oni ne
 
-devas alpreni. Tion ĉiu faras jam je sia propra risko.” 
+devas alpreni. Tion ĉiu faras jam je sia propra risko.”
 
-”Ni ludu ’sanon’**10**,” proponis ĉe ĝenerala konsento Vanêk. 
+”Ni ludu ’sanon’**10**,” proponis ĉe ĝenerala konsento Vanêk.
 
 ”Kera sepo,” anoncis Ôvejk, demetante kartojn. ”ĉiu po
 
 kvin heleroj kaj oni disdonas po kvar kartoj. Rapidu, ke ni
 
-finludu kelke da partioj.” 
+finludu kelke da partioj.”
 
 Kaj sur la vizaĝo de ĉiuj vidiĝis tia kontento, kvazaŭ la mi-
 
-lito ne ekzistus kaj ili ne estus en trajno, kiu veturigas ilin al pozicio, al grandaj sangoplenaj bataloj kaj masakroj, sed kvazaŭ ili sidus en iu praga kafejo malantaŭ ludtabletoj. 
+lito ne ekzistus kaj ili ne estus en trajno, kiu veturigas ilin al pozicio, al grandaj sangoplenaj bataloj kaj masakroj, sed kvazaŭ ili sidus en iu praga kafejo malantaŭ ludtabletoj.
 
 10 nomo por ankoraŭ pli hazarda speco de kartludo ”cviko”, kiam oni povas malgajni multe pli altan sumon
 
@@ -1248,17 +1224,16 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Tion mi ne atendis,” diris Ôvejk post unu partio, ”ke mi
 
-ricevos ’virkaton’ \(ason\), se mi ludis havante nenion kaj ŝan-
+ricevos ’virkaton’ (ason), se mi ludis havante nenion kaj ŝan-
 
 ĝis ĉiujn kvar. Kien vi vin puŝas kun reĝo? Mi superos la re-
 
-ĝon sen palpebrumo.” 
+ĝon sen palpebrumo.”
 
 Kaj dum ĉi tie oni superis reĝon per ’virkato’, malproksi-
 
-me en la fronto la reĝoj superis unu la alian per siaj subuloj. 
+me en la fronto la reĝoj superis unu la alian per siaj subuloj.
 
-\*
 
 Komence de la vojo en stabvagono, kie sidis oficiroj de la in-
 
@@ -1268,27 +1243,27 @@ enprofundiĝis en legadon de tole bindita libreto kun titolo:
 
 ”Pekoj de la patroj. Novelo de Ludoviko Ganghofer**11**” kaj ĉiuj samtempe legis la paĝon 161. La kapitano Ságner, komandanto de la bataliono, staris ĉe fenestro, mantenis la saman tito-
 
-lon, havante ĝin malfermita ankaŭ sur la paĝo 161. 
+lon, havante ĝin malfermita ankaŭ sur la paĝo 161.
 
 Li rigardis la regionon kaj meditis, kiel propre plej kom-
 
-preneble al ĉiuj klarigi, kion ili faru per la libro. Estis tio fak-te plej severe konfidenca. 
+preneble al ĉiuj klarigi, kion ili faru per la libro. Estis tio fak-te plej severe konfidenca.
 
 Intertempe la oficiroj meditis pri tio, ke la kolonelo Schrö-
 
-der definitive freneziĝis. Kvankam jam longe li estis frenezeta, 
+der definitive freneziĝis. Kvankam jam longe li estis frenezeta,
 
 tamen ne eblis atendi, ke tiel subite lin tio kaptos. Antaŭ for-
 
-veturo de la trajno li igis alvoki ilin al la lasta konsiliĝo, ĉe kiu li al ili anoncis, ke al ĉiu apartenas libro ”Pekoj de la patroj” 
+veturo de la trajno li igis alvoki ilin al la lasta konsiliĝo, ĉe kiu li al ili anoncis, ke al ĉiu apartenas libro ”Pekoj de la patroj”
 
 de Ludoviko Ganghofer kaj ke la librojn li igis alporti en la
 
-regimentan kancelarion. 
+regimentan kancelarion.
 
 ”Sinjoroj,” li diris kun terure mistera mieno, ”neniam for-
 
-gesu la paĝon 161\!” Enprofundiĝintaj en la legadon de tiu ĉi
+gesu la paĝon 161!” Enprofundiĝintaj en la legadon de tiu ĉi
 
 11 germana-aŭstra verkisto de multaj plaĉaj romanoj kaj rakontoj. Vivis en la jaroj 1855-1920
 
@@ -1304,17 +1279,17 @@ al skribtablo, eltiris de tie scenaron kaj laŭte meditis, ke la
 
 publiko devas senti kompaton al heroo de la rolo. Poste sur
 
-la paĝo aperis Alberto, senĉese klopodanta ŝercparoli, kio, 
+la paĝo aperis Alberto, senĉese klopodanta ŝercparoli, kio,
 
 elŝirita el la antaŭiranta nekonata enhavo, ŝajnis esti tia idi-
 
 otaĵo, ke la ĉefleŭtenanto Lukáô furioze mordrompis sian ci-
 
-garedingon. 
+garedingon.
 
-”Li freneziĝis, maljunulaĉo,” pensis ĉiuj, ”jam venis lia fino. 
+”Li freneziĝis, maljunulaĉo,” pensis ĉiuj, ”jam venis lia fino.
 
-Nun oni translokos lin en la ministerion de milito.” 
+Nun oni translokos lin en la ministerion de milito.”
 
 La kapitano Ságner turnis sin de la fenestro, kiam li ĉion
 
@@ -1322,19 +1297,19 @@ tion bone kombinis en la kapo. Li ne havis troan pedagogian
 
 talenton, tial tiel longe daŭris, ol li kreis al si en la kapo la
 
-planon de prelego pri signifo de la paĝo 161. 
+planon de prelego pri signifo de la paĝo 161.
 
 Antaŭ ol li komencis ekspliki, li alparolis ilin: ”Miaj sinjo-
 
-roj”, kiel faris tion la maljunulaĉo-kolonelo, kvankam pli frue, 
+roj”, kiel faris tion la maljunulaĉo-kolonelo, kvankam pli frue,
 
-antaŭ ol ili envagoniĝis, li alparolis ilin ĉiam ”Kamaradoj”. 
+antaŭ ol ili envagoniĝis, li alparolis ilin ĉiam ”Kamaradoj”.
 
 ”Do, miaj sinjoroj…” Kaj li komencis prelegi, ke hieraŭ ves-
 
 pere li ricevis de la kolonelo instrukciojn, koncernantajn la
 
-paĝon 161 en ”Pekoj de la patroj” de Ludoviko Ganghofer. 
+paĝon 161 en ”Pekoj de la patroj” de Ludoviko Ganghofer.
 
 ”Do, miaj sinjoroj,” li solene daŭirigis, ”tute konfidencaj
 
@@ -1344,7 +1319,7 @@ la fronto.” La kadeto Biegler eltiris notlibron kaj krajonon kaj
 
 diris per neordinare fervora voĉo: ”Mi estas preparita, sinjoro
 
-kapitano.” 
+kapitano.”
 
 ĉiuj ekrigardis tiun stultulon, kies fervoro en la lernejo por
 
@@ -1364,7 +1339,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 roj el Leuthold kaj ke en sia blazonŝildo ili havis cikonian
 
-flugilon kun fiŝvosto. 
+flugilon kun fiŝvosto.
 
 De tiu tempo oni alinomis lin laŭ lia blazonŝildo kaj la ”Ci-
 
@@ -1386,7 +1361,7 @@ kaj historio de militado, pri kio li ĉiam ligis interparolon, dum
 
 oni lin ne silentigis kaj ne ruinigis. En oficiraj rondoj li rigardis sin mem kiel samvaloran kompare kun altrangaj subofi-
 
-ciroj. 
+ciroj.
 
 ”Vi, kadeto,” diris la kapitano Ságner, ”dum mi ne perme-
 
@@ -1396,13 +1371,13 @@ re, vi estas damninde ’saĝa’ soldato. Nun mi prezentas al vi
 
 tute konfidencajn informojn, kaj vi skribas ilin en vian not-
 
-libron. ĉe perdo de la notlibro atendas vin feldtribunalo.” 
+libron. ĉe perdo de la notlibro atendas vin feldtribunalo.”
 
 La kadeto Biegler havis al ĉio ankoraŭ tiun malbonan ku-
 
 timon, ke ĉiam kaj ĉiun li klopodis konvinki per ekskuzo, ke
 
-li pensas tion bone. 
+li pensas tion bone.
 
 ”Obee mi raportas, sinjoro kapitano,” li respondis, ”ke an-
 
@@ -1410,11 +1385,11 @@ kaŭ ĉe eventuala perdo de la notlibro neniu deĉifros, kion mi
 
 skribis, ĉar mi tion stenografas kaj miajn mallongigojn neniu
 
-kapablos legi. Mi uzas anglan sistemon de stenografado.” 
+kapablos legi. Mi uzas anglan sistemon de stenografado.”
 
 ĉiuj malestime lin ekrigardis, la kapitano Ságner eksvingis
 
-la manon kaj daŭrigis sian prelegon. 
+la manon kaj daŭrigis sian prelegon.
 
 ”Mi jam menciis la novan sistemon, kiel ĉifri depeŝojn en
 
@@ -1438,23 +1413,23 @@ ditaj. Kiel vi scias, ekzistas multe da metodoj, kiel ĉifri gravajn sciigojn en
 
 instrukcio kiel ilin deĉifri, senditaj al vi lastsemajne de la re-
 
-gimenta stabo.” 
+gimenta stabo.”
 
 ”Sistemo de la arkiduko Albre˛to,” murmuris por si la fer-
 
 vora kadeto Biegler, ”8922 = R, transprenita el la metodo de
 
-Gronfeld.” 
+Gronfeld.”
 
 ”La nova sistemo estas tre simpla,” sonis tra la vagono la
 
 voĉo de la kapitano, ”mi ricevis duan parton de la libro kaj
 
-instrukciojn persone de sinjoro kolonelo. 
+instrukciojn persone de sinjoro kolonelo.
 
 Se ekzemple oni donas al ni ordonon: ’Sur la pinto 228 al-
 
-celi la pafadon de aŭtomataj fusiloj maldekstren,’ ni ricevas, 
+celi la pafadon de aŭtomataj fusiloj maldekstren,’ ni ricevas,
 
 sinjoroj, tiun ĉi depeŝon: ’Afero - kun - ni - tion - ni - rekoni
 
@@ -1466,11 +1441,11 @@ gio - fino - ni - promesis - ni - plibonigis - vere - mi opinias
 
 - ideoj - tute - regas - voĉo - lastan.’ Do, tute simpla sen ĉiuj
 
-superfluaj kombinoj. — De la stabo telefone al la bataliono, 
+superfluaj kombinoj. — De la stabo telefone al la bataliono,
 
 de la bataliono telefone al la kompanioj. Komandanto, rice-
 
-vinte tiun ĉi ĉifritan depeŝon, deĉifros ĝin per jena maniero. 
+vinte tiun ĉi ĉifritan depeŝon, deĉifros ĝin per jena maniero.
 
 Li prenos la libron ’Pekoj de la patroj’, malfermos sur la paĝo
 
@@ -1480,7 +1455,7 @@ vorton ’Afero’. Mi petas, sinjoroj. La unuan fojon aperas ’Afe-
 
 ro’ sur la paĝo 160 kiel kvindekdua vorto en frazordo, do sur
 
-la kontraŭa paĝo 161 li elserĉos kvindekduan literon de supre. 
+la kontraŭa paĝo 161 li elserĉos kvindekduan literon de supre.
 
 **26**
 
@@ -1490,7 +1465,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 Rimarku, ke tio estas ’S’. Sekvanta vorto de la depeŝo estas
 
-’kun’. ¯i troviĝas sur la paĝo 160 kiel sepa vorto en frazordo, 
+’kun’. i troviĝas sur la paĝo 160 kiel sepa vorto en frazordo,
 
 respondanta al sepa litero sur la paĝo 161, al litero ’u’. Poste
 
@@ -1500,21 +1475,21 @@ ka vorto, respondanta al okdekoka litero sur la kontraŭa 161a
 
 paĝo, kio estas ’r’, kaj ni havas solvita ’Sur’. Kaj tiel ni daŭrigas ĝis ni ekscias la ordonon: ’Sur la pinto 228 direkti la pa-
 
-fadon de aŭtomataj fusiloj maldekstren.’ Tre sprita, sinjoroj, 
+fadon de aŭtomataj fusiloj maldekstren.’ Tre sprita, sinjoroj,
 
 simpla kaj neebla deĉifri sen ŝlosilo: paĝo 161, Ludoviko
 
-Ganghofer, ’Pekoj de la patroj’.” 
+Ganghofer, ’Pekoj de la patroj’.”
 
 ĉiuj senvorte trarigardis la malfeliĉajn paĝojn kaj iel kon-
 
 siderinde super tio enpensiĝis. Momenton regis silento, ĝis
 
-subite zorgeme ekkriis la kadeto Biegler: ”Sinjoro kapitano, 
+subite zorgeme ekkriis la kadeto Biegler: ”Sinjoro kapitano,
 
-obee mi raportas: Jesuo Maria\! Tio ne kongruas\!” 
+obee mi raportas: Jesuo Maria! Tio ne kongruas!”
 
-Kaj estis tio vere tre mistera. 
+Kaj estis tio vere tre mistera.
 
 Eĉ se ili klopodis, kiel ili povis, krom la kapitano Ságner
 
@@ -1522,7 +1497,7 @@ neniu trovis tiujn vortojn sur la paĝo 160 kaj al tio respond-
 
 antajn literojn sur la kontraŭa paĝo 161, per kiu komenciĝis
 
-la ŝlosilo. 
+la ŝlosilo.
 
 ”Miaj sinjoroj,” ekbalbutis la kapitano Ságner, konvinki-
 
@@ -1530,7 +1505,7 @@ la ŝlosilo.
 
 al vero, ”kio probable okazis? En mia Ganghofer ’Pekoj de la
 
-patroj’ tio estas, kaj en viaj ekzempleroj ne?” 
+patroj’ tio estas, kaj en viaj ekzempleroj ne?”
 
 ”Permesu, sinjoro kapitano,” ekparolis denove la kadeto
 
@@ -1554,11 +1529,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 vorto de la deĉifrita depeŝo estas ĉe vi ’Sur’ kaj ni ricevis
 
-’Hej’\!” 
+’Hej’!”
 
 Al ĉiuj estis nun tute klare, ke Biegler eble tamen nur ne
 
-estas tiel granda stultulo. 
+estas tiel granda stultulo.
 
 ”Mi havas la duan parton de la brigada stabo,” diris la ka-
 
@@ -1574,21 +1549,21 @@ taŭ tio, ol li havis sian prelegon pri tre simpla maniero de
 
 sciigis al la regimento, ke temas pri la dua parto, kaj tiel tio
 
-okazis.” 
+okazis.”
 
 Intertempe la kadeto Biegler venke ĉirkaŭrigardis al ĉiuj
 
 kaj leŭtenanto Dub flustris al la ĉefleŭtenanto Lukáô, ke tiu
 
-’Cikonia flugilo kun fiŝvosto’ humiligis la kapitanon Ságner, 
+’Cikonia flugilo kun fiŝvosto’ humiligis la kapitanon Ságner,
 
-kiel decas kaj konvenas. 
+kiel decas kaj konvenas.
 
 ”Stranga afero, sinjoroj,” ekparolis la kapitano Ságner, kva-
 
 zaŭ li volus ligi la interparolon, ĉar tiu silento estis tre hon-
 
-tiga. ”En la kancelario de la brigado estas sensprituloj.” 
+tiga. ”En la kancelario de la brigado estas sensprituloj.”
 
 ”Mi permesas al mi rimarki,” diris denove la nelacigebla
 
@@ -1616,7 +1591,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 angloj kaj francoj ĉe Sevastopol**12b**, ĉe ribeliĝo de la ’boksistoj’
 
-en ĉinio**12c** kaj en la lasta rusa-japana milito**12ĉ**. Tiujn ĉi sistemojn oni transdonadis…” 
+en ĉinio**12c** kaj en la lasta rusa-japana milito**12ĉ**. Tiujn ĉi sistemojn oni transdonadis…”
 
 ”Tio estas por ni grava kiel maljuna virkapro, kadeto Bieg-
 
@@ -1630,27 +1605,27 @@ diri el nesupereblaj. ĉiuj kontraŭspionaj sekcioj de niaj ma-
 
 lamikaj staboj povas fermi sian ’butikon’. Eĉ se ili cerbumus
 
-ĝisfreneze, ili ne solvos niajn ĉifrojn. Tio estas io tute nova. 
+ĝisfreneze, ili ne solvos niajn ĉifrojn. Tio estas io tute nova.
 
-Tiujn ĉi ĉifrojn antaŭas nenio simila.” 
+Tiujn ĉi ĉifrojn antaŭas nenio simila.”
 
-La fervora kadeto Biegler signifoplene ektusis. 
+La fervora kadeto Biegler signifoplene ektusis.
 
 ”Mi permesas al mi, sinjoro kapitano,” li diris, ”atentigi pri
 
 la libro de Kerickhoff pri ĉifrado en la armeo. Tiun libron ĉiu
 
-povas mendi al si en la eldonejo de la ’Soldata enciklopedio’. 
+povas mendi al si en la eldonejo de la ’Soldata enciklopedio’.
 
 Tie estas detale priskribita la metodo, sinjoro kapitano, pri
 
-kiu vi al ni rakontis. ¯ia eltrovinto estas kolonelo Kircher, 
+kiu vi al ni rakontis. ia eltrovinto estas kolonelo Kircher,
 
 servanta en la tempo de Napoleono I. en la saksa armeo. ĉi-
 
-frado per vortoj laŭ la maniero de Kircher, sinjoro kapitano. 
+frado per vortoj laŭ la maniero de Kircher, sinjoro kapitano.
 
-ĉiu vorto de depeŝo klariĝas sur kontraŭa paĝo de la ŝlosilo. 
+ĉiu vorto de depeŝo klariĝas sur kontraŭa paĝo de la ŝlosilo.
 
 Tiu metodo perfektigita fare de ĉefleŭtenanto Fleissner en la
 
@@ -1660,11 +1635,11 @@ aĉeti al si en la eldonejo de milita akademio en Viena Nova
 
 Urbo. Mi petas, sinjoro kapitano.” La kadeto Biegler ekpalpis
 
-12b milito de Turkio, Francio, Anglio kaj Sardinio kontraŭ Ruslando \(1853-1856\), nomata Krimea milito
+12b milito de Turkio, Francio, Anglio kaj Sardinio kontraŭ Ruslando (1853-1856), nomata Krimea milito
 
-12c ribeliĝo de libervola ĉina unuiĝo ”La pugno de justeco kaj paco” 
+12c ribeliĝo de libervola ĉina unuiĝo ”La pugno de justeco kaj paco”
 
-\(1899-1901, de tie devenas la popola nomo ”boksistoj”\), kiu volis
+(1899-1901, de tie devenas la popola nomo ”boksistoj”), kiu volis
 
 perforte elpeli ĉiujn eŭropanojn el ĉinio. La ribeliĝon subpremis
 
@@ -1682,45 +1657,45 @@ en mankofreton kaj eltiris libron, pri kiu li parolis, kaj daŭri-
 
 gis: ”Fleissner prezentas la saman ekzemplon, mi petas, ĉiuj
 
-bonvolu konvinkiĝi. La saman ekzemplon, kiun ni aŭdis. 
+bonvolu konvinkiĝi. La saman ekzemplon, kiun ni aŭdis.
 
 Depeŝo: Sur la pinto 228 alceli la pafadon de aŭtomataj
 
-fusiloj maldekstren. 
+fusiloj maldekstren.
 
 Ôlosilo: Ludoviko Ganghofer, ’Pekoj de la patroj’. Dua par-
 
-to. 
+to.
 
 Kaj rigardu, mi petas, plu. La ĉifro: ’Afero kun ni tion ni
 
-rekoni en tiu promesis tiu Marta…’ kaj tiel plu. ¯uste tiel, kiel
+rekoni en tiu promesis tiu Marta…’ kaj tiel plu. uste tiel, kiel
 
-ni aŭdis antaŭ momento.” 
+ni aŭdis antaŭ momento.”
 
 Kontraŭ tio eblis neniel oponi. Tiu flavbekula ”Cikonia flu-
 
-gilo kun fiŝvosto” pravis. 
+gilo kun fiŝvosto” pravis.
 
-Iu el generaloj en la armea stabo plifaciligis al si la laboron. 
+Iu el generaloj en la armea stabo plifaciligis al si la laboron.
 
 Li aperigis la libron de Fleissner pri ĉifrado en la armeo, kaj
 
-jam tio estis preta. 
+jam tio estis preta.
 
 Dum tiu tuta tempo vidiĝis, ke la ĉefleŭtenanto Lukáô sub-
 
-premas ian strangan mensan ekscitiĝon. Li mordetis la lipojn, 
+premas ian strangan mensan ekscitiĝon. Li mordetis la lipojn,
 
-volis ion diri, sed fine li komencis paroli pri io alia, ol estis lia antaŭa intenco. 
+volis ion diri, sed fine li komencis paroli pri io alia, ol estis lia antaŭa intenco.
 
 ”Oni ne prenu tion tiel tragike,” li ekparolis kun strangaj
 
 embarasoj, ”dum nia restado en la tendaro en Bruck an der
 
-Leitha ŝanĝiĝis jam kelke da sistemoj por ĉifrado de depeŝoj. 
+Leitha ŝanĝiĝis jam kelke da sistemoj por ĉifrado de depeŝoj.
 
-Antaŭ ol ni alveturos al la fronto, estos denove aliaj sistemoj, 
+Antaŭ ol ni alveturos al la fronto, estos denove aliaj sistemoj,
 
 sed mi opinias, ke sur la batalkampo mankas tempo por solvi
 
@@ -1728,13 +1703,13 @@ tiajn kriptogramojn. Antaŭ ol iu el ni finsolvus tian ĉifritan
 
 ekzemplon, nia kompanio, bataliono eĉ brigado estus jam
 
-longe detruita. Praktikan signifon tio ne havas\!” 
+longe detruita. Praktikan signifon tio ne havas!”
 
-La kapitano Ságner tre nevolonte kapjesis. ”En praktiko,” 
+La kapitano Ságner tre nevolonte kapjesis. ”En praktiko,”
 
 li diris, ”almenaŭ kio koncernas miajn spertojn el la serba
 
-batalkampo, neniu havis tempon por solvi ĉifritajn skribojn. 
+batalkampo, neniu havis tempon por solvi ĉifritajn skribojn.
 
 **30**
 
@@ -1744,9 +1719,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 Mi ne diras, ke ĉifroj ne havas sian signifon ĉe longeta restado
 
-en tranĉeoj, kiam ni enfosiĝis kaj atendas. Ke ĉifroj ŝanĝiĝas, 
+en tranĉeoj, kiam ni enfosiĝis kaj atendas. Ke ĉifroj ŝanĝiĝas,
 
-tio estas ankaŭ vero.” 
+tio estas ankaŭ vero.”
 
 La kapitano Ságner cedis de ĉiuj flankoj: ”Grandan parton
 
@@ -1758,29 +1733,29 @@ neprecizaj kaj ĉefe ĉe pafado de artilerio nereproduktas kla-
 
 re unuopajn silabojn. Oni aŭdas absolute nenion kaj tio kaŭ-
 
-zas superfluanąoson.” Li eksilentis. 
+zas superfluanąoson.” Li eksilentis.
 
 ”˘aoso estas tio la plej malbona, kio povas esti sur batal-
 
-kampo, sinjoroj,” li ankoraŭ aldonis profete kaj silentiĝis. 
+kampo, sinjoroj,” li ankoraŭ aldonis profete kaj silentiĝis.
 
 ”Post momento,” li diris, rigardante tra fenestro, ”ni estos
 
-en Györ. Miaj sinjoroj\! La viraro ricevos tie po dek kvin deka-
+en Györ. Miaj sinjoroj! La viraro ricevos tie po dek kvin deka-
 
-gramoj da hungara salamo. Duonhora ripozo.” 
+gramoj da hungara salamo. Duonhora ripozo.”
 
-Li ekrigardis skriban marŝordonon: ”Je 4:12 oni forveturas. 
+Li ekrigardis skriban marŝordonon: ”Je 4:12 oni forveturas.
 
 Je 3:58 ĉio en vagonoj. Oni elvagoniĝas po kompanioj. La
 
-dekunua kaj tiel plu. Po plotonoj direkte al magazeno nro 6. 
+dekunua kaj tiel plu. Po plotonoj direkte al magazeno nro 6.
 
-Kontrolo ĉe disdonado: la kadeto Biegler.” 
+Kontrolo ĉe disdonado: la kadeto Biegler.”
 
-ĉiuj ekrigardis la kadeton Biegler kun penso: ”Vi spertos, 
+ĉiuj ekrigardis la kadeton Biegler kun penso: ”Vi spertos,
 
-flavbekulo, kio estas soldatservo.” 
+flavbekulo, kio estas soldatservo.”
 
 Sed la fervora kadeto Biegler eltiris jam el sia kofreto pa-
 
@@ -1788,7 +1763,7 @@ perfolion, liniilon, la folion liniigis, dividis laŭ marŝkompanioj kaj demandi
 
 sciigi al Biegler la petatajn nombrojn nur laŭ neklaraj rimar-
 
-koj en siaj notlibroj. 
+koj en siaj notlibroj.
 
 Intertempe la kapitano Ságner en senespero komencis legi
 
@@ -1796,7 +1771,7 @@ la malfeliĉan libron ”Pekoj de la patroj”, kaj kiam la trajno
 
 haltis en la stacio Györ, li klakfermis la tralegitajn paĝojn kaj
 
-rimarkis: ”Tiu ĉi Ludoviko Ganghofer ne verkas malbone.” 
+rimarkis: ”Tiu ĉi Ludoviko Ganghofer ne verkas malbone.”
 
 **31**
 
@@ -1806,7 +1781,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 La ĉefleŭtenanto Lukáô kiel unua ekimpetis el la stabvago-
 
-no kaj iris al la vagono, kie estis Ôvejk. 
+no kaj iris al la vagono, kie estis Ôvejk.
 
 Ôvejk kaj la ceteraj jam antaŭlonge ĉesis ludi kartojn kaj
 
@@ -1822,19 +1797,19 @@ tiam ankoraŭ, kiel diras lia avĉjo-eksbienmastro hejme, ofi-
 
 ciroj dum la sesdeksesa milito**13** dividis kun la soldatoj kokinojn kaj panon. Lia lamentado ne havis finon, ĝis fine Ôvejk
 
-bontrovis laŭdi la situacion en la armeo dum la nuna milito. 
+bontrovis laŭdi la situacion en la armeo dum la nuna milito.
 
 ”Vi havas iel junan avĉjon,” li diris afable, kiam ili alvetu-
 
 ris al Györ, ”kiu kapablas memori nur la militon en la ses-
 
-deksesa jaro. Mi konas certan Ronovskë kaj tiu havis avĉjon, 
+deksesa jaro. Mi konas certan Ronovskë kaj tiu havis avĉjon,
 
 kiu estis en Italio ankoraŭ dum la servuteco, servis tie dek du
 
 jarojn kaj revenis hejmen kiel kaporalo. Kaj li ne havis labo-
 
-ron, tial lin, tiun avĉjon, alprenis al si por la servo lia patro. 
+ron, tial lin, tiun avĉjon, alprenis al si por la servo lia patro.
 
 Kaj tiam ili foje iris servuti, kunveturigi arbostumpojn, kaj kiel rakontis al ni tiu avĉjo, kiu servis ĉe sia patro, unu tia arbostumpo estis vera giganto kaj tiel ili ne kapablis ĝin eĉ nur
 
@@ -1850,9 +1825,9 @@ tonŝatulo, mi estas maljuna hardita soldato.’ Sed post unu
 
 semajno li ricevis skriban ordonon kaj devis soldatiĝi, deno-
 
-ve en Italio, tie li estis novajn dek jarojn kaj skribis hejmen, 
+ve en Italio, tie li estis novajn dek jarojn kaj skribis hejmen,
 
-13 la milito de Aŭstrio kontraŭ Prusio \(14.6.1866\)
+13 la milito de Aŭstrio kontraŭ Prusio (14.6.1866)
 
 **32**
 
@@ -1862,19 +1837,19 @@ LA BRAVA SOLDATO ÔVEJK
 
 ke post la reveno li ekbatos tiun forstiston per hakilo en la
 
-kapon. Estis nur feliĉo, ke tiu forstisto mortis.” 
+kapon. Estis nur feliĉo, ke tiu forstisto mortis.”
 
 En tiu momento ĉe pordo de la vagono aperis la ĉefleŭte-
 
-nanto Lukáô. 
+nanto Lukáô.
 
-”Ôvejk, iru ĉi tien,” li diris, ”lasu al vi viajn idiotajn parolojn kaj preferu iru ion al mi klairigi.” 
+”Ôvejk, iru ĉi tien,” li diris, ”lasu al vi viajn idiotajn parolojn kaj preferu iru ion al mi klairigi.”
 
-”Kompreneble, obee mi raportas, sinjoro ĉefleŭtenanto.” 
+”Kompreneble, obee mi raportas, sinjoro ĉefleŭtenanto.”
 
-La ĉefleŭtenanto Lukáô forkondukis Ôvejkon kaj la rigardo, 
+La ĉefleŭtenanto Lukáô forkondukis Ôvejkon kaj la rigardo,
 
-per kiu li lin sekvis, estis tre suspektema. 
+per kiu li lin sekvis, estis tre suspektema.
 
 Dum la tuta prelego de la kapitano Ságner, kiu finiĝis per
 
@@ -1888,15 +1863,15 @@ binaĵoj, ĉar unu tagon antaŭ la forveturo Ôvejk anoncis al la
 
 estas libroj por sinjoroj leŭtenantoj. Mi forportis ilin el la re-
 
-gimenta kancelario.” 
+gimenta kancelario.”
 
 Tial, kiam ili transpaŝis duajn relojn kaj eniris malantaŭ
 
 senfajran lokomotivon, kiu jam semajnon atendis trajnon
 
-kun municio, la ĉefleŭtenanto Lukáô demandis rekte: ”Ôvejk, 
+kun municio, la ĉefleŭtenanto Lukáô demandis rekte: ”Ôvejk,
 
-kiel tiam tio estis pri tiuj libroj?” 
+kiel tiam tio estis pri tiuj libroj?”
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto, ke tio estas tro
 
@@ -1910,9 +1885,9 @@ kaj mi al vi rakontis, ke mi foje legis en libro, ke iam, kiam
 
 estis milito, la homoj devis pagi impostojn pro fenestroj, pro
 
-ĉiu fenestro dudek helerojn, pro anseroj same tiel…” 
+ĉiu fenestro dudek helerojn, pro anseroj same tiel…”
 
-”Tiel ĉi ni ne finus, Ôvejk,” diris la ĉefleŭtenanto Lukáô, 
+”Tiel ĉi ni ne finus, Ôvejk,” diris la ĉefleŭtenanto Lukáô,
 
 daŭrigante la enketon, ĉe kio li ekintencis, ke tio la plej severe konfidenca devas esti nature tute prisilentita, por ke tiu ka-33
 
@@ -1922,19 +1897,19 @@ LA BRAVA SOLDATO ÔVEJK
 
 najlo Ôvejk ne faru el tio denove ian priparolataĵon. ”ĉu vi
 
-konas Ganghoferon?” 
+konas Ganghoferon?”
 
-”Kio li estas?” demandis Ôvejk kun intereso. 
+”Kio li estas?” demandis Ôvejk kun intereso.
 
 ”Idiota ulo, li estas germana verkisto,” respondis la ĉefleŭ-
 
-tenanto Lukáô. 
+tenanto Lukáô.
 
 ”Mi ĵuras per mia animo, sinjoro ĉefleŭtenanto,” diris
 
 Ôvejk kun mieno de martiro, ”mi konas persone neniun ger-
 
-manan verkiston. Persone mi konis nur unu ĉeąn verkiston, 
+manan verkiston. Persone mi konis nur unu ĉeąn verkiston,
 
 Ladislaon Hájek el Domaòlice. Li estis redaktoro de ’La mon-
 
@@ -1942,31 +1917,31 @@ do de la bestoj’ kaj foje mi vendis al li strathundon, ŝajnigante
 
 ĝin pursanga ŝpico. Li estis tre gaja kaj bonanima sinjoro. Li
 
-iradis en certan gastejon kaj tie li ĉiam legis siajn rakontojn, 
+iradis en certan gastejon kaj tie li ĉiam legis siajn rakontojn,
 
 tiel malgajajn, ke ĉiuj ridis, kaj li poste ploris, en la gastejo
 
 pagis por ĉiuj kaj ni devis al li kanti: ’Domaòlice, turo via, bel-kolora kaj gracia, kiu turon ĉi ornamis, tiu belulinojn amis…
 
-Tiu teron jam ne tuŝas, en silenta tombo kuŝas…’ ” 
+Tiu teron jam ne tuŝas, en silenta tombo kuŝas…’ ”
 
-”Vi ja ne estas en teatro, vi kriegas kiel opera kantisto, 
+”Vi ja ne estas en teatro, vi kriegas kiel opera kantisto,
 
 Ôvejk,” timigite ekparolis la ĉefleŭtenanto Lukáô, kiam Ôvejk
 
 finkantis la lastan frazon: ”Tiu teron jam ne tuŝas, en silenta
 
-tombo kuŝas.” ”Pri tio mi vin ne demandis. Mi volis scii nur, 
+tombo kuŝas.” ”Pri tio mi vin ne demandis. Mi volis scii nur,
 
-ĉu vi rimarkis, ke tiuj libroj, pri kiuj vi mem al mi menciis, 
+ĉu vi rimarkis, ke tiuj libroj, pri kiuj vi mem al mi menciis,
 
 estis de Ganghofer. Kiel do statas la afero pri tiuj libroj?” li
 
-kolere eksplodis. 
+kolere eksplodis.
 
 ”ĉu pri tiuj, kiujn mi forportis el la regimenta kancelario al
 
-la bataliono?” demandis Ôvejk. ”Tiuj vere estis verkitaj de tiu, 
+la bataliono?” demandis Ôvejk. ”Tiuj vere estis verkitaj de tiu,
 
 pri kiu vi min demandis, ĉu mi lin ne konas, sinjoro ĉefleŭ-
 
@@ -1994,7 +1969,7 @@ lefono antaŭ ol oni alkomandos al ni la telefoniston Cho-
 
 dounskë, mi sidis, atendis, ĝis venis la vico ankaŭ al mi. Tiuj
 
-el la regimenta kancelario sakris, ke ili povas neniun atingi, 
+el la regimenta kancelario sakris, ke ili povas neniun atingi,
 
 ke venis telefonogramo, ke marŝbataliona kancelario trans-
 
@@ -2038,7 +2013,7 @@ patroj’, ĉar ankaŭ mi regas la germanan lingvon, oni devas
 
 komenci per la unua parto, ĉar ni ne estas judoj kaj ne legas
 
-tion en renversa ordo. Ankaŭ tial mi demandis vin telefone, 
+tion en renversa ordo. Ankaŭ tial mi demandis vin telefone,
 
 sinjoro ĉefleŭtenanto, kiam vi revenis el la kazino kaj mi
 
@@ -2056,21 +2031,21 @@ sa ordo, unue la dua kaj poste la unua parto. Kaj vi al mi di-
 
 ris, ke mi estas ebriega bruto, se mi ne scias eĉ tion, ke en la
 
-Patronia estas unue ’Patro nia’ kaj nur poste ’amen’. 
+Patronia estas unue ’Patro nia’ kaj nur poste ’amen’.
 
 ĉu estas al vi malbone, sinjoro ĉefleŭtenanto?” demandis
 
 Ôvejk kun intereso, kiam pala ĉefleŭtenanto Lukáô altenis sin
 
-je akvorezervuja ŝtupeto de la senfajra lokomotivo. 
+je akvorezervuja ŝtupeto de la senfajra lokomotivo.
 
 Sur lia pala vizaĝo ne vidiĝis kolera mieno. Estis tio io se-
 
-nespere senespera. 
+nespere senespera.
 
 ”Daŭrigu, Ôvejk, daŭrigu, jam tio indiferentas, jam estas
 
-bone…” 
+bone…”
 
 ”Kiel mi diras,” sonis la mola voĉo de Ôvejk sur forlasitaj
 
@@ -2078,7 +2053,7 @@ reloj, ”ankaŭ mi samopiniis. Foje mi aĉetis sangoplenan ro-
 
 manon pri Rosza Szavan el la Bakona-arbaro**14** kaj mankis tie la unua parto, mi do devis konjekti pri tiu komenco, kaj eĉ ĉe
 
-tia rabmurda historio oni ne povas malhavi la unuan parton. 
+tia rabmurda historio oni ne povas malhavi la unuan parton.
 
 Tiel estis al mi tute klare, ke estas propre superflue, se sinjoroj oficiroj legus unue la duan parton kaj poste la unuan, kaj kiel
 
@@ -2088,15 +2063,15 @@ diris en la regimenta kancelario, ke sinjoroj oficiroj jam sci-
 
 as, kiun parton legi. Tio pri tiuj libroj ĉiuflanke ŝajnis al mi
 
-terure okulfrapa kaj mistera, sinjoro ĉefleŭtenanto. Mi sciis, 
+terure okulfrapa kaj mistera, sinjoro ĉefleŭtenanto. Mi sciis,
 
 ke sinjoroj oficiroj ĝenerale malmulte legas, kaj se estas ba-
 
-talbruego…” 
+talbruego…”
 
 ”Ôvejk, lasu al vi tiujn idiotaĵojn,” ekĝemis la ĉefleŭtenan-
 
-to Lukáô. 
+to Lukáô.
 
 ”Mi ja demandis vin ankaŭ tuj telefone, sinjoro ĉefleŭte-
 
@@ -2122,7 +2097,7 @@ vas jam frontajn spertojn. Li diris, ke komence ĉiu el sinjoroj
 
 oficiroj konsideris la tutan militon kiel ŝercaferon kaj kunve-
 
-turigis al la fronto la tutan bibliotekon kiel en somerumejon. 
+turigis al la fronto la tutan bibliotekon kiel en somerumejon.
 
 Ili ricevadis donace de arkidukinoj eĉ la tutan kolektitan ver-
 
@@ -2182,7 +2157,7 @@ por kolekti en ili formetitajn ĵurnalojn por soldatoj, ke nur tiuj estas bonaj,
 
 disdonis la unuajn partojn de tiu romano kaj tiujn duajn par-
 
-tojn ni forportis en la magazenon.” 
+tojn ni forportis en la magazenon.”
 
 Ôvejk silentiĝis kaj tuj aldonis: ”Kiom da diversaj objektoj
 
@@ -2190,7 +2165,7 @@ tie estas, en tiu magazeno, sinjoro ĉefleŭtenanto, eĉ cilindra
 
 ĉapelo de ˛orestro el Budêjovice, en kiu li soldatiĝis ĉe la re-
 
-gimento…” 
+gimento…”
 
 ”Ion mi al vi diros, Ôvejk,” ekparolis la ĉefleŭtenato Lukáô
 
@@ -2198,13 +2173,13 @@ kun peza ĝemo, ”vi absolute ne konscias la sekvojn de via
 
 agado. Al mi mem jam abomenas nomi vin idioto. Por via
 
-idioteco ne ekzistas konvena vorto. Se mi diras al vi ’idioto’, 
+idioteco ne ekzistas konvena vorto. Se mi diras al vi ’idioto’,
 
 mi alparolas vin per ankoraŭ afabla nomo. Vi faris ion tiel
 
 teruran, ke viaj la plej grandaj krimoj, per kiuj vi kulpiĝis dum
 
-la tempo, kiam mi vin konas, estas kompare kun tio vera an-
+la tempo, kiam mi vnas, estas kompare kun tio vera an-
 
 ĝela muziko. Se vi, Ôvejk, scius, kion vi faris… Sed tion vi ne-
 
@@ -2214,15 +2189,15 @@ aŭdacu parolaĉi, ke mi diris al vi ion telefone, ke tiun duan
 
 parton… Se iam oni parolus pri tio, kiel tio estis pri tiu unua
 
-kaj dua parto, ne atentu tion. Vi scias nenion, konas nenion, 
+kaj dua parto, ne atentu tion. Vi scias nenion, konas nenion,
 
-nenion memoras. Ne aŭdacu impliki min en ion, vi…” 
+nenion memoras. Ne aŭdacu impliki min en ion, vi…”
 
 La ĉefleŭtenanto Lukáô parolis per tia voĉo, kvazaŭ provus
 
 lin ataki febro, kaj tiun momenton, kiam li silentiĝis, eluzis
 
-Ôvejk por senkulpa demando: ”Obee mi petas vian pardonon, 
+Ôvejk por senkulpa demando: ”Obee mi petas vian pardonon,
 
 sinjoro ĉefleŭtenanto, kial mi neniam ekscios, kion teruran
 
@@ -2240,11 +2215,11 @@ ras, ke la homo lernas sin de eraro, kiel tiu fandisto Adamec
 
 el la fabriko de Kolben-Danêk, kiu pro eraro eltrinkis klori-
 
-dan acidon…” 
+dan acidon…”
 
 Li ne finis, ĉar la ĉefleŭtenanto Lukáô interrompis lian ek-
 
-zemplon el la vivo per vortoj: ”Stultulo\! Mi klarigos al vi ne-
+zemplon el la vivo per vortoj: ”Stultulo! Mi klarigos al vi ne-
 
 nion. Enrampu denove en vian vagonon kaj diru al Baloun, ke
 
@@ -2252,31 +2227,30 @@ en Budapesto li alportu al mi en la stabvagonon kelke da
 
 bulkoj kaj ankaŭ tiun hepatan pasteĉon, kiun mi havas sube
 
-en la kofreto en staniolo. Poste diru al Vanêk, ke li estas mulo. 
+en la kofreto en staniolo. Poste diru al Vanêk, ke li estas mulo.
 
 Mi petis lin trifoje, ke li sciigu al mi precizan nombron de la
 
 viraro. Kaj kiam hodiaŭ mi tion bezonis, mi havis nur mal-
 
-novan etaton de la pasinta semajno.” 
+novan etaton de la pasinta semajno.”
 
-”Laŭ via ordono, sinjoro ĉefleŭtenanto,” ekbojis Ôvejk, 
+”Laŭ via ordono, sinjoro ĉefleŭtenanto,” ekbojis Ôvejk,
 
-malrapide malproksimiĝante al sia vagono. 
+malrapide malproksimiĝante al sia vagono.
 
 La ĉefleŭtenanto Lukáô promenis sur la fervoja linio, ĉe kio
 
-li pensis: ”Konvenis tamen nur doni al li kelke da vangobatoj, 
+li pensis: ”Konvenis tamen nur doni al li kelke da vangobatoj,
 
-kaj anstataŭ tio mi interparolas kun li kiel kun amiko.” 
+kaj anstataŭ tio mi interparolas kun li kiel kun amiko.”
 
 Ôvejk serioze enrampis en sian vagonon. Li sentis estimon
 
 antaŭ si mem. Tio ne okazas ĉiutage, ke li faru ion tiel ter-
 
-uran, ke li neniam ekscios, kio tio estis. 
+uran, ke li neniam ekscios, kio tio estis.
 
-\*
 
 ”Sinjoro ĉefserĝento-kontisto,” diris Ôvejk, kiam li sidis sur sia loko, ”sinjoro ĉefleŭtenanto Lukáô ŝajnas al mi esti hodiaŭ en
 
@@ -2284,7 +2258,7 @@ tre bona humoro. Li sciigas al vi pere de mi, ke vi estas mulo
 
 pro tio, ke jam trifoje li petis vin anonci al li veran etaton de
 
-la viraro.” 
+la viraro.”
 
 ”Herrgott,” koleriĝis Vanêk, ”mi lavos al tiuj plotonestroj la
 
@@ -2294,13 +2268,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-kapon. ĉu mi kulpas, ke ĉiu tia plotonestra sentaŭgulo faras, 
+kapon. ĉu mi kulpas, ke ĉiu tia plotonestra sentaŭgulo faras,
 
 kion li volas, kaj ne sendas al mi la etaton de sia plotono? ĉu
 
 mi eble elsuĉu la etaton el la fingro? Belaj cirkonstancoj re-
 
-gas ĉe nia kompo\! Tio povas okazi nur ĉe la dekunua marŝ-
+gas ĉe nia kompo! Tio povas okazi nur ĉe la dekunua marŝ-
 
 kompo. Sed mi tion antaŭvidis, mi tion sciis. Mi eĉ minuton
 
@@ -2322,11 +2296,11 @@ por li soldatveston, sed dio scias, kien tio malaperis. Poste
 
 ankoraŭ sinjoro ĉefleŭtenanto nomas min mulo, se li mem ne
 
-scias kontroli la ordon ĉe sia kompanio.” 
+scias kontroli la ordon ĉe sia kompanio.”
 
 La ĉefserĝento-kontisto Vanêk ekscitite paŝis tra la vago-
 
-no: ”Ho, mi esti komandanto de la kompanio\! ĉio devus iri
+no: ”Ho, mi esti komandanto de la kompanio! ĉio devus iri
 
 kiel sur reloj. Mi havus trarigardon pri ĉiu ulo. La suboficiroj
 
@@ -2336,11 +2310,11 @@ roj estas sentaŭguloj… Kaj la plej malkapabla ĉe ni estas tiu
 
 plotonestro Zyka. Li superabundas je ŝercoj, je anekdotoj, sed
 
-kiam mi al li sciigas, ke Kolaæík estas de lia plotono forkoman-
+kiam mi al li sciigas, ke Kolaĝík estas de lia plotono forkoman-
 
 dita al la trajnotrupo, li anoncas al mi la sekvantan tagon la
 
-saman etaton, kvazaŭ Kolaæík plu maldiligentaĉus ĉe la kom-
+saman etaton, kvazaŭ Kolaĝík plu maldiligentaĉus ĉe la kom-
 
 panio kaj ĉe lia plotono. Kaj se tio ripetiĝas ĉiutage kaj se po-
 
@@ -2348,7 +2322,7 @@ ste ankoraŭ oni pri mi diras, ke mi estas mulo… Tiel ĉi sinj-
 
 oro ĉefleŭtenanto ne akiros amikojn. Kompania ĉefserĝento-
 
-kontisto ne estas ia apuntato, per kiu ĉiu povas viŝi al si…” 
+kontisto ne estas ia apuntato, per kiu ĉiu povas viŝi al si…”
 
 Baloun, aŭskultanta kun malfermita buŝo, aldonis nun
 
@@ -2358,13 +2332,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-mem tiun belan vorton anstataŭ Vanêk, kiun tiu ĉi ne eldiris, 
+mem tiun belan vorton anstataŭ Vanêk, kiun tiu ĉi ne eldiris,
 
-per kio eble ankaŭ li volis sin enmiksi en la interparolon. 
+per kio eble ankaŭ li volis sin enmiksi en la interparolon.
 
 ”Vi tie, fermu la faŭkon,” diris la ekscitiĝinta ĉefserĝento-
 
-kontisto. 
+kontisto.
 
 ”Aŭdu, Baloun,” ekparolis Ôvejk, ”mi havas taskon anonci
 
@@ -2374,17 +2348,17 @@ al vi, ke vi, kiam ni alveturos Budapeston, alportu al sinjoro
 
 pasteĉon, kiun sinjoro ĉefleŭtenanto havas sube en la kofre-
 
-to en staniolo.” 
+to en staniolo.”
 
 La giganto Baloun senespere mallevis siajn longajn ĉim-
 
 panzajn manojn, kurbigis la dorson kaj restis en tiu pozicio
 
-sufiĉe longan tempon. 
+sufiĉe longan tempon.
 
 ”Mi ne havas,” li diris per mallaŭta senespera voĉo, rigar-
 
-dante malpuran plankon de la vagono. 
+dante malpuran plankon de la vagono.
 
 ”Mi ne havas,” li ripetis post paŭzetoj, ”mi opiniis… Mi
 
@@ -2394,7 +2368,7 @@ malkonsistiĝas…
 
 ”Mi ĝin gustumis,” li ekvokis per tiel sincera senespero, ke
 
-la afero estis al ĉiuj tute klara. 
+la afero estis al ĉiuj tute klara.
 
 ”Vi forvoris ĝin eĉ kun staniolo,” haltis la ĉefserĝento-kon-
 
@@ -2404,7 +2378,7 @@ defendi sian opinion, ke li mem ne estas mulo, kiel igis scii-
 
 gi al li la ĉefleŭtenanto, sed ke la kaŭzo de la nekonata dife-
 
-rencanta etatoÆ havas pli profundajn bazojn en aliaj muloj, 
+rencanta etatoÆ havas pli profundajn bazojn en aliaj muloj,
 
 kaj ke la interparolo nun transiris kaj turnas sin ĉirkaŭ la ne-
 
@@ -2428,13 +2402,13 @@ koraŭ pli kurbiĝintan sub pezo de la sorto: ”Vi, Baloun, de-
 
 vas gardi vin mem, por ke vi ne perdu la konfidon al vi mem
 
-kaj konfidon al la sorto. Vi ne povas alskribi al via konto tion, 
+kaj konfidon al la sorto. Vi ne povas alskribi al via konto tion,
 
 kio estas la merito de aliaj. Kiam ajn vi troviĝos antaŭ simila
 
 problemo, kiun vi forvoris, ĉiam demandu vin mem: ’En kia
 
-interrilato estas al mi la hepata pasteĉo?’ ” 
+interrilato estas al mi la hepata pasteĉo?’ ”
 
 Ôvejk trovis konvena kompletigi tiun ĉi konsideron per
 
@@ -2444,13 +2418,13 @@ tis, ke ĉe vi hejme oni buĉos kaj fumaĵos, kaj ke tuj, kiam ni
 
 estos surloke kaj vi scios la numeron de la feldpoŝto, oni sen-
 
-dos al vi pecon da ŝinko. Nun imagu, ke tiun ŝinkon la feld-
+dos al vi pecon da ŝ. Nun imagu, ke tiun ŝn la feld-
 
 poŝto sendus al ni en la kompon, kaj ni kun sinjoro ĉefser-
 
 ĝento-kontisto detranĉus peceton, ĝi al ni bongustus, do an-
 
-koraŭ peceton, ĝis tiu ŝinko finiĝus kiel mia konata leterpor-
+koraŭ peceton, ĝis tiu ŝ finiĝus kiel mia konata leterpor-
 
 tisto, certa Kozel. Li havis karion, oni do fortranĉis al li la piedon unue sub la maleolo, poste sub la genuo, poste la femu-
 
@@ -2458,11 +2432,11 @@ ron, kaj se li ĝustatempe ne mortus, oni pritranĉus lin tuta
 
 kiel senpintan krajonon. Imagu do, Baloun, ke ni forvorus
 
-tiun vian ŝinkon same, kiel vi englutis la hepatan pasteĉon de
+tiun vian ŝn same, kiel vi englutis la hepatan pasteĉon de
 
-sinjoro ĉefleŭtenanto.” 
+sinjoro ĉefleŭtenanto.”
 
-La giganto Baloun ĉiujn malgaje ekrigardis. 
+La giganto Baloun ĉiujn malgaje ekrigardis.
 
 ”Nur dank’ al miaj klopodoj kaj miamerite,” diris la ĉef-
 
@@ -2478,9 +2452,9 @@ en la ventron antaŭ pikdrataj bariloj, kaj ĉiuj tie restis kun
 
 trapafitaj kapoj. Nur la kvara paro lin alportis, sed antaŭ ol
 
-oni forportis lin al bandaĝejo, la subleŭtenanto mortis.” 
+oni forportis lin al bandaĝejo, la subleŭtenanto mortis.”
 
-Baloun jam ne plu eltenis kaj laŭte plorsingultis. 
+Baloun jam ne plu eltenis kaj laŭte plorsingultis.
 
 **42**
 
@@ -2490,9 +2464,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Hontu,” diris Ôvejk malŝate, ”ĉu tiel kondutas la solda-
 
-to…” 
+to…”
 
-”Sed mi ne estas kreita por la soldatservo,” ĝemis Baloun, 
+”Sed mi ne estas kreita por la soldatservo,” ĝemis Baloun,
 
 ”estas vero, mi estas vorulo, nesatigeblulo, ĉar mi estas elŝi-
 
@@ -2506,7 +2480,7 @@ tion. Mi foje vete formanĝis kvar anserojn kaj du pladojn da
 
 knedlikoj kun saŭrkraŭto. Hejme post tagmanĝo mi ricevas
 
-ideon, ke mi volus ankoraŭ ion gustumi. Mi iras en kameron, 
+ideon, ke mi volus ankoraŭ ion gustumi. Mi iras en kameron,
 
 detranĉas pecon da viando, sendas por kruĉo da biero kaj
 
@@ -2520,7 +2494,7 @@ taŭlonge rakontis al li pri tia nesatigeblulo. Kaj kiam poste
 
 estis milito, ke dum la tutaj ok jaroj produktiĝis nenio kaj la
 
-homoj bakis panon el pajlo kaj el tio, kio restis el linaj semoj; 
+homoj bakis panon el pajlo kaj el tio, kio restis el linaj semoj;
 
 kaj tio estis vera festo, kiam oni povis diserigi iom da kazeo
 
@@ -2528,11 +2502,11 @@ en lakton, se oni ne havis panon. Kaj tuj kiam venis tiu mize-
 
 ro, la bienmastro post unu semajno mortis, ĉar lia stomako
 
-ne alkutimiĝis al tia kampista malbonstato…” 
+ne alkutimiĝis al tia kampista malbonstato…”
 
 Baloun levis sian afliktitan vizaĝon: ”Sed mi opinias, ke
 
-sinjoro dio la homojn punos, kaj tamen ne forlasos.” 
+sinjoro dio la homojn punos, kaj tamen ne forlasos.”
 
 ”Sinjoro dio enkondukis nesatigeblulojn en la mondon kaj
 
@@ -2542,7 +2516,7 @@ alligita kaj nun vi meritus sendi vin en la unuan linion; kiam
 
 mi estis servosoldato ĉe sinjoro ĉefleŭtenanto, li povis fidi al
 
-mi en ĉio kaj neniam li eĉ ekpensis, ke mi ion al li forvorus. 
+mi en ĉio kaj neniam li eĉ ekpensis, ke mi ion al li forvorus.
 
 Kiam oni disdonis ion specialan, li ĉiam al mi diris: ’Lasu al
 
@@ -2606,9 +2580,9 @@ serajn femurojn. Imagu do: Supon kun nudeloj, bovaĵon kun
 
 sardela saŭco, du anserajn femurojn, knedlikojn kaj saŭrkraŭ-
 
-ton en kvanto atinganta ĝisplafone kaj krespojn\!’ ” 
+ton en kvanto atinganta ĝisplafone kaj krespojn!’ ”
 
-”C-c ta-ta, sakra\!” ekŝmacis Baloun. 
+”C-c ta-ta, sakra!” ekŝmacis Baloun.
 
 Ôvejk daŭrigis: ”Tio estis la ŝtono de falpuŝiĝo. La sekvan-
 
@@ -2636,7 +2610,7 @@ min kiel ekzemplon. Ke mi portas porciojn al sinjoro ĉefleŭ-
 
 tenanto Lukáô. Kaj tiel la sekvantan tagon tiu senkulpa vang-
 
-obatita soldato, kiam li iris por tagmanĝo en la restoracion, 
+obatita soldato, kiam li iris por tagmanĝo en la restoracion,
 
 pri ĉio eldemandis, diris tion al sia sinjoro, tiu al mia ĉefleŭ-
 
@@ -2664,11 +2638,11 @@ kaj fiulo. Kaj kiam en tiu restoracio oni donis vere tiel mal-
 
 grandajn porciojn da almanĝaĵo, vi povus opinii, ke ankaŭ mi
 
-estas vere unu el tiaj fiuloj, ke mi tion al vi forvoris…’ ” 
+estas vere unu el tiaj fiuloj, ke mi tion al vi forvoris…’ ”
 
 ”Dio mia ĉiela,” ekflustris Baloun, malleviĝis por kofreto de
 
-la ĉefleŭtenanto Lukáô kaj foriris kun ĝi malantaŭen. 
+la ĉefleŭtenanto Lukáô kaj foriris kun ĝi malantaŭen.
 
 ”Poste la ĉefleŭtenanto Lukáô komencis palpserĉi en ĉiuj
 
@@ -2682,7 +2656,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-tis veran emocion. ’Kiam mi ricevos soldon, Ôvejk,’ li diris, 
+tis veran emocion. ’Kiam mi ricevos soldon, Ôvejk,’ li diris,
 
 ’skribu al mi, kiom mi al vi ŝuldas… Tiun ĉi poŝhorloĝon lasu
 
@@ -2690,11 +2664,11 @@ al vi krom tio. Kaj venontfoje ne faru tiajn frenezaĵojn.’ Pos-
 
 te foje trafis nin ambaŭ tia mizero, ke tiun poŝhorloĝon mi
 
-devis forporti en lombardejon…” 
+devis forporti en lombardejon…”
 
 ”Kion vi faras tie malantaŭe, Baloun?” demandis subite la
 
-ĉefserĝento-kontisto Vanêk. 
+ĉefserĝento-kontisto Vanêk.
 
 Anstataŭ respondo la malfeliĉa Baloun komencis sufokiĝe
 
@@ -2702,7 +2676,6 @@ tusi. Scie, li malfermis la kofreton de la ĉefleŭtenanto Lukáô
 
 kaj ŝtopiĝis per lia lasta bulko…
 
-\*
 
 La stacion senhalte traveturis alia milita trajno de supre oku-
 
@@ -2718,11 +2691,11 @@ kun Vieno kaj senspire kriegis de Vieno ĝis ĉi tien:
 
 *por monarko nia urbon Beogradon. *
 
-*’Tuj konstrui ponton\!’ sonis la ordonoj, *
+*’Tuj konstrui ponton!’ sonis la ordonoj, *
 
 *por l’ urbon enmarŝi povu batalionoj*
 
-*eĉ arme’ la tuta. Fari la invadon\!” *
+*eĉ arme’ la tuta. Fari la invadon!” *
 
 Kaporalo kun agresive torditaj lipharoj, klinante sin ekste-
 
@@ -2738,7 +2711,7 @@ gorĝe kriegis:
 
 *povas enveturi urbon Beogradon. *
 
-*’Ripozi\!’ ĉe Zemlín venis la komando. *
+*’Ripozi!’ ĉe Zemlín venis la komando. *
 
 **46**
 
@@ -2750,7 +2723,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 Sed subite li perdis la ekvilibron, elflugis el vagono kaj en-
 
-fluge plenforte frapiĝis per la ventro je relkomutila stango, 
+fluge plenforte frapiĝis per la ventro je relkomutila stango,
 
 sur kiu trapikita li restis pendi, dum la trajno veturis plu kaj
 
@@ -2778,15 +2751,15 @@ dantaro, kiu prenis sian taskon tre serioze. Li staris en aten-
 
 topozo ĉe la komutilo kaj mienis tiel venke, kvazaŭ tio estus
 
-lia verko, ekpuŝego de la kaporalo sur la komutilon. 
+lia verko, ekpuŝego de la kaporalo sur la komutilon.
 
 ĉar li estis hungaro, li kriegis al ĉiuj reloj hungare, kiam el
 
 batalionaj vagonoj de la naŭdekunua regimento oni venis ĉi
 
-tien por rigardi: ”Ne estas permesite, ne estas permesite\! Sol-
+tien por rigardi: ”Ne estas permesite, ne estas permesite! Sol-
 
-data komisiono, ne estas permesite\!” 
+data komisiono, ne estas permesite!”
 
 ”Li havas tion jam malantaŭ si,” diris la brava soldato
 
@@ -2794,15 +2767,15 @@ data komisiono, ne estas permesite\!”
 
 avantaĝon, ke ĉiuj almenaŭ scias, kie li estis entombigita, se
 
-li havas pecon da fero en la ventro. Estas tio rekte sur reloj kaj oni ne devas serĉi lian tombon sur ĉiuj batalkampoj. 
+li havas pecon da fero en la ventro. Estas tio rekte sur reloj kaj oni ne devas serĉi lian tombon sur ĉiuj batalkampoj.
 
 Li surpikiĝis precize,” aldonis Ôvejk erudicie, ĉirkaŭirante
 
 la kaporalon de la alia flanko, ”li havas la intestojn en la pan-
 
-talono.” 
+talono.”
 
-”Ne estas permesite, ne estas permesite\!” kriis la juneta
+”Ne estas permesite, ne estas permesite!” kriis la juneta
 
 **47**
 
@@ -2812,27 +2785,27 @@ LA BRAVA SOLDATO ÔVEJK
 
 hungara soldato, ”komisiono de stacia soldatkomandejo, ne
 
-estas permesite\!” 
+estas permesite!”
 
-Malantaŭ Ôvejk eksonis severa voĉo: ”Kion vi ĉi tie faras?” 
+Malantaŭ Ôvejk eksonis severa voĉo: ”Kion vi ĉi tie faras?”
 
-Antaŭ li staris la kadeto Biegler. Ôvejk soldatsalutis. 
+Antaŭ li staris la kadeto Biegler. Ôvejk soldatsalutis.
 
 ”Obee mi raportas, ni trarigardas la mortinton, sinjoro ka-
 
-deto.” 
+deto.”
 
 ”Kaj kian agitadon vi ĉi tie faris? Kian kaŭzon vi havas por
 
-ĉi tie esti?” 
+ĉi tie esti?”
 
 ”Obee mi raportas, sinjoro kadeto,” respondis Ôvejk kun
 
-digna trankvilo, ”ke mi neniam faris kianagitadon.” 
+digna trankvilo, ”ke mi neniam faris kianagitadon.”
 
 Kelke da soldatoj malantaŭ la kadeto komencis ridi kaj an-
 
-taŭen ekpaŝis la ĉefserĝento-kontisto Vanêk. 
+taŭen ekpaŝis la ĉefserĝento-kontisto Vanêk.
 
 ”Sinjoro kadeto,” li diris, ”sinjoro ĉefleŭtenanto sendis ĉi
 
@@ -2842,29 +2815,29 @@ estis ĉe la stabvagono kaj bataliona kuriero Matuôiâ serĉas vin
 
 laŭ la ordono de sinjoro bataliona komandanto. Vi devas tuj
 
-iri al sinjoro kapitano Ságner.” 
+iri al sinjoro kapitano Ságner.”
 
 Kiam post momento eksonis signalo por envagoniĝi, ĉiuj
 
-disiris al siaj vagonoj. 
+disiris al siaj vagonoj.
 
-Vanêk, irante kun Ôvejk, diris: ”Se ie estas pli da homoj, 
+Vanêk, irante kun Ôvejk, diris: ”Se ie estas pli da homoj,
 
 lasu al vi, Ôvejk, viajn parolojn. Tio povus vin ĉagreni. ĉar tiu
 
 kaporalo estis de viena regimento, povus okazi, ke oni klari-
 
-gus al si tion tiel, ke vi pro tio ĝojas. Tiu Biegler estas terura ĉe˛ovorulo.” 
+gus al si tion tiel, ke vi pro tio ĝojas. Tiu Biegler estas terura ĉe˛ovorulo.”
 
 ”Mi ja diris nenion,” respondis Ôvejk per tono, kiu eksklu-
 
 zivis kian ajn dubon, ”nur tion, ke tiu kaporalo surpikiĝis pre-
 
-cize, li havis la intestojn en la pantalono… Li povis…” 
+cize, li havis la intestojn en la pantalono… Li povis…”
 
 ”Ni ĉesu jam pri tio paroli, Ôvejk.” Kaj la ĉefserĝento-konti-
 
-sto Vanêk forkraĉis. 
+sto Vanêk forkraĉis.
 
 ”Tio estas egala,” ankoraŭ rimarkis Ôvejk, ”ĉu la intestoj
 
@@ -2876,17 +2849,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 eliĝas el lia ventro por sinjoro imperiestro ĉi tie aŭ tie. ĉiuo-
 
-kaze li plenumis sian devon… Li povis…” 
+kaze li plenumis sian devon… Li povis…”
 
 ”Rigardu, Ôvejk,” interrompis lin Vanêk, ”kiel la bataliona
 
 kuriero Matuôiâ denove paŝas al la stabvagono. Mi miras, ke
 
-li ankoraŭ ne falis trans relojn.” 
+li ankoraŭ ne falis trans relojn.”
 
 Mallonge antaŭ tio estis tre akra interparolo inter la ka-
 
-pitano Ságner kaj la fervora kadeto Biegler. 
+pitano Ságner kaj la fervora kadeto Biegler.
 
 ”Mi miras, kadeto Biegler,” parolis la kapitano Ságner, ”kial
 
@@ -2902,13 +2875,13 @@ ja diris: ’En la magazenon po plotonoj laŭ la kompanioj.’ Tio
 
 signifis, ke se oni ricevis en la magazeno nenion, ke oni de-
 
-vas iri ankaŭ po plotonoj laŭ la kompanioj en vagonojn. Al vi, 
+vas iri ankaŭ po plotonoj laŭ la kompanioj en vagonojn. Al vi,
 
 kadeto Biegler, mi ordonis, ke vi zorgu konservi la ordon, sed
 
 vi lasis ĉion kuri. Vi ĝojis, ke vi ne devas zorgi pri kalkulado
 
-de porcioj da salamo, kaj iris trankvile rigardi, kiel mi vidis tra la fenestro, la surpikiĝintan kaporalon de vienaj infanterianoj. 
+de porcioj da salamo, kaj iris trankvile rigardi, kiel mi vidis tra la fenestro, la surpikiĝintan kaporalon de vienaj infanterianoj.
 
 Kaj kiam mi poste igis vin alvoki, vi havas nenian alian labo-
 
@@ -2916,11 +2889,11 @@ ron ol el sia kadeta fantazio parolaĉi pri tio, ke vi iris konvin-
 
 kiĝi, ĉu tie ĉe la surpikiĝinta kaporalo oni ne faras ian agita-
 
-don…” 
+don…”
 
 ”Obee mi raportas, ke la kuriero de la dekunua kompanio
 
-Ôvejk…” 
+Ôvejk…”
 
 ”Donu al mi trankvilon pri Ôvejk,” ekkriis la kapitano Ság-
 
@@ -2928,7 +2901,7 @@ ner, ”ne imagu, kadeto Biegler, ke vi faros iajn intrigojn kon-
 
 traŭ la ĉefleŭtenanto Lukáô. Ôvejkon ni tien sendis… Vi rigar-
 
-\* ĉiuj interparoloj inter oficiroj nature okazas en la germana lingvo. 
+* ĉiuj interparoloj inter oficiroj nature okazas en la germana lingvo.
 
 **49**
 
@@ -2936,7 +2909,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-das min tiel, kvazaŭ vi opinius, ke mi emas vin persekuti… Jes, 
+das min tiel, kvazaŭ vi opinius, ke mi emas vin persekuti… Jes,
 
 mi emas vin persekuti, kadeto Biegler… Se vi ne scias respekti
 
@@ -2944,21 +2917,21 @@ vian superulon, klopodas lin mistifiki, mi maldolĉigos al vi la
 
 soldatservon tiel, ke vi, kadeto Biegler, rememoros la fervo-
 
-jan stacion Györ… Fanfaroni per siaj teoriaj scioj… Atendu, 
+jan stacion Györ… Fanfaroni per siaj teoriaj scioj… Atendu,
 
 kiam ni estos en la fronto… Kiam mi ordonos al vi iri kiel
 
 oficira patrolo trans pikdratajn barilojn… Via raporto? Ankaŭ
 
-tiun raporton vi ne donis al mi, kiam vi venis… Eĉ teorie ne, 
+tiun raporton vi ne donis al mi, kiam vi venis… Eĉ teorie ne,
 
-kadeto Biegler…” 
+kadeto Biegler…”
 
-”Obee mi raportas, sinjoro kapitano\* ke anstataŭ dek kvin
+”Obee mi raportas, sinjoro kapitano* ke anstataŭ dek kvin
 
 dekagramoj da hungara salamo la viraro ricevis po du bild-
 
-kartoj. Mi petas, sinjoro kapitano…” 
+kartoj. Mi petas, sinjoro kapitano…”
 
 La kadeto Biegler enmanigis al la komandanto de la bata-
 
@@ -2974,17 +2947,17 @@ skeletulo. Sub la karikaturo estis teksto:
 
 ”La tago, kiam la perfida Rusio mortaĉos, estos la tago de
 
-liberigo por la tuta nia monarkio.” 
+liberigo por la tuta nia monarkio.”
 
 La alia bildkarto devenis de Germanio. Estis tio germana
 
 donaceto al aŭstri-hungaraj soldatoj. Supre estis: ’Viribus
 
-unitis’, sub tio bildeto de pendumita siro Eduardo Grey**15** kaj sube sub li gaje soldatsalutas aŭstra kaj germana soldato. 
+unitis’, sub tio bildeto de pendumita siro Eduardo Grey**15** kaj sube sub li gaje soldatsalutas aŭstra kaj germana soldato.
 
-15 Eduardo Grey \(1862-1933\), komence de la unua mondmilito angla
+15 Eduardo Grey (1862-1933), komence de la unua mondmilito angla
 
-ministro de eksterlandaj aferoj. Germanaj imperialistoj al li riproĉis, ke Anglio en aŭgusto 1914 deklaris la militon al Germanio, kvankam li kelkfoje anoncis, ke Anglio ne militos. Se Anglio jam en julio 1914
+ministro de eksterlandaj aferoj. Germanaj imperialistoj al li riproĉis, ke Anglio en deklaris la militon al Germanio, kvankam li kelkfoje anoncis, ke Anglio ne militos. Se Anglio jam en
 
 klare proklamus sian intencon eniri la militon en la okazo, ke la
 
@@ -3002,11 +2975,11 @@ La poemeton oni transprenis el la libro de Greinz ”Fera
 
 pugno”. Ôercetoj je la konto de niaj amikoj, pri kiuj germanaj
 
-ĵurnaloj skribis, ke la versoj de Greinz estas kiel skurĝobatoj, 
+ĵurnaloj skribis, ke la versoj de Greinz estas kiel skurĝobatoj,
 
 ĉe kio ili enhavas veran senbridan humuron kaj nesupereblan
 
-spriton. 
+spriton.
 
 Teksto sub la pendumilo, en traduko:
 
@@ -3020,19 +2993,19 @@ Teksto sub la pendumilo, en traduko:
 
 *sed la lignon por pendumo*
 
-*de ĉi tiu — fi\! — Judaso*
+*de ĉi tiu — fi! — Judaso*
 
 *kverk’ neniu volis doni. *
 
 *Li do pendas sur tremolo*
 
-*el Francio. Dia volo\!” *
+*el Francio. Dia volo!” *
 
 La kapitano Ságner ankoraŭ ne finlegis tiujn ĉi versojn de
 
 ”senbrida humuro kaj nesuperebla sprito”, kiam la stabvago-
 
-non enfalis la bataliona kuriero Matuôiâ. 
+non enfalis la bataliona kuriero Matuôiâ.
 
 La kapitano Ságner sendis lin al telegrafa centralo de la
 
@@ -3042,19 +3015,19 @@ Matuôiâ alportis telegramon de la brigado. Sed ne necesis
 
 preni ŝlosilon por deĉifrado. La telegramo estis simpla, neĉi-
 
-frita: ”Rapide kuirpretigi manĝon kaj poste marŝi al Sokal’.” 
+frita: ”Rapide kuirpretigi manĝon kaj poste marŝi al Sokal’.”
 
-La kapitano Ságner nekredeme ekskuis la kapon. 
+La kapitano Ságner nekredeme ekskuis la kapon.
 
 ”Obee mi raportas,” diris Matuôiâ, ”komandanto de la sta-
 
 cio petas vin veni al li por interparolo. Estas tie ankoraŭ unu
 
-telegramo.” 
+telegramo.”
 
 Poste estis tre konfidenca interparolo inter la komandan-
 
-to de la stacio kaj la kapitano Ságner. 
+to de la stacio kaj la kapitano Ságner.
 
 La unua telegramo devis esti transdonita, eĉ se ĝi havis tre
 
@@ -3066,7 +3039,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 suprizigan enhavon, se la bataliono troviĝas en la stacio Györ:
 
-”Rapide kuirpretigi manĝon kaj poste marŝi al Sokal’.” ¯i
+”Rapide kuirpretigi manĝon kaj poste marŝi al Sokal’.” i
 
 estis adresita neĉifrite al marŝbataliono de la naŭdekunua re-
 
@@ -3074,7 +3047,7 @@ gimento kun kopio por marŝbatalino de la sepdekkvina regi-
 
 mento, kiu estis ankoraŭ malantaŭe. La subskribo estis ĝusta:
 
-komandanto de la brigado Ritter von Herbert. 
+komandanto de la brigado Ritter von Herbert.
 
 ”Tre konfidenca afero, sinjoro kapitano,” diris la soldata
 
@@ -3100,7 +3073,7 @@ miaj instancoj. Pere de miaj instancoj mi informiĝis ĉe la ko-
 
 mandejo de la armea korpuso kaj oni min enketas…
 
-Mi estas aktiva oficiro de malnova pioniraro,” li aldonis, 
+Mi estas aktiva oficiro de malnova pioniraro,” li aldonis,
 
 ”mi partoprenis la konstruon de nia strategia fervoja linio en
 
@@ -3108,7 +3081,7 @@ Galicio…
 
 Sinjoro kapitano,” li diris post momento, ”nin oni sendu al
 
-la fronto, la maljunajn harditajn ulojn\! En la ministerio de
+la fronto, la maljunajn harditajn ulojn! En la ministerio de
 
 milito estas nun da tiuj civiluloj-inĝenieroj de fervojo kun
 
@@ -3118,7 +3091,7 @@ kvaronhoro vi denove pluveturas… Mi memoras nur tion, ke
 
 foje en praga oficirlernejo, kiel unu el la pli alta klaso, mi helpis levi vin al reko. Tiam ni ambaŭ havis malpermeson iri
 
-\* En germana interparolo, kiun tiuj du kondukis inter si: ”Tiam vi ankaŭ interbatiĝis kun germanaj kunlernantoj.” 
+* En germana interparolo, kiun tiuj du kondukis inter si: ”Tiam vi ankaŭ interbatiĝis kun germanaj kunlernantoj.”
 
 **52**
 
@@ -3126,7 +3099,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-eksteren. Vi interbatiĝis kun germanoj en la klaso\* Kun vi
+eksteren. Vi interbatiĝis kun germanoj en la klaso* Kun vi
 
 estis tie ankaŭ Lukáô. Vi estis la plej bonaj amikoj. Kiam ni
 
@@ -3136,7 +3109,7 @@ taliono, kiuj traveturas la stacion, mi klare rememoris… Es-
 
 tas tio jam sufiĉe da jaroj… La kadeto Lukáô estis al mi tiam
 
-tre simpatia…” 
+tre simpatia…”
 
 La tuta parolo impresis la kapitanon Ságner tre malagra-
 
@@ -3148,43 +3121,42 @@ poste elbatis el iliaj kapoj la klopodo fari karieron. La plej
 
 malagrabla estis al li la mencio pri la ĉefleŭtenanto Lukáô, kiu
 
-kompare kun li estis ĉie pro kia ajn kaŭzo forpuŝata. 
+kompare kun li estis ĉie pro kia ajn kaŭzo forpuŝata.
 
 ”La ĉefleŭtenanto Lukáô,” li diris emfaze, ”estas tre bona
 
-oficiro. Kiam la trajno veturas?” 
+oficiro. Kiam la trajno veturas?”
 
-La komandanto de la stacio ekrigardis la poŝhorloĝon. 
+La komandanto de la stacio ekrigardis la poŝhorloĝon.
 
-”Post ses minutoj.” 
+”Post ses minutoj.”
 
-”Mi iras”, diris Ságner. 
+”Mi iras”, diris Ságner.
 
-”Mi opiniis, ke vi ion al mi diros, Ságner.” 
+”Mi opiniis, ke vi ion al mi diros, Ságner.”
 
-”Do saluton\!” respondis Ságner\* kaj eliris antaŭ la konstru-
+”Do saluton!” respondis Ságner* kaj eliris antaŭ la konstru-
 
-aĵon de la stacia komandejo. 
+aĵon de la stacia komandejo.
 
 Kiam la kapitano Ságner antaŭ la forveturo de la trajno re-
 
-venis en la stabvagonon, li trovis ĉiujn oficirojn sur sia loko. 
+venis en la stabvagonon, li trovis ĉiujn oficirojn sur sia loko.
 
-En grupetoj ili ludis cvikon \(frische viere**16**\), nur la kadeto Biegler ne ludis. 
+En grupetoj ili ludis cvikon (frische viere**16**), nur la kadeto Biegler ne ludis.
 
 Tiu foliumis en amaso da komencitaj manuskriptoj pri mi-
 
-litaj scenoj, ĉar li volis eminentiĝi ne nur sur la milita kampo, 
+litaj scenoj, ĉar li volis eminentiĝi ne nur sur la milita kampo,
 
 sed ankaŭ kiel literatura fenomenulo, priskribanta militajn
 
 okazaĵojn. La viro de strangaj flugiloj kun ’fiŝvosto’ volis esti
 
-\*
 
-En la interparolo: ”Do: Saluton\!” 
+En la interparolo: ”Do: Saluton!”
 
-16 germana popolnomo por la kartludo ”cviko” 
+16 germana popolnomo por la kartludo ”cviko”
 
 **53**
 
@@ -3198,7 +3170,7 @@ multpromesaj titoloj, en kiuj respeguliĝis tiutempa militaris-
 
 mo, sed kiuj ankoraŭ ne estis prilaboritaj, tiel ke sur paper-
 
-folioj restis nur titoloj de estontaj verkoj. 
+folioj restis nur titoloj de estontaj verkoj.
 
 ”Karakteroj de soldatoj el la granda milito. — Kiu komen-
 
@@ -3220,9 +3192,9 @@ trarigardo pri la mondmilito. — La unua mondmilito. — Nia
 
 dinastio en la mondmilito. — La nacioj de aŭstri-hungara mo-
 
-narkio kun armiloj en la mano. — Monda lukto pri potenco. 
+narkio kun armiloj en la mano. — Monda lukto pri potenco.
 
-— Miaj spertoj en la mondmilito. — Kroniko de mia militiro. 
+— Miaj spertoj en la mondmilito. — Kroniko de mia militiro.
 
 — Kiel batalas la malamikoj de Aŭstri-Hungario. — Kies es-
 
@@ -3240,13 +3212,13 @@ fronto. — Tagoj de bataloj kaj tagoj de la venko. — Kion mi
 
 vidis kaj spertis sur batalkampo. — En tranĉeoj. — La oficiro
 
-rakontas… — Kun filoj de Aŭstri-Hungario antaŭen\! — Ma-
+rakontas… — Kun filoj de Aŭstri-Hungario antaŭen! — Ma-
 
 lamikaj aeroplanoj kaj nia infanterio. — Post la batalo. — Niaj
 
 artilerianoj, fidelaj filoj de sia patrujo. — Eĉ se irus kontraŭ ni ĉiuj diabloj… — Defensiva kaj ofensiva milito. — Sangon kaj
 
-feron. — Venkon aŭ morton. — Niaj herooj en kaptiteco.” 
+feron. — Venkon aŭ morton. — Niaj herooj en kaptiteco.”
 
 Kiam la kapitano Ságner alpaŝis al la kadeto Biegler kaj
 
@@ -3256,13 +3228,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ĉion trarigardis, li demandis, kial Biegler tion faris kaj kion li volas per tio diri. 
+ĉion trarigardis, li demandis, kial Biegler tion faris kaj kion li volas per tio diri.
 
 La kadeto Biegler respondis kun vera entuziasmo, ke ĉiu
 
-tiu titolo prezentas libron, kiun li verkos. Kiom da titoloj, 
+tiu titolo prezentas libron, kiun li verkos. Kiom da titoloj,
 
-tiom da libroj. 
+tiom da libroj.
 
 ”Mi deziras, se mi falos en batalo, ke restu post mi memo-
 
@@ -3270,47 +3242,46 @@ raĵo, sinjoro kapitano. Mia ekzemplo estas germana profes-
 
 oro Udo Kraft. Li naskiĝis en la jaro 1870, nun en la mond-
 
-milito li libervole soldatiĝis kaj falis la 22an de aŭgusto 1914
+milito li libervole soldatiĝis kaj falis la 22an de
 
 en Anloy. Antaŭ sia morto li eldonis libron: ’Memeduko al
 
-morto por la imperiestro.’ ”\*
+morto por la imperiestro.’ ”*
 
 La kapitano Ságner forkondukis la kadeton Biegler al fene-
 
-stro. 
+stro.
 
 ”Montru, kion vi ankoraŭ havas, kadeto Biegler; min ege
 
-interesas via agado,” diris la kapitano Ságner kun ironio, 
+interesas via agado,” diris la kapitano Ságner kun ironio,
 
-”kian kajereton vi ŝovis sub la jakon?” 
+”kian kajereton vi ŝovis sub la jakon?”
 
 ”Tio estas sensignifaĵo, sinjoro kapitano,” respondis la ka-
 
 deto Biegler, ruĝetiĝinte kiel infano, ”bonvolu konvinkiĝi, mi
 
-petas.” 
+petas.”
 
 La kajereto havis titolon:
 
 Skemoj de elstaraj kaj gloraj bataloj
 
-de la aŭstri-hungara armeo, 
+de la aŭstri-hungara armeo,
 
 kompilitaj laŭ historiaj studoj
 
-de i.r. oficiro Adolfo Biegler. 
+de i.r. oficiro Adolfo Biegler.
 
 Per rimarkoj kaj klarigoj ekipis
 
-i.r. oficiro Adolfo Biegler. 
+i.r. oficiro Adolfo Biegler.
 
-La skemoj estis terure simplaj. 
+La skemoj estis terure simplaj.
 
-\*
 
-Udo Kraft: ”Memeduko al morto por la imperiestro.” Eldonejo de C. 
+Udo Kraft: ”Memeduko al morto por la imperiestro.” Eldonejo de C.
 
 F. Amelang
 
@@ -3320,19 +3291,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-De la batalo ĉe Nördlingen la 6an de septembro 1634 al la
+De la batalo ĉe Nördlingen la 6an de al la
 
-batalo ĉe Zenta la 11an de septembro 1697, ĉe Caldiero la
+batalo ĉe Zenta la 11an de , ĉe Caldiero la
 
-31an de oktobro 1805, al la batalo ĉe Aspern la 22an de majo
+31an de , al la batalo ĉe Aspern la 22an de kaj la batalo de nacioj ĉe Lepsiko en la jaro 1813, al la
 
-1809 kaj la batalo de nacioj ĉe Lepsiko en la jaro 1813, al la
+batalo ĉe Santa Lucia en kaj ĉe Trutnov la 27an de
 
-batalo ĉe Santa Lucia en majo 1848 kaj ĉe Trutnov la 27an de
-
-junio 1866 ĝis la konkero de Sarajevo la 19an de aŭgusto
-
-1878. Skemoj kaj plandesegnaĵoj de tiuj bataloj estis sen kia
+ĝis la konkero de Sarajevo la 19an de . Skemoj kaj plandesegnaĵoj de tiuj bataloj estis sen kia
 
 ajn ŝanĝo. La kadeto Biegler desegnis ĉie ortanguletojn sur
 
@@ -3348,31 +3315,31 @@ rajevo aspektis kiel dislokiĝo de ludantoj ĉe kia ajn futbal-
 
 maĉo dum malfermo de la ludo kaj la sagetoj montris, kien
 
-tiu aŭ la alia partio elpiedbatu la pilkon. 
+tiu aŭ la alia partio elpiedbatu la pilkon.
 
-Tio ankaŭ tuj venis en la menson de la kapitano Ságner, 
+Tio ankaŭ tuj venis en la menson de la kapitano Ságner,
 
-kiu demandis: ”Kadeto Biegler, ĉu vi ludas futbalon?” 
+kiu demandis: ”Kadeto Biegler, ĉu vi ludas futbalon?”
 
-Biegler ruĝetiĝis ankoraŭ pli kaj nervoze ekpalpebrumis, 
+Biegler ruĝetiĝis ankoraŭ pli kaj nervoze ekpalpebrumis,
 
-tiel ke li faris impreson, kvazaŭ li preparus sin plori. 
+tiel ke li faris impreson, kvazaŭ li preparus sin plori.
 
 La kapitano Ságner kun rideto plu foliumis en la kajereto
 
 kaj haltis ĉe noto, akompananta la skemon de la batalo ĉe
 
-Trutnov dum la prusa-aŭstra milito. 
+Trutnov dum la prusa-aŭstra milito.
 
 La kadeto Biegler skribis: ”La batalo ĉe Trutnov estis era-
 
 ro, ĉar la montoriĉa regiono malebligis disvolvi la divizion de
 
-generalo Mazzucheli, al kiu minacis fortaj prusaj taĉmentoj, 
+generalo Mazzucheli, al kiu minacis fortaj prusaj taĉmentoj,
 
 troviĝantaj sur altaĵoj ĉirkaŭantaj la maldekstran alon de nia
 
-divizio.” 
+divizio.”
 
 ”Laŭ vi,” diris la kapitano Ságner kun rideto, redonante la
 
@@ -3386,7 +3353,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ĉe Trutnov nur en tiu okazo, se Trutnov estus en ebena regi-
 
-ono, vi Benedek**17** el Budêjovice. 
+ono, vi Benedek**17** el Budêjovice.
 
 Kadeto Biegler, estas tre bele de vi, ke dum tiel mallonga
 
@@ -3394,13 +3361,13 @@ tempo de via restado en la vicoj de la armeo vi klopodis pene-
 
 tri en strategion, sed finiĝis tio ĉe vi tiel, kiel se buboj ludas soldatojn kaj disdonas al si titolojn de generaloj. Vi avancis
 
-vin mem tiel rapide, ĝojo tion legi. I.r. oficiro Adolfo Biegler\! 
+vin mem tiel rapide, ĝojo tion legi. I.r. oficiro Adolfo Biegler!
 
 Antaŭ ol ni alveturos Budapeston, vi estos feldmarŝalo. An-
 
 koraŭ antaŭhieraŭ vi pezis ie hejme ĉe la paĉjo bovinajn fel-
 
-ojn. I.k.r. leŭtenanto Adolfo Biegler\! … Homo, vi ja ankoraŭ
+ojn. I.k.r. leŭtenanto Adolfo Biegler! … Homo, vi ja ankoraŭ
 
 ne estas oficiro. Vi estas kadeto. Vi pendas en la aero inter
 
@@ -3408,7 +3375,7 @@ subleŭtenanto kaj suboficiroj. Vi estas malproksime de tio, ke
 
 vi povu nomi vin oficiro, same kiel apuntato, kiu ie en gastejo
 
-lasas sin titoli ’sinjoro staba ĉefserĝento’. 
+lasas sin titoli ’sinjoro staba ĉefserĝento’.
 
 Aŭdu, Lukáô,” li turnis sin al la ĉefleŭtenanto, ”vi havas la
 
@@ -3420,19 +3387,19 @@ tondros kanonpafado kaj ni atakos, li tondu kun sia plotono
 
 pikdratajn barilojn, tiu bona junulo. Á propos, sendas al vi
 
-saluton Zykán, li estas komandanto de la stacio en Györ.” 
+saluton Zykán, li estas komandanto de la stacio en Györ.”
 
 La kadeto Biegler vidis, ke la interparolo kun li finiĝis, sol-
 
 datsalutis kaj tute ruĝa en la vizaĝo trairis la vagonon, ĝis li
 
-troviĝis ĉe la fino en transversa koridoro. 
+troviĝis ĉe la fino en transversa koridoro.
 
 Kiel somnambulo li malfermis pordon de klozeto kaj rigar-
 
-17 Ludoviko Aŭgusteno el Benedek \(1804-1881\), aŭstra generalo, kiu subpremis ribeliĝon en Galicio \(1846\) kaj revoluciojn en Italio
+17 Ludoviko Aŭgusteno el Benedek (1804-1881), aŭstra generalo, kiu subpremis ribeliĝon en Galicio (1846) kaj revoluciojn en Italio
 
-\(1848\) kaj Hungario \(1849\). Kontraŭ lia volo oni nomumis lin ĉefa
+(1848) kaj Hungario (1849). Kontraŭ lia volo oni nomumis lin ĉefa
 
 komandanto de la aŭstra armeo en la aŭstra-prusa milito 1866. Post malvenko oni lin kun malhonoro pensiigis, sed ĉar li donis la vorton al Francisko Jozefo la unua, ke li ne parolos pri kaŭzoj kaj cirkonstancoj de la malvenko, li ne protestis
 
@@ -3456,7 +3423,7 @@ hungara armeo, kompilitaj de i.r. oficiro Adolfo Biegler,” kiu
 
 malhonorigita malaperis en truo, kaj falinte sur relojn, fluge-
 
-tis inter ili sub forveturanta soldata trajno. 
+tis inter ili sub forveturanta soldata trajno.
 
 La kadeto Biegler lavis al si la ruĝiĝintajn okulojn en lavujo
 
@@ -3464,33 +3431,33 @@ de la necesejo kaj eliris en koridoron, decidiĝante, ke li devas
 
 esti forta, diable forta. Jam ekde la mateno doloris lin la kapo
 
-kaj ventro. 
+kaj ventro.
 
 Li laŭiris malantaŭan kupeon, kie la bataliona kuriero Ma-
 
 tuôiâ kartludis kun Batzer, servosoldato de la bataliona ko-
 
-mandanto, vienan ludon ’sesdek ses’. 
+mandanto, vienan ludon ’sesdek ses’.
 
 Rigardante tra malfermita pordo de la kupeo, li ektusis. Ili
 
-sin turnis kaj ludis plu. 
+sin turnis kaj ludis plu.
 
 ”ĉu vi ne scias, kio konvenas?” demandis la kadeto Bieg-
 
-ler. 
+ler.
 
 ”Mi ne povis,” respondis Batzer, la servosoldato de la ka-
 
 pitano Ságner, per sia terura germana lingvaĵo de Kaôperské
 
-Hory, ”mi elĉerp’ ĉjujn atut’n. 
+Hory, ”mi elĉerp’ ĉjujn atut’n.
 
-Estis pli bone ludi per karooj, sinjoro kadeto,” li daŭrigis, 
+Estis pli bone ludi per karooj, sinjoro kadeto,” li daŭrigis,
 
 ”per altrangaj karooj kaj tuj poste elmeti la pikreĝon… Tion
 
-necesis fari…” 
+necesis fari…”
 
 La kadeto Biegler ne diris jam eĉ unu vorton kaj enŝoviĝis
 
@@ -3508,15 +3475,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 legas en libro de profesoro Udo Kraft: ”Memeduko al morto
 
-por la imperiestro”. 
+por la imperiestro”.
 
 Antaŭ ol ili alveturis Budapeston, la kadeto Biegler estis
 
 jam tiel ebria, ke kliniĝante el fenestro de la vagono, li kriis
 
-seninterrompe al la senhoma regiono: ”Ek al tio\! En la nomo
+seninterrompe al la senhoma regiono: ”Ek al tio! En la nomo
 
-de Dio, ek al tio\!” 
+de Dio, ek al tio!”
 
 Poste laŭ la ordono de la kapitano Ságner la bataliona ku-
 
@@ -3526,13 +3493,13 @@ vosoldato de la kapitano, li kuŝigis lin sur benkon, kaj la ka-
 
 deto Biegler havis jenan sonĝon:
 
-La sonĝo de la kadeto Biegler antaŭ Budapesto. 
+La sonĝo de la kadeto Biegler antaŭ Budapesto.
 
 Li havis signum laudis, feran krucon**18**, estis majoro kaj veturis por kontroli batalejon de la brigado al li submetita. Sed
 
 li ne sciis al si klarigi, kial li estas senĉese nur majoro, se li komandas la tutan brigadon. Li havis suspekton, ke oni rangaltigis lin al generalmajoro kaj ke tiu ’general’ perdiĝis ie en
 
-amaso da sendaĵoj en feldpoŝto. 
+amaso da sendaĵoj en feldpoŝto.
 
 Li devis enmense ridi al tio, kiel la kapitano Ságner mina-
 
@@ -3540,17 +3507,17 @@ cis al li en trajno, kiam ili veturis al la fronto, ke li devos tondi pikdratajn
 
 kapitano Ságner eĉ kun la ĉefleŭtenanto Lukáô jam longe es-
 
-tis translokitaj al alia regimento. Al alia divizio, al alia armea korpuso. 
+tis translokitaj al alia regimento. Al alia divizio, al alia armea korpuso.
 
 Iu al li ankaŭ rakontis, ke ili ambaŭ mizere pereis ie en
 
-marĉo dum forkuro. 
+marĉo dum forkuro.
 
 Kiam li veturis aŭtomobile al pozicio por kontroli batale-
 
 jon de sia brigado, ĉio estis al li klara. Fakte lin sendis la ge-
 
-nerala stabo de la armeo. 
+nerala stabo de la armeo.
 
 18 prusa ordeno, kiun en la jaro 1813 fondis la prusa reĝo Frederiko Vilhelmo la tria
 
@@ -3574,13 +3541,13 @@ kolekto de aŭstraj soldataj kantoj:
 
 La regiono havis la saman karakteron kiel sur bildetoj en
 
-la ”Viena Ilustrita Gazeto”. 
+la ”Viena Ilustrita Gazeto”.
 
 ĉe garbejo sur la dekstra flanko vidiĝis artilerio, kiel ĝi pa-
 
 fas kontraŭ malamikaj tranĉeoj apud la ŝoseo, sur kiu li vetu-
 
-ras en aŭtomobilo. Maldekstre staris domo, el kiu oni pafis, 
+ras en aŭtomobilo. Maldekstre staris domo, el kiu oni pafis,
 
 dum la malamiko klopodis elrompi la pordon per kolboj de
 
@@ -3594,11 +3561,11 @@ pafis kontraŭ la malamikoj. Laŭlonge de la ŝoseo plu eten-
 
 diĝis malamikaj tranĉeoj. Kaj la ŝoforo veturas kun li pluen
 
-sur la ŝoseo al la malamiko. 
+sur la ŝoseo al la malamiko.
 
 Li kriegas per aŭdilo al la ŝoforo: ”ĉu vi ne scias, kien ni
 
-veturas? Tie estas la malamiko.” 
+veturas? Tie estas la malamiko.”
 
 Sed la ŝoforo trankvile respondas:
 
@@ -3606,13 +3573,13 @@ Sed la ŝoforo trankvile respondas:
 
 estas en bona stato. Sur tiuj apudaj vojoj pneŭmatikoj tion ne
 
-eltenus.” 
+eltenus.”
 
 Ju pli ili proksimiĝas al pozicioj de la malamiko, des pli
 
 forta iĝas la fajro. Grenadoj ĉie ĉirkaŭe suprenĵetas aleon de
 
-prunarboj super ambaŭflankajn fosaĵojn. 
+prunarboj super ambaŭflankajn fosaĵojn.
 
 Sed la ŝoforo trankvile respondas en la aŭdilon:
 
@@ -3626,9 +3593,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 veturas kiel sur butero. Se ni deflankiĝus al kampoj, pneŭma-
 
-tiko detruiĝus.” 
+tiko detruiĝus.”
 
-”Rigardu, sinjoro generalo,” krias la ŝoforo en la aŭdilon, 
+”Rigardu, sinjoro generalo,” krias la ŝoforo en la aŭdilon,
 
 ”tiu ĉi ŝoseo estas konstruita tiel bone, ke eĉ kanonoj je kali-
 
@@ -3638,43 +3605,43 @@ draŝejo, sed sur tiuj ŝtonkovritaj vojoj en kampoj niaj pneŭ-
 
 matikoj irus al la diablo. Cetere ni ne povas reveni, sinjoro
 
-generalo\!” 
+generalo!”
 
-”Zzz — krak\!” aŭdas Biegler kaj la aŭtomobilo faris gigan-
+”Zzz — krak!” aŭdas Biegler kaj la aŭtomobilo faris gigan-
 
-tan salton. 
+tan salton.
 
 ”ĉu mi ne diris al vi, sinjoro generalo,” kriegas la ŝoforo en
 
-la aŭdilon, ”ke tiu ĉi ŝoseo estas diable bone konstruita? ¯u-
+la aŭdilon, ”ke tiu ĉi ŝoseo estas diable bone konstruita? u-
 
-ste nun tuŝapude antaŭ ni eksplodis ’tridekokcentimetraĵo’**19**. 
+ste nun tuŝapude antaŭ ni eksplodis ’tridekokcentimetraĵo’**19**.
 
 Sed nenia truo, la ŝoseo estas kiel draŝejo. Sed enveturi sur
 
 kampojn, pneŭmatikoj estus for. Nun oni pafas kontraŭ ni el
 
-la distanco de kvar kilometroj.” 
+la distanco de kvar kilometroj.”
 
-”Sed kien ni veturas?” 
+”Sed kien ni veturas?”
 
 ”Tion ni vidos,” respondis la ŝoforo, ”dum la ŝoseo estos
 
-senĉese tia, mi garantias ĉion.” 
+senĉese tia, mi garantias ĉion.”
 
-Flugo, terura flugo kaj la aŭtomobilo haltas. 
+Flugo, terura flugo kaj la aŭtomobilo haltas.
 
 ”Sinjoro generalo,” krias la ŝoforo, ”ĉu vi ne havas staban
 
-mapon?” 
+mapon?”
 
-La generalo Biegler eklumigas elektran lampeton. Li vidas, 
+La generalo Biegler eklumigas elektran lampeton. Li vidas,
 
 ke li havas staban mapon sur la genuoj. Sed estas tio marista
 
 mapo de Helgolanda marbordo el la jaro 1864, el la aŭstra-
 
-prusa milito kontraŭ Danio pro Ôlesvigo. 
+prusa milito kontraŭ Danio pro Ôlesvigo.
 
 ”ĉi tie estas vojkruciĝo,” diras la ŝoforo, ”ambaŭ vojoj kon-
 
@@ -3690,17 +3657,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 ke la pneŭmatikoj ne suferu, sinjoro generalo… Mi respondas
 
-por la staba aŭtomobilo…” 
+por la staba aŭtomobilo…”
 
-Poste bruego, surdiga bruego kaj astroj grandaj kiel radoj. 
+Poste bruego, surdiga bruego kaj astroj grandaj kiel radoj.
 
-La Lakta Vojo estas densa kiel kremo. 
+La Lakta Vojo estas densa kiel kremo.
 
 Li ŝvebas en la universo sur sidloko apud la ŝoforo. La tuta
 
 aŭtomobilo estas tuŝapude antaŭ la sidloko fortondita kvazaŭ
 
-per tondilo. Restas el ĝi nur ofensiva, atakema antaŭa parto. 
+per tondilo. Restas el ĝi nur ofensiva, atakema antaŭa parto.
 
 ”Estis feliĉo,” diras la ŝoforo, ”ke vi montris al mi la mapon
 
@@ -3710,23 +3677,23 @@ diablo. Tio estis ’kvardekducentimetraĵo’**20**…. Tion mi tuj supozis, ke
 
 ’tridekokcentimetraĵo’ povis tio esti nur la ’kvardekducenti-
 
-metraĵo’. Ion alian oni ĝis nun ne fabrikas, sinjoro generalo.” 
+metraĵo’. Ion alian oni ĝis nun ne fabrikas, sinjoro generalo.”
 
-”Kien vi tion direktas?” 
+”Kien vi tion direktas?”
 
 ”Ni flugas en la ĉielon, sinjoro generalo, kaj ni devas eviti
 
 kometojn. Tiuj estas pli danĝeraj ol la ’kvardekducentimet-
 
-raĵo’. 
+raĵo’.
 
-Nun estas sub ni Marso,” diris la ŝoforo post longa paŭzo. 
+Nun estas sub ni Marso,” diris la ŝoforo post longa paŭzo.
 
-Biegler sentis sin jam denove trankvila. 
+Biegler sentis sin jam denove trankvila.
 
-”ĉu vi scias la historion pri la batalo de nacioj ĉe Lepsiko?” 
+”ĉu vi scias la historion pri la batalo de nacioj ĉe Lepsiko?”
 
-li demandis, ”kiam la 14an de oktobro 1813 la feldmarŝalo
+li demandis, ”kiam la 14an de la feldmarŝalo
 
 arkiduko Schwarzenberg militiris al Liebertkowitz kaj kiam
 
@@ -3734,13 +3701,13 @@ la 16an de oktobro estis batalo pri Lindenau, la batalojn de la
 
 generalo Merweldt, kaj kiam la aŭstraj armeoj estis en Wa-
 
-chau kaj la 19an de oktobro estis konkerita Lepsiko?” 
+chau kaj la 19an de oktobro estis konkerita Lepsiko?”
 
-”Sinjoro generalo,” diris en tiu momento la ŝoforo serioze, 
+”Sinjoro generalo,” diris en tiu momento la ŝoforo serioze,
 
 ”ni troviĝas ĝuste ĉe la ĉiela pordego, elgrimpu eksteren, sin-
 
-20 obuso por kanono je kalibro de kvardek du centimetroj, fabrikita en Ôkoda-fabriko en Plzeñ \(ĉeą respubliko\). La plej forta kanono de
+20 obuso por kanono je kalibro de kvardek du centimetroj, fabrikita en Ôkoda-fabriko en Plzeñ (ĉeą respubliko). La plej forta kanono de
 
 la aŭstri-hungara armeo
 
@@ -3750,23 +3717,23 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-joro generalo\! Ni ne povas veturi tra la ĉiela pordego, estas ĉi
+joro generalo! Ni ne povas veturi tra la ĉiela pordego, estas ĉi
 
-tie hompuŝiĝo. ĉie nur soldatoj.” 
+tie hompuŝiĝo. ĉie nur soldatoj.”
 
 ”Trankvile iun el ili surveturu,” li krias al la ŝoforo, ”ili ja
 
-flankenpaŝos.” 
+flankenpaŝos.”
 
 Kaj klinante sin el la aŭtomobilo, li krias: ”Atenton, bando
 
-de porkoj\! Tio estas ja brutaro, ili vidas generalon kaj ne po-
+de porkoj! Tio estas ja brutaro, ili vidas generalon kaj ne po-
 
-vas fari ’Rigardi dekstren\!’ ” 
+vas fari ’Rigardi dekstren!’ ”
 
 La ŝoforo lin trankviligas: ”Malfacila afero, sinjoro gene-
 
-ralo, plejparto da ili havas la kapon forbatita.” 
+ralo, plejparto da ili havas la kapon forbatita.”
 
 La generalo Biegler nur nun rimarkis, ke tiuj, kiuj puŝas sin
 
@@ -3784,29 +3751,29 @@ membroj. El alia dorsosako de justa miliciano rigardis la ge-
 
 neralon Biegler duono de la postaĵo, kiun la miliciano perdis
 
-ĉe Lvov. 
+ĉe Lvov.
 
 ”Tio estas cele de ordo,” ekparolis denove la ŝoforo, vetu-
 
 rante tra la densa homamaso, ”tio estas ŝajne cele de la ĉiela
 
-supera revizio.” 
+supera revizio.”
 
 ĉe la ĉiela pordego oni enlasadis nur post pasvorto, kiu al
 
 la generalo Biegler tuj venis en la menson: ”Por Dio kaj la
 
-imperiestro.” La aŭtomobilo enveturis la paradizon. 
+imperiestro.” La aŭtomobilo enveturis la paradizon.
 
 ”Sinjoro generalo,” diris flugilhava oficiro-anĝelo, kiam ili
 
 laŭveturis kazernon kun rekrutoj-anĝeloj,” vi devas anonci
 
-vin en la ĉefkomandejo.” 
+vin en la ĉefkomandejo.”
 
 Ili veturis plu laŭlonge de ekzercejo, kie svarmis rekrutoj-
 
-anĝeloj, kiujn oni instruis krii: ”Haleluja\!” 
+anĝeloj, kiujn oni instruis krii: ”Haleluja!”
 
 Ili laŭveturis grupon, kie ruĝhara kaporalo-anĝelo ĝuste
 
@@ -3828,7 +3795,7 @@ vin, bruto, ĉi tien en la paradizon. Provu tion ankoraŭfoje…
 
 Hlahlehluhja? Bestio, ĉi tie en la paradizo vi ankoraŭ al ni
 
-nazparolas… Provu tion ankoraŭfoje, lebanona cedro.” 
+nazparolas… Provu tion ankoraŭfoje, lebanona cedro.”
 
 Ili veturis plu kaj ankoraŭ longe malantaŭ ili oni aŭdis ti-
 
@@ -3836,7 +3803,7 @@ meman kriegon de nazparolanta rekruto-anĝelo: ”Hla-hle-
 
 hlu-hja” kaj krion de la kaporalo-anĝelo: ”Ha-le-lu-ja, ha-le-
 
-lu-ja, jordana bovino\!” 
+lu-ja, jordana bovino!”
 
 Poste grandega brilo super konstruaĵo, granda kiel Maria-
 
@@ -3852,11 +3819,11 @@ La generalon Biegler elsidigis el la aŭtomobilo du anĝeloj
 
 en uniformoj de frontaj policistoj, kaptis lin je la kolumo kaj
 
-forkondukis en la konstruaĵon supren en la unuan etaĝon. 
+forkondukis en la konstruaĵon supren en la unuan etaĝon.
 
 ”Kondutu dece antaŭ sinjoro dio,” ili diris al li ankoraŭ
 
-supre antaŭ pordo kaj puŝis lin internen. 
+supre antaŭ pordo kaj puŝis lin internen.
 
 Meze de la ĉambro, en kiu sur vandoj pendis portretoj de
 
@@ -3866,7 +3833,7 @@ Francisko Jozefo, la generalo Viktoro Dankl, la arkiduko Fre-
 
 deriko**21** kaj estro de la generala stabo Konrado von Hötzen-
 
-dorf, staris sinjoro dio. 
+dorf, staris sinjoro dio.
 
 21 — Vilhelmo: germana imperiestro, laŭ kies instigo Aŭstrio komencis la militon
 
@@ -3884,9 +3851,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 ekkonas? Mi estas via ekskapitano Ságner de la dekunua
 
-marŝkompanio.” 
+marŝkompanio.”
 
-Biegler ŝtoniĝis. 
+Biegler ŝtoniĝis.
 
 ”Kadeto Biegler,” ekparolis denove sinjoro dio, ”kiarajte vi
 
@@ -3894,43 +3861,42 @@ alproprigis al vi la titolon de generalmajoro? Kiarajte, kade-
 
 to Biegler, vi promenveturis en staba aŭtomobilo sur la ŝoseo
 
-inter malamikaj pozicioj?” 
+inter malamikaj pozicioj?”
 
-”Obee mi raportas…” 
+”Obee mi raportas…”
 
 ”Fermu la faŭkon, kadeto Biegler, se parolas kun vi sinjoro
 
-dio.” 
+dio.”
 
-”Obee mi raportas,” blekis Biegler ankoraŭfoje. 
+”Obee mi raportas,” blekis Biegler ankoraŭfoje.
 
 ”ĉu vi do ne fermos la faŭkon?” alkriis lin sinjoro dio, mal-
 
-fermis la pordon kaj ekkriis: ”Du anĝeloj ĉi tien\!” 
+fermis la pordon kaj ekkriis: ”Du anĝeloj ĉi tien!”
 
 Eniris du anĝeloj kun fusiloj, pendigitaj sur la maldekstra
 
-flugilo. Biegler ekkonis en ili Matuôiâon kaj Batzeron. 
+flugilo. Biegler ekkonis en ili Matuôiâon kaj Batzeron.
 
 Kaj el la buŝo de sinjoro dio sonis voĉo: ”ĵetu lin en latri-
 
-non\!” 
+non!”
 
-La kadeto Biegler falis ien en teruran fetoron. 
+La kadeto Biegler falis ien en teruran fetoron.
 
-\*
 
-Kontraŭ la dormanta kadeto Biegler sidis Matuôiâ kun Batzer, 
+Kontraŭ la dormanta kadeto Biegler sidis Matuôiâ kun Batzer,
 
 la servosoldato de la kapitano Ságner, kaj senĉese ludis ’ses-
 
-dek ses’. 
+dek ses’.
 
 ”Tiu ulo ja malodoras kiel sekigita gado,” diris Batzer, kiu
 
 rigardis kun intereso, kiel la dormanta kadeto Biegler suspek-
 
-te skuiĝas, ”li devas havi la pantalonon plena.” 
+te skuiĝas, ”li devas havi la pantalonon plena.”
 
 — la arkiduko Frederiko: ĉefkomandanto de la aŭstri-hungara ar-
 
@@ -3944,17 +3910,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Tio povas okazi al kiu ajn,” diris Matuôiâ filozofie, ”lasu
 
-lin, eĉ tiel vi lin ne transvestos. Prefere disdonu kartojn.” 
+lin, eĉ tiel vi lin ne transvestos. Prefere disdonu kartojn.”
 
 Super Budapesto vidiĝis jam brilantaj lumoj kaj super Da-
 
-nubo saltetis lumo de reflektoro. 
+nubo saltetis lumo de reflektoro.
 
 La kadeto Biegler sonĝis jam denove pri io alia, ĉar li pa-
 
 rolis el dormo: ”Diru al mia bravega armeo, ke en mia koro
 
-ĝi konstruis al si daŭran monumenton de amo kaj dankemo.” 
+ĝi konstruis al si daŭran monumenton de amo kaj dankemo.”
 
 ĉar ĉe tiuj vortoj li denove komencis sin turni, malodoris
 
@@ -3962,13 +3928,13 @@ tio intensive ĉe la nazo de Batzer, tiel ke tiu rimarkis, forkra-
 
 ĉante: ”Li malodoras kiel purigisto de klozetoj, kiel surfekita
 
-purigisto de klozetoj.” 
+purigisto de klozetoj.”
 
 Kaj la kadeto Biegler skuiĝis ĉiam pli maltrankvile kaj lia
 
 nova sonĝo estis tre fantazia. Li defendis Linzon en la milito
 
-pri heredo de la aŭstra trono**22**. 
+pri heredo de la aŭstra trono**22**.
 
 Li vidis redutojn, ĉirkaŭbaritajn tranĉeojn kaj palisarojn
 
@@ -3978,13 +3944,13 @@ pitalo. ĉie ĉirkaŭe kuŝaĉis malsanuloj kaj tenis sin je la ven-
 
 tro. Antaŭ palisaroj de la urbo Linz rajdveturis francaj drago-
 
-noj de Napoleono la unua. 
+noj de Napoleono la unua.
 
-Kaj li, komandanto de la urbo, staris super tiu teruraĵo, 
+Kaj li, komandanto de la urbo, staris super tiu teruraĵo,
 
 ankaŭ tenis sin je la ventro kaj kriis al franca parlamentario:
 
-”Sciigu al via imperiestro, ke mi ne kapitulacos…” 
+”Sciigu al via imperiestro, ke mi ne kapitulacos…”
 
 Poste kvazaŭ la ventrodoloro subite malaperus, li impetas
 
@@ -3992,7 +3958,7 @@ kun bataliono trans palisarojn eksteren el la urbo al vojo de
 
 gloro kaj venko kaj vidas, kiel la ĉefleŭtenanto Lukáô per sia
 
-22 Linz: urbo en norda Aŭstrio. — …la milito pri heredo de la aŭstra trono: post morto de Karolo la sesa regis lia filino Maria Tereza, sed la tronon pretendis ankaŭ bavara arkiduko Karolo Alberto. Eksplodis ”militoj pri heredo de la aŭstra trono” \(1740-1748\), en kiu militis Prusio, Bavario kaj Francio unuflanke kaj Aŭstrio kun Anglio
+22 Linz: urbo en norda Aŭstrio. — …la milito pri heredo de la aŭstra trono: post morto de Karolo la sesa regis lia filino Maria Tereza, sed la tronon pretendis ankaŭ bavara arkiduko Karolo Alberto. Eksplodis ”militoj pri heredo de la aŭstra trono” (1740-1748), en kiu militis Prusio, Bavario kaj Francio unuflanke kaj Aŭstrio kun Anglio
 
 aliflanke
 
@@ -4002,51 +3968,51 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-brusto ekkaptas sabrobaton fare de franca dragono, baton, 
+brusto ekkaptas sabrobaton fare de franca dragono, baton,
 
 kiu estis destinita al li, Biegler, la komandanto de la sieĝata
 
-Linz. 
+Linz.
 
 La ĉefleŭtenanto Lukáô mortas ĉe liaj piedoj kun ekkrio:
 
 ”Viro kia vi, sinjoro kolonelo, estas pli grava ol ia sensig-
 
-nifa ĉefleŭtenanto\!” 
+nifa ĉefleŭtenanto!”
 
 La defendanto de Linz deturnas sin kun emocio de la mor-
 
 tanto, kiam subite alflugas kartoĉo kaj ekbatas Biegleron sur
 
-la sidvangajn muskolojn. 
+la sidvangajn muskolojn.
 
 Biegler aŭtomate ekpalpas malantaŭen sur sian pantalo-
 
 non kaj sentas ion malsekan, io algluiĝa ŝmiriĝas sur lia ma-
 
-no. Li krias: ”Sanitara servo\! Sanitara servo\!” kaj falas de sur
+no. Li krias: ”Sanitara servo! Sanitara servo!” kaj falas de sur
 
 la ĉevalo…
 
-Batzer kun Matuôiâ levis la kadeton Biegler de la planko, 
+Batzer kun Matuôiâ levis la kadeton Biegler de la planko,
 
 kien li rulfalis de sur la benko, kaj kuŝigis lin reen sur lian
 
-lokon. 
+lokon.
 
 Poste Matuôiâ iris al la kapitano Ságner kaj anoncis, ke pri
 
-la kadeto Biegler okazas strangaj aferoj. 
+la kadeto Biegler okazas strangaj aferoj.
 
 ”Tio ŝajne ne estas sekve de tiu konjako,” li diris, ”pli pro-
 
 bable povus temi pri ˛olero. La kadeto Biegler ĉie en stacioj
 
-trinkis akvon. Mi vidis lin en Moson, ke…” 
+trinkis akvon. Mi vidis lin en Moson, ke…”
 
 ”˘olero ne progresas tiel rapide, Matuôiâ, diru al sinjoro
 
-doktoro en la apuda kupeo, ke li iru lin trarigardi.” 
+doktoro en la apuda kupeo, ke li iru lin trarigardi.”
 
 Al la bataliono estis alkomandita ”milita doktoro”, hardita
 
@@ -4058,7 +4024,7 @@ medicinajn fakultatojn en diversaj universitataj urboj de Aŭ-
 
 stri-Hungario kaj praktikon en la plej diversaj hospitaloj, sed
 
-al la doktora ekzameno li ne submetiĝis pro tiu simpla fakto, 
+al la doktora ekzameno li ne submetiĝis pro tiu simpla fakto,
 
 ke en la testamento, kiun lia onklo postlasis al siaj heredan-
 
@@ -4072,7 +4038,7 @@ toj, estis tio, ke al la studento de medicino Frederiko Welfer
 
 estu elpagata ĉiujare stipendio ĝis tiu tempo, kiam Frederiko
 
-Welfer ricevos kuracistan diplomon. 
+Welfer ricevos kuracistan diplomon.
 
 Tiu ĉi stipendio estis proksimume kvaroble pli alta ol sa-
 
@@ -4080,23 +4046,23 @@ lajro de malsanuleja asistanto, kaj MUC**23** Frederiko Welfer
 
 zorge klopodis prokrasti sian nomumon al doktoro pri ĉia
 
-kuracado por la tempo kiom eble plej malproksima. 
+kuracado por la tempo kiom eble plej malproksima.
 
 La heredantoj preskaŭ krevis pro furiozo. Ili proklamis lin
 
 idioto, faris provojn altrudi al li riĉajn fianĉinojn, por senigi
 
-sin de li. Por kolerigi ilin ankoraŭ pli, MUC Frederiko Welfer, 
+sin de li. Por kolerigi ilin ankoraŭ pli, MUC Frederiko Welfer,
 
 ano de proksimume dek du studentaj germanaj societoj, el-
 
 donis kelke da kolektoj de tre bonaj poemoj en Vieno, Lepsi-
 
-ko, Berlino. Li skribis artikolojn por ”Simplicissimus” **24** kaj studis plu, kvazaŭ okazus nenio. 
+ko, Berlino. Li skribis artikolojn por ”Simplicissimus” **24** kaj studis plu, kvazaŭ okazus nenio.
 
 Sed venis la milito, kiu perfide enfalis en la dorson de MUC
 
-Frederiko Welfer. 
+Frederiko Welfer.
 
 La poeton de libroj: ”Ridiĝintaj kantoj”, ”Kruĉo kaj la sci-
 
@@ -4104,23 +4070,23 @@ enco”, ”Fabeloj kaj alegorioj” oni tute malhoneste rekrutis kaj
 
 unu heredanto en la ministerio de milito aranĝis, ke la sen-
 
-artifika Frederiko Welfer faris ”militan doktoran ekzamenon”. 
+artifika Frederiko Welfer faris ”militan doktoran ekzamenon”.
 
 Li faris ĝin skribe. Li ricevis vicon da demandoj, kiujn ĉiujn li
 
-respondis stereotipe: ”Leku al mi la anuson\!” Post tri tagoj
+respondis stereotipe: ”Leku al mi la anuson!” Post tri tagoj
 
 anoncis al li kolonelo, ke Welfer ricevis diplomon de doktoro
 
-pri ĉia kuracado, ke jam longe li estis matura por esti doktoro, 
+pri ĉia kuracado, ke jam longe li estis matura por esti doktoro,
 
 ke la ĉefa stabkuracisto alkomandas lin al rezerva hospitalo
 
 kaj de lia konduto dependas rapida avanco, ke kvankam en
 
-diversaj universitataj urboj li havis interbatiĝojn kun oficiroj, 
+diversaj universitataj urboj li havis interbatiĝojn kun oficiroj,
 
-23 mallongigo el komencaj literoj de la latina ”Medicinae Universae Candidatus” — titolo, kiun uzis \(uzas\) studentoj de medicino
+23 mallongigo el komencaj literoj de la latina ”Medicinae Universae Candidatus” — titolo, kiun uzis (uzas) studentoj de medicino
 
 24 iama germana humura kaj satira revuo, eldonata ekde la jaro 1896
 
@@ -4133,12 +4099,11 @@ LA BRAVA SOLDATO ÔVEJK
 tion ĉion oni pri li scias, nun en la milito oni ĉion tion forge-
 
 
-
-sas. 
+sas.
 
 La aŭtoro de poemlibro ”Kruĉo kaj la scienco” ekmordetis
 
-la lipojn kaj iris servi. 
+la lipojn kaj iris servi.
 
 Post kiam malkaŝiĝis kelke da okazoj, ke li kondutis al sol-
 
@@ -4150,15 +4115,15 @@ en hospitalo aŭ prefere mortaĉu en tranĉeoj — mortaĉu tio en
 
 hospitalo aŭ en disvolvita soldatlinio”, oni sendis doktoron
 
-Welfer kun la dekunua marŝbataliono al la fronto. 
+Welfer kun la dekunua marŝbataliono al la fronto.
 
-Aktivaj oficiroj de la bataliono vidis en li ion malplivaloran. 
+Aktivaj oficiroj de la bataliono vidis en li ion malplivaloran.
 
 Ankaŭ rezervaj oficiroj lin ne atentis kaj ne ligis kun li ami-
 
 kecon, por ke ankoraŭ neplivastiĝu la abismo inter ili kaj la
 
-aktivaj oficiroj. 
+aktivaj oficiroj.
 
 La kapitano Ságner nature sentis sin esti multe pli nobla ol
 
@@ -4186,9 +4151,9 @@ vinon kaj diris:
 
 *vinon volas ĉi-kompleto,” *
 
-kaj ke Lukáô terure ofendiĝis.\*
+kaj ke Lukáô terure ofendiĝis.*
 
-\* La interparolo de la kapitano Ságner kun la ĉefleŭtenanto Lukáô estis kondukita en la ĉeą ligvo. 
+* La interparolo de la kapitano Ságner kun la ĉefleŭtenanto Lukáô estis kondukita en la ĉeą ligvo.
 
 **69**
 
@@ -4200,21 +4165,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 ner, ”oni veturigas nin preter la urbo. Laŭ la marŝordono ni
 
-staros ĉi tie du horojn.” 
+staros ĉi tie du horojn.”
 
 ”Mi opinias, ke oni retroŝovas vagonojn,” respondis la ĉef-
 
 leŭtenanto Lukáô, ”ni alveturos en transŝarĝan stacion. La
 
-transporta soldata stacio.” 
+transporta soldata stacio.”
 
-Laŭiris ilin la ”milita doktoro” Welfer. 
+Laŭiris ilin la ”milita doktoro” Welfer.
 
 ”Temas pri nenio,” li diris kun rideto, ”sinjorojn, kiuj aspi-
 
 ras post tempo iĝi oficiroj de la armeo kaj kiuj ankoraŭ en
 
-Bruck fanfaronis pri siaj strategie-historiaj scioj en la kazino, 
+Bruck fanfaronis pri siaj strategie-historiaj scioj en la kazino,
 
 necesus atentigi, ke estas danĝere formanĝi je unu fojo la tu-
 
@@ -4224,15 +4189,15 @@ en la fronton. De la tempo, kiam ni ekveturis el Bruck, la ka-
 
 deto Biegler formanĝis tridek kremrulaĵojn, kiel li al mi kon-
 
-fesis, kaj ĉie en la stacidomoj trinkis nur reboligitan akvon, 
+fesis, kaj ĉie en la stacidomoj trinkis nur reboligitan akvon,
 
 sinjoro kapitano, tio memorigas min pri la verso de Schiller**25**:
 
-’…Kiu diras pri…’ ” 
+’…Kiu diras pri…’ ”
 
 ”Aŭdu, doktoro,” interrompis lin la kapitano Ságner, ”ne
 
-temas pri Schiller. Kio propre estas al la kadeto Biegler?” 
+temas pri Schiller. Kio propre estas al la kadeto Biegler?”
 
 La milita doktoro Welfer ekridetis. ”La aspiranto por la
 
@@ -4248,11 +4213,11 @@ Li surfekus sin ŝajne eĉ sen via konjako. Li forvoris tiom da
 
 kremrulaĵoj, kiujn oni sendis al li el la hejmo… Tio estas in-
 
-fano.. En la kazino, kiel mi scias, li trinkis ĉiam unu pokalon. 
+fano.. En la kazino, kiel mi scias, li trinkis ĉiam unu pokalon.
 
-Abstinulo.” 
+Abstinulo.”
 
-25 Johano Kristofo Frederiko Schiller \(1759-1805\), fama germana poe-to kaj dramisto
+25 Johano Kristofo Frederiko Schiller (1759-1805), fama germana poe-to kaj dramisto
 
 **70**
 
@@ -4260,15 +4225,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-Doktoro Welfer forkraĉis. ”Li aĉetis al si Linzajn tortetojn.” 
+Doktoro Welfer forkraĉis. ”Li aĉetis al si Linzajn tortetojn.”
 
 ”ĉu do ne temas pri io serioza?” ekparolis la kapitano Ság-
 
-ner, ”sed tamen, tia afero… se tio disvastiĝus…” 
+ner, ”sed tamen, tia afero… se tio disvastiĝus…”
 
 La ĉefleŭtenanto Lukáô leviĝis kaj diris al Ságner. ”Mi dan-
 
-kas pro tia plotonestro…” 
+kas pro tia plotonestro…”
 
 ”Mi iom helpis al li sur la piedojn,” diris Welfer, kiun ne
 
@@ -4286,7 +4251,7 @@ Tio estas nepre pli bona,” daŭrigis Welfer kun la sama naŭ-
 
 za rideto, ”aŭ surfekita kadeto, aŭ per disenterio trafita kade-
 
-to…” 
+to…”
 
 La kapitano Ságner turnis sin al sia Lukáô per pure ofica
 
@@ -4294,27 +4259,27 @@ tono: ”Sinjoro ĉefleŭtenanto, la kadeto Biegler de via kompa-
 
 nio malsaniĝis je disenterio kaj restos en Budapesto kaŭze de
 
-flegado…” 
+flegado…”
 
 Al la kapitano Ságner ŝajnis, ke Welfer ridas terure arogan-
 
-te, sed kiam li ekrigardis la ”militan doktoron”, li vidis, ke tiu mienas ege indiferente. 
+te, sed kiam li ekrigardis la ”militan doktoron”, li vidis, ke tiu mienas ege indiferente.
 
 ”ĉio do estas en ordo, sinjoro kapitano,” respondis Welfer
 
-trankvile, ”la aspiranto por la oficira…” 
+trankvile, ”la aspiranto por la oficira…”
 
 Li eksvingis la manon: ”ĉe disenterio ĉiu surfekas sian pan-
 
-talonon.” 
+talonon.”
 
 Tiel okazis, ke la brava kadeto Biegler estis forveturigita en
 
-soldatan izolan hospitalon en Új Buda. 
+soldatan izolan hospitalon en Új Buda.
 
 Lia surfekita pantalono perdiĝis en kirlo de la mondmili-
 
-to. 
+to.
 
 **71**
 
@@ -4324,41 +4289,41 @@ LA BRAVA SOLDATO ÔVEJK
 
 La revoj de la kadeto Biegler pri grandiozaj venkoj estis
 
-fermitaj en hospitalan ĉambron de izolaj barakoj. 
+fermitaj en hospitalan ĉambron de izolaj barakoj.
 
 Eksciinte, ke li havas disenterion, la kadeto Biegler pro tio
 
-vere entuziasmiĝis. 
+vere entuziasmiĝis.
 
 ĉu esti vundita, aŭ malsaniĝi por sinjoro imperiestro, ple-
 
-numante sian devon? 
+numante sian devon?
 
 Poste okazis al li eta malagrablaĵo. ĉar ĉiuj lokoj por mal-
 
 sanuloj je disenterio estis troŝtopitaj, oni transportis la kade-
 
-ton Biegler en ˛oleran barakon. 
+ton Biegler en ˛oleran barakon.
 
 Kiam la kadeton Biegler oni banlavis kaj metis al li termo-
 
 metron sub la brakon, hungara stabkuracisto ekskuis la ka-
 
-pon: ”37°\!” La plej malbona simptomo de ˛olero estas kon-
+pon: ”37°!” La plej malbona simptomo de ˛olero estas kon-
 
 siderinda malaltiĝo de temperaturo. La malsanulo iĝas apa-
 
-tia. 
+tia.
 
 La kadeto Biegler vere ne montris ian ekscitiĝon. Li estis
 
 neordinare trankvila, ripetante al si enmense, ke eĉ tiel li su-
 
-feras por sinjoro imperiestro. 
+feras por sinjoro imperiestro.
 
 La stabkuracisto ordonis ŝovi la termometron al la kadeto
 
-Biegler en la rektumon. 
+Biegler en la rektumon.
 
 ”La lasta stadio de ˛olero,” ekpensis la stabkuracisto, ”la
 
@@ -4366,21 +4331,21 @@ simptomo de la fino, la plej ekstrema malforto, kiam malsa-
 
 nulo perdas la sencon por la cirkaŭaĵo kaj lia konscio estas
 
-vualita. Li ridetas en antaŭmortaj spasmoj.” 
+vualita. Li ridetas en antaŭmortaj spasmoj.”
 
 La kadeto Biegler dum tiu ĉi manipulado vere martire ri-
 
 detis, ŝajnigante heroon, kiam oni ŝovis termometron al li en
 
-la rektumon. Sed li ne moviĝis. 
+la rektumon. Sed li ne moviĝis.
 
 ”Simptomoj,” ekpensis la stabkuracisto, ”kiuj ĉe ˛olero
 
-malrapide kondukas al la morto, pasiva sinteno…” 
+malrapide kondukas al la morto, pasiva sinteno…”
 
 Li demandis ankoraŭ hungaran sanitaran suboficiron, ĉu
 
-la kadeto Biegler vomis kaj havis lakson en bankuvo. 
+la kadeto Biegler vomis kaj havis lakson en bankuvo.
 
 **72**
 
@@ -4388,31 +4353,31 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-Ricevinte negativan respondon, li ekrigardis Biegleron. 
+Ricevinte negativan respondon, li ekrigardis Biegleron.
 
 Kiam ĉe ˛olero pasis lakso kaj vomado, estas tio denove, kiel
 
 la antaŭaj simptomoj, signo de tio, kio okazas ĉe ˛olero en
 
-lastaj horoj antaŭ la morto. 
+lastaj horoj antaŭ la morto.
 
 La kadeto Biegler, tute nuda, forportita el varma bankuvo
 
 sur liton, eksentis malvarmon kaj detklakis. Li ankaŭ ekhavis
 
-anserhaŭton sur la tuta korpo. 
+anserhaŭton sur la tuta korpo.
 
 ”Jen vidu,” diris la stabkuracisto hungare, ”granda dentkla-
 
-kado, la membroj estas malvarmaj. Tio estas la fino.” 
+kado, la membroj estas malvarmaj. Tio estas la fino.”
 
 Klinante sin al la kadeto Biegler, li demandis lin germane:
 
-”Do, kiel vi fartas?” 
+”Do, kiel vi fartas?”
 
 ”T-t-tre b-b-bo-bone,” dentklakis la kadeto Biegler, ”…k-k-
 
-ko-kov-kovrilon.” 
+ko-kov-kovrilon.”
 
 ”La konscio parte vualita, parte konservita,” diris la hung-
 
@@ -4422,15 +4387,15 @@ devas esti nigraj… Tio estas jam la tria kazo, kiam iu ĉe mi
 
 mortis kaŭze de ˛olero, ne havante nigrajn ungojn kaj li-
 
-pojn…” 
+pojn…”
 
 Li denove klinis sin super la kadeton Biegler kaj daŭrigis
 
-hungare: ”La dua e˛o super la koro ĉesis…” 
+hungare: ”La dua e˛o super la koro ĉesis…”
 
 ”K-k-ko-ko-kov-kovri-kovrilon,” dentklakis la kadeto Bieg-
 
-ler. 
+ler.
 
 ”Tio, kion li diras, estas liaj lastaj vortoj,” diris la stabkura-
 
@@ -4438,13 +4403,13 @@ cisto al la sanitara suboficiro hungare, ”morgaŭ ni entombi-
 
 gos lin kun majoro Koch. Nun li falos en senkonscion. ĉu la
 
-dokumentoj pri li estas en la kancelario?” 
+dokumentoj pri li estas en la kancelario?”
 
-”Ili tie estos,” respondis trankvile la sanitara suboficiro. 
+”Ili tie estos,” respondis trankvile la sanitara suboficiro.
 
 ”K-k-ko-ko-kov-kovri-kovrilon,” dentklakis malantaŭ la
 
-forirantaj la kadeto Biegler. 
+forirantaj la kadeto Biegler.
 
 En la tuta ĉambro kun dek ses litoj estis kvin homoj. Unu
 
@@ -4456,15 +4421,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 el ili estis mortinto. Li mortis antaŭ du horoj, estis kovrita per litotuko kaj havis la nomon kiel la malkovrinto de ˛oleraj
 
-baciloj. Estis tio kapitano Koch**26**, pri kiu la stabkuracisto menciis, ke li havos morgaŭ entombigon kun la kadeto Biegler. 
+baciloj. Estis tio kapitano Koch**26**, pri kiu la stabkuracisto menciis, ke li havos morgaŭ entombigon kun la kadeto Biegler.
 
-La kadeto Biegler leviĝis sur la lito kaj la unuan fojon vidis, 
+La kadeto Biegler leviĝis sur la lito kaj la unuan fojon vidis,
 
 kiel oni mortas por sinjoro imperiestro sekve de ˛olero, ĉar
 
 du el la kvar restantaj, mortante, sufokiĝis kaj bluiĝis, ĉe kio
 
-ili ion kriis, sed ne eblis ekkoni, kion kaj per kia lingvo ili parolas, pli tio similis al stertorado de sufokita voĉo. 
+ili ion kriis, sed ne eblis ekkoni, kion kaj per kia lingvo ili parolas, pli tio similis al stertorado de sufokita voĉo.
 
 La aliaj du kun okulfrape ŝtorma reago al resaniĝo memo-
 
@@ -4474,7 +4439,7 @@ kaj elĵetis siajn maldikajn piedojn el sub la kovrilo. Super ili
 
 staris barba sanitaristo, parolanta per lingvaĵo el la Stiria re-
 
-giono \(kiel la kadeto Biegler ekkonis\) kaj trankviligis ilin: ”An-
+giono (kiel la kadeto Biegler ekkonis) kaj trankviligis ilin: ”An-
 
 kaŭ mi havis jam ˛oleron, miaj oraj moŝtoj, sed mi ne pied-
 
@@ -4486,17 +4451,17 @@ Ne svingiĝu tiom,” li alkriegis ulon, kiu piedbatis la kovri-
 
 lon tiel, ke ĝi transflugis sur lian kapon, ”tion oni ĉe ni ne
 
-faras. ¯oju, ke vi havas febron, almenaŭ oni ne veturigos vin
+faras. oju, ke vi havas febron, almenaŭ oni ne veturigos vin
 
-de ĉi tie kun muziko. Vi ambaŭ jam el tio eliris.” 
+de ĉi tie kun muziko. Vi ambaŭ jam el tio eliris.”
 
-Li ĉirkaŭrigardis. 
+Li ĉirkaŭrigardis.
 
 ”Tie jam denove du uloj mortis. Tion ni atendis,” li diris
 
 bonule, ”ĝoju, ke vi du jam el tio eliris. Mi devas iri por lito-
 
-tukoj.” 
+tukoj.”
 
 Li revenis post momento. Li kovris la mortintojn kun tute
 
@@ -4514,23 +4479,23 @@ goj, per kiuj en la lasta agonio de sufokiĝo ili tenis sian rigidi-
 
 ĝintan seksorganon, klopodis reŝovi al ili la langon en la bu-
 
-ŝon, poste li genuiĝis ĉe la litoj kaj komencis: ”Sankta Maria, 
+ŝon, poste li genuiĝis ĉe la litoj kaj komencis: ”Sankta Maria,
 
 Dipatrino…” Kaj la hardita sanitaristo el Stirio rigardis ĉe tio
 
 siajn resaniĝantajn pacientojn, kies delirio signifis reagon al
 
-la nova vivo. 
+la nova vivo.
 
 ”Sankta Maria, Dipatrino,” li ripetis, kiam nuda viro sub-
 
-ite ekfrapetis lian ŝultron. 
+ite ekfrapetis lian ŝultron.
 
-Estis tio la kadeto Biegler. 
+Estis tio la kadeto Biegler.
 
 ”Aŭdu,” li diris, ”mi… banis min… Propre, oni min banis…
 
-Mi bezonas kovrilon… Mi sentas malvarmon.” 
+Mi bezonas kovrilon… Mi sentas malvarmon.”
 
 ”Tio estas stranga kazo,” diris duonhoron pli poste la stab-
 
@@ -4542,11 +4507,11 @@ zervan hospitalon en Tarnów. Vi estas transportanto de ˛ole-
 
 raj baciloj… Ni progresis jam tiom, ke ĉion tion ni scias. Vi
 
-estas de la naŭdekunua regimento…” 
+estas de la naŭdekunua regimento…”
 
 ”La dektria marŝbataliono, la dekunua kompanio,” respon-
 
-dis la sanitara suboficiro anstataŭ la kadeto Biegler. 
+dis la sanitara suboficiro anstataŭ la kadeto Biegler.
 
 ”Skribu,” diris la stabkuracisto: ”La kadeto Biegler, la dek-
 
@@ -4554,15 +4519,14 @@ tria marŝbataliono, la dekunua marŝkompanio, la naŭdeku-
 
 nua regimento, cele de observado en ˛olerajn barakojn en
 
-Tarnów. Transportanto de ˛oleraj baciloj…” 
+Tarnów. Transportanto de ˛oleraj baciloj…”
 
 Kaj tiel el la kadeto Biegler, entuziasma batalanto, iĝis
 
-transportanto de ˛oleraj baciloj. 
+transportanto de ˛oleraj baciloj.
 
 **75**
 
-!(images/000002.png)
 
 LA BRAVA SOLDATO ÔVEJK
 
@@ -4576,7 +4540,7 @@ portis al la kapitano Ságner telegramon, kiun sendis la
 
 kompatinda komandanto de la brigado, transveturigita en sa-
 
-natorion. ¯i havis la saman neĉifritan enhavon kiel en la lasta
+natorion. i havis la saman neĉifritan enhavon kiel en la lasta
 
 stacio: ”Rapide kuirpretigi manĝon kaj marŝi al Sokal’.” Al tio
 
@@ -4586,11 +4550,11 @@ nuo. La gvatistan servon oni disigas. La dektria marŝbataliono
 
 konstruu ponton trans la riveron Bug. Detaloj en la gazeta-
 
-ro.” 
+ro.”
 
 La kapitano Ságner tuj foriris al la stacia komandejo. Bon-
 
-venigis lin etkreska dika oficiro kun amika rideto. 
+venigis lin etkreska dika oficiro kun amika rideto.
 
 ”Li ekscesis, tiu via brigada generalo,” li diris, plengorĝe
 
@@ -4618,7 +4582,7 @@ ses kronoj ĉiu viro lasu ĉi tie en la kancelario du kronojn por
 
 la milita prunto… Laŭ garantiitaj sciigoj via brigada generalo
 
-havas paralizon.” 
+havas paralizon.”
 
 ”Sinjoro majoro,” demandis la kapitano Ságner la koman-
 
@@ -4630,7 +4594,7 @@ ricevi dek kvin dekagramojn da ementala fromaĝo. En la lasta
 
 stacio ĝi havis rajton je dek kvin dekagramoj da hungara sa-
 
-lamo. Sed ĝi ricevis nenion.” 
+lamo. Sed ĝi ricevis nenion.”
 
 ”Probable ankaŭ ĉi tie tio ne efektiviĝos,” respondis la ma-
 
@@ -4638,25 +4602,25 @@ joro, senĉese agrable ridetante, ”mi ne scias pri simila ordo-
 
 no koncerne la ĉ eą j n regimentojn. Cetere tio ne estas mia
 
-afero, turnu vin al la proviza komandantaro.” 
+afero, turnu vin al la proviza komandantaro.”
 
-”Kiam ni forveturos, sinjoro majoro?” 
+”Kiam ni forveturos, sinjoro majoro?”
 
 ”Antaŭ vi staras trajno kun peza artilerio en Galicion. Tiun
 
 ni ellasos post unu horo, sinjoro kapitano. Sur la tria trako
 
-estas sanitara trajno. ¯i forveturos dudek kvin minutojn post
+estas sanitara trajno. i forveturos dudek kvin minutojn post
 
-la artilerio. Sur la dekdua trako ni havas munician trajnon. 
+la artilerio. Sur la dekdua trako ni havas munician trajnon.
 
 Tiu forveturos dek minutojn post la sanitara trajno kaj post
 
-pluaj dudek minutoj forveturos via trajno. 
+pluaj dudek minutoj forveturos via trajno.
 
 Kompreneble, se ne estos iaj ŝanĝoj,” li aldonis denove kun
 
-rideto, tiel ke al la kapitano Ságner li iĝis tute antipatia. 
+rideto, tiel ke al la kapitano Ságner li iĝis tute antipatia.
 
 ”Permesu, sinjoro majoro,” demandis Ságner, ”ĉu vi povas
 
@@ -4664,7 +4628,7 @@ doni al mi klarigon pri tio, ke vi ne scias pri simila ordono
 
 koncerne eldonadon de dek kvin dekagramoj da ementala
 
-fromaĝo por ĉ eą j regimentoj?” 
+fromaĝo por ĉ eą j regimentoj?”
 
 **77**
 
@@ -4676,9 +4640,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 data stacio en Bupesto al la kapitano Ságner, senĉese ridetan-
 
-te. 
+te.
 
-”Mi kuiris al mi belan kaĉon,” ekpensis la kapitano Ságner, 
+”Mi kuiris al mi belan kaĉon,” ekpensis la kapitano Ságner,
 
 elirante el la konstruaĵo de la komandejo, ”kial mi, ĉe ĉiuj
 
@@ -4686,7 +4650,7 @@ dibloj, diris al la ĉefleŭtenanto Lukáô, ke li kunprenu ĉiujn
 
 komandantojn kaj iru kun ili kaj la viraro al la proviza trupo
 
-por dek kvin dekagramoj da ementala fromaĝo por persono.” 
+por dek kvin dekagramoj da ementala fromaĝo por persono.”
 
 Antaŭ ol la komandanto de la dekunua kompanio ĉefleŭ-
 
@@ -4696,9 +4660,9 @@ pitano Ságner, ke la viraro de la bataliono marŝu al la maga-
 
 zeno por dek kvin dekagramoj da ementala fromaĝo por ĉiu
 
-viro, aperis antaŭ li Ôvejk kun malfeliĉa Baloun. 
+viro, aperis antaŭ li Ôvejk kun malfeliĉa Baloun.
 
-Baloun tremis per la tuta korpo. 
+Baloun tremis per la tuta korpo.
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto,” diris Ôvejk kun
 
@@ -4708,29 +4672,29 @@ va. Mi petas, sinjoro ĉefleŭtenanto, ke ni povu pritrakti tiun
 
 tutan aferon ie pretere, kiel diris mia kamarado Ôpatina el
 
-Zhoæ, kiam li estis atestanto ĉe geedziga ceremonio kaj sub-
+Zhoĝ, kiam li estis atestanto ĉe geedziga ceremonio kaj sub-
 
-ite en preĝejo li sentis bezonon…” 
+ite en preĝejo li sentis bezonon…”
 
 ”Pri kio do temas, Ôvejk?” interrompis lin la ĉefleŭtenan-
 
 to Lukáô, kiu jam eksopiris je Ôvejk same kiel Ôvejk je la ĉef-
 
-leŭtenanto Lukáô, ”ni iru do iom malproksimen.” 
+leŭtenanto Lukáô, ”ni iru do iom malproksimen.”
 
 Baloun sekvis ilin malantaŭe, ne ĉesante tremi. Tiu ĉi gi-
 
 ganto tute perdis sian mensan ekvilibron kaj balancis la ma-
 
-nojn en terura, senkonsila malespero. 
+nojn en terura, senkonsila malespero.
 
 ”Pri kio do temas, Ôvejk?” demandis la ĉefleŭtenanto Lu-
 
-káô, kiam ili venis iom pli malproksimen. 
+káô, kiam ili venis iom pli malproksimen.
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto,” diris Ôvejk, ”ke
 
-estas ĉiam pli bone konfesi pli frue, antaŭ ol tio malkaŝiĝos. 
+estas ĉiam pli bone konfesi pli frue, antaŭ ol tio malkaŝiĝos.
 
 **78**
 
@@ -4738,19 +4702,19 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-Vi donis certan ordonon, sinjoro ĉefleŭtenanto, ke Baloun, 
+Vi donis certan ordonon, sinjoro ĉefleŭtenanto, ke Baloun,
 
 kiam ni alveturos Budapeston, alportu al vi tiun vian hepatan
 
-pasteĉon kaj bulkojn.” 
+pasteĉon kaj bulkojn.”
 
 ”ĉu vi ricevis tiun ordonon, aŭ ne?” turnis sin Ôvejk al Ba-
 
-loun. 
+loun.
 
 Baloun komencis ankoraŭ pli balanci la manojn, kvazaŭ li
 
-volus defendi sin kontraŭ atakanta malamiko. 
+volus defendi sntraŭ atakanta malamiko.
 
 ”Tiu ĉi ordono,” diris Ôvejk, ”bedaŭrinde ne povis esti ple-
 
@@ -4760,33 +4724,33 @@ pasteĉon…
 
 Mi ĝin forvoris,” ripetis Ôvejk, fingropuŝetante la konster-
 
-nitan Baloun, ”ĉar mi opiniis, ke hepata pasteĉo povas aĉiĝi. 
+nitan Baloun, ”ĉar mi opiniis, ke hepata pasteĉo povas aĉiĝi.
 
 Mi legis kelkfoje en gazeto, ke per hepata pasteĉo veneniĝis
 
-la tuta familio. Foje en Zderaz, foje en Beroun, foje en Tábor, 
+la tuta familio. Foje en Zderaz, foje en Beroun, foje en Tábor,
 
-foje en Mladá Boleslav, foje en Pæíbram. ĉiuj sekve de tiu ve-
+foje en Mladá Boleslav, foje en Pĝíbram. ĉiuj sekve de tiu ve-
 
 neniĝo mortis. Hepata pasteĉo, tio estas la plej malbona aĉ-
 
-aĵo…” 
+aĵo…”
 
 Baloun, tremante per la tuta korpo, stariĝis flanken, ŝovis
 
-al si fingron en la gorĝon kaj post malongaj paŭzoj vomis. 
+al si fingron en la gorĝon kaj post malongaj paŭzoj vomis.
 
-”Kio estas al vi, Baloun?” 
+”Kio estas al vi, Baloun?”
 
 ”Mi vo-vo-mas, e-e, sinjoro ĉef… e-e, ĉef-leŭ-te-nan-to e-
 
 e,” vokis la malfeliĉa Baloun, uzante paŭzojn, ”mi-mi ĝin for-
 
-for-voris e-e, forvo-ee-ris, e-e, mi-ee, sola, e-e, e-e.” 
+for-voris e-e, forvo-ee-ris, e-e, mi-ee, sola, e-e, e-e.”
 
 El la buŝo de la malfeliĉa Baloun iris eksteren ankaŭ pece-
 
-toj da staniola kovraĵo de la pasteĉo. 
+toj da staniola kovraĵo de la pasteĉo.
 
 ”Kiel vi vidas, sinjoro ĉefleŭtenanto,” diris Ôvejk, perdan-
 
@@ -4810,9 +4774,9 @@ eblis konfidi milojn da kronoj; foje li maldeponis monon en
 
 alia banko, oni donis al li je mil kronoj pli kaj li redonis tion
 
-tuj surloke, sed sendi lin por kolviando je dek kvin krejceroj, 
+tuj surloke, sed sendi lin por kolviando je dek kvin krejceroj,
 
-li forvoris duonon da ĝi dumvoje. Li estis tiel avida je voraĵo, 
+li forvoris duonon da ĝi dumvoje. Li estis tiel avida je voraĵo,
 
 ke kiam oficistoj sendis lin por tripkolbasoj, li distranĉis ilin
 
@@ -4820,23 +4784,23 @@ dumvoje per poŝotranĉilo kaj la truojn glufermis per angla
 
 plastro, kiu ĉe kvin tripkolbasoj kostis al li pli ol la tuta kol-
 
-baso.” 
+baso.”
 
-La ĉefleŭtenanto Lukáô ekĝemis kaj foriris. 
+La ĉefleŭtenanto Lukáô ekĝemis kaj foriris.
 
-”ĉu vi bonvolas havi iajn ordonojn, sinjoro ĉefleŭtenanto?” 
+”ĉu vi bonvolas havi iajn ordonojn, sinjoro ĉefleŭtenanto?”
 
 vokis malantaŭ li Ôvejk, dum la malfeliĉa Baloun senĉese ŝo-
 
-vis al si fingron en la gorĝon. 
+vis al si fingron en la gorĝon.
 
 La ĉefleŭtenanto Lukáô eksvingis la manon kaj iris al la
 
 proviza magazeno, ĉe kio venis al li en la menson stranga
 
-ideo, ke se soldatoj voras hepatajn pasteĉojn de siaj oficiroj, 
+ideo, ke se soldatoj voras hepatajn pasteĉojn de siaj oficiroj,
 
-ke Aŭstrio ne povas venki. 
+ke Aŭstrio ne povas venki.
 
 Intertempe Ôvejk forkondukis Balounon al la alia flanko de
 
@@ -4846,11 +4810,11 @@ kolbasetojn, ĉar nomo de tiu ĉi fumaĵista specialaĵo kunfan-
 
 diĝis ĉe Ôvejk nature kun imago pri la ĉefurbo de la hungara
 
-regno. 
+regno.
 
 ”La trajno povus al ni forveturi,” lamentis Baloun, al kies
 
-nesatigebleco ligiĝis ankaŭ grandega avareco. 
+nesatigebleco ligiĝis ankaŭ grandega avareco.
 
 ”Kiam oni veturas al la fronto,” proklamis Ôvejk, ”oni ne-
 
@@ -4860,7 +4824,7 @@ bone pripensos, ĉu al la finstacio alveturigi nur duonon de la
 
 trupunuo. Cetere, mi komprenas vin bone, Baloun. Vi ne po-
 
-vas trovi la poŝon.” 
+vas trovi la poŝon.”
 
 **80**
 
@@ -4876,23 +4840,23 @@ no al siaj vagonoj denove kun maplenaj manoj. Anstataŭ dek
 
 kvin dekagramoj da ementala fromaĝo, kies disdonon oni ĉi
 
-tie anoncis, ĉiu ricevis skatoleton da alumetoj kaj bildkarton, 
+tie anoncis, ĉiu ricevis skatoleton da alumetoj kaj bildkarton,
 
-kiun eldonis komitato por militaj tomboj en Aŭstrio \(Vieno
+kiun eldonis komitato por militaj tomboj en Aŭstrio (Vieno
 
-XX/4, Canisius-strato\). Anstataŭ dek kvin dekagramoj da
+XX/4, Canisius-strato). Anstataŭ dek kvin dekagramoj da
 
 ementala fromaĝo ĉiu havis en la mano bildeton de okcident-
 
 galicia tombejo de soldatoj en Sedlisko kun monumento de
 
-kompatindaj milicianoj, pretigita de frontevitulo-skulptisto, 
+kompatindaj milicianoj, pretigita de frontevitulo-skulptisto,
 
-unujara volontulo ĉefserĝento Scholc. 
+unujara volontulo ĉefserĝento Scholc.
 
 Ankaŭ ĉe la stabvagono regis neordinara emocio. La ofici-
 
-roj de la marŝbataliono amasiĝis ĉirkaŭ la kapitano Ságner, 
+roj de la marŝbataliono amasiĝis ĉirkaŭ la kapitano Ságner,
 
 kiu ekscitite ion al ili rakontis. Li ĵus revenis de la stacia ko-
 
@@ -4902,11 +4866,11 @@ on de la brigada stabo, enhavoriĉan, kun instrukcioj kaj or-
 
 donoj, kiel konduti en tiu ĉi nova situacio, en kiu Aŭstrio tro-
 
-viĝis la 23an de majo 1915. 
+viĝis la 23an de .
 
 La brigado telefonis, ke Italio deklaris militon al Aŭstri-
 
-Hungario**27**. 
+Hungario**27**.
 
 Ankoraŭ en Bruck an der Leitha ĉe tagmanĝoj kaj vesper-
 
@@ -4920,7 +4884,7 @@ ler, kiu foje ĉe vespermanĝo forpuŝis teleron kun makaroni-
 
 oj kaj proklamis: ”Tiujn mi satmanĝos nur antaŭ pordegoj de
 
-Verona.” 
+Verona.”
 
 27 ekde la jaro 1882 Italio formis t.n. Trialiancon kun Aŭstri-Hungario kaj Germanio. La 23an de majo Italio deklaris militon al Aŭstri-Hungario, pro kio Anglio, Francio kaj Rusio promesis al ĝi egan pli-grandigon de itala teritorio
 
@@ -4932,7 +4896,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 La kapitano Ságner, trastudinte instrukciojn, ĵus ricevitajn
 
-de la brigado, igis trumpeti alarmsignalon. 
+de la brigado, igis trumpeti alarmsignalon.
 
 Kiam amasiĝis la tuta viraro de la marŝbataliono, oni sta-
 
@@ -4940,7 +4904,7 @@ rigis ĝin en kvadraton kaj la kapitano Ságner legis al la vira-
 
 ro per neordinare nobla voĉo ordonon, senditan al li telegrafe
 
-de la brigado. 
+de la brigado.
 
 ”Pro senekzempla perfido kaj avideco la itala reĝo forge-
 
@@ -4960,7 +4924,7 @@ komandanto estas konvinkita, ke niaj ĉiam kuraĝaj kaj gloraj
 
 soldataroj respondos al mizera perfido de la malfidela mala-
 
-miko per tia bato, ke la perfidulo venos al la konvinko, kiel, 
+miko per tia bato, ke la perfidulo venos al la konv, kiel,
 
 komencinte malhoneste kaj perfide la militon, li mem sin pe-
 
@@ -4970,17 +4934,16 @@ nos la tago, kiam italaj ebenaĵoj denove vidos venkinton de
 
 Santa Lucia, Vicenza, Novara, Custozza. Ni volas venki, de-
 
-vas venki kaj certe venkos\!” 
+vas venki kaj certe venkos!”
 
-Poste estis la kutima ”trifoje gloron\!” kaj la soldataro, iom
+Poste estis la kutima ”trifoje gloron!” kaj la soldataro, iom
 
 embarasita, denove eksidis en la trajno. Anstataŭ dek kvin
 
 dekagramoj da ementala fromaĝo ili havas sur la kolo la mili-
 
-ton kontraŭ Italio. 
+ton kontraŭ Italio.
 
-\*
 
 En la vagono, kie sidis Ôvejk kun la ĉefserĝento-kontisto Va-
 
@@ -4994,37 +4957,37 @@ LA BRAVA SOLDATO ÔVEJK
 
 da, ekis interesa interparolo pri interveno de Italio en la mili-
 
-ton. 
+ton.
 
 ”En Táborská-strato en Prago estis ankaŭ tia afero,” kom-
 
-encis Ôvejk; ”tie estis komercisto Hoæejôí, iom pli malproksi-
+encis Ôvejk; ”tie estis komercisto Hoĝejôí, iom pli malproksi-
 
 me sur kontraŭa flanko de la strato havis sian butikon komer-
 
 cisto Poômournë kaj inter ili ambaŭ estis legomvendisto Hav-
 
-lasa. Do, tiu komercisto Hoæejôí ricevis foje ideon kuniĝi kun
+lasa. Do, tiu komercisto Hoĝejôí ricevis foje ideon kuniĝi kun
 
 la legomvendisto Havlasa kontraŭ la komercisto Poômournë
 
 kaj komencis kun li trakti, ke ili povus kunigi tiujn du buti-
 
-kojn sub unu firmao: ’Hoæejôí kaj Havlasa’. Sed tiu legomven-
+kojn sub unu firmao: ’Hoĝejôí kaj Havlasa’. Sed tiu legomven-
 
-disto Havlasa iris al la komercisto Poômournë kaj diras al li, 
+disto Havlasa iris al la komercisto Poômournë kaj diras al li,
 
-ke Hoæejôí donas al li mil ducent kronojn por tiu lia legom-
+ke Hoĝejôí donas al li mil ducent kronojn por tiu lia legom-
 
 vendista butiko kaj volas, ke li, Havlasa, faru kun li kompa-
 
 nion. Sed se Poômournë donos al li mil okcent kronojn, ke li
 
-prefere faros kompanion kun li kontraŭ Hoæejôí. Ili tion inter-
+prefere faros kompanion kun li kontraŭ Hoĝejôí. Ili tion inter-
 
 konsentis kaj tiu Havlasa certan tempon senĉese gapis ĉe Ho-
 
-æejôí, kiun li perfidis, kaj ŝajnigis, kvazaŭ li estus lia la plej bona amiko, kaj se la parolo venis al tio, kiam ili tion kunigos, 
+ĝejôí, kiun li perfidis, kaj ŝajnigis, kvazaŭ li estus lia la plej bona amiko, kaj se la parolo venis al tio, kiam ili tion kunigos,
 
 li diris: ’Jes, tio estos jam baldaŭ. Mi atendas nur tion, kiam
 
@@ -5032,13 +4995,13 @@ domloĝantoj revenos el somerumejoj.’ Kaj kiam tiuj dom-
 
 loĝantoj alveturis, estis tio vere jam preta, kiel li senĉese pro-
 
-mesis al tiu Hoæejôí, ke ili tion kunigos. Kiam foje matene Ho-
+mesis al tiu Hoĝejôí, ke ili tion kunigos. Kiam foje matene Ho-
 
-æejôí iris malfermi la butikon, li vidis grandan surskribon su-
+ĝejôí iris malfermi la butikon, li vidis grandan surskribon su-
 
 per la butiko de sia konkurenculo, egan ŝildon: ’Poômournë
 
-kaj Havlasa’.” 
+kaj Havlasa’.”
 
 ”ĉe ni,” rimarkis la stulta Baloun, ”okazis foje ankaŭ tia
 
@@ -5046,7 +5009,7 @@ afero: en la apuda vilaĝo mi volis aĉeti bovidinon, mi havis
 
 tion interkonsentita kaj viandisto el Votice aĉetis ĝin sub mia
 
-nazo.” 
+nazo.”
 
 ”Se ni do havas novan militon,” daŭrigis Ôvejk, ”se ni ha-
 
@@ -5064,15 +5027,15 @@ pli da vergoj oni foruzas,’ diris ĉiam maljunuleto Chovanec en
 
 Motol, kiu por gepatroj en la ĉirkaŭaĵo batpunis infanojn por
 
-konstanta rekompenco.” 
+konstanta rekompenco.”
 
 ”Mi timas nur tion,” diris Baloun, tremante per la tuta kor-
 
-po, ”ke kulpe de tiu Italio estos pli malgrandaj porcioj.” 
+po, ”ke kulpe de tiu Italio estos pli malgrandaj porcioj.”
 
 La ĉefserĝento-kontisto Vanêk ekmeditis kaj serioze diris:
 
-”Tio ĉio povas okazi, ĉar nun tiu nia venko iom prokrastiĝos.” 
+”Tio ĉio povas okazi, ĉar nun tiu nia venko iom prokrastiĝos.”
 
 ”Nun ni bezonus novan Radeckë,” intervenis Ôvejk, ”tiu
 
@@ -5096,15 +5059,15 @@ domzorgistinon kaj tra skafaldo malsuprengrimpis en lum-
 
 ŝakton kaj de tie li tute ne povis eliri. Sed nia paĉjo Radeckë
 
-sciis pri ĉiu vojo, oni povis lin nenie kapti. En ia libro pri tiu generalo oni ĉion tion priskribis, kiel li fuĝis de Santa Lucia, 
+sciis pri ĉiu vojo, oni povis lin nenie kapti. En ia libro pri tiu generalo oni ĉion tion priskribis, kiel li fuĝis de Santa Lucia,
 
 la italoj ankaŭ forkuris kaj kiel li nur la sekvantan tagon mal-
 
 kovris, ke li propre venkis, se li ne trovis tie italojn kaj ne vidis ilin per teleskopo, li do revenis kaj okupis la forlasitan
 
-Santa Lucia. En tiu tempo oni nomumis lin marŝalo.” 
+Santa Lucia. En tiu tempo oni nomumis lin marŝalo.”
 
-”Nu, Italio, tio estas bela lando,” diris la kuiristo Jurajda, 
+”Nu, Italio, tio estas bela lando,” diris la kuiristo Jurajda,
 
 ”foje mi estis en Venecio kaj scias, ke la italo ĉiun nomas por-
 
@@ -5118,7 +5081,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 papo estas ĉe li porko, ’Madono estas porko’, ’papo estas por-
 
-ko’.” 
+ko’.”
 
 Kontraŭe la ĉefserĝento-kontisto Vanêk esprimis sin pri
 
@@ -5128,11 +5091,11 @@ citronan sukon, kiun li preparas el putraj citronoj, kaj la plej
 
 malmultekostajn kaj la plej putrajn citronojn li aĉetis ĉiam el
 
-Italio. Nun finiĝos veturigado de citronoj el Italio al Kralupy. 
+Italio. Nun finiĝos veturigado de citronoj el Italio al Kralupy.
 
 Ne ekzistas dubo, ke la milito kontraŭ Italio alportos diver-
 
-sajn surprizojn, ĉar Aŭstrio volos sin venĝi. 
+sajn surprizojn, ĉar Aŭstrio volos sin venĝi.
 
 ”Facile oni diras venĝi sin,” ekridetis Ôvejk. ”Iu opinias, ke
 
@@ -5162,11 +5125,11 @@ lasis al si sian urinon analizi, nur tiu oficisteto ankoraŭ obsti-
 
 nis, kvankam tiu sinjoro senĉese lin sekvis en pisejon kaj kiam
 
-tiu oficisteto eliris, li ĉiam diris al li zorgeme: ’Mi ne scias, 
+tiu oficisteto eliris, li ĉiam diris al li zorgeme: ’Mi ne scias,
 
 sinjoro Skorkovskë, tiu via urino iel al mi ne plaĉas, urinu en
 
-boteleton pli frue, ol estos malfrue\!’ Fine li lin persvadis. La
+boteleton pli frue, ol estos malfrue!’ Fine li lin persvadis. La
 
 oficisteton kostis tio ses kronojn kaj tiu sinjoro maldolĉigis al
 
@@ -5192,7 +5155,7 @@ sinjoro, kiu faris analizon de urino, ke la domzorgisto jam
 
 certan tempon ne sentas sin esti sana kaj ke li petas, ke tiu
 
-sinjoro venu al li morgaŭ matene je la sepa horo por urino, 
+sinjoro venu al li morgaŭ matene je la sepa horo por urino,
 
 ke li lasos ĝin al si analizi. Kaj li tien iris. La domzorgisto ankoraŭ dormis, kiam tiu sinjoro lin vekis kaj amike al li diris:
 
@@ -5202,7 +5165,7 @@ tenon. ĉi tie, mi petas, boteleto, bonvolu urini kaj mi ricevos
 
 ses kronojn’. Sed poste tio estis vera dia plago, kiel tiu dom-
 
-zorgisto en kalsono elsaltis el la lito, kiel kaptis tiun sinjoron ĉe la kolo kaj kiel ĵetegis lin kontraŭ ŝranko, ĝis li lin tien en-premegis\! Kiam li eltiris lin el la ŝranko, li kaptis skurĝon kaj
+zorgisto en kalsono elsaltis el la lito, kiel kaptis tiun sinjoron ĉe la kolo kaj kiel ĵetegis lntraŭ ŝranko, ĝis li lin tien en-premegis! Kiam li eltiris lin el la ŝranko, li kaptis skurĝon kaj
 
 en kalsono jam pelis lin suben tra Âelakovskë-strato kaj tiu
 
@@ -5224,7 +5187,7 @@ dikto li kulpiĝis per ofendo al la imperiestra domo, li do sidas
 
 eble ĝis nun, kaj tial mi diras, ke se oni volas al iu venĝi, pa-
 
-gas por tio senkulpa homo.” 
+gas por tio senkulpa homo.”
 
 Baloun intertempe pene pri io meditis, ĝis fine li deman-
 
@@ -5238,19 +5201,18 @@ dis la ĉefserĝenton-kontiston Vanêk kun timo: ”Mi petas, sin-
 
 joro ĉefserĝento-kontisto, ĉu vi do opinias, ke sekve de tiu
 
-milito kontraŭ Italio ni ricevos pli malgrandajn porciojn?” 
+milito kontraŭ Italio ni ricevos pli malgrandajn porciojn?”
 
-”Tio estas klara kiel tago,” respondis Vanêk. 
+”Tio estas klara kiel tago,” respondis Vanêk.
 
 ”Jesuo Maria,” ekkriis Baloun, klinis la kapon inter man-
 
-platojn kaj senbrue sidis en angulo. 
+platojn kaj senbrue sidis en angulo.
 
 Per tio en tiu ĉi vagono definitive finiĝis la interparolo pri
 
-Italio. 
+Italio.
 
-\*
 
 La interparolo pri la nova milita situacio estiĝinta per inter-
 
@@ -5260,11 +5222,11 @@ enuiga, kiam ĉi tie jam ne estis fama soldata teoriulo, la ka-
 
 deto Biegler, se iel ne anstataŭs lin leŭtenanto Dub de la tria
 
-kompanio. 
+kompanio.
 
 La leŭtenanto Dub estis civile profesoro de la ĉeą lingvo
 
-kaj jam en tiu tempo li montris neordinaran inklinon al tio, 
+kaj jam en tiu tempo li montris neordinaran inklinon al tio,
 
 ke ĉie, kie tio nur eblis, li povu esprimi sian lojalecon. En skri-bekzamenoj li prezentis al siaj lernantoj temojn el la historio
 
@@ -5274,7 +5236,7 @@ tojn la imperiestro Maksmiliano, kiu surgrimpis rokon**28** kaj ne povis descend
 
 unua, la subtenanto de sciencoj kaj arto”; tiu ĉi tasko alpor-
 
-28 la imperiestron \(1493-1519\) oni prezentis kiel pasian ĉasiston de ĉamoj en Alpoj
+28 la imperiestron (1493-1519) oni prezentis kiel pasian ĉasiston de ĉamoj en Alpoj
 
 29 Jozefo la dua estis en lernolibroj prezentata kiel amiko de la popolo, substrekanta la signifon de manlaboroj, precipe agrikulturaj
 
@@ -5292,7 +5254,7 @@ de la aŭstri-hungara regno, ĉar li skribis, ke la plej bela faro
 
 de tiu ĉi monarko estis tio, ke li fondis ponton de imperies-
 
-tro Francisko Jozefo la unua en Prago. 
+tro Francisko Jozefo la unua en Prago.
 
 Li ĉiam tre zorgis, ke ĉe la imperiestra naskiĝtago kaj aliaj
 
@@ -5300,7 +5262,7 @@ similaj imperiestraj solenaĵoj ĉiuj liaj lernantoj entuziasme
 
 kantu la aŭstran himnon. Inter homoj li estis neŝatata, ĉar
 
-certis pri li, ke li ankaŭ denuncas siajn kolegojn. En la urbo, 
+certis pri li, ke li ankaŭ denuncas siajn kolegojn. En la urbo,
 
 kie li instruis, li estis unu el triumviraro de la plej grandaj
 
@@ -5312,15 +5274,15 @@ nun li komencis saĝumi per voĉo kaj akcento de mense rigidi-
 
 ĝinta profesoro:
 
-”¯enerale dirite, min tute ne surprizas la faro de Italio. Mi
+”enerale dirite, min tute ne surprizas la faro de Italio. Mi
 
 atendis tion jam antaŭ tri monatoj. Certas, ke en la lasta tem-
 
 po Italio tre fieriĝis sekve de la venka milito kontraŭ Turkio
 
-pro Tripolo**31**. Krom tio ĝi tro fidas sian ŝiparon kaj humoron de la loĝantaro en niaj ĉemaraj landoj kaj en suda Tirolo. Ankoraŭ antaŭ la milito mi parolis pri tio kun nia distriktestro, 
+pro Tripolo**31**. Krom tio ĝi tro fidas sian ŝiparon kaj humoron de la loĝantaro en niaj ĉemaraj landoj kaj en suda Tirolo. Ankoraŭ antaŭ la milito mi parolis pri tio kun nia distriktestro,
 
-ke nia registaro ne subtaksu la iredentan movadon en la sudo. 
+ke nia registaro ne subtaksu la iredentan movadon en la sudo.
 
 Ankaŭ li plene kun mi konsentis, ĉar ĉiu antaŭvida homo, por
 
@@ -5342,15 +5304,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 ke Italio atendas la plej proksimam okazon por perfide nin
 
-ataki. 
+ataki.
 
-Kaj nun ni tion havas\!” li ekkriis per tia voĉo, kvazaŭ ĉiuj
+Kaj nun ni tion havas!” li ekkriis per tia voĉo, kvazaŭ ĉiuj
 
 kun li disputus, kvankam ĉiuj ĉeestantaj aktivaj oficiroj ĉe lia
 
 parolo pensis, ke tiu civilulo-babilulo surgrimpu al ili la dor-
 
-son. 
+son.
 
 ”Estas vero,” li daŭrigis jam per pli milda tono, ”ke en plej-
 
@@ -5366,31 +5328,29 @@ ankoraŭ antaŭ fino de la lerneja jaro, preskaŭ ĉe komenco de
 
 la milito, mi donis al miaj lernantoj skriban taskon: ’Niaj he-
 
-rooj en Italio de Vicenza ĝis Custozza, aŭ…’ ” 
+rooj en Italio de Vicenza ĝis Custozza, aŭ…’ ”
 
 Kaj la idiota leŭtenanto Dub solene aldonis: ”…Sangon kaj
 
-vivon por Habsburgoj\! Por la tuta, unueca, granda Aŭstrio\!”…
+vivon por Habsburgoj! Por la tuta, unueca, granda Aŭstrio!”…
 
 Li silentiĝis kaj ŝajne atendis, ke ankaŭ la ceteraj en la
 
 stabvagono parolos pri la nove estiĝinta situacio kaj li an-
 
-koraŭfoje al ili pruvos, ke li sciis tion jam antaŭ kvin jaroj, kiel Italio foje kondutos al sia aliancano. Sed li tute seniluziiĝis, 
+koraŭfoje al ili pruvos, ke li sciis tion jam antaŭ kvin jaroj, kiel Italio foje kondutos al sia aliancano. Sed li tute seniluziiĝis,
 
 ĉar la kapitano Ságner, al kiu la bataliona kuriero Matuôiâ
 
-alportis el la stacidomo vesperan eldonon de ’Pester Lloyd’, 
 
 diris, rigardante en la ĵurnalon: ”Jen vidu, tiu aktorino Wei-
 
 ner, kiun ni vidis gaste ludi en Bruck, ludis ĉi tie hieraŭ sur
 
-sceno de la Malgranda teatro.” 
+sceno de la Malgranda teatro.”
 
 Per tio en la stabvagono finiĝis la interparolo pri Italio…
 
-\*
 
 Krom tiuj, kiuj sidis malantaŭe, la bataliona kuriero Matuôiâ
 
@@ -5406,9 +5366,9 @@ militon kontraŭ Italio el pure praktika vidpunkto, ĉar iam
 
 antaŭ longaj jaroj, ankoraŭ dum la aktiva soldatservo, ambaŭ
 
-partoprenis manovrojn en suda Tirolo. 
+partoprenis manovrojn en suda Tirolo.
 
-”Tio estos peno grimpi sur tiujn montetojn,” diris Batzer, 
+”Tio estos peno grimpi sur tiujn montetojn,” diris Batzer,
 
 ”la kapitano Ságner havas kvanton da kofroj. Mi devenas de
 
@@ -5416,15 +5376,15 @@ montaro, sed tio estas io tute alia, se la homo prenas fusilon
 
 sub mantelon kaj iras elserĉi ian leporon en la bienaro de la
 
-princo Schwarzenberg.” 
+princo Schwarzenberg.”
 
 ”Scie, se oni ĵetos nin suben en Italion. Al mi tio ankaŭ ne
 
-plaĉus, kuregi trans montetojn kaj glaciblokojn kun ordonoj. 
+plaĉus, kuregi trans montetojn kaj glaciblokojn kun ordonoj.
 
 Krom tio tiu voraĵo tie sube, nur polento kaj oleo,” diris Ma-
 
-tuôiâ malgaje. 
+tuôiâ malgaje.
 
 ”Kaj kial oni ne puŝus nin ĝuste en tiun montaron,” eksci-
 
@@ -5442,23 +5402,22 @@ kraĉis. Li alsidiĝis intime pli proksimen al Matuôiâ: ”ĉu vi
 
 scias, ke ĉe ni en Kaôperské Hory ni preparas tiajn etajn kned-
 
-buletojn el dispremitaj nekuiritaj terpomoj, tiujn oni kuiras, 
+buletojn el dispremitaj nekuiritaj terpomoj, tiujn oni kuiras,
 
 trempas en diskirlita ovo, surŝutas per raspita bulko kaj poste
 
 rostas sur lardo.” La lastan vorton li diris per mistere solena
 
-voĉo. 
+voĉo.
 
 ”Kaj la plej bongustaj ili estas kun saŭrkraŭto,” li aldonis
 
 melankolie, ”makaronioj kompare kun ili konvenas por latri-
 
-no.” 
+no.”
 
 Per tio ankaŭ ĉi tie finiĝis la interparolo pri Italio…
 
-\*
 
 **90**
 
@@ -5466,11 +5425,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ĉar la trajno staris en la fervoja stacio jam pli ol du horojn, 
+ĉar la trajno staris en la fervoja stacio jam pli ol du horojn,
 
 en la ceteraj vagonoj oni diris unuvoĉe, ke la trajnon oni ŝajne
 
-turnos kaj sendos al Italio. 
+turnos kaj sendos al Italio.
 
 Tion atestis ankaŭ la fakto, ke intertempe okazis strangaj
 
@@ -5482,7 +5441,7 @@ kaj ĉiujn vagoninternaĵojn surŝprucigis per krezolo, kio estis
 
 akceptita, ĉefe en vagonoj kie oni veturigis provizojn da sol-
 
-datpano, kun granda malplaĉo. 
+datpano, kun granda malplaĉo.
 
 Sed ordono estas ordono, sanitara komisiono eldonis or-
 
@@ -5492,7 +5451,7 @@ trankvile surŝprucigis amasojn da soldatpano kaj sakojn kun
 
 rizo per krezolo. Laŭ tio ja eblis jam ekkoni, ke okazas io ne-
 
-ordinara. 
+ordinara.
 
 Poste oni enpelis tion ĉion reen en vagonojn kaj post du-
 
@@ -5504,15 +5463,15 @@ menson tute natura nomo por la maljuna sinjoro. Starante
 
 malantaŭe post la fronta vico, li rimarkis al la ĉefserĝento-
 
-kontisto Vanêk: ”Tio estas ŝrumpuleto.” 
+kontisto Vanêk: ”Tio estas ŝrumpuleto.”
 
-Kaj la maljuna generalo plu promenis antaŭ la fronta vico, 
+Kaj la maljuna generalo plu promenis antaŭ la fronta vico,
 
 akompanata de la kapitano Ságner, haltis antaŭ juna solda-
 
 to por iel entuziasmigi la tutan viraron, kaj demandis lin, de
 
-kie li estas, kiom da jaroj li aĝas kaj ĉu li havas poŝhorloĝon. 
+kie li estas, kiom da jaroj li aĝas kaj ĉu li havas poŝhorloĝon.
 
 La soldato unu poŝhorloĝon havis, sed opiniante, ke de la
 
@@ -5534,13 +5493,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 starantan kaporalon, kiun li demandis, ĉu lia edzino estas
 
-sana. 
+sana.
 
 ”Obee mi raportas,” kriegis la kaporalo, ”ke mi ne estas
 
 edziĝinta,” al kio la generalo kun sia korfavora rideto deno-
 
-ve diris la sian: ”Tiel estas bone, tiel estas bone.” 
+ve diris la sian: ”Tiel estas bone, tiel estas bone.”
 
 Poste la generalo en sia maljunula reinfaniĝo petis la ka-
 
@@ -5548,15 +5507,15 @@ pitanon Ságner, ke tiu al li montru, kiel la soldatoj mem kal-
 
 kuldividas sin en parvicon, kaj jam post momento sonis:
 
-”Unua - dua, unua - dua, unua - dua.” 
+”Unua - dua, unua - dua, unua - dua.”
 
 Tion la generalo-ŝrumpuleto ege ŝatis. Li havis hejme eĉ du
 
 servosoldatojn, kiujn li starigis antaŭ sin kaj tiuj mem devis
 
-kalkuli: Unua - dua, unua - dua…” 
+kalkuli: Unua - dua, unua - dua…”
 
-Aŭstrio havis amason da tiaj generaloj. 
+Aŭstrio havis amason da tiaj generaloj.
 
 Kiam do la parado feliĉe finiĝis, ĉe kio la generalo ne ŝpa-
 
@@ -5564,25 +5523,25 @@ ris laŭdojn antaŭ la kapitano Ságner, oni permesis al la vira-
 
 ro moviĝi en la limoj de la stacio, ĉar venis sciigo, ke oni vetu-
 
-ros nur ankoraŭ post tri horoj. 
+ros nur ankoraŭ post tri horoj.
 
 La viraro do promenis ĉirkaŭe kaj gapis, ĉar en fervojaj
 
 stacioj ordinare estas sufiĉe da rigardantaro, kaj iu soldato tie
 
-aŭ alie tamen nur elalmozis al si cigaredon. 
+aŭ alie tamen nur elalmozis al si cigaredon.
 
 Vidiĝis, ke iama entuziasmo, respeguliĝanta en glora bon-
 
 venigado de soldatunuoj en fervojaj stacioj, jam ege malgran-
 
-diĝis kaj sinkis ĝis almozado. 
+diĝis kaj sinkis ĝis almozado.
 
 Al la kapitano Ságner venis delegitaro de la ’Societo por
 
 bonvenigado de herooj’, konsistanta el du terure kadukaj da-
 
-moj, kiuj transdonis donaceton apartenantan al la bataliono, 
+moj, kiuj transdonis donaceton apartenantan al la bataliono,
 
 nome dudek skatoletojn da bonodoraj buŝpasteloj, reklamon
 
@@ -5600,13 +5559,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 ano, kaj super ili brilas la krono de sankta Stefano. ĉirkaŭe
 
-vidiĝis germana kaj hungara surskribo: ”Por la imperiestro, 
+vidiĝis germana kaj hungara surskribo: ”Por la imperiestro,
 
-Dio kaj la patrujo.” 
+Dio kaj la patrujo.”
 
 La sukeraĵfabriko estis tiel lojala, ke ĝi preferis la imperiest-
 
-ron antaŭ sinjoro dio. 
+ron antaŭ sinjoro dio.
 
 ĉiu skatoleto enhavis okdek pastelojn, tiel ke al ĉiuj tri vi-
 
@@ -5622,7 +5581,7 @@ plej teruran malbenon al ĉiuj malamikoj. Tiuj ĉi preĝetoj es-
 
 tis verkitaj tiel pasie, ke ĉe la fino mankis tie nur la energia
 
-hungara: ”Baszom a Kristus Marját\!” 
+hungara: ”Baszom a Kristus Marját!”
 
 Laŭ la respektinda ĉefepiskopo la korfavora dio dishaku
 
@@ -5632,11 +5591,11 @@ paprikitan gulaŝon. La korfavora dio banu sin en la sango de
 
 la malamikoj kaj buĉu tion ĉion, kiel tion faris la krudulo He-
 
-rodo al Bet-Leęmaj infanoj. 
+rodo al Bet-Leęmaj infanoj.
 
 La reverinda budapesta ĉefepiskopo uzis en siaj preĝetoj
 
-ekzemple tiujn ĉi belajn frazojn: ”Dio benu viajn bajonetojn, 
+ekzemple tiujn ĉi belajn frazojn: ”Dio benu viajn bajonetojn,
 
 ke ili profunde penetru en la ventron de viaj malamikoj. La
 
@@ -5646,11 +5605,11 @@ de malamikaj staboj. La kompatema Dio aranĝu, ke ĉiuj ma-
 
 lamikoj sufokiĝu per sia propra sango el vundoj, kiujn vi al ili
 
-faros\!” 
+faros!”
 
 Tial necesas ankoraŭfoje ripeti, ke al tiuj ĉi preĝetoj man-
 
-kis fine nenio alia ol tiu: ”Baszom a Kristus Marját\!” 
+kis fine nenio alia ol tiu: ”Baszom a Kristus Marját!”
 
 Kiam ambaŭ damoj ĉion tion transdonis, ili esprimis al la
 
@@ -5666,7 +5625,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 tiu okazo ŝi povus ekparoli al la soldatoj, kiujn ŝi ne nomis
 
-alie ol ”niaj bravaj feldgrizuloj” **33**. 
+alie ol ”niaj bravaj feldgrizuloj” **33**.
 
 Ambaŭ mienis terure ofendite, kiam la kapitano Ságner
 
@@ -5676,19 +5635,19 @@ kiu estis la magazeno. La honorindaj damoj laŭiris vicon da
 
 soldatoj kaj unu el ili ne forgesis ĉe tiu okazo manfrapeti bar-
 
-ban soldaton sur la vango. Estis tio Ôimek el Budêjovice, kiu, 
+ban soldaton sur la vango. Estis tio Ôimek el Budêjovice, kiu,
 
 sciante nenion pri la nobla tasko de tiuj damoj, diris post ilia
 
 foriro al siaj kolegoj: ”Tiuj publikulinoj estas ĉi tie ja arogan-
 
-taj\! Se tia simio aspektus almenaŭ kiel el tiu ĉi mondo, sed
+taj! Se tia simio aspektus almenaŭ kiel el tiu ĉi mondo, sed
 
 estas tio kiel cikonio, la homo vidas nenion krom tiuj piedaĉoj
 
 kaj mienas tio kiel ĉe martirigo de Kristo, kaj tia maljuna har-
 
-pio ankoraŭ volas komenci al si ion kun soldatoj.” 
+pio ankoraŭ volas komenci al si ion kun soldatoj.”
 
 En la fervoja stacio estis tre vigle. La okazaĵo kun italoj
 
@@ -5706,7 +5665,7 @@ budapesta Nova Urbo. Oni aŭdis ankaŭ nenion alian ol eks-
 
 cititan parolon de forgesitaj, vivece gestantaj bosnianoj, kiuj
 
-senĉese kriis: ”Fikiviandion — fikivianpsikon, fikivianpanjon.” 
+senĉese kriis: ”Fikiviandion — fikivianpsikon, fikivianpanjon.”
 
 Poste la naŭdekunua infanteria regimento estis denove
 
@@ -5718,7 +5677,7 @@ mandejo kun sciigo, ke oni veturos nur post tri horoj. Tial la
 
 denove kunvokita viraro estis ellasita el vagonoj. Tuŝapude
 
-33 ”feld”: el la germana Feld = kampo, batalkampo \(kp. ekz. feldmarŝa-lo\). ”Felde griza” estis ofica indiko por koloro de fronta uniformo, kiun portis aŭstraj infanterianoj \(koloro de kampa grizo\)
+33 ”feld”: el la germana Feld = kampo, batalkampo (kp. ekz. feldmarŝa-lo). ”Felde griza” estis ofica indiko por koloro de fronta uniformo, kiun portis aŭstraj infanterianoj (koloro de kampa grizo)
 
 **94**
 
@@ -5730,15 +5689,15 @@ antaŭ la forveturo de la trajno eniris la stabvagonon tre eks-
 
 citita leŭtenanto Dub kaj petis la kapitanon Ságner, ke tiu
 
-senprokraste igu malliberigi Ôvejkon. La leŭtenanto Dub, 
+senprokraste igu malliberigi Ôvejkon. La leŭtenanto Dub,
 
 malnova konata denuncanto en sia agadejo kiel gimnazia
 
 profesoro, tre ŝatis komenci interparolojn kun soldatoj, ĉe kio
 
-li esploris ilian konvinkon kaj samtempe serĉis la okazon por
+li esploris ilian konvn kaj samtempe serĉis la okazon por
 
-instrui ilin kaj klarigi al ili, kial ili batalas, pro kio ili batalas. 
+instrui ilin kaj klarigi al ili, kial ili batalas, pro kio ili batalas.
 
 Dum sia rondiro li vidis malantaŭ la stacidomo ĉe strat-
 
@@ -5746,17 +5705,17 @@ lampo stari Ôvejkon, kiu kun intereso rigardis afiŝon de bon-
 
 fara milita loterio. Tiu afiŝo bildigis, kiel aŭstra soldato alpi-
 
-kas embarasitan barban kozakon al muro. 
+kas embarasitan barban kozakon al muro.
 
 La leŭtenanto Dub ekfrapetis la ŝultron de Ôvejk kaj de-
 
-mandis lin, kiel tio al li plaĉas. 
+mandis lin, kiel tio al li plaĉas.
 
-”Obee mi raportas, sinjoro leŭtenanto,” respondis Ôvejk, 
+”Obee mi raportas, sinjoro leŭtenanto,” respondis Ôvejk,
 
-”ke tio estas idiotaĵo. Mi vidis jam sufiĉe da idiotaj afiŝoj, sed tian bovaĵon mi ankoraŭ ne vidis.” 
+”ke tio estas idiotaĵo. Mi vidis jam sufiĉe da idiotaj afiŝoj, sed tian bovaĵon mi ankoraŭ ne vidis.”
 
-”Kio al vi en tio ne plaĉas?” demandis la leŭtenanto Dub. 
+”Kio al vi en tio ne plaĉas?” demandis la leŭtenanto Dub.
 
 ”Al mi, sinjoro leŭtenanto, en tiu afiŝo ne plaĉas tio, kiel tiu
 
@@ -5768,11 +5727,11 @@ lin pro tio punus, ĉar tiu ruso havas la manojn levitaj kaj ka-
 
 pitulacas. Li estas militkaptita kaj kaptitojn oni devas trakti
 
-dece, ĉar, kion fari, ankaŭ ili estas homoj.” 
+dece, ĉar, kion fari, ankaŭ ili estas homoj.”
 
 La leŭtenanto Dub plu esploris la pensojn de Ôvejk kaj de-
 
-mandis lin: ”Vi do bedaŭras tiun ruson, ĉu?” 
+mandis lin: ”Vi do bedaŭras tiun ruson, ĉu?”
 
 ”Mi bedaŭras, sinjoro leŭtenanto, ambaŭ virojn, kaj tiun
 
@@ -5792,7 +5751,7 @@ ni havis ĉe la kompanio certan sinjoron leŭtenanton. Eĉ har-
 
 dita soldulo ne sciis esprimi sin tiel, kiel tiu sinjoro leŭtenan-
 
-to. Sur ekzercejo li ĉiam al ni diris: ’Se estas ’Atenton\!’, vi devas malfermegi la okulojn, kiel se virkato fekas en furaĝha-
+to. Sur ekzercejo li ĉiam al ni diris: ’Se estas ’Atenton!’, vi devas malfermegi la okulojn, kiel se virkato fekas en furaĝha-
 
 kaĵon.’ Sed alie li estas tre bonkora homo. Foje ĉe la Kristna-
 
@@ -5808,41 +5767,41 @@ panion malliberigi, tri monatojn ni havis malpermeson for-
 
 lasi la kazernon, sinjoro leŭtenanto devis restadi en sia
 
-loĝejo…” 
+loĝejo…”
 
 Koleriĝinta leŭtenato Dub ekrigardis la senzorgan vizaĝon
 
 de la brava soldato Ôvejk kaj ekscitite lin demandis: ”ĉu vi
 
-min konas?” 
+mnas?”
 
-”Mi konas vin, sinjoro leŭtenanto.” 
+”Mi konas vin, sinjoro leŭtenanto.”
 
 La leŭtenanto Dub ekrulis la okulojn kaj piedfrapis: ”Mi
 
-diras al vi, ke vi min ankoraŭ ne konas.” 
+diras al vi, ke vi min ankoraŭ ne konas.”
 
 Ôvejk respondis denove kun tiu senzorga trankvilo, kvazaŭ
 
 li anoncus raporton: ”Mi konas vin, sinjoro leŭtenanto, vi
 
-apartenas, obee mi raportas, al nia marŝbataliono.” 
+apartenas, obee mi raportas, al nia marŝbataliono.”
 
 ”Vi min ankoraŭ ne konas,” kriis la leŭtenanto Dub deno-
 
 ve, ”vi konas min eble de tiu bona flanko, sed kiam vi min
 
-ekkonos de tiu malbona flanko\! Mi estas malbonkora, ne opi-
+ekkonos de tiu malbona flanko! Mi estas malbonkora, ne opi-
 
-niu, mi aldevigos ĉiun ĝis ploro. Do, ĉu vi min konas, aŭ vi
+niu, mi aldevigos ĉiun ĝis ploro. Do, ĉu vi mnas, aŭ vi
 
-min ne konas?” 
+min ne konas?”
 
-”Mi konas vin, sinjoro leŭtenanto.” 
+”Mi konas vin, sinjoro leŭtenanto.”
 
-”Mi diras al vi la lastan fojon, ke vi min ne konas, azeno. 
+”Mi diras al vi la lastan fojon, ke vi min ne konas, azeno.
 
-ĉu vi havas fratojn?” 
+ĉu vi havas fratojn?”
 
 **96**
 
@@ -5852,17 +5811,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke mi havas unu
 
-fraton.” 
+fraton.”
 
 Rigardante la trankvilan, senzorgan vizaĝon de Ôvejk, la
 
 leŭtenanto Dub furioziĝis, kaj ne regante sin plu, ekvokis:
 
-”Tiu via frato estas ŝajne ankaŭ tia bruto kiel vi. Kio li estis?” 
+”Tiu via frato estas ŝajne ankaŭ tia bruto kiel vi. Kio li estis?”
 
 ”Profesoro, sinjoro leŭtenanto. Li ankaŭ soldatservis kaj
 
-plenumis la oficiran ekzamenon.” 
+plenumis la oficiran ekzamenon.”
 
 La leŭtenanto Dub ekrigardis Ôvejkon, kvazaŭ li volus lin
 
@@ -5870,9 +5829,9 @@ trapiki. Ôvejk kun digna pripenso eltenis la malbonkoran ri-
 
 gardon de la leŭtenanto Dub, tiel ke la tuta interparolo inter
 
-li kaj la leŭtenanto provizore finiĝis per la vorto: ”Formarŝi\!” 
+li kaj la leŭtenanto provizore finiĝis per la vorto: ”Formarŝi!”
 
-ĉiu iris sian vojon kaj ĉiu pensis la sian. 
+ĉiu iris sian vojon kaj ĉiu pensis la sian.
 
 La leŭtenanto Dub pensis pri Ôvejk, ke li diros al sinjoro
 
@@ -5880,7 +5839,7 @@ kapitano, ke tiu igu lin malliberigi, kaj Ôvejk pensis, ke li vi-
 
 dis jam multe da idiotaj oficiroj, sed tia, kia estas la leŭtenan-
 
-to Dub, estas ĉe la regimento tamen nur raraĵo. 
+to Dub, estas ĉe la regimento tamen nur raraĵo.
 
 La leŭtenanto Dub, kiu precipe hodiaŭ ekintencis, ke li de-
 
@@ -5892,23 +5851,23 @@ panio, kiuj tie en mallumo marĉandis per kripligita german-
 
 lingvo kun du ĉiesulinoj, vagantaj po tutaj dekduoj ĉirkaŭ la
 
-stacidomo. 
+stacidomo.
 
 La malproksimiĝanta Ôvejk aŭdis ankoraŭ tute klaran, ak-
 
-ran voĉon de la leŭtenanto Dub: ”ĉu vi min konas?\!…
+ran voĉon de la leŭtenanto Dub: ”ĉu vi mnas?!…
 
-Sed mi diras al vi, ke vi min ne konas\!…
+Sed mi diras al vi, ke vi min ne konas!…
 
-Sed kiam vi min ekkonos\!…
+Sed kiam vi min ekkonos!…
 
-Vi konas min eble de tiu bona flanko\!…
+Vi konas min eble de tiu bona flanko!…
 
 Mi diras al vi, kiam vi min ekkonos de tiu malbona flan-
 
-ko\!…
+ko!…
 
-Mi aldevigos vin ĝis ploro, azenoj\!…
+Mi aldevigos vin ĝis ploro, azenoj!…
 
 **97**
 
@@ -5918,21 +5877,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 ĉu vi havas fratojn?…
 
-Tiuj estas ŝajne ankaŭ tiaj brutoj kiel vi\!… Kio ili estis?… Ke
+Tiuj estas ŝajne ankaŭ tiaj brutoj kiel vi!… Kio ili estis?… Ke
 
 ĉe la trajnotrupo?… Nu bone… Memoru, ke vi estas soldatoj…
 
 ĉu vi estas ĉe˛oj?… ĉu vi scias, ke Palackë diris, ke se ne ek-
 
-zistus Aŭstrio, ni devus ĝin krei**34**… Formarŝi…\!” 
+zistus Aŭstrio, ni devus ĝin krei**34**… Formarŝi…!”
 
 Sed entute la rondiro de la leŭtenanto Dub ne havis pozi-
 
 tivan rezulton. Li haltigis ankoraŭ proksimume tri grupojn da
 
-soldatoj kaj lia eduka klopodo ”aldevigi ĝis ploro” tute fiaskis. 
+soldatoj kaj lia eduka klopodo ”aldevigi ĝis ploro” tute fiaskis.
 
-Estis tio tia homa materialo, forveturigata sur batalkampon, 
+Estis tio tia homa materialo, forveturigata sur batalkampon,
 
 ke en la okuloj de ĉiu unuopulo la leŭtenanto Dub vidis, ke
 
@@ -5944,7 +5903,7 @@ trajno li petis la kapitanon Ságner en la stabvagono, ke Ôvejk
 
 estu malliberigita. Li parolis ĉe tio, motivante la neceson izoli
 
-la bravan soldaton Ôvejk, pri tre stranga, aroganta konduto, 
+la bravan soldaton Ôvejk, pri tre stranga, aroganta konduto,
 
 ĉe kio sincerajn respondojn de Ôvejk al sia lasta demando li
 
@@ -5956,19 +5915,19 @@ certe neniu el sinjoroj oficiroj. Li mem ankoraŭ antaŭ la mi-
 
 lito parolis pri tio kun sinjoro distriktestro, ke ĉiu superulo
 
-devas zorgi konservi super siaj subuloj certan aŭtoritaton. 
+devas zorgi konservi super siaj subuloj certan aŭtoritaton.
 
 Sinjoro distriktestro havis la saman opinion. Precipe nun
 
 en la milito, ju pli la homo proksimiĝas al la malamiko, des
 
-34 la historiisto kaj politikisto Francisko Palackë pledis por tio, ke Aŭstri-Hungario ŝanĝiĝu al federacia ŝtato. Laŭ lia konvinko unuopaj nacioj \(ĉe˛oj, aŭstroj, hungaroj, poloj ktp.\) povas ekzisti nur en la kadro de la potenca Aŭstri-Hungario, kaj de tie devenas lia eldiro:
+34 la historiisto kaj politikisto Francisko Palackë pledis por tio, ke Aŭstri-Hungario ŝanĝiĝu al federacia ŝtato. Laŭ lia konv unuopaj nacioj (ĉe˛oj, aŭstroj, hungaroj, poloj ktp.) povas ekzisti nur en la kadro de la potenca Aŭstri-Hungario, kaj de tie devenas lia eldiro:
 
-”Se ne ekzistus Aŭstrio \(=Aŭstri-Hungario\), ni \(=ĉe˛oj\) devus ĝin
+”Se ne ekzistus Aŭstrio (=Aŭstri-Hungario), ni (=ĉe˛oj) devus ĝin
 
 krei.” Sed pli poste li konvinkiĝis, ke tiu ideo estas erara, kaj diris:
 
-”Ni \(=ĉe˛oj\) estis tie antaŭ Aŭstrio \(=ni ekzistis antaŭ Aŭstri-Hungario\), ni estos ankaŭ post ĝi” \(=se ĝi ne ekzistos\)
+”Ni (=ĉe˛oj) estis tie antaŭ Aŭstrio (=ni ekzistis antaŭ Aŭstri-Hungario), ni estos ankaŭ post ĝi” (=se ĝi ne ekzistos)
 
 **98**
 
@@ -5976,9 +5935,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-pli necesas teni la soldatojn en certa teruro. Tial li do petas, 
+pli necesas teni la soldatojn en certa teruro. Tial li do petas,
 
-ke Ôvejk estu punita laŭ la disciplina ordo. 
+ke Ôvejk estu punita laŭ la disciplina ordo.
 
 La kapitano Ságner, kiu kiel aktiva oficiro malamis ĉiujn
 
@@ -6008,13 +5967,13 @@ Dub kiel oficialan anoncon por puni Ôvejkon, li, la kapitano
 
 Ságner, havas nenion kontraŭ tio, ke Ôvejk estu alkondukita
 
-kaj ekzamenita. 
+kaj ekzamenita.
 
 La ĉefleŭtenanto Lukáô havis kontraŭ tio nenion, li rimar-
 
 kis nur, ke laŭ la rakontado de Ôvejk li mem scias tre bone, ke
 
-la frato de Ôvejk vere estis profesoro kaj rezerva oficiro. 
+la frato de Ôvejk vere estis profesoro kaj rezerva oficiro.
 
 La leŭtenanto Dub ekhezitis kaj diris, ke li petis puni Ôvej-
 
@@ -6026,13 +5985,13 @@ doj vekas impreson de aroganteco, malico kaj malestimo al la
 
 superuloj. Krom tio, laŭ la tuta mieno de la priparolata Ôvejk
 
-vidiĝas, ke li estas mense malforta. 
+vidiĝas, ke li estas mense malforta.
 
 Per tio la ŝtormo propre transflugis la kapon de Ôvejk sen
 
-tio, ke la tondro ekbatus. 
+tio, ke la tondro ekbatus.
 
-En vagono, kie estis bataliona kancelario kaj magazeno, 
+En vagono, kie estis bataliona kancelario kaj magazeno,
 
 ĉefserĝento-kontisto de la infanteria bataliono Bautanzel tre
 
@@ -6050,7 +6009,7 @@ de la bataliono. Tio estis kutima afero, ke ĉio, kio estis desti-
 
 nita por la viraro, devis submetiĝi al manipulado en batalio-
 
-na kancelario same kiel la malfeliĉaj pasteloj. 
+na kancelario same kiel la malfeliĉaj pasteloj.
 
 Tio estis en la milito ĉie tiel kutima, ke se inspektantoj ie
 
@@ -6060,7 +6019,7 @@ trovis, ke oni ne ŝtelas, ĉiu el tiuj ĉefserĝentoj-kontistoj en
 
 paŝas la budĝeteton kaj faras iajn aliajn friponaĵojn, por ke ĉio
 
-estu en ŝajna akordo. 
+estu en ŝajna akordo.
 
 Tial ĉi tie, kiam ĉiuj ŝtopis sin per la pasteloj por uzi alme-
 
@@ -6082,7 +6041,7 @@ vaĵojn, kaj poste, kiam oni jam marŝis al Bardejov en tran-
 
 ĉeojn kaj la rusoj de Muszyna interrompis la kontakton al
 
-Preôov, tio estis negocado\! Mi transdonis el ĉi tio afekte de-
+Preôov, tio estis negocado! Mi transdonis el ĉi tio afekte de-
 
 kan parton por la bataliono, ŝajnigante ke mi tion ŝparkolek-
 
@@ -6098,7 +6057,7 @@ venis al ni sub preteksto, ke li devas konvinkiĝi, ĉu oni kui-
 
 ras por la viraro de la bataliono, kiel necesas. Kutime li venis
 
-al ni suben, kiam venis sciigo, ke rusoj denove ion preparas; 
+al ni suben, kiam venis sciigo, ke rusoj denove ion preparas;
 
 li tremis per la tuta korpo, en la kuirejo li devis eltrinki rumon **100**
 
@@ -6116,13 +6075,13 @@ retenis ĉion, kion pli kvalitan oni sendis al ni el la ariero kaj
 
 forvoris tion mem, tiel ke por ni restis nenio; ni ĉiuj ĉe la trajnotrupo restis sen oficira manĝo. Dum tiu tuta tempo mi ne
 
-sukcesis ŝpari por ni en la kancelario ion pli ol unu porketon, 
+sukcesis ŝpari por ni en la kancelario ion pli ol unu porketon,
 
 kiun ni igis fumaĵi, kaj por ke la majoro Sojka tion ne malkov-
 
 ru, ni havis ĝin kaŝita ĉe artilerio, unu horon de ni, kie mi
 
-havis konatan kanonieron. Do, tiu majoro, kiam li venis al ni, 
+havis konatan kanonieron. Do, tiu majoro, kiam li venis al ni,
 
 ĉiam komencis gustumi supon en la kuirejo. Estas vero, oni
 
@@ -6132,13 +6091,13 @@ malgrasaj bovinoj oni havigis en la ĉirkaŭaĵo. ĉe tio ankoraŭ
 
 Prusoj faris al ni grandan konkurencon kaj ĉe rekvizicio pa-
 
-gis por la brutaro duoble tiom kiom ni. Dum la tuta tempo, 
+gis por la brutaro duoble tiom kiom ni. Dum la tuta tempo,
 
 kiam ni staris ĉe Bardejov, mi ŝparis ĉe aĉeto de brutaro nur
 
 iom pli ol mil ducent kronojn, kaj ĉe tio ni ankoraŭ anstataŭ
 
-mono plejparte donis biletojn kun stampilo de la bataliono, 
+mono plejparte donis biletojn kun stampilo de la bataliono,
 
 precipe en la lasta tempo, kiam ni sciis, ke rusoj oriente de ni
 
@@ -6146,7 +6105,7 @@ estas en Radvañ kaj okcidente en Podolínec. La plej malfacile
 
 oni kunlaboras kun tia nacio, kia estas tie, kiu ne scias legi kaj skribi kaj subskribas sin nur per tri krucetoj; pri tio nia intendantaro tre bone sciis, tiel ke kiam ni sendis al la intendan-
 
-taro por mono, mi ne povis aldone almeti falsitajn kvitancojn, 
+taro por mono, mi ne povis aldone almeti falsitajn kvitancojn,
 
 ke mi elpagis al ili monon, tion oni povas fari nur tie, kie la
 
@@ -6170,7 +6129,7 @@ trolo. Kaj tiuj kontrolistaj uloj svarmis ĉie. Venis tia ulo, sat-
 
 voris ĉe ni kaj sattrinkis, kaj la sekvantan tagon iris nin de-
 
-nunci. Tiu majoro Sojka senĉese ĉirkaŭiris kuirejojn, kaj foje, 
+nunci. Tiu majoro Sojka senĉese ĉirkaŭiris kuirejojn, kaj foje,
 
 mi ĵuras je mia animo, kredu min, li eltiris el kaldrono vian-
 
@@ -6194,7 +6153,7 @@ kolektis dum tiu tuta tempo. Sed tio min ne ĉagrenis tiom
 
 kiom tio, ke por tiu farunrostaĵo forkonsumiĝis du kilogramoj
 
-da fajna butero, kiujn mi ŝparkolektis ankoraŭ en la tempo, 
+da fajna butero, kiujn mi ŝparkolektis ankoraŭ en la tempo,
 
 kiam ekzistis oficira kuirejo. Mi havis ĝin sur breto super la
 
@@ -6244,37 +6203,36 @@ ton per dekokcentimetra kanonkalibro. Poste ni iris tien ri-
 
 gardi kaj la homo ne distingis, ĉu sur tiuj rokoj kuŝaĉas bov-
 
-ina hepato aŭ hepato de sinjoro majoro.” 
+ina hepato aŭ hepato de sinjoro majoro.”
 
-\*
 
 Poste venis sciigo, ke oni veturos ankoraŭ nur post kvar ho-
 
-roj. Ke la trakon supre ĉe Hatvan blokas trajnoj kun vunditoj. 
+roj. Ke la trakon supre ĉe Hatvan blokas trajnoj kun vunditoj.
 
 Tra la stacio ankaŭ disvastiĝis, ke ĉe Eger interpuŝiĝis sanitara
 
 trajno kun malsanuloj kaj vunditoj kaj trajno veturiganta ar-
 
-tilerion. Ke veturas tien helptrajnoj el Budapesto. 
+tilerion. Ke veturas tien helptrajnoj el Budapesto.
 
-Post momento laboris jam fantazio de la tuta bataliono. 
+Post momento laboris jam fantazio de la tuta bataliono.
 
 Oni parolis pri ducent mortintoj kaj vunditoj, pri tio, ke la
 
 interpuŝiĝo okazis intence, por ke ne malkaŝiĝu trompoj ĉe
 
-provizado de malsanuloj. 
+provizado de malsanuloj.
 
 Tio donis impulson por akre kritiki nesufiĉan provizadon
 
 de la bataliono kaj ŝtelistojn en la kancelario kaj en la maga-
 
-zeno. 
+zeno.
 
 Plejparto estis konvinkita, ke la bataliona ĉefserĝento-kon-
 
-tisto Bautanzel dividas sin je ĉio duone kun oficiroj. 
+tisto Bautanzel dividas sin je ĉio duone kun oficiroj.
 
 En la stabvagono la kapitano Ságner anoncis, ke laŭ la
 
@@ -6302,35 +6260,35 @@ kaj konservaĵoj, kio estos plenumita ĉe elpago de soldo post
 
 naŭ tagoj, sed nur, se li ĝis tiu tempo ricevos monon de la
 
-brigado. En la kaso estas nur iom pli ol dekdu mil kronoj. 
+brigado. En la kaso estas nur iom pli ol dekdu mil kronoj.
 
 ”Tio estas ja kanajlaĵo de la regimento,” diris la ĉefleŭte-
 
-nanto Lukáô, ”tiel mizere ellasi nin en la mondon.” 
+nanto Lukáô, ”tiel mizere ellasi nin en la mondon.”
 
-Subleŭtenanto Wolf kaj ĉefleŭtenanto Koláæ reciproke al si
+Subleŭtenanto Wolf kaj ĉefleŭtenanto Koláĝ reciproke al si
 
 flustris, ke la kolonelo Schröder dum la lastaj tri semajnoj
 
-sendis al sia konto en Viena banko dekses mil kronojn. 
+sendis al sia konto en Viena banko dekses mil kronojn.
 
-La ĉefleŭtenanto Koláæ poste rakontis, kiel oni ŝparas. Oni
+La ĉefleŭtenanto Koláĝ poste rakontis, kiel oni ŝparas. Oni
 
 ŝtelas ĉe la regimento ses mil kronojn, ŝovas en sian propran
 
 poŝon kaj kun konsekvenca logiko donas ordonon al ĉiuj mi-
 
-litkuirejoj ŝpari por unu tago kaj viro tri gramojn da pizo. 
+litkuirejoj ŝpari por unu tago kaj viro tri gramojn da pizo.
 
 Monate estas tio naŭdek gramoj por viro kaj en kuirejo de
 
 ĉiu kompanio devas esti ŝparita provizo de minime dekses
 
-kilogramoj da pizo kaj tiun devas la kuiristo prezenti. 
+kilogramoj da pizo kaj tiun devas la kuiristo prezenti.
 
-La ĉefleŭtenanto Koláæ parolis kun Wolf nur ĝenerale pri
+La ĉefleŭtenanto Koláĝ parolis kun Wolf nur ĝenerale pri
 
-certaj okazoj, kiujn li rimarkis. 
+certaj okazoj, kiujn li rimarkis.
 
 Sed certis, ke tiaj okazoj superabundis en la tuta armea
 
@@ -6338,13 +6296,13 @@ administrantaro. Komenciĝis tio per ĉefserĝento-kontisto ĉe
 
 ia kompatinda kompanio kaj finiĝis per hamstro kun gene-
 
-ralaj epoletoj, kiu faris al si provizojn por la postmilita vintro. 
+ralaj epoletoj, kiu faris al si provizojn por la postmilita vintro.
 
-La milito postulis bravecon ankaŭ ĉe ŝteloj. 
+La milito postulis bravecon ankaŭ ĉe ŝteloj.
 
 Intendantoj amplene rigardis unu la alian, kvazaŭ ili volus
 
-diri: ”Ni estas unu korpo kaj unu animo, ni ŝtelas, kamarado, 
+diri: ”Ni estas unu korpo kaj unu animo, ni ŝtelas, kamarado,
 
 **104**
 
@@ -6358,17 +6316,17 @@ traŭ la fluo. Se ne prenos vi, prenos iu alia kaj ankoraŭ pri vi
 
 diros, ke vi jam ne ŝtelas tial, ĉar vi hamstris al vi da tio jam
 
-sufiĉe.” 
+sufiĉe.”
 
 La vagonon enpaŝis sinjoro kun ruĝaj kaj oraj galonoj. Estis
 
 tio denove unu el generaloj, veturantaj tra ĉiuj trakoj cele de
 
-inspekto. 
+inspekto.
 
 ”Sidiĝu, sinjoroj,” li afable mansignis, havante ĝojon, ke li
 
-denove surprizis trupunuon, pri kiu li ne sciis, ke ĝi tie staras. 
+denove surprizis trupunuon, pri kiu li ne sciis, ke ĝi tie staras.
 
 Kiam la kapitano Ságner volis doni al li raporton, li nur
 
@@ -6378,7 +6336,7 @@ punuo ne dormas. Via trupunuo devas jam dormi. Trupunuoj
 
 devas dormi, kiam ili staras en stacioj, kiel en la kazerno — je
 
-la naŭa horo.” 
+la naŭa horo.”
 
 Li parolis, hakante la vortojn: ”Antaŭ la naŭa horo oni el-
 
@@ -6392,15 +6350,15 @@ ne ripetu al mi tion kaj faru tion, kiel mi deziras. Trumpeti
 
 alarmon, peli tion al latrinoj, trumpeti dormosignalon kaj
 
-dormi, kontroli, kiu ne dormas. Puni\! Jes\! ĉu tio estas ĉio? La
+dormi, kontroli, kiu ne dormas. Puni! Jes! ĉu tio estas ĉio? La
 
-vespermanĝon disdoni je la sesa horo.” 
+vespermanĝon disdoni je la sesa horo.”
 
 Li parolis nun pri io en la pasinto, pri tio, kio ne okazis, kio
 
 estis iel malantaŭ ia alia angulo. Li staris ĉi tie kiel fantomo
 
-el la regno de la kvara dimensio. 
+el la regno de la kvara dimensio.
 
 ”La vespermanĝon disdoni je la sesa horo,” li daŭrigis, ri-
 
@@ -6418,7 +6376,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 gulaŝo kun terpomoj anstataŭ dekkvin dekagramoj de emen-
 
-tala fromaĝo.” 
+tala fromaĝo.”
 
 Poste sekvis ordono montri batalpretecon. La kapitano
 
@@ -6428,7 +6386,7 @@ ralo, rigardante, kiel la bataliono sin vicigas, promenis kun
 
 oficiroj kaj senĉese al ili parolis, kvazaŭ ili estus iaj idiotoj kaj ne povus tuj tion ekkompreni, ĉe kio li fingrumis montriletojn
 
-de la poŝhorloĝo: ”Do, rigardu. Duonhoron post la oka feki, 
+de la poŝhorloĝo: ”Do, rigardu. Duonhoron post la oka feki,
 
 duonhoron pli poste dormi. Tio tute sufiĉas. En tiu ĉi pro-
 
@@ -6448,19 +6406,19 @@ satdormintoj faros la lokon por la dua triono, kiu dormas de
 
 noktomezo ĝis la tria horo matene. La tria grupo dormas de
 
-la tria ĝis la sesa horo, post sekvas veksignalo kaj la viraro sin lavas. Dum la veturo ne-mal-sup-ren-sal-ti el vagonoj\! Antaŭ
+la tria ĝis la sesa horo, post sekvas veksignalo kaj la viraro sin lavas. Dum la veturo ne-mal-sup-ren-sal-ti el vagonoj! Antaŭ
 
 la trupunuon starigi patrolojn, por ke la viraro dum la veturo
 
-ne-mal-sup-ren-sal.-tu\! Se al soldato rompos la piedon la
+ne-mal-sup-ren-sal.-tu! Se al soldato rompos la piedon la
 
-malamiko…” 
+malamiko…”
 
 La generalo ekfrapetis ĉe tio sian piedon: ”…estas tio io
 
 laŭdinda, sed kripligi sin per superflua malsuprensaltado el
 
-vagonoj meze de la veturo estas puninda. 
+vagonoj meze de la veturo estas puninda.
 
 ĉu tio do estas via bataliono?” li demandis la kapitanon
 
@@ -6470,7 +6428,7 @@ multaj ne povis sin reteni, kaj elŝiritaj el dormo, oscedis en la
 
 freŝa nokta aero; ”tio estas, sinjoro kapitano, oscedanta bata-
 
-liono. La viraro devas iri dormi je la naŭa horo.” 
+liono. La viraro devas iri dormi je la naŭa horo.”
 
 **106**
 
@@ -6488,23 +6446,23 @@ sonis tia muĝado, ke la ĉefleŭtenanto Lukáô tremis, ke la ge-
 
 neralo ne dediĉu al tio pli detalan atenton. Li ekpensis, ke
 
-Ôvejk oscedas intence. 
+Ôvejk oscedas intence.
 
 Kaj la generalo, kvazaŭ li tion scius, turnis sin al Ôvejk kaj
 
-alpaŝis al li: ”ĉu ĉe˛o, aŭ germano?” 
+alpaŝis al li: ”ĉu ĉe˛o, aŭ germano?”
 
-”ĉe˛o, obee mi raportas, sinjoro generalmajoro.” 
+”ĉe˛o, obee mi raportas, sinjoro generalmajoro.”
 
 ”Bonje,” diris la generalo, kiu estis polo kaj scipovis iom
 
 ĉeę, ”vi krziegas plengorĵe kiel bovina. Tenu la lipon, fermu
 
-la faŭkon, ne muĝju\! ĉu vi jam esti en latrina?” 
+la faŭkon, ne muĝju! ĉu vi jam esti en latrina?”
 
-”Mi ne estis, obee mi raportas, sinjoro generalmajoro.” 
+”Mi ne estis, obee mi raportas, sinjoro generalmajoro.”
 
-”Kijal vi nje iri fekaĉi kun la ceteraj virjoj?” 
+”Kijal vi nje iri fekaĉi kun la ceteraj virjoj?”
 
 ”Obee mi raportas, sinjoro generalmajoro, dum manovroj
 
@@ -6522,7 +6480,7 @@ rajtis jam en kelke da stacioj ricevi vespermanĝon kaj ni rice-
 
 vis nenion. Kun malplena stomako oni ne puŝu sin en latri-
 
-non\!” 
+non!”
 
 Ôvejk, klariginte al sinjoro generalo per simplaj vortoj la
 
@@ -6532,11 +6490,11 @@ eksentis peton al ĉiuj helpi. Se ekzistas jam ordono organizite
 
 marŝi al latrino, do tiu ordono devas esti per io ankaŭ inter-
 
-ne subtenita. 
+ne subtenita.
 
 ”Sendu tion ĉion reen en vagonojn,” diris la generalo al la
 
-kapitano Ságner; ”kiel eblas, ke oni ne ricevis vespermanĝon? 
+kapitano Ságner; ”kiel eblas, ke oni ne ricevis vespermanĝon?
 
 **107**
 
@@ -6548,7 +6506,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 permanĝon. ĉi tie estas proviza stacio. Alie tio ne eblas. Ek-
 
-zistas certa plano.” 
+zistas certa plano.”
 
 La generalo diris tion kun certeco, kiu signifis, ke estas jam
 
@@ -6556,7 +6514,7 @@ proksimume la dekunua horo nokte, la vespermanĝon oni
 
 rajtis ricevi je la sesa horo, kiel li jam pli frue rimarkis, tiel ke restas nenio alia ol reteni la trajnon dum nokto kaj tago ĝis
 
-la sesa horo vespere, por ke oni ricevu gulaŝon kun terpomoj. 
+la sesa horo vespere, por ke oni ricevu gulaŝon kun terpomoj.
 
 ”Ekzistas nenio pli malbona,” li diris ege serioze, ”ol ĉe
 
@@ -6586,13 +6544,13 @@ tiuj amasoj da gulaŝo en Subotica, almozpetis en la stacido-
 
 mo pecon da pano. ĉi tie, kiel vi vidas, ne kulpis la armea
 
-administrantaro.” 
+administrantaro.”
 
 Li plenforte eksvingis la manon: ”La komandantoj de tru-
 
-punuoj ne plenumis siajn devojn. Ni iru en la kancelarion.” 
+punuoj ne plenumis siajn devojn. Ni iru en la kancelarion.”
 
-Ili lin sekvis, meditante pri tio, kial ĉiuj generaloj freneziĝis. 
+Ili lin sekvis, meditante pri tio, kial ĉiuj generaloj freneziĝis.
 
 En la stacia komandejo malkaŝiĝis, ke pri gulaŝo oni scias
 
@@ -6618,7 +6576,7 @@ la plej proksima disdonado de soldo. Koncerne panon, la vi-
 
 raro ricevos en la stacio Watiana po duono de panbulo por
 
-ĉiu. 
+ĉiu.
 
 La komandanto de proviza trupo ne timis. Li diris al la ge-
 
@@ -6628,17 +6586,17 @@ li havas preparita manĝon por trupunuoj. Sed alveturas sani-
 
 tara trajno, montras pli superan ordonon kaj estas fino, la
 
-trupunuo staras antaŭ problemo de malplenaj kaldronoj. 
+trupunuo staras antaŭ problemo de malplenaj kaldronoj.
 
 La generalo konsente kapjesis kaj rimarkis, ke la situacio
 
 nepre pliboniĝas, komence de la milito estis multe pli malbo-
 
-ne. ĉio ne funkcias tuj, al tio nepre necesas spertoj, praktiko. 
+ne. ĉio ne funkcias tuj, al tio nepre necesas spertoj, praktiko.
 
-Teorio fakte bremsas praktikon. Ju pli longe daŭros la milito, 
+Teorio fakte bremsas praktikon. Ju pli longe daŭros la milito,
 
-des pli granda ordo estos en ĉio. 
+des pli granda ordo estos en ĉio.
 
 ”Mi povas doni al vi praktikan ekzemplon,” li diris kun ega
 
@@ -6646,7 +6604,7 @@ des pli granda ordo estos en ĉio.
 
 antaŭ du tagoj la stacion Hatvan ne ricevis panon, kaj vi ĝin
 
-tie morgaŭ ricevos. Ni iru nun en la stacian restoracion.” 
+tie morgaŭ ricevos. Ni iru nun en la stacian restoracion.”
 
 En la stacia restoracio sinjoro generalo denove komencis
 
@@ -6654,19 +6612,19 @@ paroli pri latrino kaj kiel nebele tio aspektas, se ĉie sur reloj
 
 estas kaktoformaj ekskrementoj. Li manĝis ĉe tio bifstekon
 
-kaj al ĉiuj ŝajnis, ke ’kakto’ renversiĝas al li en la faŭko. 
+kaj al ĉiuj ŝajnis, ke ’kakto’ renversiĝas al li en la faŭko.
 
 Al latrinoj li donis tian emfazon, kvazaŭ de ili dependus la
 
-venko de la monarkio. 
+venko de la monarkio.
 
 Rilate al nove estiĝinta situacio koncerne Italion li prokla-
 
 mis, ke ĝuste en latrinoj de nia soldataro kuŝas nia nedube-
 
-bla avantaĝo en la itala kampanjo. 
+bla avantaĝo en la itala kampanjo.
 
-La venko de Aŭstrio rampis el latrino. 
+La venko de Aŭstrio rampis el latrino.
 
 **109**
 
@@ -6682,13 +6640,13 @@ soldataro ricevos gulaŝon kun terpomoj, duonhoron post la
 
 oka ĝi kakas en latrino kaj je la naŭa iras dormi. Antaŭ tia
 
-soldataro la malamiko fuĝas kun teruro. 
+soldataro la malamiko fuĝas kun teruro.
 
 La generalmajoro ekpensis, ekbruligis al si fajnan cigaron
 
 kaj longe, longege rigardis la plafonon. Li rememoris, kion
 
-ankoraŭ diri, se li jam estas ĉi tie, kaj pri kio instrui la oficirojn de la trupunuo. 
+ankoraŭ diri, se li jam estas ĉi tie, kaj pri kio instrui la oficirojn de la trupunuo.
 
 ”La kerno de via bataliono estas sana,” li diris subite, kiam
 
@@ -6700,7 +6658,7 @@ per sia rekteco kaj soldata konduto la plej bonajn esperojn
 
 por la tuta bataliono, ke ĝi batiĝos ĝis la lasta guto de la san-
 
-go.” 
+go.”
 
 Li silentiĝis kaj denove rigardis la plafonon, alpremita al
 
@@ -6716,19 +6674,19 @@ sian historion, en kiu via bataliono devas daŭrigi. Kaj ĝuste al
 
 vi mankas viro, kiu farus precizajn registrojn kaj verkus la
 
-historion de la bataliono. Al li devas konduki ĉiuj fadenoj, 
+historion de la bataliono. Al li devas konduki ĉiuj fadenoj,
 
 kion kiu kompanio de la bataliono faris. Tio devas esti inte-
 
 ligenta homo, ne bruto, ne bovino. Sinjoro kapitano, ĉe la
 
-bataliono vi devas nomumi batalionan kronikiston.” 
+bataliono vi devas nomumi batalionan kronikiston.”
 
 Poste li ekrigardis survandan horloĝon, kies montriletoj
 
 memorigis al la tuta dormema kompanio, ke estas jam tem-
 
-po por disiri. 
+po por disiri.
 
 **110**
 
@@ -6738,7 +6696,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 La generalo havis sur la trako sian inspektan trajnon kaj
 
-petis sinjorojn, ke ili iru lin akompani al lia dormovagono. 
+petis sinjorojn, ke ili iru lin akompani al lia dormovagono.
 
 La komandanto de la stacio ekĝemis. La generalo ne reme-
 
@@ -6750,23 +6708,22 @@ kostis du vagonojn da fojno, kiujn li igis fortreni sur seneli-
 
 rejan trakon kaj kiujn li vendis al la firmao Löwenstein, la
 
-armea liveranto de fojno, kiel oni vendas sekalon sur kampo. 
+armea liveranto de fojno, kiel oni vendas sekalon sur kampo.
 
 La armeo reaĉetis de la firmao tiujn du vagonojn, sed li lasis
 
 ilin tie por ĉiu okazo plu stari. Eble li iam devos denove ilin
 
-vendi al la firmao Löwenstein. 
+vendi al la firmao Löwenstein.
 
 Sed kompense ĉiuj armeaj inspektantoj, traveturantaj tiun
 
 ĉi ĉefan stacion en Budapesto, proklamis, ke tie ĉe la koman-
 
-danto de la stacio oni bone trinkas kaj manĝas. 
+danto de la stacio oni bone trinkas kaj manĝas.
 
-\*
 
-Matene la trajno ankoraŭ staris en la stacio, estis veksignalo, 
+Matene la trajno ankoraŭ staris en la stacio, estis veksignalo,
 
 la soldatoj lavis sin ĉe pumpiloj el gameloj, la generalo kun sia
 
@@ -6774,25 +6731,25 @@ trajno ankoraŭ ne forveturis kaj iris persone kontroli latri-
 
 nojn, kien oni paŝis laŭ bataliona tagordono de la kapitano
 
-Ságner: ”Po taĉmentoj sub komando de la taĉmentestroj,” 
+Ságner: ”Po taĉmentoj sub komando de la taĉmentestroj,”
 
 por ke sinjoro generalo havu ĝojon. Por ke la ĝojon havu an-
 
 kaŭ la leŭtenanto Dub, la kapitano Ságner al li sciigis, ke la
 
-leŭtenanto havas hodiaŭ kontrolon. 
+leŭtenanto havas hodiaŭ kontrolon.
 
-La leŭtenanto Dub kontrolis do latrinojn. 
+La leŭtenanto Dub kontrolis do latrinojn.
 
 Longa etendiĝanta latrinaro je du vicoj enprenis du taĉ-
 
-mentojn de unu kompanio. 
+mentojn de unu kompanio.
 
 Kaj nun la soldatoj bele unu apud la alia kalkansidis super
 
 fosaĵoj sen argilo, kiel hirundoj sur telegrafaj dratoj, kiam ili
 
-aŭtune sin preparas por la vojaĝo al Afriko. 
+aŭtune sin preparas por la vojaĝo al Afriko.
 
 **111**
 
@@ -6804,11 +6761,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 havis la soldatzonon ĉirkaŭ la kolo, kvazaŭ li volus ĉiumo-
 
-mente sin pendumi kaj atendus ian komandon. 
+mente sin pendumi kaj atendus ian komandon.
 
 Sed en tio kompreneble vidiĝis fera soldata disciplino, or-
 
-ganiziteco. 
+ganiziteco.
 
 Sur la maldekstra alo sidis Ôvejk, kiu ĉi tien almiksiĝis kaj
 
@@ -6830,9 +6787,9 @@ vis homo nur kaj sole sopiron sur es
 
 pliboniĝis, ĉar ŝi ne volis tiel sukcese
 
-ori, kiel ili mem dezirus. 
+ori, kiel ili mem dezirus.
 
-estis nenio por la juna Kæiâka. 
+estis nenio por la juna Kĝiâka.
 
 Kiam li deturnis la okulojn de la paperpeceto, li senvole
 
@@ -6842,23 +6799,23 @@ do staris sinjoro generalmajoro de la hieraŭa nokto kun sia
 
 adjutanto kaj apud ili la leŭtenanto Dub, fervore ion al ili
 
-rakontante. 
+rakontante.
 
 Ôvejk ĉirkaŭrigardis. ĉio plu trankvile sidis super latrina
 
-fosaĵo kaj nur suboficiroj iel rigidiĝis kaj ne moviĝis. 
+fosaĵo kaj nur suboficiroj iel rigidiĝis kaj ne moviĝis.
 
-Ôvejk eksentis la seriozecon de la situacio. 
+Ôvejk eksentis la seriozecon de la situacio.
 
-Li eksaltis tiel, kiel li estis, kun malsuprenlevita pantalono, 
+Li eksaltis tiel, kiel li estis, kun malsuprenlevita pantalono,
 
 kun soldatzono ĉirkaŭ la kolo, uzinte ankoraŭ en la lasta mo-
 
-mento la paperpeceton, kaj ekkriegis: ”ĉesi\! Leviĝi\! Atenton\! 
+mento la paperpeceton, kaj ekkriegis: ”ĉesi! Leviĝi! Atenton!
 
-Rigardi dekstren\!” Kaj li soldatsalutis. Du taĉmentoj kun mal-
+Rigardi dekstren!” Kaj li soldatsalutis. Du taĉmentoj kun mal-
 
-35 \(1863-1940\), konata ĉeą poetino kaj verkistino
+35 (1863-1940), konata ĉeą poetino kaj verkistino
 
 **112**
 
@@ -6868,11 +6825,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 suprenlevita pantalono kaj soldatzono ĉirkaŭ la kolo leviĝis
 
-super latrina truo. 
+super latrina truo.
 
 La generalmajoro afable ekridetis kaj diris: ”Ripoz’, daŭri-
 
-gi\!” Kaporalo Málek kiel unua donis ekzemplon al sia taĉ-
+gi!” Kaporalo Málek kiel unua donis ekzemplon al sia taĉ-
 
 mento, ke ĝi devas denove en antaŭan pozicion. Nur Ôvejk
 
@@ -6880,7 +6837,7 @@ staris kaj plu soldatsalutis, ĉar de unu flanko proksimiĝis al
 
 li minace la leŭtenanto Dub kaj de la alia flanko la general-
 
-majoro kun rideto. 
+majoro kun rideto.
 
 ”Vin mi vidjis nokte,” diris la generalmajoro al stranga po-
 
@@ -6890,11 +6847,11 @@ al la generalmajoro: ”Obee mi raportas, sinjoro generalmaj-
 
 oro, tiu ulo estas mense malforta kaj oni konas lin kiel idio-
 
-ton, nesupereblan stultulon.” 
+ton, nesupereblan stultulon.”
 
 ”Kion vi diras, sinjoro leŭtenanto?” ekkriegis subite la ge-
 
-neralo al la leŭtenanto Dub kaj tondris al li, ke ĝuste male. 
+neralo al la leŭtenanto Dub kaj tondris al li, ke ĝuste male.
 
 Viro, kiu vidas sian superulon kaj scias, kio decas, kaj rangu-
 
@@ -6904,25 +6861,25 @@ kampo. En la tempo de danĝero transprenas komandadon
 
 simpla soldato. Kaj ĝuste sinjoro leŭtenanto Dub mem havis
 
-devon doni komandon, kiun eldonis tiu ĉi soldato: ”ĉV esi\! —
+devon doni komandon, kiun eldonis tiu ĉi soldato: ”ĉV esi! —
 
-Leviĝi\! — Atenton\! Rigardi dekstren\!” 
+Leviĝi! — Atenton! Rigardi dekstren!”
 
 ”ĉu vi purzigis vija anusa?” demandis la generalmajoro
 
-Ôvejkon. 
+Ôvejkon.
 
 ”Obee mi raportas, sinjoro generalmajoro, ke ĉio estas en
 
-ordo.” 
+ordo.”
 
-”ĉu vi nje fekaĉi ankorzaŭ?” 
+”ĉu vi nje fekaĉi ankorzaŭ?”
 
-”Obee mi raportas, sinjoro generalmajoro, ke mi finis.” 
+”Obee mi raportas, sinjoro generalmajoro, ke mi finis.”
 
 ”Doni do la pantaljona supren kaj starigi kaj poszte denove
 
-atenton\!” ĉar tiun ’atenton’ la generalo diris iom pli laŭte, tiuj la plej proksime komencis leviĝi super latrina truo. 
+atenton!” ĉar tiun ’atenton’ la generalo diris iom pli laŭte, tiuj la plej proksime komencis leviĝi super latrina truo.
 
 **113**
 
@@ -6932,7 +6889,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 Sed la generalmajoro amike al ili mansignis kaj per delikata
 
-patreca tono diris: ”Sed ne, ripoz’, ripoz’, trankvile daŭrigi.” 
+patreca tono diris: ”Sed ne, ripoz’, ripoz’, trankvile daŭrigi.”
 
 Ôvejk staris antaŭ la generalmajoro jam en plena parado
 
@@ -6940,9 +6897,9 @@ kaj tiu ekparolis al li mallonge germane: ”Estimo al la superu-
 
 loj, scipovo de soldatserva reglamento kaj spiritĉeesto signi-
 
-fas en la soldatservo ĉion. Kaj se al tio ligiĝas ankoraŭ kuraĝo, 
+fas en la soldatservo ĉion. Kaj se al tio ligiĝas ankoraŭ kuraĝo,
 
-ne ekzistas malamiko, kiun ni devis timi.” 
+ne ekzistas malamiko, kiun ni devis timi.”
 
 Turnante sin al la leŭtenanto Dub, li diris, fingropuŝante
 
@@ -6954,15 +6911,15 @@ proponi al honorigo per bronza medalo pro preciza plenumo
 
 de soldatservaj devoj kaj scipovo… Vi ja scias, kion mi jam per
 
-tio pensas… Formarŝi\!” 
+tio pensas… Formarŝi!”
 
 La generalmajoro malproksimiĝis de latrinoj, kie intertem-
 
 pe la leŭtenato Dub, por ke la generalmajoro tion aŭdu, do-
 
-nis laŭtajn ordonojn: ”Unua taĉmento leviĝi\! Formi kvarvi-
+nis laŭtajn ordonojn: ”Unua taĉmento leviĝi! Formi kvarvi-
 
-cojn… Dua taĉmento…” 
+cojn… Dua taĉmento…”
 
 Ôvejk intertempe eliris eksteren, kaj kiam li laŭiris la leŭ-
 
@@ -6972,21 +6929,21 @@ tio la leŭtenanto Dub diris: ”Malbone, ree kaj pli bone”, kaj
 
 Ôvejk devis soldatsaluti denove, ĉe kio li denove aŭdis: ”ĉu vi
 
-min konas? Vi min ne konas\! Vi konas min de tiu bona flan-
+mnas? Vi min ne konas! Vi konas min de tiu bona flan-
 
 ko, sed kiam vi min ekkonos de tiu malbona flanko, mi alde-
 
-vigos vin ĝis ploro\!” 
+vigos vin ĝis ploro!”
 
 Ôvejk fine iris al sia vagono kaj ĉe tio li pensis: Foje, kiam
 
 ni estis ankoraŭ en la kazerno en Karlín, estis tie leŭtenanto
 
-Churavë kaj tiu diris tion alie, kiam li ekscitiĝis: ”Knaboj, 
+Churavë kaj tiu diris tion alie, kiam li ekscitiĝis: ”Knaboj,
 
 kiam vi min vidos, memoru, ke mi estas bestio kaj ke tiu bes-
 
-tio mi restos, dum vi estos ĉe la kompanio.” 
+tio mi restos, dum vi estos ĉe la kompanio.”
 
 Kiam Ôvejk iris laŭlonge de la stabvagono, vokis al li la ĉef-
 
@@ -7008,7 +6965,7 @@ serĝento-kontisto Vanêk. Kiam Ôvejk venis por tion sciigi, li
 
 vidis, ke intertempe dum lia foresto la tuta vagono trinkas
 
-kafon. 
+kafon.
 
 La kafo- kaj laktokonservaĵo de la ĉefleŭtenanto Lukáô es-
 
@@ -7016,19 +6973,19 @@ tis jam duone malplenaj kaj Baloun, sorbante kafon el sia ta-
 
 so, rastis per kulereto en la laktokonservaĵo, por ke li ankoraŭ
 
-plibonigu al si la kafon. 
+plibonigu al si la kafon.
 
 La kuiristo-okultisto Jurajda kun la ĉefserĝento-kontisto
 
 Vanêk reciproke promesis, ke kiam venos kafo- kaj laktokon-
 
-servaĵoj, ke al sinjoro ĉefleŭtenanto ili tion kompensos. 
+servaĵoj, ke al sinjoro ĉefleŭtenanto ili tion kompensos.
 
 Oni prezentis kafon ankaŭ al Ôvejk, sed tiu rifuzis kaj di-
 
 ris al Baloun:
 
-”¯uste venis ordono de la armea stabo, ke ĉiu servosolda-
+”uste venis ordono de la armea stabo, ke ĉiu servosolda-
 
 to, kiu defraŭdis al sia oficiro lakto- kaj kafokonservaĵon, estu
 
@@ -7036,7 +6993,7 @@ senprokraste dum dudek kvar horoj pendumita. Tion mi scii-
 
 gas al vi de sinjoro ĉefleŭtenanto, kiu deziras tuj vidi vin kun
 
-kafo.” 
+kafo.”
 
 La timigita Baloun elŝiris al la telegrafisto Chodounskë**36**
 
@@ -7044,7 +7001,7 @@ porcion, kiun li verŝis al li ĝuste antaŭ momento, starigis tion
 
 por ke tio ankoraŭ varmiĝu, aldonis konservitan lakton kaj
 
-impetis kun tio al la stabvagono. 
+impetis kun tio al la stabvagono.
 
 Kun larĝe malfermitaj okuloj li enmanigis la kafon al la
 
@@ -7060,27 +7017,27 @@ LA BRAVA SOLDATO ÔVEJK
 
 ĉefleŭtenanto Lukáô devas vidi en liaj okuloj, kiel li mastru-
 
-mis per liaj konservaĵoj. 
+mis per liaj konservaĵoj.
 
-”Mi malfruiĝis,” li balbutis, ”ĉar mi ne povis ilin malfermi.” 
+”Mi malfruiĝis,” li balbutis, ”ĉar mi ne povis ilin malfermi.”
 
 ”La laktokonservaĵon vi ŝajne disverŝis, ĉu?” demandis la
 
 ĉefleŭtenanto Lukáô, trinkante la kafon, ”aŭ vi voris ĝin po
 
-kuleroj kiel supon. ĉu vi scias, kio vin atendas?” 
+kuleroj kiel supon. ĉu vi scias, kio vin atendas?”
 
-Baloun ekĝemis kaj eklamentis: ”Mi havas tri infanojn, 
+Baloun ekĝemis kaj eklamentis: ”Mi havas tri infanojn,
 
-obee mi raportas, sinjoro ĉefleŭtenanto.” 
+obee mi raportas, sinjoro ĉefleŭtenanto.”
 
 ”Atentu, Baloun, mi avertas vin ankoraŭfoje antaŭ via glu-
 
-temo. ĉu Ôvejk diris al vi nenion?” 
+temo. ĉu Ôvejk diris al vi nenion?”
 
 ”Dum dudek kvar horoj mi povus esti pendumita,” respon-
 
-dis Baloun malgaje, balancante la tutan korpon. 
+dis Baloun malgaje, balancante la tutan korpon.
 
 ”Ne balanciĝu ĉi tie, stultulo,” diris la ĉefleŭtenanto Lukáô
 
@@ -7088,7 +7045,7 @@ kun rideto, ”kaj bonmoriĝu. Ellasu jam el la kapo tiun vore-
 
 mon kaj diru al Ôvejk, ke li ie en la stacidomo aŭ en la ĉirkaŭjo
 
-elserĉu ion bonan al manĝo. Donu al li ĉi tiun dekflorenon. 
+elserĉu ion bonan al manĝo. Donu al li ĉi tiun dekflorenon.
 
 Vin mi ne sendos. Vi iros nur tiam, kiam vi estos ŝtopita, ke
 
@@ -7096,7 +7053,7 @@ vi preskaŭ krevos. ĉu vi ne forvoris al mi tiun skatoleton da
 
 sardinoj? Vi diras, ke vi ne forvoris. Alportu ĝin por montri
 
-ĝin al mi\!” 
+ĝin al mi!”
 
 Baloun sciigis al Ôvejk, ke sinjoro ĉefleŭtenanto sendas al
 
@@ -7106,15 +7063,15 @@ manĝo, kun ĝemo eltiris skatoleton da sardinoj el kofreto de
 
 la ĉefleŭtenanto kaj kun sento de deprimo portis ĝin al kon-
 
-trolo fare de la ĉefleŭtenanto Lukáô. 
+trolo fare de la ĉefleŭtenanto Lukáô.
 
 Mizerulo, li tiom ĝojis, ke la ĉefleŭtenanto Lukáô tiujn sar-
 
 dinojn eble jam forgesis, kaj nun estas fino al ĉio. La ĉefleŭ-
 
-tenanto ŝajne lasos ilin al si en la vagono kaj senigos lin je ili. 
+tenanto ŝajne lasos ilin al si en la vagono kaj senigos lin je ili.
 
-Li sentis sin priŝtelita. 
+Li sentis sin priŝtelita.
 
 ”ĉi tie estas viaj sardinoj, obee mi raportas, sinjoro ĉefleŭ-
 
@@ -7126,17 +7083,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 tenanto,” li diris amare, transdonante ilin al la posedanto. ”ĉu
 
-mi ilin malfermu?” 
+mi ilin malfermu?”
 
 ”Bone, Baloun, malfermu nenion kaj forportu ilin reen sur
 
-la lokon. Mi volis nur konvinkiĝi, ĉu vi ne enrigardis internen. 
+la lokon. Mi volis nur konvinkiĝi, ĉu vi ne enrigardis internen.
 
 Kiam vi alportis kafon, ŝajnis al mi, ke vi havas la faŭkon iel
 
-grasmakula kvazaŭ de oleo. ĉu Ôvejk jam iris?” 
+grasmakula kvazaŭ de oleo. ĉu Ôvejk jam iris?”
 
-”Obee mi raportas, sinjoro ĉefleŭtenanto, ke li jam foriris,” 
+”Obee mi raportas, sinjoro ĉefleŭtenanto, ke li jam foriris,”
 
 diris sereniĝinta Baloun. ”Li diris, ke sinjoro ĉefleŭtenanto
 
@@ -7144,19 +7101,19 @@ estos kontenta kaj ke ĉiuj al sinjoro ĉefleŭtenanto envios. Li
 
 foriris ien el la stacidomo kaj proklamis, ke li konas tion ĉi tie
 
-ĝis malantaŭ Rákospalota. Se la trajno forveturus eble sen li, 
+ĝis malantaŭ Rákospalota. Se la trajno forveturus eble sen li,
 
 ke li aliĝos al aŭtokolono kaj veturatingos nin en la plej prok-
 
-sima stacio aŭtomobile. Ke ni ne havu pri li zorgojn, li scias, 
+sima stacio aŭtomobile. Ke ni ne havu pri li zorgojn, li scias,
 
 kio estas lia devo, eĉ se li devus lui al si fiakron je siaj elspe-zoj kaj veturi per ĝi malantaŭ la trajno ĝis Galicio. Poste li
 
 lasos tion dekalkuli de sia soldo. Laŭdire vi nepre ne devas
 
-fari al vi pri li zorgojn, sinjoro ĉefleŭtenanto.” 
+fari al vi pri li zorgojn, sinjoro ĉefleŭtenanto.”
 
-”Iru for,” diris la ĉefleŭtenanto Lukáô malgaje. 
+”Iru for,” diris la ĉefleŭtenanto Lukáô malgaje.
 
 El la kancelario de la komandejo oni alportis sciigon, ke
 
@@ -7170,15 +7127,15 @@ por la Ruĝa Kruco. Estu tiel aŭ alie, falis tio rekte el la ĉielo
 
 kaj en la stabvagono estis gaje. La konjako havis kvaliton de
 
-tri steletoj kaj la vino havis markon de Gumpoldskirchen. 
+tri steletoj kaj la vino havis markon de Gumpoldskirchen.
 
-Nur la ĉefleŭtenanto Lukáô estis senĉese iel embarasita. 
+Nur la ĉefleŭtenanto Lukáô estis senĉese iel embarasita.
 
 Pasis jam unu horo kaj Ôvejk ĝis nun ne revenis. Poste an-
 
 koraŭ duonhoro kaj al la stabvagono proksimiĝis stranga pro-
 
-cesio, kiu eliris el la kancelario de la stacia komandejo. 
+cesio, kiu eliris el la kancelario de la stacia komandejo.
 
 **117**
 
@@ -7188,25 +7145,25 @@ LA BRAVA SOLDATO ÔVEJK
 
 Antaŭe iris Ôvejk, serioze kaj digne kiel unuaj kristanoj-
 
-martiroj, kiam oni trenis ilin en arenon. 
+martiroj, kiam oni trenis ilin en arenon.
 
-Ambaŭflanke hungaraj honvedoj kun surmetitaj bajonetoj. 
+Ambaŭflanke hungaraj honvedoj kun surmetitaj bajonetoj.
 
 Sur la maldekstra alo serĝento de la stacia komandejo kaj
 
 malantau ili virino en ruĝa krispa jupo kaj viro en botoj, kun
 
-ronda ĉapeleto kaj kontuzita okulo, kiu portis vivan, kriantan, 
+ronda ĉapeleto kaj kontuzita okulo, kiu portis vivan, kriantan,
 
-timigitan kokinon. 
+timigitan kokinon.
 
 ĉio puŝiĝis en la stabvagonon, sed la serĝento hungare al-
 
-kriegis la viron kun la kokino kaj la virino, ke ili restu sube. 
+kriegis la viron kun la kokino kaj la virino, ke ili restu sube.
 
 Ekvidinte la ĉefleŭtenanton Lukáô, Ôvejk komencis tre sig-
 
-nifoplene palpebrumi. 
+nifoplene palpebrumi.
 
 La serĝento deziris paroli kun la komandanto de la deku-
 
@@ -7218,7 +7175,7 @@ skribon de la stacia komandantaro, kie li legis, paliĝinte:
 
 taliono nro N, naŭdekunua infanteria regimento, al plua pro-
 
-cedo. 
+cedo.
 
 Oni antaŭvenigas infanterianon Ôvejk Jozefo, laŭ lia pro-
 
@@ -7228,19 +7185,19 @@ no nro N, naŭdekunua infanteria regimento, pro krimo de
 
 rabo, farita kontraŭ la geedzoj István en Iszatarcza en agads-
 
-fero de la stacia komandantaro. 
+fero de la stacia komandantaro.
 
-Kaŭzoj: La infanteriano Ôvejk Jozefo, predinte kokinon, 
+Kaŭzoj: La infanteriano Ôvejk Jozefo, predinte kokinon,
 
 kurantan malantaŭ domo de la geedzoj István en Iszatarcza
 
 en agadsfero de la stacia komandantaro kaj apartenantan al
 
-la geedzoj István \(en originalo eminente kreita nova germa-
+la geedzoj István (en originalo eminente kreita nova germa-
 
-na vorto: ’Istvan-geedzoj’\), kaj estante retenita fare de la po-
+na vorto: ’Istvan-geedzoj’), kaj estante retenita fare de la po-
 
-sedanto, kiu la kokinon depreni de li intencis, malhelpis tion, 
+sedanto, kiu la kokinon depreni de li intencis, malhelpis tion,
 
 ekbatinte per kokino la posedanton István ĉe la dekstra oku-
 
@@ -7252,29 +7209,29 @@ LA BRAVA SOLDATO ÔVEJK
 
 lo, kaj retenita per la alvokita patrolo, li estis alkondukita al
 
-sia trupunuo, ĉe kio la kokino redonita al la posedanto. 
+sia trupunuo, ĉe kio la kokino redonita al la posedanto.
 
-Subskribo de la deĵoranta oficiro.” 
+Subskribo de la deĵoranta oficiro.”
 
 Kiam la ĉefleŭtenanto Lukáô subskribis ateston pri akcepto
 
-de Ôvejk, liaj genuoj ektremis. 
+de Ôvejk, liaj genuoj ektremis.
 
 Ôvejk staris tiel proksime, ke li vidis, kiel la ĉefleŭtenanto
 
-Lukáô forgesis alskribi daton. 
+Lukáô forgesis alskribi daton.
 
-”Obee mi raportas, sinjoro ĉefleŭtenanto,” ekparolis Ôvejk, 
+”Obee mi raportas, sinjoro ĉefleŭtenanto,” ekparolis Ôvejk,
 
 ”ke hodiaŭ estas la dudek kvaran de majo. Hieraŭ estis la du-
 
 dek trian de majo, kiam Italio deklaris al ni militon. Kiel mi
 
-estis nun ekstere, oni parolas pri nenio alia.” 
+estis nun ekstere, oni parolas pri nenio alia.”
 
 La honvedoj kun la serĝento foriris kaj sube restis nur la
 
-geedzoj István, kiuj senĉese volis grimpi en la vagonon. 
+geedzoj István, kiuj senĉese volis grimpi en la vagonon.
 
 ”Se vi, sinjoro ĉefleŭtenanto, havus ĉe vi ankoraŭ kvinflo-
 
@@ -7294,17 +7251,17 @@ toj pro dudek florenoj, kaj tiame la mono havis pli altan val-
 
 oron ol nun. Ja eĉ Wohlschläger pendumas pro kvar flore-
 
-noj**37**. 
+noj**37**.
 
 Iru ĉi tien,” kapsignis Ôvejk al la viro kun kontuzita okulo
 
-kaj la kokino, ”kaj vi, aĉulino, tie restu\!” 
+kaj la kokino, ”kaj vi, aĉulino, tie restu!”
 
 La viro eniris la vagonon. ”Li scipovas iom germane,” ri-
 
 markis Ôvejk, ”komprenas ĉiujn insultojn kaj ankaŭ li mem
 
-scias sufiĉe bone germane insulti.” 
+scias sufiĉe bone germane insulti.”
 
 ”Do, dek florenojn,” li turnis sin al la viro, ”kvin florenojn
 
@@ -7318,11 +7275,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 la kokino, kvin la okulo. Kvin florena kokeriki, kvin florena
 
-okulumi, ĉu interkonsentite? ĉi tie estas stabvagono, ŝtelisto. 
+okulumi, ĉu interkonsentite? ĉi tie estas stabvagono, ŝtelisto.
 
-Donu al mi la kokinon\!” 
+Donu al mi la kokinon!”
 
-Li ŝovis en manplaton de la surprizita viro dekflorenon, 
+Li ŝovis en manplaton de la surprizita viro dekflorenon,
 
 forprenis de li la kokinon, tordorompis al ĝi la kolon kaj poste
 
@@ -7330,9 +7287,9 @@ elpuŝis lin el la vagono, metinte al li amike la manon, kiun li
 
 forte ekskuis: ”Bonan tagon, kamarado, adiaŭ, rampu al via
 
-maljunulinaĉo. Aŭ mi deĵetegos vin suben. 
+maljunulinaĉo. Aŭ mi deĵetegos vin suben.
 
-Vidu do, sinjoro ĉefleŭtenanto, ke ĉion eblas reakordigi,” 
+Vidu do, sinjoro ĉefleŭtenanto, ke ĉion eblas reakordigi,”
 
 diris Ôvejk al la ĉefleŭtenanto Lukáô, ”plej bone estas, se ĉio
 
@@ -7340,7 +7297,7 @@ finiĝas sen skandalo, sen longaj ceremonioj. Nun ni kun Ba-
 
 loun kuiros al vi tian kokinan supon, ke oni sentos ĝin ĝis
 
-Transilvanio.” 
+Transilvanio.”
 
 La ĉefleŭtetanto Lukáô jam ne eltenis, elpuŝegis la kompat-
 
@@ -7348,17 +7305,17 @@ indan kokinon el la mano de Ôvejk kaj poste ekkriis: ”ĉu vi
 
 scias, Ôvejk, kion meritas la soldato, kiu en la milita tempo
 
-prirabas pacaman loĝantaron?” 
+prirabas pacaman loĝantaron?”
 
 ”Honoran pafekzekuton per pulvo kaj plombo,” respondis
 
-Ôvejk solene. 
+Ôvejk solene.
 
-”Vi, Ôvejk, kompreneble meritas pendumilan ŝnuregon, 
+”Vi, Ôvejk, kompreneble meritas pendumilan ŝnuregon,
 
 ĉar vi komencis rabi kiel unua. Vi, ulo, mi vere ne scias, kiel
 
-vin nomi, forgesis vian ĵuron. Al mi krevos pro tio la kapo.” 
+vin nomi, forgesis vian ĵuron. Al mi krevos pro tio la kapo.”
 
 Ôvejk demande ekrigardis la ĉefleŭtenanton Lukáô kaj rap-
 
@@ -7374,7 +7331,7 @@ ankaŭ generalojn de Lia Moŝto kaj ĝenerale ĉiujn miajn su-
 
 perulojn kaj altrangulojn, estimi ilin kaj ŝirmi, plenumi iliajn
 
-decidojn kaj ordonojn en ĉiuj servoj, kontraŭ ĉiu malamiko, 
+decidojn kaj ordonojn en ĉiuj servoj, kontraŭ ĉiu malamiko,
 
 **120**
 
@@ -7388,11 +7345,11 @@ riestra kaj Reĝa Moŝto, sur akvo, sub akvo, sur la tero, en
 
 aero, tage eĉ nokte, en bataloj, atakoj, luktoj kaj en diversaj
 
-aliaj situacioj, ĝenerale sur ĉiu loko…” 
+aliaj situacioj, ĝenerale sur ĉiu loko…”
 
 Ôvejk levis la kokinon de sur la tero kaj daŭrigis, starante
 
-rekte kaj rigardante en la okulojn de la ĉefleŭtenanto Lukáô, 
+rekte kaj rigardante en la okulojn de la ĉefleŭtenanto Lukáô,
 
 ”en ĉiu tempo kaj ĉe ĉiu okazo kuraĝe kaj brave batali, ke mi
 
@@ -7404,11 +7361,11 @@ miko, ĉiam mi kondutos tiel, kiel tion postulas la soldatser-
 
 va reglamento kaj kiel decas al obeemaj soldatoj, ke ĉi-manie-
 
-re mi volas kun honoro vivi kaj morti, al kio helpu min dio. 
+re mi volas kun honoro vivi kaj morti, al kio helpu min dio.
 
 Amen. Kaj tiun kokinon, obee mi raportas, mi ne ŝtelis, mi ne
 
-rabis kaj kondutis dece, konsciante mian ĵuron.” 
+rabis kaj kondutis dece, konsciante mian ĵuron.”
 
 ”Lasu tiun kokinon, bruto,” alkriegis lin la ĉefleŭtenanto
 
@@ -7420,13 +7377,13 @@ vi havas tion nigro sur blanko: ’Oni antaŭvenigas infanteria-
 
 non Ôvejk Jozefo, laŭ lia proklamo kurieron de la menciita
 
-marŝkompanio… pro krimo de rabo…’ Kaj nun al mi diru, 
+marŝkompanio… pro krimo de rabo…’ Kaj nun al mi diru,
 
 marodisto, hieno — ne, foje mi vin tamen nur mortigos, mor-
 
 tigos, ĉu vi komprenas — diru al mi, rabista idioto, kiel vi tiel
 
-malbonmoriĝis.” 
+malbonmoriĝis.”
 
 ”Obee mi raportas,” diris Ôvejk afable, ”ke nepre povas
 
@@ -7452,19 +7409,19 @@ pli bone toleri la militajn turmentojn. Kaj tial mi volis fari al
 
 vi teruran ĝojon. Mi volis kuiri al vi kokinan supon, sinjoro
 
-ĉefleŭtenanto.” 
+ĉefleŭtenanto.”
 
 ”Kokinan supon,” ripetis post li la ĉefleŭtenanto, kaptan-
 
-te sin je la kapo. 
+te sin je la kapo.
 
 ”Jes, kokinan supon, obee mi raportas, sinjoro ĉefleŭtenan-
 
-to, mi aĉetis cepon kaj kvin dekagramojn da vermiĉeloj. ĉi tie, 
+to, mi aĉetis cepon kaj kvin dekagramojn da vermiĉeloj. ĉi tie,
 
 mi petas, tio ĉio estas. En tiu ĉi poŝo estas cepo kaj en la alia
 
-vermiĉeloj. Salon ni havas en la kancelario kaj pipron ankaŭ. 
+vermiĉeloj. Salon ni havas en la kancelario kaj pipron ankaŭ.
 
 Restis jam nenio alia ol aĉeti kokinon. Malantaŭ la stacidomo
 
@@ -7474,7 +7431,7 @@ ne temus pri urbo, kvankam en la unua strato estas tie skri-
 
 bite ’La urbo Iszatarcza’. Mi trairis unu straton kun ĝardene-
 
-toj, duan, trian, kvaran, kvinan, sesan, sepan, okan, naŭan, 
+toj, duan, trian, kvaran, kvinan, sesan, sepan, okan, naŭan,
 
 dekan, dekunuan, ĝis ĉe la fino de dektria strato, kie malan-
 
@@ -7530,11 +7487,11 @@ bonan. Li min ankoraŭ alkriis, ke mi fermu la faŭkon, ke eĉ
 
 tiel laŭdire rigardas el miaj okuloj forta branĉo kun kvalita
 
-pendumila ŝnurego. Li estis ŝajne en tre malbona humoro, 
+pendumila ŝnurego. Li estis ŝajne en tre malbona humoro,
 
 kiam li al mi diris, ke tiel grasa povas esti nur soldato, kiu
 
-rabas kaj ŝtelas. En la stacio oni havas laŭdire pli da plendoj, 
+rabas kaj ŝtelas. En la stacio oni havas laŭdire pli da plendoj,
 
 antaŭhieraŭ ie apude perdiĝis al iu meleagro, kaj kiam mi al
 
@@ -7548,11 +7505,11 @@ kriis min tie ankoraŭ apuntato, kiam mi lin ne vidis, laŭdire
 
 estas apuntato, se li soldatus ĉe ĉasistoj, ke li estus ĉefpatro-
 
-lanto kaj ĉe artilerio ĉefkanoniero.” 
+lanto kaj ĉe artilerio ĉefkanoniero.”
 
 ”Ôvejk,” diris post momento la ĉefleŭtenanto Lukáô, ”vi ha-
 
-vis jam tiom da strangaj hazardoj kaj malfacilaĵoj, tiom da, 
+vis jam tiom da strangaj hazardoj kaj malfacilaĵoj, tiom da,
 
 kiel vi diras, ’miskomprenoj’ kaj ’eraroj’, ke de tiuj viaj akci-
 
@@ -7560,11 +7517,11 @@ dentoj helpos al vi foje eble tamen nur dika ŝnurego ĉirkaŭ la
 
 kolo en soldatkvadrato kun ĉiuj soldataj honorigoj. ĉu vi
 
-komprenas?” 
+komprenas?”
 
 ”Jes, obee mi raportas, sinjoro ĉefleŭtenanto, kvadrato el
 
-tiel nomata ’bataliono fermita en kvadraton’ konsistas el kvar, 
+tiel nomata ’bataliono fermita en kvadraton’ konsistas el kvar,
 
 **123**
 
@@ -7572,31 +7529,30 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-escepte ankaŭ el tri aŭ kvin kompanioj. ĉu vi ordonas, sinj-
+escepte ankaŭ el tri aŭ kvmpanioj. ĉu vi ordonas, sinj-
 
 oro ĉefleŭtenanto, meti en la supon el tiu ĉi kokino pli da
 
-vermiĉeloj, por ke ĝi estu pli densa?” 
+vermiĉeloj, por ke ĝi estu pli densa?”
 
 ”Ôvejk, mi ordonas al vi malaperi eĉ kun la kokino, aŭ mi
 
-ĉirkaŭbatos ĝin je via kapo, idioto…” 
+ĉirkaŭbatos ĝin je via kapo, idioto…”
 
 ”Laŭ la ordono, sinjoro ĉefleŭtenanto, sed celerion, obee
 
 mi raportas, mi ne trovis, karoton ankaŭ ne. Mi aldonos
 
-ter…” 
+ter…”
 
 Ôvejk jam ne elparolis ”pomojn” kaj elflugis eĉ kun la ko-
 
 kino antaŭ la stabvagonon. La ĉefleŭtenanto Lukáô eltrinkis
 
-je unu gluto vinan glason da konjako. 
+je unu gluto vinan glason da konjako.
 
-Ôvejk soldatsalutis antaŭ fenestroj de la vagono kaj foriris. 
+Ôvejk soldatsalutis antaŭ fenestroj de la vagono kaj foriris.
 
-\*
 
 Baloun post feliĉe finiĝinta psika lukto ĝuste sin preparis por
 
@@ -7604,7 +7560,7 @@ tamen nur malfermi la skatoleton da sardinoj de sia ĉefleŭte-
 
 nanto, kiam aperis Ôvejk kun kokino, kio vekis naturan emo-
 
-cion ĉe ĉiuj ĉeestantoj en la vagono, kaj ĉiuj ekrigardis lin tiel, kvazaŭ ili volus kun certeco diri: ”Kie vi tion ŝtelis?” 
+cion ĉe ĉiuj ĉeestantoj en la vagono, kaj ĉiuj ekrigardis lin tiel, kvazaŭ ili volus kun certeco diri: ”Kie vi tion ŝtelis?”
 
 ”Mi aĉetis ĝin por sinjoro ĉefleŭtenanto,” diris Ôvejk, elti-
 
@@ -7612,15 +7568,15 @@ rante el poŝoj cepon kaj vermiĉelojn. ”Mi volis kuiri al li el ĝi
 
 supon, sed li tiun kokinon jam ne volas, li donacis ĝin do al
 
-mi.” 
+mi.”
 
 ”ĉu ĝi ne estis mortaĉa?” demandis suspekteme la ĉefser-
 
-ĝento-kontisto Vanêk. 
+ĝento-kontisto Vanêk.
 
 ”Mi mem tordorompis al ĝi la kolon,” respondis Ôvejk, el-
 
-tirante tranĉileton el poŝo. 
+tirante tranĉileton el poŝo.
 
 Baloun dankeme kaj samtempe kun sento de estimo ekri-
 
@@ -7634,7 +7590,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 laparaton de la ĉefleŭtenanto. Poste li prenis tasojn kaj kuris
 
-kun ili por akvo. 
+kun ili por akvo.
 
 Al Ôvejk proksimiĝis la telegrafisto Chodounskë kaj propo-
 
@@ -7642,31 +7598,31 @@ nis, ke li helpos ĝin al li senplumigi, ĉe kio li ekflustris al li en la orelo
 
 ĉi tie? ĉu oni devas transgrimpi sur korton, aŭ estas tio en
 
-libera spaco?” 
+libera spaco?”
 
-”Mi ĝin aĉetis.” 
+”Mi ĝin aĉetis.”
 
 ”Sed silentu, ĉu tiel kondutas kamarado, ni vidis, kiel oni
 
-vin kondukis.” 
+vndukis.”
 
-Sed li fervore partoprenis la senplumigadon de la kokino. 
+Sed li fervore partoprenis la senplumigadon de la kokino.
 
 Al grandaj, gloraj preparoj aliĝis ankaŭ la kuiristo-okultisto
 
-Jurajda, kiu distranĉis terpomojn kaj cepon por la supo. 
+Jurajda, kiu distranĉis terpomojn kaj cepon por la supo.
 
 La plumaro, elĵetita el la vagono, vekis la atenton de la leŭ-
 
-tenanto Dub, kiu ĉirkaŭiris vagonojn. 
+tenanto Dub, kiu ĉirkaŭiris vagonojn.
 
 Li ekvokis internen, ke montriĝu tiu, kiu senplumigas koki-
 
-non, kaj inter la pordo aperis kontenta vizaĝo de Ôvejk. 
+non, kaj inter la pordo aperis kontenta vizaĝo de Ôvejk.
 
 ”Kio tio estas?” ekkriis la leŭtenanto Dub, levante de la
 
-tero fortranĉitan kokinan kapon. 
+tero fortranĉitan kokinan kapon.
 
 ”Tio estas, obee mi raportas,” respondis Ôvejk, ”kapo de
 
@@ -7678,15 +7634,15 @@ ovojn jare. Bonvolu, mi petas, rigardi, kiel riĉan ovarion ĝi
 
 havis.” Ôvejk tenis intestojn kaj ceterajn internaĵojn de la ko-
 
-kino antaŭ la nazo de la leŭtenanto Dub. 
+kino antaŭ la nazo de la leŭtenanto Dub.
 
 Dub forkraĉis, foriris kaj post momento revenis:
 
-”Por kiu estas tiu kokino?” 
+”Por kiu estas tiu kokino?”
 
-”Por ni, obee mi raportas, sinjoro leŭtenanto. Rigardu, 
+”Por ni, obee mi raportas, sinjoro leŭtenanto. Rigardu,
 
-kiom da graso ĝi havas.” 
+kiom da graso ĝi havas.”
 
 **125**
 
@@ -7696,21 +7652,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 La leŭtenanto Dub foriris, murmurante: ”Ni renkontiĝos
 
-ĉe Filipio**38**.” 
+ĉe Filipio**38**.”
 
-”Kion li diris?” turnis sin Jurajda al Ôvejk. 
+”Kion li diris?” turnis sin Jurajda al Ôvejk.
 
 ”Ni interkonsentis renkontiĝon ie ĉe Filipo. Tiuj noblaj sin-
 
-joroj ordinare estas sodomianoj.” 
+joroj ordinare estas sodomianoj.”
 
 La kuiristo okultisto proklamis, ke sole estetikistoj estas
 
-samseksemaj, kio rezultas jam el la nura esenco de estetiko. 
+samseksemaj, kio rezultas jam el la nura esenco de estetiko.
 
 La ĉefserĝento-kontisto Vanêk poste rakontis, kiel pedago-
 
-goj en hispanaj klostroj malvirgigas infanojn. 
+goj en hispanaj klostroj malvirgigas infanojn.
 
 Kaj dum akvo en kaldroneto sur la alkohola bolaparato
 
@@ -7718,7 +7674,7 @@ komencis boli, Ôvejk menciis pri tio, kiel oni konfidis koloni-
 
 on da forlasitaj vienaj infanoj al edukisto kaj tiu la tutan ko-
 
-lonion malvirgigis. 
+lonion malvirgigis.
 
 ”Nu ja, tio estas pasio, sed la plej malbona estas, kiam tio
 
@@ -7732,15 +7688,15 @@ Mourek kaj Ôousek, kaj tiuj foje, kiam floris ĉerizarboj en aleo
 
 tan gurdiston, fortrenis lin en arbareton ĉe Roztoky kaj tie lin
 
-perfortis. Kaj kion ĉion ili al li faris\! En Òiòkov vivas sinjoro
+perfortis. Kaj kion ĉion ili al li faris! En Òiòkov vivas sinjoro
 
 profesoro Aksamit kaj tiu tie fosis, serĉis tombojn de kaŭraj
 
 prahomoj**39** kaj kelke da ili elprenis, kaj tiuj ulinoj fortrenis lin, tiun gurdiston, en tian elfositan tombon kaj tie lin frote-gis kaj misuzis. Kaj la profesoro Aksamit venis tien la sekvan-
 
-38 Filipio \(Philippi\) — makedona urbo, kie en la jaro 42 a.K. Antonio kaj Oktavio venkis en la batalo kontraŭ Bruto kaj Kasio; la vortojn
+38 Filipio (Philippi) — makedona urbo, kie en la jaro 42 a.K. Antonio kaj Oktavio venkis en la batalo kontraŭ Bruto kaj Kasio; la vortojn
 
-”Ni rekontiĝos ĉe Filipio” diris al Bruto lia malbona fantomo kelke da tagoj antaŭ la batalo. La eldiro signifas ”venos la tempo de rekompenco” 
+”Ni rekontiĝos ĉe Filipio” diris al Bruto lia malbona fantomo kelke da tagoj antaŭ la batalo. La eldiro signifas ”venos la tempo de rekompenco”
 
 39 tomboj el la epoko de la tajlita ŝtono, ĉirkaŭ la jaro 4000 a.K., kiam oni entombigadis mortintojn en kaŭra pozicio, kun la genuoj sub la mentono
 
@@ -7750,27 +7706,27 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-tan tagon kaj vidas, ke en la tombo io kuŝas. Li eksentis ĝojon, 
+tan tagon kaj vidas, ke en la tombo io kuŝas. Li eksentis ĝojon,
 
-sed estis tio la gurdisto, turmentita kaj martirigita fare de tiuj eksedziniĝintaj moŝtulinoj. ĉie ĉirkaŭ li estis iaj lignopecetoj. 
+sed estis tio la gurdisto, turmentita kaj martirigita fare de tiuj eksedziniĝintaj moŝtulinoj. ĉie ĉirkaŭ li estis iaj lignopecetoj.
 
 Post kvin tagoj tiu gurdisto mortis kaj tiuj kanajlaj ulinoj es-
 
-tis ankoraŭ tiel arogantaj, ke ili partoprenis lian entombigon. 
+tis ankoraŭ tiel arogantaj, ke ili partoprenis lian entombigon.
 
-Tio estas jam perverseco.” 
+Tio estas jam perverseco.”
 
 ”ĉu vi tion salis?” turnis sin Ôvejk al Baloun, kiu eluzis ĝe-
 
 neralan intereson pri la rakontado de Ôvejk kaj kaŝis ion en
 
-sian dorsosakon, ”montru, kion vi tie faras? 
+sian dorsosakon, ”montru, kion vi tie faras?
 
 Baloun,” diris Ôvejk serioze, ”kion vi volas fari per tiu kok-
 
 ina femuro? Rigardu do. Li ŝtelis al ni la kokinan femuron por
 
-poste sekrete ĝin al si kuiri. ĉu vi scias, Baloun, kion vi faris? 
+poste sekrete ĝin al si kuiri. ĉu vi scias, Baloun, kion vi faris?
 
 ĉu vi scias, kiel en la soldatservo oni punas tiun, kiu priŝte-
 
@@ -7782,31 +7738,31 @@ frue ĝemi. Kiam ie en la fronto ni renkontos artilerion, vi ali-
 
 ĝos ĉe la plej proksima ĉefkanoniero. Sed intertempe vi ek-
 
-zercos pro puno. Rampu el la vagono.” 
+zercos pro puno. Rampu el la vagono.”
 
 La malfeliĉa Baloun degrimpis kaj Ôvejk, sidante inter la
 
-pordo de la vagono, komandis: ”Atenton\! Ripoz’\! Atenton\! 
+pordo de la vagono, komandis: ”Atenton! Ripoz’! Atenton!
 
-Rigardi dekstren\! Atenton\! Rigardu denove antaŭen\! Ripoz’\! 
+Rigardi dekstren! Atenton! Rigardu denove antaŭen! Ripoz’!
 
-Nun vi faros korpomovojn surloke. Turni dekstren\! Homo\! 
+Nun vi faros korpomovojn surloke. Turni dekstren! Homo!
 
 Vi estas bovino. Viaj kornoj devas troviĝi tie, kie antaŭe vi
 
-havis la dekstran ŝultron. Returni\! Turni dekstren\! Turni mal-
+havis la dekstran ŝultron. Returni! Turni dekstren! Turni mal-
 
-dekstren\! Transverse dekstren\! Ne tiel, idioto\! Returni\! Trans-
+dekstren! Transverse dekstren! Ne tiel, idioto! Returni! Trans-
 
-verse dekstren\! Nu vidu, mulo, ke tio funkcias\! Transverse
+verse dekstren! Nu vidu, mulo, ke tio funkcias! Transverse
 
-maldekstren\! Turni maldekstren\! Maldekstren\! Front’\! Front’, 
+maldekstren! Turni maldekstren! Maldekstren! Front’! Front’,
 
-idioto\! ĉu vi ne scias, kio estas Front’? Rekte antaŭen\! Turnu
+idioto! ĉu vi ne scias, kio estas Front’? Rekte antaŭen! Turnu
 
-vin\! Genuiĝi\! Al la tero\! Sidiĝi\! Leviĝi\! Sidiĝi\! Al la tero\! Leviĝi\! 
+vin! Genuiĝi! Al la tero! Sidiĝi! Leviĝi! Sidiĝi! Al la tero! Leviĝi!
 
-Al la tero\! Leviĝi\! Sidiĝi\! Leviĝi\! Ripoz’\! 
+Al la tero! Leviĝi! Sidiĝi! Leviĝi! Ripoz’!
 
 **127**
 
@@ -7814,9 +7770,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-Vidu do, Baloun, tio estas saniga, vi almenaŭ malsatiĝos.\!” 
+Vidu do, Baloun, tio estas saniga, vi almenaŭ malsatiĝos.!”
 
-ĉirkaŭe komencis grupiĝi amasoj kaj ĝoje krii. 
+ĉirkaŭe komencis grupiĝi amasoj kaj ĝoje krii.
 
 ”Faru afable lokon,” kriis Ôvejk, ”li marŝos. Atentu do, Ba-
 
@@ -7824,55 +7780,55 @@ loun, ke mi ne devu vin revenigi. Mi ne ŝatas superflue tur-
 
 menti la viraron. Do:
 
-”Direkte al la stacidomo\! Rigardu, kien mi montras. Marŝ’\! 
+”Direkte al la stacidomo! Rigardu, kien mi montras. Marŝ’!
 
-Taĉmento, halt’\! Haltu, diable, aŭ mi vin malliberigos. Taĉ-
+Taĉmento, halt’! Haltu, diable, aŭ mi vin malliberigos. Taĉ-
 
-mento, halt’\! Fine, ke vi haltis, idioto. Mallongigi la paŝon\! ĉu
+mento, halt’! Fine, ke vi haltis, idioto. Mallongigi la paŝon! ĉu
 
 vi ne scias, kion signifas ’mallongigi la paŝon’? Mi montros al
 
-vi tion, ke vi havos post tio bluaĵojn\! Plenpaŝe\! Ôanĝi la paŝon\! 
+vi tion, ke vi havos post tio bluaĵojn! Plenpaŝe! Ôanĝi la paŝon!
 
-Surloke\! Bubalo\! Se mi diras ’Surloke’, vi devas levi la pie-
+Surloke! Bubalo! Se mi diras ’Surloke’, vi devas levi la pie-
 
-daĉojn sur la loko.” 
+daĉojn sur la loko.”
 
-ĉirkaŭe estis jam almenaŭ du kompanioj. 
+ĉirkaŭe estis jam almenaŭ du kompanioj.
 
 Baloun ŝvitis, konsciis nenion kaj Ôvejk plu komandis:
 
-”Egalpaŝe\! Taĉmento, marŝi reen\!” 
+”Egalpaŝe! Taĉmento, marŝi reen!”
 
-”Taĉmento, halt’\!” 
+”Taĉmento, halt’!”
 
-”Trote\!” 
+”Trote!”
 
-”Taĉmento, marŝ’\!” 
+”Taĉmento, marŝ’!”
 
-”Paŝe\!” 
+”Paŝe!”
 
-”Taĉmento, halt’\!” 
+”Taĉmento, halt’!”
 
-”Ripoz’\!” 
+”Ripoz’!”
 
-”Atenton\! Direkte al la stacidomo. Trote\! Halt’\! Turnu vin\! 
+”Atenton! Direkte al la stacidomo. Trote! Halt’! Turnu vin!
 
-Direkte al la vagono\! Trote\! Mallongigi la paŝon\! Taĉmento, 
+Direkte al la vagono! Trote! Mallongigi la paŝon! Taĉmento,
 
-halt’\! Ripoz’\! Nun vi momenton ripozos. Kaj poste ni komen-
+halt’! Ripoz’! Nun vi momenton ripozos. Kaj poste ni komen-
 
-cos denove. ĉe bona volo ĉio iras glate.” 
+cos denove. ĉe bona volo ĉio iras glate.”
 
-”Kio ĉi tie okazas?” eksonis la voĉo de la leŭtenanto Dub, 
+”Kio ĉi tie okazas?” eksonis la voĉo de la leŭtenanto Dub,
 
-kiu maltrankviliĝinte alkuris. 
+kiu maltrankviliĝinte alkuris.
 
 ”Obee mi raportas, sinjoro leŭtenanto,” diris Ôvejk, ”ke ni
 
 iom trejnas, por ke ni ne forgesu soldatekzercaĵojn kaj super-
 
-flue ne maldiligentaĉu dum la altvalora tempo.” 
+flue ne maldiligentaĉu dum la altvalora tempo.”
 
 **128**
 
@@ -7884,11 +7840,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 havas da tio jam vere sufiĉe. Mi forkondukos vin al sinjoro
 
-bataliona komandanto.” 
+bataliona komandanto.”
 
 Kiam Ôvejk troviĝis en la stabvagono, la ĉefleŭtetanto Lu-
 
-káô foriris tra la alia elirejo el la vagono kaj paŝis al kajo. 
+káô foriris tra la alia elirejo el la vagono kaj paŝis al kajo.
 
 La kapitano Ságner, kiam la leŭtenanto Dub raportis al li
 
@@ -7896,17 +7852,17 @@ pri strangaj ekscesoj de la brava soldato Ôvejk, kiel li sin es-
 
 primis, estis ĝuste en tre bona humoro, ĉar Gumpoldskirchen
 
-estis vere eminenta. 
+estis vere eminenta.
 
 ”Vi do ne volas superflue maldiligentaĉi dum la altvalora
 
-tempo,” li ekridetis signifoplene, ”Matuôiâ, venu ĉi tien\!” 
+tempo,” li ekridetis signifoplene, ”Matuôiâ, venu ĉi tien!”
 
 La bataliona kuriero ricevis ordonon alvoki ĉefserĝenton
 
 Nasáklo de la dekdua kompanio, kiu estis konata kiel la plej
 
-granda tirano, kaj senprokraste havigi al Ôvejk fusilon. 
+granda tirano, kaj senprokraste havigi al Ôvejk fusilon.
 
 ”Tiu ĉi viro,” diris la kapitano Ságner al la ĉefserĝento Na-
 
@@ -7916,9 +7872,9 @@ tempo. Kunprenu lin malantaŭ la vagonon kaj unu horon fa-
 
 ru kun li ekzercaĵojn per fusilo. Sed sen ĉia kompatemo, sen-
 
-respire. ĉefe bele komandon post komando, pafilon teren, 
+respire. ĉefe bele komandon post komando, pafilon teren,
 
-alceli, teren\!” 
+alceli, teren!”
 
 ”Vi vidos, Ôvejk, ke vi ne enuos,” li diris al li ĉe foriro. Kaj
 
@@ -7928,9 +7884,9 @@ do, kiu solene e˛is super reloj. La ĉefserĝento Nasáklo, kiu
 
 ĝuste ludis ’dudek unu’ kaj tenis la bankon, kriegis en la dian
 
-spacon: ”Pafilon teren\! — Pafilon surŝultren\! Pafilon teren\! —
+spacon: ”Pafilon teren! — Pafilon surŝultren! Pafilon teren! —
 
-Pafilon surŝultren\!” 
+Pafilon surŝultren!”
 
 Poste tio por momento silentiĝis kaj oni aŭdis kontentan
 
@@ -7938,7 +7894,7 @@ kaj pripenseman voĉon de Ôvejk: ”Tion ĉion mi lernis antaŭ
 
 jaroj dum la aktiva soldatservo. Kiam oni komandas ’Pafilon
 
-teren\!’, la fusilo staras apogita ĉe la dekstra kokso. La kol-
+teren!’, la fusilo staras apogita ĉe la dekstra kokso. La kol-
 
 **129**
 
@@ -7954,47 +7910,47 @@ fingro ĉirkaŭpremas la fusiltubon, la ceteraj fingroj devas
 
 kunpremi antaŭan parton de la kolbo, kaj se oni komandas
 
-’Pafilon surŝultren\!’, la fusilo estas libere sur rimeno sur la
+’Pafilon surŝultren!’, la fusilo estas libere sur rimeno sur la
 
 dekstra ŝultro, per la tuba aperturo supren kaj per la fusiltubo
 
-malantaŭen…” 
+malantaŭen…”
 
 ”Jam sufiĉe da tiu babilado,” eksonis denove komando de
 
-la ĉefserĝento Nasáklo. ”Atenton\! Rigardi dekstren\! Herrgott, 
+la ĉefserĝento Nasáklo. ”Atenton! Rigardi dekstren! Herrgott,
 
-kiel vi tion faras…” 
+kiel vi tion faras…”
 
 ”Mi estas en la pozicio ’Pafilon surŝultren’ kaj ĉe ’Rigardi
 
-dekstren\!’ mia dekstra mano deglitas tra la rimeno suben, mi
+dekstren!’ mia dekstra mano deglitas tra la rimeno suben, mi
 
 ĉirkaŭpremas la kolon de la kolbo kaj ĵetas per la kapo dek-
 
-stren, al tiu ’Atenton\!’ mi reprenas la rimenon per la dekstra
+stren, al tiu ’Atenton!’ mi reprenas la rimenon per la dekstra
 
-mano kaj mia kapo rigardas antaŭen al vi.” 
+mano kaj mia kapo rigardas antaŭen al vi.”
 
-Kaj denove sonis la voĉo de la ĉefserĝento: ”Pafilon porti\! 
+Kaj denove sonis la voĉo de la ĉefserĝento: ”Pafilon porti!
 
-Pafilon teren\! Pafilon porti\! Pafilon surŝultren\! Surmeti bajo-
+Pafilon teren! Pafilon porti! Pafilon surŝultren! Surmeti bajo-
 
-neton\! Demeti bajoneton\! Bajoneton kaŝi\! Al la preĝo\! Fini la
+neton! Demeti bajoneton! Bajoneton kaŝi! Al la preĝo! Fini la
 
-preĝon\! Surgenuiĝi al la preĝo\! Ôargi\! Pafi\! Pafi transverse
+preĝon! Surgenuiĝi al la preĝo! Ôargi! Pafi! Pafi transverse
 
-dekstren\! La celo: stabvagono\! Distanco ducent paŝojn… Pre-
+dekstren! La celo: stabvagono! Distanco ducent paŝojn… Pre-
 
-pari sin\! Alceli\! Pafi\! Demeti pafilon\! Alceli\! Pafi\! Alceli\! Pafi\! 
+pari sin! Alceli! Pafi! Demeti pafilon! Alceli! Pafi! Alceli! Pafi!
 
-Pafilon teren\! Surmetaĵo normala\! Kartoĉojn kaŝi\! Ripoz’\!” La
+Pafilon teren! Surmetaĵo normala! Kartoĉojn kaŝi! Ripoz’!” La
 
-ĉefserĝento volvis al si cigaredon. 
+ĉefserĝento volvis al si cigaredon.
 
 Ôvejk intertempe pririgardis numeron sur la fusilo kaj ek-
 
-vokis: ”4268\! Tian numeron havis lokomotivo en Peâky sur la
+vokis: ”4268! Tian numeron havis lokomotivo en Peâky sur la
 
 deksesa trako. Oni decidis fortreni ĝin al riparejo en Lysá nad
 
@@ -8028,7 +7984,7 @@ parejo en Lysá nad Labem, havas la numeron 4268. Atentu
 
 do. La unua cifero estas kvar, la dua du. Memoru do jam
 
-kvardek du, tio estas duoble du, laŭvice de la komenco kvar, 
+kvardek du, tio estas duoble du, laŭvice de la komenco kvar,
 
 dividite per du estas du kaj vi havas denove kvar kaj du, unu
 
@@ -8038,7 +7994,7 @@ ne vere? Enskribu do en la memoron, ke la oko estas la last-
 
 vica cifero en la numero 4268. Restas ankoraŭ, kiam vi jam
 
-memoras, ke la unua cifero estas kvar, la dua du, la kvara ok, 
+memoras, ke la unua cifero estas kvar, la dua du, la kvara ok,
 
 iel saĝe memori tiun seson, kiu iras antaŭ la oko. Kaj tio es-
 
@@ -8052,17 +8008,17 @@ el la memoro. Vi havas en la kapo fiksita la numeron 4268. Aŭ
 
 vi povas veni al la sama rezulto ankaŭ ankoraŭ pli simple…’
 
-” 
+”
 
 La ĉefserĝento ĉesis fumi, fiksis larĝe malfermegitajn oku-
 
-lojn al Ôvejk kaj nur ekbabilis: ”Demeti la ĉapon\!” 
+lojn al Ôvejk kaj nur ekbabilis: ”Demeti la ĉapon!”
 
 Ôvejk serioze daŭrigis: ”Li do komencis klarigi al li tiun pli
 
 simplan manieron, kiel memori la numeron de la lokomoti-
 
-vo 4268. Ok minus du estas ses. Li konas do jam sesdek ok. 
+vo 4268. Ok minus du estas ses. Li konas do jam sesdek ok.
 
 Ses minus du estas kvar, li konas do jam 4-68 kaj en tion tiun
 
@@ -8080,7 +8036,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 dek du estas okdek kvar. La jaro havas dekdu monatojn. Oni
 
-do subtrahos okdek kvar minus dek du kaj restas sepdek du, 
+do subtrahos okdek kvar minus dek du kaj restas sepdek du,
 
 de tio ankoraŭ dek du monatojn, tio faras sesdek, ni havas
 
@@ -8098,15 +8054,15 @@ eficienton laŭ la dogana tarifo.’ ĉu eble ne estas al vi malbo-
 
 ne, sinjoro ĉefserĝento? Se vi deziras, mi komencos ekzemple
 
-per ’Prepari sin al salvo\! Ôargi\! Alceli\! Pafi\!’ Diable\! Kial sin-
+per ’Prepari sin al salvo! Ôargi! Alceli! Pafi!’ Diable! Kial sin-
 
-joro kapitano sendis nin en sunbrilon\! Mi devas iri por bran-
+joro kapitano sendis nin en sunbrilon! Mi devas iri por bran-
 
-kardo.” 
+kardo.”
 
 Kiam venis kuracisto, li konstatis, ke temas aŭ pri sunfra-
 
-po aŭ pri aktuala meningito. 
+po aŭ pri aktuala meningito.
 
 Kiam la ĉefserĝento rekonsciiĝis, staris apud li Ôvejk kaj
 
@@ -8118,19 +8074,18 @@ miksis kaj multiplikis tion ĉion per tri, ĉar li rememoris la
 
 Dian Triunuon, kaj la lokomotivon li ne trovis, tiu ankoraŭ
 
-staras tie sur la fervojlinio numero dek ses.” 
+staras tie sur la fervojlinio numero dek ses.”
 
-La ĉefserĝento denove fermis la okulojn. 
+La ĉefserĝento denove fermis la okulojn.
 
 Kaj kiam Ôvejk revenis en sian vagonon, al la demando, kie
 
-li estis tiel longe, li respondis: ”Kiu iun instruas ’Trote\!’, tiu faras centfoje ’Pafilon surŝultren\!’ ” Malantaŭe en la vagono
+li estis tiel longe, li respondis: ”Kiu iun instruas ’Trote!’, tiu faras centfoje ’Pafilon surŝultren!’ ” Malantaŭe en la vagono
 
 tremis Baloun. Dum la foresto de Ôvejk, kiam parto da koki-
 
-no jam kuiriĝis, li forvoris duonon de lia porcio. 
+no jam kuiriĝis, li forvoris duonon de lia porcio.
 
-\*
 
 **132**
 
@@ -8146,7 +8101,7 @@ toj aŭ soldatoj el hospitaloj, veturantaj post siaj trupoj, kaj
 
 ankaŭ aliaj suspektaj individuoj, revenantaj el oficaj vojaĝoj
 
-aŭ malliberejoj. 
+aŭ malliberejoj.
 
 El tiu ĉi trajno eliris ankaŭ la unujara volontulo Marek, kiu
 
@@ -8158,23 +8113,23 @@ traŭ li estis ĉesigita, kaj tial la unujara volontulo Marek ape-
 
 ris nun en la stabvagono por anonci sin al komandanto de la
 
-bataliono. Scie, la unujara volontulo apartenis ĝis nun nenien, 
+bataliono. Scie, la unujara volontulo apartenis ĝis nun nenien,
 
-ĉar oni kondukis lin de unu malliberejo en la alian. 
+ĉar oni kondukis lin de unu malliberejo en la alian.
 
 Ekvidinte la unujaran volontulon kaj akceptinte de li ak-
 
 tojn koncernantajn lian alvenon kun tre sekreta noto: ”Poli-
 
-tike suspekta\! Atenton\!”, la kapitano Ságner ne estis tro ĝoji-
+tike suspekta! Atenton!”, la kapitano Ságner ne estis tro ĝoji-
 
 gita kaj feliĉe li rememoris la ”latrinan generalon”, kiu tiel
 
 interese rekomendis kompletigi la batalionon per ”bataliona
 
-kronikisto”. 
+kronikisto”.
 
-”Vi, unujara volotulo, estas tre neglektema,” li diris al li, 
+”Vi, unujara volotulo, estas tre neglektema,” li diris al li,
 
 ”en la lernejo por unujaraj volontuloj vi estis vera plago, an-
 
@@ -8212,7 +8167,7 @@ ujn la bataliono partoprenas, en kiuj ĝi ludas ĉefan kaj emi-
 
 nentan rolon, iom post iom verki kontribuaĵon al la historio
 
-de la armeo. ĉu vi min komprenas?” 
+de la armeo. ĉu vi mmprenas?”
 
 ”Obee mi raportas, jes, sinjoro kapitano, temas pri epizo-
 
@@ -8224,9 +8179,9 @@ as historion de la regimento. La regimentoj formas historion
 
 de la brigado, historioj de la brigadoj la historion de la divi-
 
-zio ktp. Mi klopodos per ĉiuj miaj fortoj, sinjoro kapitano.” 
+zio ktp. Mi klopodos per ĉiuj miaj fortoj, sinjoro kapitano.”
 
-La unujara volontulo Marek metis al si manon al la koro. 
+La unujara volontulo Marek metis al si manon al la koro.
 
 ”Kun vera amo mi registros glorajn tagojn de nia batalio-
 
@@ -8238,7 +8193,7 @@ talejon per siaj heroaj filoj. Mi notos al vi konscience la kuron
 
 de ĉiuj okazaĵoj, kiuj devas veni, por ke la paĝoj pri historio
 
-de nia bataliono estu plenaj de laŭroj.” 
+de nia bataliono estu plenaj de laŭroj.”
 
 ”Vi estos ĉe la stabo de la bataliono, unujara volontulo, vi
 
@@ -8254,7 +8209,7 @@ ras, ke vi havas sufiĉe da rimarka talento, por ke vi, ricevan-
 
 te de mi certajn direktivojn, levu nian batalionon super la
 
-ceterajn trupunuojn. Mi sendas telegramon al la regimento, 
+ceterajn trupunuojn. Mi sendas telegramon al la regimento,
 
 ke mi nomumis vin bataliona kronikisto. Anoncu vin ĉe la
 
@@ -8265,16 +8220,14 @@ loku vin tie en la vagono. Tie estas ankoraŭ plej multe da lo-
 ko, kaj diru al li, ke li venu ĉi tien al mi. Sed registrita vi es-134
 
 
-
 LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
 tos kompreneble ĉe la stabo de la bataliono. Tion oni faros
 
-per bataliona skribordono.” 
+per bataliona skribordono.”
 
-\*
 
 La kuiristo-okultisto dormis. Baloun senĉese tremis, ĉar li jam
 
@@ -8310,11 +8263,10 @@ nêk kaj skribis sur paperpecon per grandaj literoj:
 
 ”Mi petas per tio ĉi ĝentile, ke mi estu nomumita kaj pro-
 
-mociita al bataliona trumpetisto. 
+mociita al bataliona trumpetisto.
 
-Chodounskë, la telegrafisto.” 
+Chodounskë, la telegrafisto.”
 
-\*
 
 La kapitano Ságner ne havis tro longan interparolon kun la
 
@@ -8322,7 +8274,7 @@ La kapitano Ságner ne havis tro longan interparolon kun la
 
 bataliona kronikisto, unujara volontulo Marek, provizore tro-
 
-viĝos en la vagono kun Ôvejk. 
+viĝos en la vagono kun Ôvejk.
 
 ”Mi povas diri al vi nur tion, ke tiu viro Marek estas, por
 
@@ -8332,13 +8284,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-tiel diri, suspekta. Politike suspekta. Dio mia\! Tio estas en la
+tiel diri, suspekta. Politike suspekta. Dio mia! Tio estas en la
 
-nuna tempo nenio tro stranga. Pri kiu oni tion ne diras\! Ek-
+nuna tempo nenio tro stranga. Pri kiu oni tion ne diras! Ek-
 
-zistas diversaj tiaj supozoj. Vi ja min komprenas. Mi atenti-
+zistas diversaj tiaj supozoj. Vi ja mmprenas. Mi atenti-
 
-gas vin do nur, ke vi lin tuj haltigu, se li eble parolus pri io, 
+gas vin do nur, ke vi lin tuj haltigu, se li eble parolus pri io,
 
 kio… nu, vi komprenas, por ke eble ankaŭ mi ne havu malag-
 
@@ -8346,19 +8298,19 @@ rablaĵojn. Diru al li simple, ke li lasu ĉiujn parolojn, kaj per tio estos tio
 
 al mi. Aranĝu tion kun li amike, tia admono estas ĉiam pli
 
-bona ol stulta denunco. Mallonge, mi deziras nenion aŭdi, 
+bona ol stulta denunco. Mallonge, mi deziras nenion aŭdi,
 
 ĉar… Komprenu. Tia afero falas ĉi tie ĉiam ankaŭ sur la tutan
 
-batalionon.” 
+batalionon.”
 
 Kiam Vanêk do revenis, li forkondukis la unujaran volon-
 
-tulon Marek flanken kaj diris al li: ”Homo, vi estas suspekta, 
+tulon Marek flanken kaj diris al li: ”Homo, vi estas suspekta,
 
 sed tio tute ne gravas. Nur ne diru ĉi tie multon superfluan
 
-antaŭ tiu Chodounskë, la telegrafisto.” 
+antaŭ tiu Chodounskë, la telegrafisto.”
 
 Tuj kiam li tion findiris, Chodounskë ŝanceliris kaj falis en
 
@@ -8376,17 +8328,17 @@ per ebriula voĉo, kio ŝajne prezentis kantadon:
 
 *En okuloj viaj ekflagretis*
 
-*du steletoj, kiuj min konsolas, *
+*du steletoj, kiuj mnsolas, *
 
 *kaj koralaj lipoj tuj dekretis:*
 
 *’Vin forlasi mi neniam volas’. *
 
-Ni neniam forlasos unu la alian,” kriegis Chodounskë, 
+Ni neniam forlasos unu la alian,” kriegis Chodounskë,
 
 ”kion mi elaŭskultos en telefono, tion mi tuj diros al vi. Mi
 
-fekas sur mian ĵuron.” 
+fekas sur mian ĵuron.”
 
 Baloun en angulo terurigite sin krucumis kaj komencis laŭ-
 
@@ -8406,7 +8358,7 @@ en tiu ĉi larmoplena valo. Ho, Reĝino ĉiela, faru vian prope-
 
 ton, ke mi restu ankaŭ en dia graco kaj sub via protekto ĝis
 
-la fino de mia vivo.” 
+la fino de mia vivo.”
 
 La beata Maria la Virgulino vere pro li propetis, ĉar post
 
@@ -8414,17 +8366,17 @@ momento la unujara volontulo eltiris el sia enhave malriĉa
 
 dorsosako kelke da sardinskatoletojn kaj disdonis al ĉiu po
 
-unu. 
+unu.
 
 Baloun sentime malfermis la kofreton de la ĉefleŭtenanto
 
-Lukáô kaj redonis tien el la ĉielo falintajn sardinojn. 
+Lukáô kaj redonis tien el la ĉielo falintajn sardinojn.
 
 Kiam poste ĉiuj malfermis siajn sardinskatoletojn kaj de-
 
 lektiĝis je ili, Baloun eksentis tenton, malfermis la kofreton
 
-kaj la sardinojn kaj avide ilin englutis. 
+kaj la sardinojn kaj avide ilin englutis.
 
 Kaj tiam la plej beata kaj la plej dolĉa Maria la Virgulino
 
@@ -8434,25 +8386,25 @@ skatoleto, aperis antaŭ la vagono la bataliona kuriero Ma-
 
 tuôiâ, vokante supren: ”Baloun, alportu al via ĉefleŭtenanto
 
-tiujn sardinojn.” 
+tiujn sardinojn.”
 
-”Tiom da vangobatoj, hu,” diris la ĉefserĝento Vanêk. 
+”Tiom da vangobatoj, hu,” diris la ĉefserĝento Vanêk.
 
-”Kun malplenaj manoj tien prefere ne iru,” konsilis Ôvejk, 
+”Kun malplenaj manoj tien prefere ne iru,” konsilis Ôvejk,
 
-”kunprenu almenaŭ kvin malplenajn skatoletojn.” 
+”kunprenu almenaŭ kvin malplenajn skatoletojn.”
 
 ”Kion vi propre faris, ke dio vin tiel punas,” rimarkis la
 
-unujara volontulo, ”en via pasinto devas esti ia granda peko. 
+unujara volontulo, ”en via pasinto devas esti ia granda peko.
 
 ĉu vi eble ne kulpiĝis per sakrilegio kaj ne formanĝis al via
 
-parokestro ŝinkon en kamentubo? ĉu vi ne eltrinkis lian mes-
+parokestro ŝn en kamentubo? ĉu vi ne eltrinkis lian mes-
 
 vinon en kelo? ĉu vi kiel bubo ne grimpis eble sur pirarbojn
 
-en la parokestra ĝardeno?” 
+en la parokestra ĝardeno?”
 
 Baloun forbalanciĝis kun trista, plene senespera mieno en
 
@@ -8464,7 +8416,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 la vizaĝo. Nun lia senkonsila mieno korŝire parolis: ”Kiam
 
-jam finiĝos tiu turmento?” 
+jam finiĝos tiu turmento?”
 
 ”Tio estas tio,” diris la unujara volontulo, kiu ekaŭdis la
 
@@ -8472,7 +8424,7 @@ vortojn de la malfeliĉa Baloun, ”ke vi, amiko, perdis ligitecon
 
 kun sinjoro dio. Vi ne scias bone preĝi, ke sinjoro dio kiom
 
-eble plej baldaŭ forigu vin de sur la mondo.” 
+eble plej baldaŭ forigu vin de sur la mondo.”
 
 Al tio Ôvejk aldonis: ”Baloun senĉece ne povas trovi la ku-
 
@@ -8484,19 +8436,19 @@ patrineca koro de la plej supera sinjoro dio, kiel tion diradis
 
 mia feldkurato Katz, kiam li jam komencis trotrinki kaj pro
 
-eraro kunpuŝiĝis surstrate kun soldato.” 
+eraro kunpuŝiĝis surstrate kun soldato.”
 
-Baloun ekĝemis, ke li jam perdis konfidon al sinjoro dio, 
+Baloun ekĝemis, ke li jam perdis konfidon al sinjoro dio,
 
 ĉar li jam plurfoje preĝis, ke dio donu al li sufiĉe da forto kaj
 
-iamaniere ŝrumpigu tiun lian stomakon. 
+iamaniere ŝrumpigu tiun lian stomakon.
 
 ”Tio ne datiĝas de tiu ĉi milito,” li eklamentis, ”tio estas
 
 jam malnova malsano, tiu mia manĝavideco. Mia edzino kun
 
-infanoj faris pro tio pilgrimojn al Klokoty.” 
+infanoj faris pro tio pilgrimojn al Klokoty.”
 
 ”Tion mi konas,” rimarkis Ôvejk, ”tio estas ĉe Tábor kaj oni
 
@@ -8514,7 +8466,7 @@ finpreĝis tiujn tricent ’Patronia’jn, kiujn donis al li sinjoro
 
 pastro por ke li intertempe ne forkuru, jam elkondukis lin
 
-sakristianoj rekte al ĝendarma stacio.” 
+sakristianoj rekte al ĝendarma stacio.”
 
 La kuiristo-okultisto komencis kun la telegrafisto Chodo-
 
@@ -8540,11 +8492,11 @@ sorto jam antaŭlonge destinis, kiam la pastro el Klokoty es-
 
 tis ankoraŭ eble ekzemple ekidno, ia marsupiulo, nun jam
 
-formortinta mamulo, ke li devas rompi la konfesan sekreton, 
+formortinta mamulo, ke li devas rompi la konfesan sekreton,
 
 kvankam el jurista vidpunkto laŭ la eklezia rajto oni donas
 
-absolvon, eĉ se temas pri klostra posedaĵo. 
+absolvon, eĉ se temas pri klostra posedaĵo.
 
 Al tio Ôvejk aldonis tiun ĉi simplan rimarkon: ”Jes, neniu
 
@@ -8552,7 +8504,7 @@ homo scias, kiel li ekscesos post milionoj da jaroj, kaj povas
 
 do nenion forrifuzi. Kiam ni soldatis ankoraŭ ĉe la rezerva
 
-komandejo en Karlín, ĉefleŭtenanto Kvasniâka ĉiam diris, 
+komandejo en Karlín, ĉefleŭtenanto Kvasniâka ĉiam diris,
 
 kiam li al ni oratoris: ’Ne imagu, skaraboj, maldiligentaj bo-
 
@@ -8562,11 +8514,11 @@ tiu ĉi mondo. Ni revidos nin ankoraŭ post la morto kaj mi
 
 preparos por vi tian purgatorion, ke vi gapos je tio kiel cer-
 
-voj, kanajla bando.’ ” 
+voj, kanajla bando.’ ”
 
 Intertempe Baloun, kiu, estante en plena senespero, senĉe-
 
-se opiniis, ke nun oni parolas nur pri li, ke ĉio koncernas lin, 
+se opiniis, ke nun oni parolas nur pri li, ke ĉio koncernas lin,
 
 daŭrigis sian publikan konfeson: ”Eĉ Klokoty ne helpis kon-
 
@@ -8576,11 +8528,11 @@ la pilgrima festo kaj jam komencas kalkuli kokinojn. Mankas
 
 unu aŭ du. Sed mi ne povis min helpi, mi sciis, ke oni bezo-
 
-nas ilin hejme cele de ovoj, sed mi iras eksteren, rigardas ilin, 
+nas ilin hejme cele de ovoj, sed mi iras eksteren, rigardas ilin,
 
 subite mi sentas abismon en la stomako, kaj post unu horo
 
-estas al mi jam bone, la kokino estas jam ĉirkaŭronĝita. Foje, 
+estas al mi jam bone, la kokino estas jam ĉirkaŭronĝita. Foje,
 
 kiam ili estis en Klokoty por preĝi pro mi, por ke paĉjo hej-
 
@@ -8604,21 +8556,21 @@ ne sidus ĉi tie hodiaŭ kun vi kaj eĉ tiun mondmiliton mi ne
 
 ĝisvivus. — Jes, jes. Tiu mia lernanto, tio estis vigla knabo.Tia
 
-malgranda, plenforma, dika, grasa — …” 
+malgranda, plenforma, dika, grasa — …”
 
-Ôvejk alpaŝis al Baloun: ”Montru la langon\!” 
+Ôvejk alpaŝis al Baloun: ”Montru la langon!”
 
 Baloun elŝovis sian langon kontraŭ Ôvejk, post kio Ôvejk
 
 turnis sin al ĉiuj, kiuj estis en la vagono: ”Tion mi sciis, li forvoris ankaŭ tiun sian muellernanton. — Konfesu, kiam vi lin
 
-forvoris? Kiam tiuj viaj estis denove en Klokoty, ĉu?” 
+forvoris? Kiam tiuj viaj estis denove en Klokoty, ĉu?”
 
 Baloun senespere kunmetis la manojn kaj ekvokis: ”Lasu
 
-min, kamaradoj\! Al ĉio ankoraŭ ĉi tio de miaj kamaradoj\!” 
+min, kamaradoj! Al ĉio ankoraŭ ĉi tio de miaj kamaradoj!”
 
-”Ni vin pro tio ne kondamnas,” diris la unujara volontulo, 
+”Ni vin pro tio ne kondamnas,” diris la unujara volontulo,
 
 ”male, vidiĝas, ke el vi estos bona soldato. Kiam la francoj
 
@@ -8626,7 +8578,7 @@ dum napoleonaj militoj sieĝis Madridon**40**, hispana koman-
 
 danto de la fortikaĵo Madrido preferis formanĝi sian adjutan-
 
-ton sen salo ol cedi la fortikaĵon al la malamiko pro malsato.” 
+ton sen salo ol cedi la fortikaĵon al la malamiko pro malsato.”
 
 ”Tio estas jam vera ofero, ĉar salita adjutanto nepre estus
 
@@ -8636,15 +8588,15 @@ havas tiu adjutanto de nia bataliono? — ĉu Ziegler? Tio es-
 
 tas tia ŝrumpuleto, el tiu oni ne farus porciojn eĉ por unu
 
-marŝkompo.” 
+marŝkompo.”
 
 ”Ni rigardu,” diris la ĉefserĝento-kontisto Vanêk, ”Baloun
 
-havas en la mano rozarion.” 
+havas en la mano rozarion.”
 
 Kaj vere, Baloun en sia la plej granda ĉagreno serĉis savon
 
-40 la 2an de oktobro 1808 Madrido ekribelis kontraŭ la reĝo Jozefo, frato de Napoleono la unua, kiu lin surtronigis kontraŭ la volo de hispanoj. La ribeliĝo estus tuj subpremita, sen kia ajn sieĝado
+40 la 2an de Madrido ekribelis kontraŭ la reĝo Jozefo, frato de Napoleono la unua, kiu lin surtronigis kontraŭ la volo de hispanoj. La ribeliĝo estus tuj subpremita, sen kia ajn sieĝado
 
 **140**
 
@@ -8654,13 +8606,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 en etaj pistakoglobetoj de la firmao Moritz Löwenstein en
 
-Vieno. 
+Vieno.
 
 ”Tiu estas ankaŭ el Klokoty,” diris Baloun malgaje. ”Antaŭ
 
 ol tiuj niaj ĝin al mi alportis, malaperis du anseridoj, sed tio
 
-ne estas vera viando, tio estas molaĵo.” 
+ne estas vera viando, tio estas molaĵo.”
 
 Momenton post tio venis ordono tra la tuta trajno, ke oni
 
@@ -8684,17 +8636,16 @@ ke da vangobatoj, kaj tiu ĉi laste nomita egaligo fine ankaŭ
 
 efektiviĝis tiel energie, ke post ŝia kriego komencis kunkuri
 
-tien homoj el la stacidomo. 
+tien homoj el la stacidomo.
 
 **141**
 
-!(images/000005.png)
 
 LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-3. EL HATVAN ¯IS LA LIMO DE GALICIO
+3. EL HATVAN IS LA LIMO DE GALICIO
 
 En la vagono, kie estis la unujara volontulo kaj Ôvejk, oni
 
@@ -8720,11 +8671,11 @@ la viraron, al kiu oni malaltigis porcion da saguo je unu de-
 
 kagramo por la viro, kio estis tiom pli mistera, ke en la armeo
 
-neniu kaj neniam vidi saguon. 
+neniu kaj neniam vidi saguon.
 
 Malgraŭ tio necesis tion anonci al la ĉefserĝento-kontisto
 
-Bautanzel, kiu sentis sin per tio terure ofendita kaj priŝtelita, 
+Bautanzel, kiu sentis sin per tio terure ofendita kaj priŝtelita,
 
 **142**
 
@@ -8736,17 +8687,17 @@ kion li esprimis ankaŭ per tio, ke saguo estas en la nuna tem-
 
 po rara aĵo kaj ke por unu kilogramo li ricevus almenaŭ ok
 
-kronojn. 
+kronojn.
 
 En Füzesabony oni malkovris ankaŭ tion, ke unu kompa-
 
-nio perdis sian militkuirejon, ĉar en tiu ĉi stacio oni fine kuiris gulaŝon kun terpomoj, kion ege emfazis la ”latrina generalo”. 
+nio perdis sian militkuirejon, ĉar en tiu ĉi stacio oni fine kuiris gulaŝon kun terpomoj, kion ege emfazis la ”latrina generalo”.
 
 Post esploro malkaŝiĝis, ke la kompatinda militkuirejo ne
 
 kunveturis kun ili el Bruck kaj ke ŝajne ĝis nun staras tie ie
 
-malantaŭ la barako 186, forlasita kaj malvarmiĝinta. 
+malantaŭ la barako 186, forlasita kaj malvarmiĝinta.
 
 Scie, kuirista personaro apartenanta al tiu militkuirejo estis
 
@@ -8756,7 +8707,7 @@ jo pro senbrida konduto en la urbo, kaj la kuiristoj sciis aranĝi
 
 tion tiel, ke ili sidis ankoraŭ tiam, kiam ilia marŝkompo vetu-
 
-ris jam trans Hungarion. 
+ris jam trans Hungarion.
 
 La kompanion sen kuirejo oni do alvicigis al alia militkui-
 
@@ -8770,15 +8721,15 @@ laŝo kaj terpomoj estas propre manovro por ke la soldatoj
 
 alkutimiĝu al tio, ke kiam oni kuiros gulaŝon en la fronto an-
 
-taŭ la malamiko, subite venos ordono ”ĉiuj cedi\!”, gulaŝon el
+taŭ la malamiko, subite venos ordono ”ĉiuj cedi!”, gulaŝon el
 
-kaldronoj oni elverŝos kaj neniu ricevos ĝin eĉ nur leki. 
+kaldronoj oni elverŝos kaj neniu ricevos ĝin eĉ nur leki.
 
 Tio ĉi estis do ia preparo, ne tiel konsekvence tragika, sed
 
 tamen nur instrua. Nome, kiam estis la tempo por disdoni
 
-gulaŝon, venis ordono ”Envagoniĝi\!” kaj oni jam veturis al
+gulaŝon, venis ordono ”Envagoniĝi!” kaj oni jam veturis al
 
 Miskolc. Ankaŭ tie oni ĝin ne disdonis, ĉar sur la trako staris
 
@@ -8794,7 +8745,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 gulaŝon, kiam oni elvagoniĝos en Galicio, kie oni rekonos la
 
-gulaŝon aĉiĝinta, nemanĝebla kaj ke poste oni ĝin elverŝos. 
+gulaŝon aĉiĝinta, nemanĝebla kaj ke poste oni ĝin elverŝos.
 
 Poste oni veturigis gulaŝon plu al Tiszalök, Zombor, kaj
 
@@ -8802,23 +8753,23 @@ kiam jam neniu atendis, ke oni ĝin disdonos, la trajno haltis
 
 en Sátoraljaújhely, kie oni denove ekhejtis sub kaldronoj, la
 
-gulaŝon varmigis kaj fine disdonis. 
+gulaŝon varmigis kaj fine disdonis.
 
 La fervoja stacio estis troŝtopita, estis decidite unue forsen-
 
 di du trajnojn kun municio, poste du trajnojn kun artilerio kaj
 
-trajnon kun pioniraj taĉmentoj. ¯enerale eblis diri, ke ĉi tie
+trajnon kun pioniraj taĉmentoj. enerale eblis diri, ke ĉi tie
 
 amasiĝis trajnoj kun trupunuoj de ĉiuj eblaj partoj de la ar-
 
-meo. 
+meo.
 
 Malantaŭ la stacidomo honvedoj-husaroj amuzis sin per
 
 du polaj judoj, al kiuj ili elrabis dorskorbon kun brando kaj
 
-nun en bona humoro anstataŭ pago batis ilin sur la buŝon, 
+nun en bona humoro anstataŭ pago batis ilin sur la buŝon,
 
 kion ŝajne ili havis permesite, ĉar tute proksime staris ilia
 
@@ -8826,7 +8777,7 @@ kapitano kaj al la tuta sceno li agrable ridetis, dum malantaŭ
 
 magazeno kelke da aliaj honvedoj-husaroj palpis sub jupojn
 
-de nigrookulaj filinetoj de la batataj judoj. 
+de nigrookulaj filinetoj de la batataj judoj.
 
 Estis tie ankaŭ trajno kun aeroplanoj. Sur aliaj reloj staris
 
@@ -8838,7 +8789,7 @@ haŭbiztuboj. Dum ĉio freŝa kaj nova veturis tien supren, tiuj
 
 ĉi restoj de gloro veturis enlanden cele de riparoj kaj rekon-
 
-struoj. 
+struoj.
 
 Al soldatoj, kiuj amasiĝis ĉirkaŭ la detruitaj aeroplanoj kaj
 
@@ -8862,7 +8813,7 @@ milita predo. Estas vero, unuavide estas tio stranga, kiam iu
 
 legas ĉi tie sur afusto i.k.r. artileria divizio. Sed tio ŝajne estas tiel, ke tiu kanono falis en rusajn manojn kaj ni devis denove ĝin reakiri, kaj tia predo estas multe pli valora, ĉar …
 
-ĉar,” li diris solene, kiam li rimarkis la leŭtenanton Dub, 
+ĉar,” li diris solene, kiam li rimarkis la leŭtenanton Dub,
 
 ”oni lasu nenion en la manoj de la malamiko. Tio estas la sa-
 
@@ -8870,21 +8821,21 @@ mo kiel pri Przemyôl**41** aŭ pri tiu soldato, al kiu la malamiko dum batalo e
 
 tendaron kaj alportis al si la ladbotelon reen, kaj ĉe tio li an-
 
-koraŭ gajnis, ĉar la malamiko ricevis por nokto brandon.” 
+koraŭ gajnis, ĉar la malamiko ricevis por nokto brandon.”
 
 La leŭtenanto Dub diris nur: ”Zorgu malaperi, Ôvejk, ke mi
 
-jam ne vidu vin ĉi tie la duan fojon\!” 
+jam ne vidu vin ĉi tie la duan fojon!”
 
 ”Laŭ via ordono, sinjoro leŭtenanto.” Kaj Ôvejk foriris al
 
-alia grupo da vagonoj, kaj se la leŭtenanto Dub lin aŭdus, 
+alia grupo da vagonoj, kaj se la leŭtenanto Dub lin aŭdus,
 
 kion li ankoraŭ aldonis, li certe elsaltus pro kolero el la uni-
 
 formo, kvankam tio estis tute senkulpa biblia frazo: ”Mal-
 
-longe, vi vidos min kaj denove mallonge, kaj vi ne vidos min.” 
+longe, vi vidos min kaj denove mallonge, kaj vi ne vidos min.”
 
 Post foriro de Ôvejk la leŭtenanto Dub estis al ĉio ankoraŭ
 
@@ -8892,15 +8843,15 @@ tiel idiota, ke li atentigis soldatojn pri forpafita aŭstra aero-
 
 plano, sur kies metala lameno estis klare gravurite ”Viena
 
-Nova Urbo.” 
+Nova Urbo.”
 
 ”Tiun ni forpafis al la rusoj ĉe Lvov,” diris la leŭtenanto
 
 Dub. Tiujn ĉi vortojn ekaŭdis la ĉefleŭtenanto Lukáô, kiu
 
-41 urbo kaj fortikaĵo en Galicio. En duono de septembro 1914 okupis la fortikaĵon rusoj, en oktobro la aŭstri-hungara kaj germana armeoj
+41 urbo kaj fortikaĵo en Galicio. En duono de okupis la fortikaĵon rusoj, en oktobro la aŭstri-hungara kaj germana armeoj
 
-rusojn elpelis; sed tiuj tuj, la 9an de novembro, denove reakiris la fortikaĵon. La 22an de marto 1915 Przemyôl kapitulacis, sed baldaŭ post tio, la 3an de junio 1915, la aŭstri-hungara kaj germana armeoj denove enmarŝis la fortikaĵon
+rusojn elpelis; sed tiuj tuj, la 9an de novembro, denove reakiris la fortikaĵon. La 22an de Przemyôl kapitulacis, sed baldaŭ post tio, la 3an de , la aŭstri-hungara kaj germana armeoj denove enmarŝis la fortikaĵon
 
 **145**
 
@@ -8910,11 +8861,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 proksimiĝis kaj laŭte aldonis: ”ĉe kio ambaŭ rusaj pilotoj
 
-brulmortis.” 
+brulmortis.”
 
 Poste li senvorte iris pluen, ekpensinte, ke la leŭtenanto
 
-Dub estas bruto. 
+Dub estas bruto.
 
 Malantaŭ aliaj vagonoj li renkontiĝis kun Ôvejk kaj klopo-
 
@@ -8922,19 +8873,19 @@ dis lin eviti, ĉar sur la vizaĝo de Ôvejk ĉe ekvido de la ĉefleŭ-
 
 tenanto Lukáô vidiĝis, ke tiu viro havas sur la koro multe da
 
-tio, kion li volas al li diri. 
+tio, kion li volas al li diri.
 
 Ôvejk iris rekte al li: ”Obee mi raportas, kompania kuriero
 
 Ôvejk petas pluajn ordonojn. Obee mi raportas, sinjoro ĉef-
 
-leŭtenanto, ke mi vin jam serĉis en la stabvagono.” 
+leŭtenanto, ke mi vin jam serĉis en la stabvagono.”
 
 ”Aŭdu, Ôvejk,” diris la ĉefleŭtenanto Lukáô per tute forpe-
 
 lanta kaj malamika tono. ”ĉu vi scias, kia estas via nomo? ĉu
 
-vi jam forgesis, kiel mi vin nomis?” 
+vi jam forgesis, kiel mi vin nomis?”
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto, ke tian aferon mi
 
@@ -8944,9 +8895,9 @@ koraŭ antaŭ la milito, ni servis en la kazerno en Karlín kaj tie
 
 estis kolonelo laŭnome Fliedler von Bumerang aŭ tiel simil-
 
-je.” 
+je.”
 
-La ĉefleŭtenanto Lukáô senintence ekridetis al tiu ”similje” 
+La ĉefleŭtenanto Lukáô senintence ekridetis al tiu ”similje”
 
 kaj Ôvejk rakontis plu: ”Obee mi raportas, sinjoro ĉefleŭte-
 
@@ -8960,9 +8911,9 @@ taŭ tio li kondukis al ni sur la korto longan parolon, ke tial ni
 
 ĉiuj devas resti morgaŭ en la kazerno kaj ne moviĝi de tie, por
 
-ke ni povu laŭ la plej supera ordono, en okazo de bezono, 
+ke ni povu laŭ la plej supera ordono, en okazo de bezono,
 
-mortpafi tiun tutan socialistan bandon. Tial ankaŭ soldato, 
+mortpafi tiun tutan socialistan bandon. Tial ankaŭ soldato,
 
 **146**
 
@@ -8976,7 +8927,7 @@ revenos en la kazernon kaj plilongigos al si tion ĝis la sekvan-
 
 ta tago, tiu ke faris ŝtatperfidon, ĉar kiam estos salvoj, tia
 
-ebriega ulo trafos eĉ ne unu homon, kaj eĉ, li pafos en aeron. 
+ebriega ulo trafos eĉ ne unu homon, kaj eĉ, li pafos en aeron.
 
 Do, la unujarulo Fera revenis en la ĉambron kaj diras, ke la
 
@@ -8984,9 +8935,9 @@ kaŭĉuka maljunulaĉo havis tamen nur bonan ideon. Tio es-
 
 tas ja entute vero, morgaŭ ja oni enlasos neniun en la kazer-
 
-non, do plej bone estas tute ne veni, kaj, obee mi raportas, 
+non, do plej bone estas tute ne veni, kaj, obee mi raportas,
 
-sinjoro ĉefleŭtenanto, li tion ankaŭ tute senhezite realigis. 
+sinjoro ĉefleŭtenanto, li tion ankaŭ tute senhezite realigis.
 
 Sed tiu kolonelo Fliedler, tiu estis tia mizera bestio, dio donu
 
@@ -8996,7 +8947,7 @@ iun, kiu de nia regimento aŭdacis eliri el la kazerno, kaj ie ĉe
 
 la Polva Turo li feliĉe renkontis tiun Fera kaj tuj al li tondris:
 
-’Mi montri al vi, mi inŝtrui, mi duople al vi dolĉigi\!’ Li diris al li ankoraŭ pli da tio, kunprenis lin en la kazernon kaj dum la
+’Mi montri al vi, mi inŝtrui, mi duople al vi dolĉigi!’ Li diris al li ankoraŭ pli da tio, kunprenis lin en la kazernon kaj dum la
 
 tuta vojo diris al li diverson malbelan, minacan kaj senĉese lin
 
@@ -9004,9 +8955,9 @@ demandis, kia estas lia nomo. ’Fera, Fera, vi pagi pro tio, mi
 
 ĵoji, ke kapti, mi montri al vi unua maja. Fera, Fera, vi esti
 
-mija, malliberigi, bona malliberigi\!’ Por Fera estis ĉio tio jam
+mija, malliberigi, bona malliberigi!’ Por Fera estis ĉio tio jam
 
-tute egala. Kiel ili iris tiel tra Poæíâ, laŭlonge de ’ĉe Rozvaæil’, Fera saltis en traveturejon, perdiĝis al li en trapasejo kaj malebligis al la kaŭĉuka maljunulaĉo tiun grandan ĝojon, kiam
+tute egala. Kiel ili iris tiel tra Poĝíâ, laŭlonge de ’ĉe Rozvaĝil’, Fera saltis en traveturejon, perdiĝis al li en trapasejo kaj malebligis al la kaŭĉuka maljunulaĉo tiun grandan ĝojon, kiam
 
 tiu sidigos lin en malliberejon. La kolonelon tiom ekscitis, ke
 
@@ -9014,7 +8965,7 @@ Fera al li fuĝis, ke en furiozo li forgesis, kia estas la nomo de
 
 tiu lia deliktulo, li intermiksis tion kaj kiam li venis en la ka-
 
-zernon, li komencis salti ĝisplafone, la plafono estis malalte, 
+zernon, li komencis salti ĝisplafone, la plafono estis malalte,
 
 kaj tiu, kiu havis deĵoron ĉe la bataliono, miris, kial la malju-
 
@@ -9022,7 +8973,7 @@ nulaĉo subite parolas per kripligita ĉeą lingvo kaj krias: ’Ku-
 
 pra maliberigi, Kupra nje malliberigi, Plumba maliberigi, Sta-
 
-na maliberigi\!’ Kaj tiel ĉi la maljunulaĉo turmentis de tago al
+na maliberigi!’ Kaj tiel ĉi la maljunulaĉo turmentis de tago al
 
 **147**
 
@@ -9032,7 +8983,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 tago kaj senĉese demandis, ĉu oni jam kaptis Kupran, Plum-
 
-ban kaj Stanan, kaj li ankaŭ igis vicordigi la tutan regimenton, 
+ban kaj Stanan, kaj li ankaŭ igis vicordigi la tutan regimenton,
 
 sed Feran, pri kiu tio ĝenerale sciiĝis, oni jam lokis al malsa-
 
@@ -9040,7 +8991,7 @@ nulĉambro, ĉar li estis dentista teknikisto. Foje en la gastejo
 
 ’ĉe Bucek’ soldato de nia regimento mortpikis dragonon, kiu
 
-entrudiĝis al lia ulino, kaj tiam oni starigis nin en kvadraton, 
+entrudiĝis al lia ulino, kaj tiam oni starigis nin en kvadraton,
 
 devis eliri ĉiuj, ankaŭ malsanuloj, kiu estis tre malsana, tiun
 
@@ -9054,13 +9005,13 @@ malpermesite ilin trapikadi, ĉar ili estas niaj kamaradoj en la
 
 milito. Certa unujarulo tion tradukis kaj nia kolonelo rigardis
 
-kiel tigro. Unue li laŭris la frontvicon, poste iris malantaŭen, 
+kiel tigro. Unue li laŭris la frontvicon, poste iris malantaŭen,
 
 ĉirkaŭiris la kvadraton kaj subite ekvidis Feran, kiu estis alta
 
 kiel monto, tiel ke, sinjoro ĉefleŭtenanto, estis tio terure ko-
 
-mika, kiam la kolonelo altrenis lin en mezon de la kvadrato. 
+mika, kiam la kolonelo altrenis lin en mezon de la kvadrato.
 
 La unujarulo ĉesis traduki kaj nia kolonelo komencis salti
 
@@ -9070,9 +9021,9 @@ antaŭ Fera kiel hundo atakanta ĉevalon kaj ĉe tio li kriegis:
 
 ke vi Fera, kaj mi ĉjam diri Kupra, Stana, Plumba, li esti Fera
 
-kaj tia bastarto esti Fera, mi inŝtrui vin Plumba, Stana, Kupra, 
+kaj tia bastarto esti Fera, mi inŝtrui vin Plumba, Stana, Kupra,
 
-vi bruto, vi porko, vi Fera\!’ Poste li ŝarĝis lin pro tio per unu-
+vi bruto, vi porko, vi Fera!’ Poste li ŝarĝis lin pro tio per unu-
 
 monata malliberigo, sed proksimume post dek kvar tagoj
 
@@ -9104,17 +9055,17 @@ oro kolonelo, ke ni ne forgesos eĉ post jaroj, ke ni iam havis
 
 kolonelon Fliedler. — ĉu ne estis tio eble tro longa, sinjoro
 
-ĉefleŭtenanto?” 
+ĉefleŭtenanto?”
 
 ”Sciu, Ôvejk,” respondis la ĉefleŭtenanto Lukáô, ”ju pli lon-
 
-ge mi vin aŭskultas, des pli mi venas al la konvinko, ke vi ab-
+ge mi vin aŭskultas, des pli mi venas al la konv, ke vi ab-
 
 solute ne estimas viajn superulojn. La soldato devas paroli pri
 
-siaj iamaj superuloj nur bone ankoraŭ post jaroj.” 
+siaj iamaj superuloj nur bone ankoraŭ post jaroj.”
 
-Vidiĝis, ke la ĉefleŭtenanto Lukáô komencas sin amuzi. 
+Vidiĝis, ke la ĉefleŭtenanto Lukáô komencas sin amuzi.
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto,” enfalis en tion
 
@@ -9146,13 +9097,13 @@ aŭ naskiĝtagon, li igis kuiri leporaĵon kun krema saŭco kaj
 
 knedlikoj por la tuta regimento. Li tiel bonkondutis al la vi-
 
-raro, ke foje, sinjoro ĉefleŭtenanto…” 
+raro, ke foje, sinjoro ĉefleŭtenanto…”
 
 La ĉefleŭtenanto Lukáô milde ekfrapetis Ôvejkon sur la ore-
 
-lo kaj diris per amika tono: ”Iru do jam, fripono, jam lin lasu.” 
+lo kaj diris per amika tono: ”Iru do jam, fripono, jam lin lasu.”
 
-”Laŭ via ordono, sinjoro ĉefleŭtenanto\!” Ôvejk foriris al sia
+”Laŭ via ordono, sinjoro ĉefleŭtenanto!” Ôvejk foriris al sia
 
 vagono, dum antaŭ trajno de la bataliono, tie, kie en vagono
 
@@ -9166,7 +9117,7 @@ estis fermitaj telefonaj aparatoj kaj dratoj, vidiĝis tiu ĉi sce-
 
 no: staris tie soldato garde, ĉar laŭ ordono de la kapitano Ság-
 
-ner ĉio devis esti ’kiel en la fronto’. Gardantaj soldatoj stariĝis do laŭ la valoreco de vagonoj ĉe ambaŭ flankoj kaj de la bataliona kancelario ricevis alvokan kaj respondan signalvorton. 
+ner ĉio devis esti ’kiel en la fronto’. Gardantaj soldatoj stariĝis do laŭ la valoreco de vagonoj ĉe ambaŭ flankoj kaj de la bataliona kancelario ricevis alvokan kaj respondan signalvorton.
 
 Tiutage estis la alvoka signalvorto ”Kepo” kaj la responda
 
@@ -9174,7 +9125,7 @@ Tiutage estis la alvoka signalvorto ”Kepo” kaj la responda
 
 apartenis tion memori, estis polo el Kolomyja, kiu per stranga
 
-hazardo venis al la naŭdekunua regimento. 
+hazardo venis al la naŭdekunua regimento.
 
 Li — kaj scii, kio estas ”kepo”? Sed ĉar li havis en si ĝermon
 
@@ -9188,25 +9139,25 @@ la taga alvoka signalvorto: ”Kafo.” Estis tio kompreneble tre
 
 natura, ĉar la polo el Kolomyja senĉese ankoraŭ rememoris
 
-matenan kaj vesperan kafon en la tendaro Bruck. 
+matenan kaj vesperan kafon en la tendaro Bruck.
 
 Kaj kiam li ekkriegis ankoraŭfoje ”kafo” kaj la leŭtenanto
 
 Dub senĉese al li proksimiĝis, tiam li, ekkonsciinte sian ĵuron
 
-kaj tion, ke li staras garde, terurige ekvokis: ”Halt’\!”, kaj kiam la leŭtenanto Dub faris al li ankoraŭ du paŝojn kaj senĉese
+kaj tion, ke li staras garde, terurige ekvokis: ”Halt’!”, kaj kiam la leŭtenanto Dub faris al li ankoraŭ du paŝojn kaj senĉese
 
 volis scii de li la alvokan signalvorton, li ekcelis kontraŭ li la fusilon, kaj ne sciante perfekte la germanan lingvon, uzis
 
 strangan miksaĵon de la pola kaj germana lingvo, kriante:
 
-”Benòe ôajsn, benòe ôajsn**42**.” 
+”Benòe ôajsn, benòe ôajsn**42**.”
 
 La leŭtenanto Dub ekkomprenis kaj komencis regresi, kri-
 
 42 en fonetika pola-germana transskribo. La soldato volis diri ”Mi pafos”, sed ne regante bone la germanan lingvon, anstataŭ germana
 
-vorto ”schiessen” \(elparolu ”ŝisn”, kun longa ”i”, pafi\) li uzis orto-grafie similan vorton ”scheissen” \(ôajsn, elparolu ŝajsn, feki\). Li do vokis ”Mi fekos” 
+vorto ”schiessen” (elparolu ”ŝisn”, kun longa ”i”, pafi) li uzis orto-grafie similan vorton ”scheissen” (ôajsn, elparolu ŝajsn, feki). Li do vokis ”Mi fekos”
 
 **150**
 
@@ -9216,7 +9167,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ante: ”Komandanto de la gardistaro, komandanto de la gar-
 
-distaro\!” 
+distaro!”
 
 Aperis serĝento Jelínek, kiu alkondukis la polon sur la gar-
 
@@ -9232,7 +9183,7 @@ toj komencis salti kun gameloj kaj ekis terura paniko, fini-
 
 ĝinta per tio, ke la senarmigitan honestan soldaton oni for-
 
-kondukis en vagonon por malliberigitoj. 
+kondukis en vagonon por malliberigitoj.
 
 Sed la leŭtenanto Dub havis certan suspekton kontraŭ
 
@@ -9240,13 +9191,13 @@ Sed la leŭtenanto Dub havis certan suspekton kontraŭ
 
 no, kaj li vetus la kolon, ke li aŭdis lin voki: ”Eksteren kun
 
-gameloj, eksteren kun gameloj.” 
+gameloj, eksteren kun gameloj.”
 
 Post noktomezo la trajno moviĝis al Ladomovce kaj Tre-
 
 biôov, kie matene en la stacio bonvenigis ĝin societo de vete-
 
-ranoj, ĉar tiun ĉi marŝbatalionon ĝi erare konsideris kiel marŝbatalionon de la dekkvara honveda hungara regimento, 
+ranoj, ĉar tiun ĉi marŝbatalionon ĝi erare konsideris kiel marŝbatalionon de la dekkvara honveda hungara regimento,
 
 kiu traveturis la stacion tuj nokte. Certis, ke veteranoj estis
 
@@ -9254,13 +9205,13 @@ duonebriaj, kaj per sia kriego ”Dio gardu la reĝon” vekis el la
 
 dormo la tutan trajnon. Kelkaj naciece pli konsciaj soldatoj
 
-klinis sin el vagonoj kaj respondis al ili: ”Kisu al ni la pugon. 
+klinis sin el vagonoj kaj respondis al ili: ”Kisu al ni la pugon.
 
-Hura\!” 
+Hura!”
 
 Al tio la veteranoj ekkriegis, ke tremis la fenestroj de la
 
-stacidomo: ”Hura\! Hura al la dekkvara regimento\!” 
+stacidomo: ”Hura! Hura al la dekkvara regimento!”
 
 Post kvin minutoj la trajno veturis plu al Humenné. Tie ĉi
 
@@ -9278,7 +9229,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 haste konstruita budo signifis, ke la posedantoj denove reve-
 
-nis. 
+nis.
 
 Kiam poste antaŭ tagmezo estis la stacio Humenné, kie la
 
@@ -9290,7 +9241,7 @@ tempe enrigardi en publikan sekreton, kiel post foriro de ru-
 
 soj la oficejoj traktas la lokan loĝantaron, kiu estis parole kaj
 
-religie parenca al la rusaj soldatoj. 
+religie parenca al la rusaj soldatoj.
 
 Sur la kajo staris aro da arestitaj hungaraj rusoj, ĉirkaŭita
 
@@ -9300,9 +9251,9 @@ kaj kampistoj el la vasta ĉirkaŭaĵo. ĉiuj havis la manojn ma-
 
 lantaŭe, katenitajn per ŝnuro, kaj po duoj estis ligitaj unu al
 
-la alia. Grandparte ili havis la nazon frakasita kaj ŝvelaĵojn sur la kapo, kiel ili tuj post aresto ricevis batadon fare de la ĝendarmoj. 
+la alia. Grandparte ili havis la nazon frakasita kaj ŝvelaĵojn sur la kapo, kiel ili tuj post aresto ricevis batadon fare de la ĝendarmoj.
 
-Iom pli malproksime hungara ĝendarmo ludis per popo. 
+Iom pli malproksime hungara ĝendarmo ludis per popo.
 
 ĉirkaŭ lia maldekstra kruro li ligis ŝnuron, kiun li tenis en la
 
@@ -9314,7 +9265,7 @@ manojn ligitaj malantaŭe, li ne povis leviĝi kaj faris malespe-
 
 rajn provojn turni sin surdorsen por eble tiel povi levi sin de
 
-sur la tero. La ĝendarmo ridis al tio tiel sincere, ke el liaj okuloj fluis larmoj, kaj kiam la popo jam preskaŭ sin levis, li skuis la ŝnuron kaj la popo estis denove sur la nazo. 
+sur la tero. La ĝendarmo ridis al tio tiel sincere, ke el liaj okuloj fluis larmoj, kaj kiam la popo jam preskaŭ sin levis, li skuis la ŝnuron kaj la popo estis denove sur la nazo.
 
 Fine tion ĉesigis ĝendarma oficiro, kiu ordonis, ke la ares-
 
@@ -9322,7 +9273,7 @@ titojn oni provizore, antaŭ ol alveturos trajno, forkonduku en
 
 senhoman budon malantaŭ la stacidomo kaj tie ilin batu kaj
 
-draŝu, ke neniu tion vidu. 
+draŝu, ke neniu tion vidu.
 
 Pri tiu ĉi epizodo oni komencis parolon en la stabvagono
 
@@ -9334,7 +9285,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 kaj ĝenerale eblas diri, ke plejmulto da oficiroj tion malapro-
 
-bis. 
+bis.
 
 Subleŭtenanto Kraus opiniis, ke se tiuj homoj estas ŝtat-
 
@@ -9348,7 +9299,7 @@ tion tiel, ke tiuj hungaraj ĝendarmoj en la stacio Humenné
 
 venĝas la morton de la arkiduko Francisko Ferdinando kaj de
 
-lia edzino. Por aldoni gravecon al siaj vortoj, li diris, ke li abonis revuon \(’Kvarfolion’ de Ôimáâek**43**\) kaj tie en julia nume-ro ankoraŭ antaŭ la milito estis pri tiu atenco skribite, ke la
+lia edzino. Por aldoni gravecon al siaj vortoj, li diris, ke li abonis revuon (’Kvarfolion’ de Ôimáâek**43**) kaj tie en julia nume-ro ankoraŭ antaŭ la milito estis pri tiu atenco skribite, ke la
 
 senekzempla Sarajeva krimo postlasas en homaj koroj longe
 
@@ -9362,7 +9313,7 @@ ke per neniigo de tiuj du vivoj estis detruita feliĉa, ekzem-
 
 plodona familia kunestado kaj el infanoj amataj de ĉiuj estis
 
-faritaj orfoj. 
+faritaj orfoj.
 
 La ĉefleŭtetanto Lukáô ekmurmuris al si, ke ĝendarmoj ĉi
 
@@ -9372,15 +9323,15 @@ tiu kortuŝa artikolo. Subite tute ĉio komencis ŝajni al li abo-
 
 mena kaj li sentis nur bezonon ebriiĝi, por ke forlasu lin sple-
 
-no. Li eliris do el la vagono kaj iris elserĉi Ôvejkon. 
+no. Li eliris do el la vagono kaj iris elserĉi Ôvejkon.
 
 ”Aŭdu, Ôvejk,” li diris al li, ”ĉu vi ne scias pri ia botelo da
 
-konjako? Mi iel ne sentas min bone.” 
+konjako? Mi iel ne sentas min bone.”
 
 ”Tion ĉion kaŭzas veterŝanĝo, obee mi raportas, sinjoro
 
-ĉefleŭtenanto. Povas esti, ke kiam ni estos sur batalkampo, 
+ĉefleŭtenanto. Povas esti, ke kiam ni estos sur batalkampo,
 
 estos al vi ankoraŭ pli malbone. Ju pli la homo malproksimi-
 
@@ -9394,7 +9345,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-li sentas. ¯ardenisto el Straônice**44**, certa Jozefo Kalenda, tiu ankaŭ foje malproksimiĝis de sia hejmo, iris el Straônice al
+li sentas. ardenisto el Straônice**44**, certa Jozefo Kalenda, tiu ankaŭ foje malproksimiĝis de sia hejmo, iris el Straônice al
 
 Vinohrady, haltis en la gastejo ’ĉe la fervojstacio’, tiam estis
 
@@ -9416,17 +9367,17 @@ proksimiĝi de sia hejmo, ĝis li alrampis en la ’Nigran bierfare-
 
 jon’ sur Karolo-placo kaj de tie li iris al Malá Strana en la bierfarejon de la sankta Tomaso, de tie en la gastejon ’ĉe Montág’
 
-kaj ankoraŭ pli supren en la gastejon ’ĉe la Brabanta reĝo’, 
+kaj ankoraŭ pli supren en la gastejon ’ĉe la Brabanta reĝo’,
 
 poste en ’Belan panoramon’, de tie en bierfarejon ĉe la klos-
 
 tro de Strahov**45**. Sed tiam la ŝanĝo de la klimato ĉesis al li jam prosperi. Li venis ĝis la Loretana-placo kaj tie subite kaptis lin tia nostalgio, ke li ĵetegis sin teren, komencis ruliĝi sur trotu-aro kaj kriis: ’Hometoj, mi jam ne iros pluen. Pri la rondiro
 
-ĉirkaŭ la mondo’, pardonu, sinjoro ĉefleŭtenanto, ’mi fajfos’. 
+ĉirkaŭ la mondo’, pardonu, sinjoro ĉefleŭtenanto, ’mi fajfos’.
 
 Sed se vi deziras, sinjoro ĉefleŭtenanto, mi do havigos al vi
 
-konjakon, mi timas nur, ke vi pli frue ne forveturu.” 
+konjakon, mi timas nur, ke vi pli frue ne forveturu.”
 
 La ĉefleŭtenanto Lukáô lin certigis, ke de ĉi tie oni ne vetu-
 
@@ -9452,19 +9403,19 @@ LA BRAVA SOLDATO ÔVEJK
 
 leŭtenanto Lukáô aŭ ke tiu lin sendas, ĉar fakte tio estas mal-
 
-permesita afero. 
+permesita afero.
 
 ”Estu certa, sinjoro ĉefleŭtenanto,” diris Ôvejk, ”ke ĉio tio
 
 estos en ordo, ĉar mi tre ŝatas malpermesitajn aferojn, mi
 
-ĉiam troviĝis en io malpermesita sen tio, ke mi pri tio scius. 
+ĉiam troviĝis en io malpermesita sen tio, ke mi pri tio scius.
 
-Foje en la kazerno en Karlín oni al ni malpermesis…” 
+Foje en la kazerno en Karlín oni al ni malpermesis…”
 
-”Turnu vin — marŝ’\!” interrompis lin la ĉefleŭtenanto Lu-
+”Turnu vin — marŝ’!” interrompis lin la ĉefleŭtenanto Lu-
 
-káô. 
+káô.
 
 Ôvejk iris do malantaŭ la stacidomon, ripetante al si dum-
 
@@ -9472,17 +9423,17 @@ voje ĉiujn detalojn de sia ekspedicio. Ke la konjako devas esti
 
 bongusta, tial li devas unue ĝin gustumi, ke tio estas mal-
 
-permesita, tial li devas esti singarda. 
+permesita, tial li devas esti singarda.
 
-¯uste kiam li turniĝis malantaŭ la kajon, li denove ren-
+uste kiam li turniĝis malantaŭ la kajon, li denove ren-
 
 kontiĝis kun la leŭtenanto Dub. ”Kial vi ĉi tie vagas?” li de-
 
-mandis Ôvejkon. ”ĉu vi min konas?” 
+mandis Ôvejkon. ”ĉu vi mnas?”
 
 ”Obee mi raportas,” respondis Ôvejk, soldatsalutante, ”ke
 
-mi ne deziras ekkoni vin de tiu via malbona flanko.” 
+mi ne deziras ekkoni vin de tiu via malbona flanko.”
 
 La leŭtenanto Dub rigidiĝis pro ektimo, sed Ôvejk staris
 
@@ -9492,13 +9443,13 @@ kaj daŭrigis: ”Obee mi raportas, sinjoro leŭtenanto, ke mi
 
 volas vin ekkoni nur de tiu bona flanko, por ke vi ne aldevi-
 
-gu min ĝis ploro, kiel vi lastfoje diris.” 
+gu min ĝis ploro, kiel vi lastfoje diris.”
 
 Al la leŭtenanto Dub turniĝis la kapo pro tia aroganteco
 
 kaj li kapablis nur ekscitite ekkrii: ”Malaperu, kanajlo, ni an-
 
-koraŭ interparolos\!” 
+koraŭ interparolos!”
 
 Ôvejk foriris malantaŭ la kajon kaj la leŭtenanto Dub, re-
 
@@ -9526,11 +9477,11 @@ to da salamo, tute certe devenanta el ĉevalo. Sed interne la
 
 dorskorboj enhavis diversajn alkoholaĵojn, botelojn da kon-
 
-jako, rumo, sorpa likvoro kaj da aliaj likvoroj kaj brandoj. 
+jako, rumo, sorpa likvoro kaj da aliaj likvoroj kaj brandoj.
 
 Tuj malantaŭ la ŝosefosaĵo estis budo kaj tie propre oni
 
-faris ĉiujn tiujn negocojn pri malpermesitaj trinkaĵoj. 
+faris ĉiujn tiujn negocojn pri malpermesitaj trinkaĵoj.
 
 Soldatoj unue pritraktis tion ĉe dorskorboj kaj tempiobuk-
 
@@ -9540,11 +9491,11 @@ korbo kaj sub kaftano alportis ĝin en la lignan budon, kie la
 
 soldato jam kaŝis ĝin neokulfrape ien en la pantalonon aŭ sub
 
-la jupon. 
+la jupon.
 
 ĉi tien do Ôvejk alcelis siajn paŝojn, dum la leŭtenanto Dub
 
-observis lin per sia detektiva talento de la stacidomo. 
+observis lin per sia detektiva talento de la stacidomo.
 
 Ôvejk haltis tuj ĉe la unua dorskorbo. Unue li elektis bom-
 
@@ -9552,7 +9503,7 @@ bonojn, kiujn li pagis kaj ŝovis en poŝon, ĉe kio tempiobuk-
 
 la sinjoro al li ekflustris: ”Brandon mi ankaŭ havas, via moŝ-
 
-to sinjoro soldato.” 
+to sinjoro soldato.”
 
 La pritrakto estis rapide finita, Ôvejk foriris en la budon kaj
 
@@ -9562,11 +9513,11 @@ malfermis la botelon kaj Ôvejk ne gustumis. Sed pri la konjako
 
 li estis kontenta kaj revenis al la stacidomo, ŝovinte la bote-
 
-lon sub la jakon. 
+lon sub la jakon.
 
 ”Kie vi estis, kanajlo?” baris al li la vojon al la kajo la leŭ-
 
-tenanto Dub. 
+tenanto Dub.
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke mi iris aĉeti al mi
 
@@ -9574,7 +9525,7 @@ bombonojn.” Ôvejk ekpalpis en la poŝon kaj eltiris plenmanon
 
 da malpuraj, polvokovritaj bombonoj: ”Se sinjoro leŭtenan-
 
-to ne abomenus… Mi ilin jam gustumis, ili ne estas malbonaj. 
+to ne abomenus… Mi ilin jam gustumis, ili ne estas malbonaj.
 
 **156**
 
@@ -9584,23 +9535,23 @@ LA BRAVA SOLDATO ÔVEJK
 
 Ili havas agrablan, neordinaran guston, kiel de prunmarme-
 
-lado, sinjoro leŭtenanto.” 
+lado, sinjoro leŭtenanto.”
 
-Sub la jako elstaris rondaj konturoj de la botelo. 
+Sub la jako elstaris rondaj konturoj de la botelo.
 
 La leŭtenanto Dub manfrapetis Ôvejkon sur la jako: ”Kion
 
-vi ĉi tie portas, kanajlo? Eltiru tion eksteren\!” 
+vi ĉi tie portas, kanajlo? Eltiru tion eksteren!”
 
 Ôvejk eltiris botelon kun flaveta enhavo, kun tute klara kaj
 
-legebla etikedo Konjako. 
+legebla etikedo Konjako.
 
 ”Obee mi raportas, sinjoro leŭtenanto,” respondis Ôvejk
 
 kuraĝe, ”ke mi iris pumpi al mi iom da trinkakvo en malple-
 
-nan botelon de konjako. Mi havas ankoraŭ post tiu gulaŝo, 
+nan botelon de konjako. Mi havas ankoraŭ post tiu gulaŝo,
 
 kiun ni havis hieraŭ, teruran soifon. Sed la akvo tie ĉe tiu
 
@@ -9608,15 +9559,15 @@ pumpilo estas iel flava, kiel vi vidas, sinjoro leŭtenanto, tio
 
 estas ŝajne ia feroriĉa akvo. Tiaj akvoj estas tre sanigaj kaj
 
-utilaj.” 
+utilaj.”
 
-”Se vi havas tian soifon, Ôvejk,” diris la leŭtenanto Dub, 
+”Se vi havas tian soifon, Ôvejk,” diris la leŭtenanto Dub,
 
 diable ridetante kaj volante kiom eble plej multe plilongigi
 
 tiun scenon, en kiu Ôvejk plene malvenkos, ”trinku, sed ĝis-
 
-funde. Eltrinku ĉion tion je unu fojo\!” 
+funde. Eltrinku ĉion tion je unu fojo!”
 
 La leŭtenanto Dub jam antaŭe al si elkombinis, kiel Ôvejk
 
@@ -9628,7 +9579,7 @@ ankaŭ al mi, ke mi iom trinku, ankaŭ mi soifas.” Kiel tiu ka-
 
 najlo Ôvejk sendube mienos en tiu por li terura momento, kaj
 
-poste raporto kaj tiel plu. 
+poste raporto kaj tiel plu.
 
 Ôvejk malŝtopis la botelon, metis al la buŝo kaj gluto post
 
@@ -9652,33 +9603,33 @@ LA BRAVA SOLDATO ÔVEJK
 
 roriĉan akvon por siaj somerumantaj gastoj tiumaniere, ke li
 
-ĵetadis uzdifektitajn hufumojn en puton.” 
+ĵetadis uzdifektitajn hufumojn en puton.”
 
-”Mi ’dolĉigos’ al vi uzdifektitajn hufumojn\! Iru montri al
+”Mi ’dolĉigos’ al vi uzdifektitajn hufumojn! Iru montri al
 
-mi la puton, de kie vi havis tiun akvon\!” 
+mi la puton, de kie vi havis tiun akvon!”
 
 ”Tio estas proksime de ĉi tie, sinjoro leŭtenanto, tuj ĉi tie
 
-malantaŭ la ligna budo.” 
+malantaŭ la ligna budo.”
 
-”Iru antaŭe, kanajlo, por ke mi vidu, kiel vi tenas la paŝon\!” 
+”Iru antaŭe, kanajlo, por ke mi vidu, kiel vi tenas la paŝon!”
 
 ”Tio estas vere stranga,” pensis la leŭtenanto Dub. ”Sur tiu
 
-mizera ulo koniĝas absolute nenio\!” 
+mizera ulo koniĝas absolute nenio!”
 
 Ôvejk iris do kiel unua, fordonita al la dia volo, sed senĉe-
 
 se io al li diris, ke puto devas tie esti kaj ankaŭ neniel lin surprizis, ke ĝi tie estis. Estis tie eĉ pumpilo, kaj kiam ili al ĝi
 
-ĝisiris, Ôvejk ekpumpis, fluis el ĝi flaveta akvo, tiel ke li povis solene proklami: ”ĉi tie estas tiu feroriĉa akvo, sinjoro leŭtenanto.” 
+ĝisiris, Ôvejk ekpumpis, fluis el ĝi flaveta akvo, tiel ke li povis solene proklami: ”ĉi tie estas tiu feroriĉa akvo, sinjoro leŭtenanto.”
 
 Konsternita tempiobukla viro proksimiĝis kaj Ôvejk diris al
 
 li germane, ke li alportu glaseton, ke sinjoro leŭtenanto vo-
 
-las trinki. 
+las trinki.
 
 La leŭtenanto Dub el tio tiel plene idiotiĝis, ke li eltrinkis
 
@@ -9688,7 +9639,7 @@ gusto de ĉevala urino kaj sterkakvo, kaj tute stultiĝinta per
 
 tio, kion li travivis, li donis al la tempiobukla judo pro tiu gla-so da akvo kvinkronon, kaj turnante sin al Ôvejk, diris al li:
 
-”Kial vi ĉi tie gapas, formarŝu hejmen.” 
+”Kial vi ĉi tie gapas, formarŝu hejmen.”
 
 Post kvin minutoj Ôvejk aperis en la stabvagono ĉe la ĉef-
 
@@ -9698,7 +9649,7 @@ no kaj ekstere al li sciigis: ”Obee mi raportas, sinjoro ĉefleŭ-
 
 tenanto, ke post kvin, maksimume post dek minutoj mi estos
 
-plene ebriega, sed mi kuŝos en mia vagono, kaj mi petas vin, 
+plene ebriega, sed mi kuŝos en mia vagono, kaj mi petas vin,
 
 **158**
 
@@ -9714,7 +9665,7 @@ nerekonsciiĝos. ĉio estas en ordo, sed kaptis min sinjoro leŭ-
 
 tenanto Dub, mi diris al li, ke tio estas akvo, mi devis do an-
 
-taŭ li eltrinki tiun plenan botelon da konjako por pruvi al li, 
+taŭ li eltrinki tiun plenan botelon da konjako por pruvi al li,
 
 ke temas pri akvo. ĉio estas en ordo, mi malkaŝis nenion, kiel
 
@@ -9726,13 +9677,13 @@ doj komencas iel rigidiĝvibri. Kompreneble, obee mi rapor-
 
 tas, sinjoro ĉefleŭtenanto, ke mi scias drinki, ĉar kun sinjoro
 
-feldkurato Katz…” 
+feldkurato Katz…”
 
-”Foriru, bestio\!” ekvokis la ĉefleŭtenanto Lukáô, sed sen kia
+”Foriru, bestio!” ekvokis la ĉefleŭtenanto Lukáô, sed sen kia
 
 ajn kolero, dum la leŭtenanto Dub iĝis por li je kvindek pro-
 
-centoj pli malsimpatia ol antaŭe. 
+centoj pli malsimpatia ol antaŭe.
 
 Ôvejk singarde enrampis en sian vagonon, kaj ekkuŝante
 
@@ -9740,11 +9691,11 @@ sur sia mantelo kaj dorsosako, diris al la ĉefserĝento-kontisto
 
 kaj al la ceteraj: ”Foje certa homo ebriegiĝis kaj petis, ke oni
 
-lin ne veku…” 
+lin ne veku…”
 
 Post tiuj ĉi vortoj li renversis sin flanken kaj komencis ron-
 
-ki. 
+ki.
 
 Gasoj, kiujn li eligis, ruktante, baldaŭ plenigis la tutan ĉam-
 
@@ -9752,17 +9703,17 @@ bron, tiel ke la kuiristo-okultisto Jurajda, enspirante la atmos-
 
 feron per siaj naztruoj, proklamis: ”Sakra, ĉi tie bonodoras
 
-konjako.” 
+konjako.”
 
 ĉe dismetebla tablo sidis la unujara volontulo Marek, kiu
 
-fine post ĉiuj tiuj turmentoj iĝis bataliona kronikisto. 
+fine post ĉiuj tiuj turmentoj iĝis bataliona kronikisto.
 
 Nun li kunmetis heroajn farojn de la bataliono por provi-
 
 zo kaj vidiĝis, ke tio faras al li grandan ĝojon, tiu rigardo en
 
-estonton. 
+estonton.
 
 La ĉefserĝento-kontisto Vanêk sekvis kun intereso, kiel la
 
@@ -9772,7 +9723,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-unujara volontulo diligente skribas kaj ridas ĉe tio plengorĝe. 
+unujara volontulo diligente skribas kaj ridas ĉe tio plengorĝe.
 
 Tial ankaŭ li leviĝis kaj kaj klinis sin super la unujara volon-
 
@@ -9780,11 +9731,11 @@ tulo, kiu komencis al li klarigi: ”Tio estas ega amuzo skribi
 
 historion de la bataliono por provizo. La ĉefa afero estas, ke
 
-oni procedu sisteme. En ĉio devas esti sistemo.” 
+oni procedu sisteme. En ĉio devas esti sistemo.”
 
 ”Sistema sistemo,” rimarkis la ĉefserĝento-kontisto Vanêk
 
-kun rideto pli malpli malŝata. 
+kun rideto pli malpli malŝata.
 
 ”Jes,” diris malzorge la unujara volontulo, ”sistemizita, sis-
 
@@ -9800,17 +9751,17 @@ venkoj. Ekzemple ĉi tie mi prezentas, kiel nia bataliono, tio
 
 estos proksimume eble post du monatoj, preskaŭ transpaŝos
 
-la rusajn limojn, tre multnombre okupitaj fare de, ni diru, 
+la rusajn limojn, tre multnombre okupitaj fare de, ni diru,
 
 malamikaj regimentoj de la rivero Dono, dum kelke da ma-
 
-lamikaj divizioj ĉirkaŭiras niajn poziciojn. Unuavide ŝajnas, 
+lamikaj divizioj ĉirkaŭiras niajn poziciojn. Unuavide ŝajnas,
 
 ke nian batalionon ne eblas savi, ke ili dishakos nin je nude-
 
 loj, kiam subite la kapitano Ságner donas al nia bataliono tiun
 
-ĉi ordonon: ’Dio ne deziras, ke ni ĉi tie pereu, ni fuĝu\!’ Nia
+ĉi ordonon: ’Dio ne deziras, ke ni ĉi tie pereu, ni fuĝu!’ Nia
 
 bataliono komencas do fuĝi, sed malamika divizio, kiu nin
 
@@ -9820,7 +9771,7 @@ teruro forkuri kaj sen unu ekpafo falas en la manojn de niaj
 
 armeaj rezervoj. Per tio do propre komenciĝos la tuta histo-
 
-rio de nia bataliono. El bagatela okazaĵo, por paroli profete, 
+rio de nia bataliono. El bagatela okazaĵo, por paroli profete,
 
 sinjoro Vanêk, evoluos signifoplenaj aferoj. Nia bataliono pa-
 
@@ -9828,7 +9779,7 @@ sinjoro Vanêk, evoluos signifoplenaj aferoj. Nia bataliono pa-
 
 kis dormantan malamikon, al kio kompreneble necesas uzi
 
-46 \(el la latina\): Nenio ol bona
+46 (el la latina): Nenio ol bona
 
 **160**
 
@@ -9846,7 +9797,7 @@ kon, plenforte puŝegas bajoneton al li en la bruston. Perfek-
 
 te akrigita bajoneto penetras kiel en buteron kaj nur tie aŭ
 
-alie krevas ripo, dormantaj malamikoj skuas la tutan korpon, 
+alie krevas ripo, dormantaj malamikoj skuas la tutan korpon,
 
 por momento malfermegas mirigitajn, sed jam nenion vidan-
 
@@ -9870,11 +9821,11 @@ ta per grenaderoj. Per eksplodo de malamika mino perdos
 
 unu el niaj serĝentoj, ni diru de la dekdua aŭ la dektria kom-
 
-panio, la kapon.” 
+panio, la kapon.”
 
 ”Á propos,” diris la unujara volontulo, ekfrapinte sin ĉe la
 
-kapo, ”mi preskaŭ forgesis, sinjoro ĉefserĝento-kontisto, aŭ, 
+kapo, ”mi preskaŭ forgesis, sinjoro ĉefserĝento-kontisto, aŭ,
 
 dirite laŭ la civitana maniero, sinjoro Vanêk, vi devas havigi
 
@@ -9936,7 +9887,7 @@ Lederer, ĉambelano grafo Bellegarde kaj la plej supera korte-
 
 ga damo, grafino Bombelles, kiu ludas inter la kortegaj damoj
 
-la saman rolon kiel la prostituistino en la bordelo ’ĉe Ôuha’. 
+la saman rolon kiel la prostituistino en la bordelo ’ĉe Ôuha’.
 
 47 filino de la imperiestro Francisko Jozefo la unua kaj la imperiestrino Elizabeta
 
@@ -9954,11 +9905,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 Kiam la nobla gesinjoraro amasiĝis, estis pri tio informita la
 
-imperiestro, kiu poste aperis en akompano de siaj genepoj, 
+imperiestro, kiu poste aperis en akompano de siaj genepoj,
 
 eksidis malantaŭ la tablo kaj tostis honore al nia marŝbatali-
 
-ono. Post li prenis al si la vorton la arkidukino Maria Valeria, 
+ono. Post li prenis al si la vorton la arkidukino Maria Valeria,
 
 kiu laŭdparole mencias precipe vin, sinjoro ĉefserĝento-kon-
 
@@ -9976,25 +9927,25 @@ kvardek du mi havas jam anticipe notita. Ekzemple vi, sinj-
 
 oro Vanêk, falos ĉe rivereto, kaj Baloun, kiu tiel strange al ni
 
-gapas, tiu mortos tute alie ol per kuglo, ŝrapnelo aŭ grenado. 
+gapas, tiu mortos tute alie ol per kuglo, ŝrapnelo aŭ grenado.
 
 Li estos strangolmortigita per lazo, ĵetegita el malamika ae-
 
 roplano ĝuste en tiu momento, kiam li voros tagmanĝon de
 
-sia ĉefleŭtenanto Lukáô.” 
+sia ĉefleŭtenanto Lukáô.”
 
 Baloun regresis, malespere eksvingis la manojn kaj afliktite
 
 diris: ”Sed mi ne kulpas pri mia karaktero. Kiam mi soldatis
 
-ankoraŭ aktive, mi aperis eĉ trifoje ĉe la kuirejo por manĝo, 
+ankoraŭ aktive, mi aperis eĉ trifoje ĉe la kuirejo por manĝo,
 
 dum oni min ne malliberigis. Foje mi havis al la tagmanĝo
 
 trifoje ripon, pro kiu mi sidis en malliberejo la tutan mona-
 
-ton. Okazu la dia volo.” 
+ton. Okazu la dia volo.”
 
 ”Ne timu, Baloun,” konsolis lin la unujara volontulo, ”en
 
@@ -10004,13 +9955,13 @@ raĵo dumvoje de la oficira kuirejo en tranĉeojn. Vi estos no-
 
 mita kune kun ĉiuj viroj de nia bataliono, kiuj falis por gloro
 
-de nia imperio, kiel ekzemple la ĉefserĝento-kontisto Vanêk.” 
+de nia imperio, kiel ekzemple la ĉefserĝento-kontisto Vanêk.”
 
-”Kian morton vi por mi destinas, Marek?” 
+”Kian morton vi por mi destinas, Marek?”
 
 ”Ne rapidu tiom, sinjoro ĉefserĝento-kontisto, tiel rapide
 
-tio ne iras.” 
+tio ne iras.”
 
 **163**
 
@@ -10040,7 +9991,7 @@ kiel por la tuta bataliono, kaj viaj korpopartoj, libere ŝveban-
 
 taj en la aero post ĉiuj tiuj eksplodoj, trarompante ĝin per sia
 
-rotacio, zumas kanton pri glora venko. Mallonge kaj bone, 
+rotacio, zumas kanton pri glora venko. Mallonge kaj bone,
 
 ĉiu ĝisatendos kaj ĉiu el nia bataliono eminentiĝos, tiel ke
 
@@ -10052,27 +10003,27 @@ min helpi, ĉio devas esti farita ĝisfunde, por ke restu post ni
 
 memoro, antaŭ ol, ni diru en la monato septembro, restos el
 
-nia bataliono tute nenio ol tiuj gloraj paĝoj de la historio, kiuj parolos al la koroj de ĉiuj aŭstroj, ke certas, ke ĉiuj tiuj, kiuj jam ne ekvidos sian hejmon, batalis same brave kaj kuraĝe. 
+nia bataliono tute nenio ol tiuj gloraj paĝoj de la historio, kiuj parolos al la koroj de ĉiuj aŭstroj, ke certas, ke ĉiuj tiuj, kiuj jam ne ekvidos sian hejmon, batalis same brave kaj kuraĝe.
 
 Finon de tio mi jam verkis, sciu, sinjoro Vanêk, de tiu nekro-
 
-logo. Honoron al la memoro de falintoj\! Ilia amo al la monar-
+logo. Honoron al la memoro de falintoj! Ilia amo al la monar-
 
 kio estas amo la plej sankta, ĉar ĝi kulminis en morto. Iliajn
 
-nomojn oni elparolu kun estimo, kiel ekzemple Vanêk. Tiuj, 
+nomojn oni elparolu kun estimo, kiel ekzemple Vanêk. Tiuj,
 
 kiujn la perdo de pandonantoj tuŝis la plej senteble, fiere de-
 
 viŝu siajn larmojn, ĉar la falintoj estis herooj de nia batalio-
 
-no.” 
+no.”
 
 La telefonisto Chodounskë kaj la kuiristo Jurajda kun gran-
 
 da intereso aŭskultis parolon de la unujara volontulo pri la
 
-preparata historio de la bataliono. 
+preparata historio de la bataliono.
 
 **164**
 
@@ -10080,7 +10031,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-”Iru pli proksimen, sinjoroj,” diris la unujara volontulo, 
+”Iru pli proksimen, sinjoroj,” diris la unujara volontulo,
 
 foliumante en siaj notoj, ”paĝo 15: ’La telefonisto Chodoun-
 
@@ -10094,7 +10045,7 @@ sia kaŝejo, ne estante jam tri tagojn anstataŭita ĉe telefono. —
 
 La alia, vidante minacantan danĝeron, ke la malamiko povus
 
-ĉirkaŭiri nin de flanko, ĵetegas sin kontraŭ la malamiko kun
+ĉirkaŭiri nin de flanko, ĵetegas sntraŭ la malamiko kun
 
 kaldrono da varmega supo, dissemante ĉe la malamiko teru-
 
@@ -10106,7 +10057,7 @@ disŝirita de mino, la alia sufokita per venenaj gasoj, kiujn oni
 
 defendi. — Ambaŭ pereas kun ekkrio: ’Vivu nia bataliona ko-
 
-mandanto\!’ La ĉefkomandantaro ne povas agi alie ol ĉiutage
+mandanto!’ La ĉefkomandantaro ne povas agi alie ol ĉiutage
 
 alporti al ni dankesprimojn en formo de tagordono, por ke
 
@@ -10136,7 +10087,7 @@ en danĝero, de tiu ekzempla heroeco, amo kaj konfido al siaj
 
 superuloj, ĉar tiuj ĉi virtoj, per kiuj la bataliono elstaras, gvidas ĝin al admirindaj faroj, al bonfarto kaj venko de nia im-
 
-perio. ĉiuj sekvu ĝian ekzemplon\!’ ” 
+perio. ĉiuj sekvu ĝian ekzemplon!’ ”
 
 **165**
 
@@ -10156,7 +10107,7 @@ ce kvazaŭ li elfalus al li el la okulo kaj tiu estis okulfrape simila al Piskor
 
 memmortiganto, kiun oni trovis pendumita kaj tute disfalinta
 
-en lago ĉe Jindæichóv Hradec, ĝuste tuŝapude sub trako, kie
+en lago ĉe Jindĝichóv Hradec, ĝuste tuŝapude sub trako, kie
 
 li ŝajne ĵetegis sin sub trajnon**51**.” Eksonis nova oscedo kaj poste ankoraŭ aldono: ”Poste tiujn ĉiujn ceterajn oni kondam-
 
@@ -10166,7 +10117,7 @@ ler, nudelojn -.” Ôvejk renversis sin sur la alian flankon kaj plu ronkis, du
 
 volontulo ekis interparolo, koncernanta la aferojn en eston-
 
-to. 
+to.
 
 La okultisto Jurajda opiniis, ke kvankam ĉe la unua vido
 
@@ -10188,9 +10139,9 @@ ksis en tion la kapablon de korpa reproduktado ĉe infuzori-
 
 oj, finis per proklamo, ke al lacerto ĉiu homo povas forŝiri la
 
-voston kaj tiu al ĝi denove elkreskos. 
+voston kaj tiu al ĝi denove elkreskos.
 
-51 Jaroslav Haôek verkis haste kaj neniam aŭ preskaŭ neniam kontrolis, kion li skribis; de tie devenas la mencio pri ”ĉiuj kvar”, kvankam en la sama frazo li parolas pri tri nomoj, kaj ankaŭ stranga aserto de Ôvejk, ke iu poste aŭ samtempe sin pendumis, saltis en lagon kaj ĵetegis sin sub trajnon. 
+51 Jaroslav Haôek verkis haste kaj neniam aŭ preskaŭ neniam kontrolis, kion li skribis; de tie devenas la mencio pri ”ĉiuj kvar”, kvankam en la sama frazo li parolas pri tri nomoj, kaj ankaŭ stranga aserto de Ôvejk, ke iu poste aŭ samtempe sin pendumis, saltis en lagon kaj ĵetegis sin sub trajnon.
 
 **166**
 
@@ -10200,7 +10151,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 La telefonisto Chodounskë al tio rimarkis, ke la homoj ĝo-
 
-jus, se ĉe ili estus ebla tio, kio ĉe lacerto koncerne ĝian voston. 
+jus, se ĉe ili estus ebla tio, kio ĉe lacerto koncerne ĝian voston.
 
 Kiel ekzemple, ni diru, en la milito, al iu forŝiros tio la kapon
 
@@ -10210,9 +10161,9 @@ tia afero ege bonvena, ĉar ne ekzistus invalidoj. Tia unu aŭs-
 
 tra soldato, al kiu senĉese kreskus piedoj, manoj, kapoj, estus
 
-certe pli valora ol la tuta brigado. 
+certe pli valora ol la tuta brigado.
 
-La unujara volontulo proklamis, ke en la nuna tempo, 
+La unujara volontulo proklamis, ke en la nuna tempo,
 
 dank’ al evoluinta milita tekniko, eblas la malamikon sukce-
 
@@ -10228,35 +10179,35 @@ talo la aŭstra soldataro, partopreninta tiun ĉi batalon, tri-
 
 obliĝus, dekobliĝus, al ĉiu piedo evoluiĝus nova, freŝa infan-
 
-teriano. 
+teriano.
 
 ”Se aŭdus vin Ôvejk,” rimarkis la ĉefserĝento-kontisto Va-
 
-nêk, ”tiu dirus al ni almenaŭ ian ekzemplon.” 
+nêk, ”tiu dirus al ni almenaŭ ian ekzemplon.”
 
 Ôvejk reagis al sia nomo, ekmurmuris: ”ĉi tie,” kaj denove
 
-plu ronkis, elbuŝiginte tiun ĉi esprimon de soldata disciplino. 
+plu ronkis, elbuŝiginte tiun ĉi esprimon de soldata disciplino.
 
 Inter duone malfermita pordo de la vagono aperis la kapo
 
-de la leŭtenanto Dub. 
+de la leŭtenanto Dub.
 
-”ĉu estas ĉi tie Ôvejk?” li demandis. 
+”ĉu estas ĉi tie Ôvejk?” li demandis.
 
 ”Li dormas, obee mi raportas, sinjoro leŭtenanto,” respon-
 
-dis la unujara volontulo. 
+dis la unujara volontulo.
 
 ”Se mi pri li demandas, unujara volontulo, vi devas tuj salti
 
-kaj alvoki lin.” 
+kaj alvoki lin.”
 
-”Tio ne eblas, sinjoro leŭtenanto, li dormas.” 
+”Tio ne eblas, sinjoro leŭtenanto, li dormas.”
 
-”Veku lin do\! Mi miras, ke tio tuj ne venis al vi en la men-
+”Veku lin do! Mi miras, ke tio tuj ne venis al vi en la men-
 
-son, unujara volontulo\! Vi devas ja montri pli da komplezo al
+son, unujara volontulo! Vi devas ja montri pli da komplezo al
 
 **167**
 
@@ -10264,29 +10215,29 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-viaj superuloj\! ĉu vi min ankoraŭ ne konas? — Sed kiam vi
+viaj superuloj! ĉu vi min ankoraŭ ne konas? — Sed kiam vi
 
-min ekkonos. -” 
+min ekkonos. -”
 
-La unujara volontulo komencis veki Ôvejkon. 
+La unujara volontulo komencis veki Ôvejkon.
 
-”Ôvejk, brulas, leviĝu\!” 
+”Ôvejk, brulas, leviĝu!”
 
 ”Kiam tiame brulis la muelejoj de Odkolek,” ekmurmuris
 
 Ôvejk, turnante sin denove al la alia flanko, ”alveturis fajrobri-
 
-gadanoj eĉ el Vysoâany…” 
+gadanoj eĉ el Vysoâany…”
 
 ”Bonvolu vidi,” diris la unujara volontulo afable al la leŭ-
 
-tenanto Dub, ”ke mi lin vekas, sed ke tio ne eblas.” 
+tenanto Dub, ”ke mi lin vekas, sed ke tio ne eblas.”
 
 La leŭtenanto Dub ekkoleris. ”Kia estas via nomo, unuja-
 
 ra volontulo? — ĉu Marek? — Aha, vi estas do tiu unujara
 
-volontulo Marek, kiu senĉese sidis en malliberejo, ĉu jes?” 
+volontulo Marek, kiu senĉese sidis en malliberejo, ĉu jes?”
 
 ”Jes, sinjoro leŭtenanto. Mi trapasis unujaran kurson, tiel
 
@@ -10296,7 +10247,7 @@ mia liberlaso de la divizia juĝejo, kie montriĝis mia senkulpe-
 
 co, mi estis nomumita bataliona kronikisto kun konservita
 
-rango de unujara volontulo.” 
+rango de unujara volontulo.”
 
 ”Tio vi ne estos longe,” kriegis la leŭtenanto Dub, tute ruĝa
 
@@ -10304,25 +10255,25 @@ en la vizaĝo; tiu transiro de unu koloro en la alian faris impre-
 
 son, ke la vangoj ŝvelas al li post vangobatoj, ”mi tion aran-
 
-ĝos\!” . 
+ĝos!” .
 
 ”Mi petas, sinjoro leŭtenanto, ke mi estu alkondukita al
 
-raporto,” serioze diris la unujara volontulo. 
+raporto,” serioze diris la unujara volontulo.
 
 ”Ne ludu kun mi,” diris la leŭtenanto Dub. ”Mi montros al
 
-vi raporton\! Ni ankoraŭ renkontiĝos, sed poste tio terure vin
+vi raporton! Ni ankoraŭ renkontiĝos, sed poste tio terure vin
 
 ĉagrenos, ĉar vi min ekkonos, se nun vi min ankoraŭ ne ko-
 
-nas\!” 
+nas!”
 
 La leŭtenanto Dub kolere foriris de la vagono, en ekscitiĝo
 
 forgesinte je Ôvejk, kvankam antaŭ momento li havis la plej
 
-bonan intencon alvoki Ôvejkon kaj diri al li: ”Elspiru sur min\!” 
+bonan intencon alvoki Ôvejkon kaj diri al li: ”Elspiru sur min!”
 
 **168**
 
@@ -10340,25 +10291,25 @@ horo revenis al la vagono, Ôvejk jam maldormis kaj post al-
 
 voko de la leŭtenanto Dub elsaltis el la vagono kiel kapreo-
 
-lino. 
+lino.
 
-”Elspiru sur min\!” alkriegis lin la leŭtenanto Dub. 
+”Elspiru sur min!” alkriegis lin la leŭtenanto Dub.
 
 Ôvejk elspiris sur lin la tutan stokon de sia pulmo, kiel se
 
 varma vento kunportas al kampoj odoron de alkohola disti-
 
-lejo. 
+lejo.
 
-”Kion oni el vi flarsentas, ulo?” 
+”Kion oni el vi flarsentas, ulo?”
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke el mi oni flarsen-
 
-tas rumon.” 
+tas rumon.”
 
-”Vidu do, knabeto\!” venke ekvokis la leŭtenanto Dub. ”Fi-
+”Vidu do, knabeto!” venke ekvokis la leŭtenanto Dub. ”Fi-
 
-ne mi vin kaptis\!” 
+ne mi vin kaptis!”
 
 ”Jes, sinjoro leŭtenanto,” diris Ôvejk sen kia ajn signo de
 
@@ -10368,11 +10319,11 @@ eltrinkis rumon. Sed se, sinjoro leŭtenanto, ekzistas nova or-
 
 dono, ke unue oni trinku kafon kaj nur poste rumon, mi pe-
 
-tas pardonon, venontfoje tio jam ne okazos.” 
+tas pardonon, venontfoje tio jam ne okazos.”
 
 ”Kaj kial vi dormaĉis, kiam mi estis antaŭ duonhoro ĉe la
 
-vagono? Oni ja ne povis vin veki.” 
+vagono? Oni ja ne povis vin veki.”
 
 ”Obee mi raportas, sinjoro leŭtenanto, la tutan nokton mi
 
@@ -10394,7 +10345,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-venu al ni helpi soldataroj de norde kaj poste ankaŭ de sude, 
+venu al ni helpi soldataroj de norde kaj poste ankaŭ de sude,
 
 de Osek. Tion oni legis al ni en tagordono, ke kiel helpo mar-
 
@@ -10406,7 +10357,7 @@ armea korpuso. Sed tio estis vana; kiam ni jam preskaŭ ven-
 
 kis, oni trumpetis finon kaj venkis tiuj kun blankaj ruban-
 
-doj**52**.” 
+doj**52**.”
 
 La leŭtenanto Dub ne diris eĉ unu vorton kaj en embara-
 
@@ -10414,7 +10365,7 @@ soj foriris skuante la kapon, sed de la stabvagono li tuj reve-
 
 nis kaj diris al Ôvejk: ”Memoru ĉiuj, ke venos la tempo, kiam
 
-vi antaŭ mi plorblekos\!” Li ne kapablis elpensi ion pli kaj for-
+vi antaŭ mi plorblekos!” Li ne kapablis elpensi ion pli kaj for-
 
 iris denove al la stabvagono, kie la kapitano Ságner ĝuste ek-
 
@@ -10430,13 +10381,13 @@ barasita, kun larĝe malfermitaj okuloj, senkulpigante sin, ke
 
 li volis kunpreni tion en tranĉeojn kontraŭ ŝrapneloj, ke li
 
-volis sin sekurigi. 
+volis sin sekurigi.
 
 Tion eluzis la leŭtenanto Dub al longa prediko pri tio, kiel
 
 la soldato kondutu, kiuj estas liaj devoj al la patrujo kaj la
 
-monarko, la plej alta komandanto kaj la plej alta militestro. 
+monarko, la plej alta komandanto kaj la plej alta militestro.
 
 Sed se ĉe la bataliono ekzistas tiaj elementoj, ke tiujn nece-
 
@@ -10456,7 +10407,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 tion ne faru, tio estas de vi stultaĵo, tiun pordeton redonu
 
-denove reen, kie vi ĝin prenis, kaj iru al ĉiuj diabloj\!” 
+denove reen, kie vi ĝin prenis, kaj iru al ĉiuj diabloj!”
 
 La leŭtenanto Dub ekmordetis la lipojn kaj decidiĝis, ke
 
@@ -10472,11 +10423,11 @@ soldaton, kiu tie sidis kaj legis gazeton, malantaŭ kiu li estis
 
 tiel kaŝita, ke oni ne vidis liajn ŝultrosignojn. Li ekkriis al li
 
-”Atenton\!”, ĉar temis pri viro de hungara regimento, kiu es-
+”Atenton!”, ĉar temis pri viro de hungara regimento, kiu es-
 
-tis en Humenné kiel rezervo. 
+tis en Humenné kiel rezervo.
 
-La leŭtenanto Dub lin ekskuis, la hungara soldato leviĝis, 
+La leŭtenanto Dub lin ekskuis, la hungara soldato leviĝis,
 
 eĉ ne trovis konvena soldatsaluti, li ŝovis nur gazeton en po-
 
@@ -10488,17 +10439,17 @@ kaj poste, turninte sin, moke levis la manojn supren, por ke
 
 la leŭtenanto Dub ne estu eĉ momenton en duboj, ke la sol-
 
-dato tuj ekkonis lian apartenecon al unu el ĉeąj regimentoj. 
+dato tuj ekkonis lian apartenecon al unu el ĉeąj regimentoj.
 
 Poste la hungaro tuj trote malaperis inter proksimaj kabanoj
 
-malantaŭ la ŝoseo. 
+malantaŭ la ŝoseo.
 
 Por iel montri, ke kun tiu ĉi sceno li havas nenion komu-
 
 nan, la leŭtenanto Dub majeste eniris malgrandan butikon ĉe
 
-la ŝoseo, konfuze montris al granda bobeno da nigraj fadenoj, 
+la ŝoseo, konfuze montris al granda bobeno da nigraj fadenoj,
 
 ŝovis ilin en poŝon, pagis kaj revenis en la stabvagonon, kie
 
@@ -10506,11 +10457,11 @@ de la bataliona kuriero li igis alvoki sian servosoldaton Ku-
 
 nert, al tiu transdonis la fadenojn kaj diris: ”Mi devas pri ĉio
 
-zorgi, mi scias, ke fadenojn vi forgesis.” 
+zorgi, mi scias, ke fadenojn vi forgesis.”
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke ni havas da ili la
 
-tutan dekduon.” 
+tutan dekduon.”
 
 **171**
 
@@ -10520,7 +10471,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Montru do ilin al mi tuj, kaj zorgu tuj esti ĉi tie kun ili. ĉu
 
-vi opinias, ke mi al vi kredas?” 
+vi opinias, ke mi al vi kredas?”
 
 Kiam Kunert revenis kun la tuta skatolo da blankaj kaj ni-
 
@@ -10528,7 +10479,7 @@ graj fadenoj, la leŭtenanto Dub diris: ”Jen, ulo, rigardu bone
 
 tiujn fadenojn, kiujn vi alportis, kaj tiun mian grandan bobe-
 
-non\! Vidu, kiel viaj fadenoj estas maldikaj, kiel ili facile ŝiri-
+non! Vidu, kiel viaj fadenoj estas maldikaj, kiel ili facile ŝiri-
 
 ĝas, kaj nun rigardu tiujn miajn, kia tio estas peno ilin traŝi-
 
@@ -10540,9 +10491,9 @@ denojn, atendu miajn ordonojn kaj memoru, venontfoje faru
 
 nenion memstare laŭ via kapo kaj venu min demandi, kiam
 
-vi ion aĉetas\! Ne deziru min ekkoni, vi min ankoraŭ ne konas
+vi ion aĉetas! Ne deziru min ekkoni, vi min ankoraŭ ne konas
 
-de tiu malbona flanko.” 
+de tiu malbona flanko.”
 
 Kiam Kunert foriris, la leŭtenanto Dub turnis sin al la ĉef-
 
@@ -10558,19 +10509,19 @@ da rostitaj junaj anseroj, kaj ĉu vi kredus, ke li ilin eĉ ne tuŝis, kaj ĉar
 
 malbonodoriĝi. Tion kompreneble faras disciplino. La ofici-
 
-ro devas la soldatojn eduki.” 
+ro devas la soldatojn eduki.”
 
 La ĉefleŭtenanto Lukáô, por montri, ke li ne aŭskultas ba-
 
 biladon de tiu idioto, turnis sin al fenestro kaj diris: ”Jes, ho-
 
-diaŭ estas merkredo.” 
+diaŭ estas merkredo.”
 
 La leŭtenanto Dub, sentante bezonon almenaŭ pri io pa-
 
 roli, turnis sin do al la kapitano Ságner, al kiu li diris per pure familiara, kamaradeca tono: ”Aŭdu, kapitano Ságner, kion vi
 
-opinias…” 
+opinias…”
 
 **172**
 
@@ -10580,15 +10531,14 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Pardonu, momenton,” diris la kapitano Ságner kaj eliris el
 
-la vagono. 
+la vagono.
 
-\*
 
-Intertempe Ôvejk rakontis al si kun Kunert pri lia sinjoro. 
+Intertempe Ôvejk rakontis al si kun Kunert pri lia sinjoro.
 
-”Kie vi estis dum la tuta tempo, ke oni vin eĉ ne vidis?” 
+”Kie vi estis dum la tuta tempo, ke oni vin eĉ ne vidis?”
 
-demandis Ôvejk. 
+demandis Ôvejk.
 
 ”Vi ja scias,” diris Kunert. ”Tiu mia maljuna frenezulo pre-
 
@@ -10598,7 +10548,7 @@ si kaj demandas pri aferoj, kiuj min ne tuŝas. Li min ankaŭ
 
 demandis, ĉu mi estas via kamarado, kaj mi al li diris, ke ni
 
-vidas unu la alian nur malofte.” 
+vidas unu la alian nur malofte.”
 
 ”Tio estas tre bela de li, ke li pri mi demandas. Mi amas lin
 
@@ -10606,13 +10556,13 @@ tre, tiun vian sinjoron leŭtenanton. Li estas tia bonkora, bo-
 
 nanima kaj al la soldatoj li kondutas kiel vera patro,” diris
 
-Ôvejk serioze. 
+Ôvejk serioze.
 
 ”Ej, tio estas nur via opinio,” kontraŭstaris Kunert, ”li es-
 
 tas vera bestio kaj stulta kiel merdo. Mi havas lin kiel oston
 
-en la gorĝo, li senĉese min nur ĉikanas.” 
+en la gorĝo, li senĉese min nur ĉikanas.”
 
 ”Sed ne diru,” miris Ôvejk, ”mi ja opiniis, ke li estas vere tia
 
@@ -10628,7 +10578,7 @@ kolonelo Schröder, kiam tiu parolis pri sia sinjoro, li ne no-
 
 mis lin alie ol urinaĉiĝinta kanajlo kaj fetora fetorulo. Tio de-
 
-venas de tio, ke ĉiu servosoldato ellernis tion de sia sinjoro. 
+venas de tio, ke ĉiu servosoldato ellernis tion de sia sinjoro.
 
 Se la sinjoro mem ne insultus, la servosoldato tion post li ne
 
@@ -10670,15 +10620,15 @@ al mi plaĉas, se iu estas rekte de ie. — Kaj kie vi tie loĝas? ĉu
 
 sub la arkadoj? Tio estas bone, somere estas tie almenaŭ mal-
 
-varmete. ĉu vi havas familion? — ĉu edzinon kaj tri infanojn? 
+varmete. ĉu vi havas familion? — ĉu edzinon kaj tri infanojn?
 
 — Vi estas feliĉulo, kamarado, ekzistas almenaŭ iu, kiu vin
 
-priploros, kiel ĉiam dum prediko diris mia feldkurato Katz, 
+priploros, kiel ĉiam dum prediko diris mia feldkurato Katz,
 
 kaj tio estas ankaŭ vero, ĉar foje mi aŭdis parolon de iu ko-
 
-lonelo al rezervuloj en Bruck, kiuj veturis de tie en Serbion, 
+lonelo al rezervuloj en Bruck, kiuj veturis de tie en Serbion,
 
 ke soldato, kiu postlasas hejme familion kaj falos sur batal-
 
@@ -10688,7 +10638,7 @@ tion propre tiel ĉi: ’Kjam morta, de familja morta, famili rilat
 
 rompi, li esti heroa, ĉar oferi sja viva por grant familja, por
 
-patruja.’ — ĉu vi loĝas en la kvara etaĝo? — Ke en la teretaĝo? 
+patruja.’ — ĉu vi loĝas en la kvara etaĝo? — Ke en la teretaĝo?
 
 — Vi pravas, nun mi rememoris, ke tie, sur la placo en Bu-
 
@@ -10706,21 +10656,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 ankaŭ pri li, diru al li tute senĝene, ke mi pri li parolis, kaj ne forgesu al li diri, kiel bele mi pri li parolis, ke nur malfote mi renkontis tian oficiron, kiu kondutus tiel amike kaj patrece
 
-kiel li. Ne forgesu al li diri, ke li ŝajnas al mi esti tre legosperta, kaj sciigu al li ankaŭ, ke li estas tre inteligenta. Diru al li an-kaŭ, ke mi vin admonis, ke vi bonkondutu kaj faru al li ĉion, 
+kiel li. Ne forgesu al li diri, ke li ŝajnas al mi esti tre legosperta, kaj sciigu al li ankaŭ, ke li estas tre inteligenta. Diru al li an-kaŭ, ke mi vin admonis, ke vi bonkondutu kaj faru al li ĉion,
 
-kion vi vidos en liaj okuloj. ĉu vi tion memoras?” 
+kion vi vidos en liaj okuloj. ĉu vi tion memoras?”
 
 Ôvejk eniris la vagonon kaj Kunert kun la fadenoj foriris
 
-denove en sian kuŝejon. 
+denove en sian kuŝejon.
 
 Post kvaronhoro oni veturis plu al Vyôné Âabiny tra for-
 
 bruligitaj vilaĝoj Brestov kaj Radvañ. Vidiĝis, ke ĉi tie tio jam
 
-pliakriĝis. 
+pliakriĝis.
 
-Karpataj herbejoj kaj deklivoj estis disfositaj de tranĉeoj, 
+Karpataj herbejoj kaj deklivoj estis disfositaj de tranĉeoj,
 
 trenantaj sin de valo al valo laŭlonge de trako kun novaj ŝpa-
 
@@ -10730,31 +10680,31 @@ tojn enfluantajn Laborec, kies supran fluon sekvis la fervoja
 
 linio, vidiĝis novaj montoj kaj duonbruligitaj traboj de iamaj
 
-pontaj transirejoj. 
+pontaj transirejoj.
 
 La tuta valo direkte al Medzilaborce estis disfosita kaj
 
-transversita, kvazaŭ ĉi tie laborus armeoj de grandegaj talpoj. 
+transversita, kvazaŭ ĉi tie laborus armeoj de grandegaj talpoj.
 
 La ŝoseo malantaŭ rivereto estis disfosita, disbatita kaj apu-
 
-de vidiĝis tretdifektitaj areoj, kiel ruliĝis la soldataroj. 
+de vidiĝis tretdifektitaj areoj, kiel ruliĝis la soldataroj.
 
 Akvofluoj kaj pluvoj malkovris sur rando de postgrenadaj
 
-truoj disŝiritajn, ĉifonitajn aŭstrajn uniformojn. 
+truoj disŝiritajn, ĉifonitajn aŭstrajn uniformojn.
 
 Malantaŭ Vyôné Âabiny inter kunplektitaj branĉoj de mal-
 
 juna duonbruligita pinarbo pendis boto de aŭstra infanteri-
 
-ano kun peco da tibio. 
+ano kun peco da tibio.
 
 Oni vidis arbarojn sen foliaro, sen pinglaro, kiel furiozis ĉi
 
 tie artileria fajro, arbojn sen pintoj kaj dispafitajn solkaba-
 
-nojn. 
+nojn.
 
 **175**
 
@@ -10772,7 +10722,7 @@ blankiĝis sur altaĵetoj eĉ sur detruitaj deklivoj, prepari sin
 
 malrapide, sed certe por la kampo de gloro, kiu finiĝas per
 
-kotkovrita aŭstra kepo, flirtanta sur blanka kruco. 
+kotkovrita aŭstra kepo, flirtanta sur blanka kruco.
 
 Germanoj de Kaôperské Hory, kiuj sidis en malantaŭaj va-
 
@@ -10780,41 +10730,41 @@ gonoj kaj ankoraŭ en Milovice ĉe enveturo en la stacion krie-
 
 gis: ”Mi revenos, kiam reen mi revenos…”, ekde Humenné
 
-tute silentiĝis, ĉar ili ekkonsciis, ke multaj el tiuj, kies kepoj estas sur tomboj, kantis la samon pri tio, kiel tio estos bela, 
+tute silentiĝis, ĉar ili ekkonsciis, ke multaj el tiuj, kies kepoj estas sur tomboj, kantis la samon pri tio, kiel tio estos bela,
 
 kiam ili denove revenos kaj restos senĉese hejme kun sia
 
-amatino. 
+amatino.
 
 En Medzilaborce oni haltis malantaŭ dispafita, forbruligita
 
 stacidomo, el kies fulgokovritaj vandoj elstaris torditaj fertra-
 
-boj. 
+boj.
 
 Nova longa ligna barako, rapide konstruita anstataŭ la for-
 
 bruligita stacidomo, estis kovrita per afiŝoj en ĉiuj lingvoj:
 
-”Subskripciu la aŭstran militan monprunton\!” 
+”Subskripciu la aŭstran militan monprunton!”
 
-En alia longa barako estis ankaŭ stacio de la Ruĝa Kruco, 
+En alia longa barako estis ankaŭ stacio de la Ruĝa Kruco,
 
 de kie eliris du flegistinoj kun dika soldatkuracisto kaj plen-
 
 gorĝe ridis al la kuracisto, kiu imitis diversajn bestajn sonojn
 
-por ilin gajigi kaj sensukcese gruntis. 
+por ilin gajigi kaj sensukcese gruntis.
 
 Sub fervoja taluso, en valo de rivereto, kuŝis disbatita mi-
 
-litkuirejo. Montrante al ĝi, Ôvejk diris al Baloun: ”Rigardu, 
+litkuirejo. Montrante al ĝi, Ôvejk diris al Baloun: ”Rigardu,
 
 Baloun, kio nin atendas en la proksima estonto. Oni ĝuste
 
 preparis sin por disdoni manĝon, en tiu momento alflugis
 
-grenado kaj tiel ĉi ĝin ruinigis.” 
+grenado kaj tiel ĉi ĝin ruinigis.”
 
 ”Tio estas terura,” ekĝemis Baloun, ”mi nenim ekpensis, ke
 
@@ -10830,23 +10780,23 @@ dum la lasta vintro mi, bastardo, aĉetis en Budêjovice ledajn
 
 gantojn. Jam ne sufiĉis al mi porti sur miaj kampistaj manaĉoj
 
-malnovajn plektitajn gantojn, kiajn portis la mortinto patro, 
+malnovajn plektitajn gantojn, kiajn portis la mortinto patro,
 
 mi senĉese malsanis nur je tiuj ledaj por urbanoj. — La patro
 
 voris trempitan pizon, kaj mi pizon eĉ vidi ne volis, nur kort-
 
-birdaron. Eĉ ordinara porkaĵo ne bonodoris al mi sub la nazo; 
+birdaron. Eĉ ordinara porkaĵo ne bonodoris al mi sub la nazo;
 
 la mastrino devis ĝin por mi prepari, dio min ne punu, sur
 
-biero.” 
+biero.”
 
 Baloun en absoluta senespero komencis ĝeneralan konfe-
 
 son: ”Mi blasfemis kontraŭ diaj sanktuloj kaj sanktulinoj, en
 
-gastejo ĉe Malôe kaj en Dolní Záhájí mi batregalis vikarion. 
+gastejo ĉe Malôe kaj en Dolní Záhájí mi batregalis vikarion.
 
 Je Dio mi ankoraŭ kredis, tion mi nemalkonfesas, sed pri
 
@@ -10858,13 +10808,13 @@ mia malmoraleco. Kiom da tiaj malmoralaĵoj mi faris en la
 
 muelĉambro, kiel ofte mi insultis mian bopatron, maldolĉi-
 
-gis al li la maljunaĝon kaj ĉikanis mian edzinon\!” 
+gis al li la maljunaĝon kaj ĉikanis mian edzinon!”
 
-Ôvejk ekpensis: ”Vi estas ja muelisto, ĉu? — Vi do povis scii, 
+Ôvejk ekpensis: ”Vi estas ja muelisto, ĉu? — Vi do povis scii,
 
 ke la muelŝtonoj de Dio muelas malrapide, sed certe, se pro
 
-vi eksplodis tiu mondmilito.” 
+vi eksplodis tiu mondmilito.”
 
 La unujara volontulo enmiksis sin en la interparolon: ”Per
 
@@ -10878,7 +10828,7 @@ katolika, havante la plej brilan ekzemplon en nia la plej su-
 
 pera soldatestro. Kiel vi propre povas aŭdaci kun veneno de
 
-malamo al iuj diaj sanktuloj kaj sanktulinoj iri en batalon, 
+malamo al iuj diaj sanktuloj kaj sanktulinoj iri en batalon,
 
 kiam de la ministerio de milito estis ĉe garnizonaj komandej-
 
@@ -10906,13 +10856,13 @@ vidante tion necesa, kiam ĉirkaŭigitaj de ĉiuj flankoj ili klo-
 
 podis savi ne eble sin el egoista vidpunkto, sed sin kiel mem-
 
-bron de la armeo, por ke poste, kiam ili revenos el kaptiteco, 
+bron de la armeo, por ke poste, kiam ili revenos el kaptiteco,
 
-ili povus diri al sinjoro imperiestro: ni estas ĉi tie kaj atendas pluan ordonon\! ĉu vi do tion komprenas, Baloun?” 
+ili povus diri al sinjoro imperiestro: ni estas ĉi tie kaj atendas pluan ordonon! ĉu vi do tion komprenas, Baloun?”
 
 ”Mi ne komprenas,” ekĝemis Baloun, ”mi havas la kapon
 
-stulta. Al mi oni ripetu ĉion dekfoje.” 
+stulta. Al mi oni ripetu ĉion dekfoje.”
 
 ”ĉu vi ne dekalkulos iom?” demandis Ôvejk, ”mi do klari-
 
@@ -10920,7 +10870,7 @@ gos al vi tion ankoraŭfoje. ĉi tie vi aŭdis, ke vi devas teni vin
 
 laŭ tio, kia spirito regas en la armeo, ke vi kredos je sankta
 
-Jozefo, kaj se vi estos ĉirkaŭigita de malamikoj, ke vi rigardos, 
+Jozefo, kaj se vi estos ĉirkaŭigita de malamikoj, ke vi rigardos,
 
 kie la ĉarpentisto lasis truon, por ke vi savu vin por sinjoro
 
@@ -10974,7 +10924,7 @@ laĵo. Sed mi esperas, Baloun, ke tion ĉi vi ne faris en la mu-
 
 elĉambro kaj ke vi diros al ni ion pli realan, ian veran malmo-
 
-ralaĵon.” 
+ralaĵon.”
 
 Sciiĝis, ke Baloun laŭ sia proklamo faris malmoralaĵojn en
 
@@ -10988,7 +10938,7 @@ demandis lin, ĉu li vere faris nenion kun la kampistinoj sur
 
 sakegoj da faruno en la muelĉambro, al kio Baloun respon-
 
-dis, balancante la manojn: ”Por tio mi estis tro stulta.” 
+dis, balancante la manojn: ”Por tio mi estis tro stulta.”
 
 Al la viraro estis anoncite, ke la tagmanĝo estos malantaŭ
 
@@ -11000,7 +10950,7 @@ paniaj kuiristoj kaj leŭtenanto Cajthaml, kiu zorgis pri mast-
 
 rumado de la bataliono. Al ili oni destinis kvar virojn kiel
 
-patrolon. 
+patrolon.
 
 Ili revenis eĉ ne post duonhoro kun tri porkoj, alligitaj ĉe
 
@@ -11016,7 +10966,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ko de la Ruĝa Kruco, kiu fevore ion klarigadis al la leŭtenanto
 
-Cajthaml, levetanta la ŝultrojn. 
+Cajthaml, levetanta la ŝultrojn.
 
 Antaŭ la stabvagono la tuta konflikto kulminis, kiam la sol-
 
@@ -11024,11 +10974,11 @@ datkuracisto vidalvide al la kapitano Ságner komencis aser-
 
 ti, ke tiuj porkoj estas destinitaj por hospitalo de la Ruĝa Kru-
 
-co, pri kio aliflanke volis nenion scii la kampisto kaj postulis, 
+co, pri kio aliflanke volis nenion scii la kampisto kaj postulis,
 
 ke la porkoj estu al li redonitaj, ke tio estas lia lasta posedaĵo kaj ke li nepre ne povas vendi ilin por la prezo, kiun oni al li
 
-elpagis. 
+elpagis.
 
 ĉe tio li ŝovis la monon, kiun li havis enmane pro la por-
 
@@ -11036,7 +10986,7 @@ koj, al la kapitano Ságner, kiun la kampistino tenis je la alia
 
 mano; ŝi kisis ĝin al li kun humileco, per kiu tiu ĉi regiono
 
-ĉiam elstaris. 
+ĉiam elstaris.
 
 La kapitano Ságner estis el tio tute timigita kaj momenton
 
@@ -11044,7 +10994,7 @@ daŭris, ol li sukcesis forpuŝi la maljunan kampistinon. Sed tio
 
 neniel helpis, anstataŭ ŝi venis junaj laborfortoj, kiuj komen-
 
-cis denove suĉi liajn manojn. 
+cis denove suĉi liajn manojn.
 
 Sed la leŭtenanto Cajthaml raportis per pure komerca to-
 
@@ -11056,7 +11006,7 @@ pagite tute ĝuste laŭ la lasta ordono de la divizio numero
 
 porkojn en lokoj netuŝitaj de la milito ne pli multekoste ol je
 
-du kronoj kaj dekses heleroj por unu kilogramo da viva pezo; 
+du kronoj kaj dekses heleroj por unu kilogramo da viva pezo;
 
 en lokoj tuŝitaj de la milito aldoni tridek ses helerojn por unu
 
@@ -11082,9 +11032,9 @@ tiu ĉi situacio ne estas tute klara, formi tuj surloke komisio-
 
 non el la interesulo, komandanto de trairanta soldata trupu-
 
-nuo kaj tiu oficiro aŭ ĉefserĝento-kontisto \(se temas pri ne-
+nuo kaj tiu oficiro aŭ ĉefserĝento-kontisto (se temas pri ne-
 
-grandaj formacioj\), al kiu estas konfidita la ekonomia parto.” 
+grandaj formacioj), al kiu estas konfidita la ekonomia parto.”
 
 ĉion tion tralegis la leŭtenanto Cajthaml el kopio de la di-
 
@@ -11098,13 +11048,13 @@ heleroj, kaj por florbrasiko, destinita sur teritorio de la fron-
 
 to por oficira kuirejo, al unu krono kaj sepdek kvin heleroj
 
-por unu kilogramo. 
+por unu kilogramo.
 
 Tiuj, kiuj en Vieno tion ellaboris, imagis al si la teritorion
 
 de la fronto kiel landon, abundantan per karoto kaj florbra-
 
-siko. 
+siko.
 
 La leŭtenanto Cajthaml tralegis tion al la ekscitiĝinta kam-
 
@@ -11112,7 +11062,7 @@ pisto kompreneble germane kaj demandis lin ankaŭ, ĉu li
 
 tion komprenas; kiam tiu skuis la kapon, li lin alkriegis: ”ĉu
 
-vi do deziras komisionon?” 
+vi do deziras komisionon?”
 
 Tiu komprenis la vorton ”komisiono”, tial li kapjesis, kaj
 
@@ -11126,13 +11076,13 @@ lia bieno por konstati, ĉu li ricevu du kronojn kvindek du he-
 
 lerojn por unu kilogramo aŭ nur du kronojn dudek ok hele-
 
-rojn. 
+rojn.
 
-Ili ankoraŭ ne enpaŝis la vojon kondukantan al la civito, 
+Ili ankoraŭ ne enpaŝis la vojon kondukantan al la civito,
 
 kiam de militkuirejoj subite aŭdiĝis triobla mortjelpado de la
 
-porkoj. 
+porkoj.
 
 **181**
 
@@ -11142,21 +11092,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 La kampisto ekkomprenis, ke estas fino de ĉio kaj males-
 
-pere ekvokis: ”Djoni mi por ĉija porkina du florena\!” 
+pere ekvokis: ”Djoni mi por ĉija porkina du florena!”
 
 Kvar soldatoj ĉirkaŭigis lin pli malvaste kaj la tuta familio
 
 baris la vojon al la kapitano Ságner kaj la leŭtenanto Cajt-
 
-haml, genuiĝinte en polvon de la ŝoseo. 
+haml, genuiĝinte en polvon de la ŝoseo.
 
 La patrino kun du filinoj ĉirkaŭpremis la genuojn de tiuj
 
 du, nomante ilin bonfarantoj, ĝis la kampisto ilin alkriis kaj
 
-ekvokis per ukrajna dialekto de hungaraj rusoj, ke ili leviĝu, 
+ekvokis per ukrajna dialekto de hungaraj rusoj, ke ili leviĝu,
 
-la soldatoj forvoru la porkojn kaj mortaĉu sekve de tio. 
+la soldatoj forvoru la porkojn kaj mortaĉu sekve de tio.
 
 Tiel la komisiono superfluis, kaj ĉar la kampisto subite ek-
 
@@ -11164,7 +11114,7 @@ ribelis, minacis per pugno, li ricevis de unu el la soldatoj per
 
 kolbo, ĝis tio eksonegis en lia peltmantelo, la tuta lia familio
 
-sin krucumis kaj eĉ kun la patro komencis fuĝi. 
+sin krucumis kaj eĉ kun la patro komencis fuĝi.
 
 Dek minutojn pli poste la bataliona ĉefserĝento-kontisto
 
@@ -11180,13 +11130,13 @@ ton, cerbaĵon kaj kuirporkaĵon al sinjoroj ĉefserĝentoj-konti-
 
 stoj kaj al la skribistoj nur duoblajn porciojn da viando por la
 
-viraro.” 
+viraro.”
 
 La kapitano Ságner donis jam ordonon koncernantan la
 
 oficiran kuirejon: ”Porkaĵon sur kumino; elekti la plej kvali-
 
-tan viandon, ke tio ne estu tro grasa\!” 
+tan viandon, ke tio ne estu tro grasa!”
 
 Kaj tiel okazis, ke kiam oni en ÐAupkowska-intermonto
 
@@ -11194,9 +11144,9 @@ disdonis manĝon al la viraro, ĉiu unuopulo trovis en porcio
 
 da supo en sia soldata gamelo du malgrandajn pecetojn da
 
-viando kaj tiu, kiu naskiĝis sur ankoraŭ pli malbona planedo, 
+viando kaj tiu, kiu naskiĝis sur ankoraŭ pli malbona planedo,
 
-trovis nur peceton da haŭto. 
+trovis nur peceton da haŭto.
 
 ĉe kuirejoj regis kutima soldata nepotismo, disdonanta al
 
@@ -11208,11 +11158,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 ĉiuj, kiuj havis proksime al la estranta koterio. Servosoldatoj
 
-aperis en Łupkowska-intermonto kun grasmakulaj faŭkoj. 
+aperis en Łupkowska-intermonto kun grasmakulaj faŭkoj.
 
 ĉiu kuriero havis la ventron malmola kiel ŝtoneto. Okazis
 
-aferoj, kriantaj al la ĉielo. 
+aferoj, kriantaj al la ĉielo.
 
 La unujara volontulo Marek kaŭzis ĉe militkuirejo skanda-
 
@@ -11224,17 +11174,17 @@ vortoj: ”Tio estas por nia kronikisto”, li proklamis, ke en la
 
 soldatservo ĉiuj el la viraro estas egalrajtaj, kio kaŭzis ĝene-
 
-ralan konsenton kaj donis impulson por insulti la kuiristojn. 
+ralan konsenton kaj donis impulson por insulti la kuiristojn.
 
-La unujara volontulo ĵetis la viandpecon reen, emfazante, 
+La unujara volontulo ĵetis la viandpecon reen, emfazante,
 
 ke li ne volas ian avantaĝon. Sed tiuj ĉe la kuirejo tion ne ek-
 
 komprenis kaj opiniis, ke la bataliona kronikisto ne estas kon-
 
-tenta, kaj kuiristo kaŝdiris al li flanke, ke li venu nur poste, 
+tenta, kaj kuiristo kaŝdiris al li flanke, ke li venu nur poste,
 
-kiam oni disdonos manĝon, ke li donos al li pecon da piedo. 
+kiam oni disdonos manĝon, ke li donos al li pecon da piedo.
 
 Ankaŭ al skribistoj brilis la faŭkoj de graso, sanitaristoj
 
@@ -11246,19 +11196,19 @@ kartoĉujoj, ladaj malplenaj konzervujoj, ĉifonoj el rusaj, aŭs-
 
 traj kaj germanaj uniformoj, partoj de frakasitaj veturiloj, san-
 
-gokovritaj longaj strioj da gazaj bandaĝoj kaj vato. 
+gokovritaj longaj strioj da gazaj bandaĝoj kaj vato.
 
 En maljunan pinarbon ĉe iama stacidomo, el kiu restis nur
 
-amaseto da ruinoj, estis enpuŝita grenado, kiu ne eksplodis. 
+amaseto da ruinoj, estis enpuŝita grenado, kiu ne eksplodis.
 
 ĉie eblis vidi grenaderojn kaj ie senpere proksime oni ŝajne
 
 entombigis kadavrojn de soldatoj, ĉar ĉi tie estis terura putra
 
-fetoro. 
+fetoro.
 
-Kaj kiel trairis ĉi tie soldataroj kaj tendumis ĉi tie ĉirkaŭe, 
+Kaj kiel trairis ĉi tie soldataroj kaj tendumis ĉi tie ĉirkaŭe,
 
 ĉie vidiĝis amasetoj da homaj ekskrementoj de internacia de-
 
@@ -11272,13 +11222,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 mentoj de soldatoj de ĉiuj nacioj kaj religioj kuŝis unu ĉe la
 
-alia aŭ amasiĝis unu sur la alian sen tio, ke ili interbatiĝus. 
+alia aŭ amasiĝis unu sur la alian sen tio, ke ili interbatiĝus.
 
 Duonruinigita akvujo, ligna budeto de fervoja gardisto kaj
 
 entute ĉio, kio havis ian vandon, estis traborita de fusilaj ku-
 
-gloj kiel kribrilo. 
+gloj kiel kribrilo.
 
 Por ke la impreso de soldataj ĝojoj estu pli kompleta, ma-
 
@@ -11294,13 +11244,13 @@ de tiu hospitalo sub protekto de la arkidukino Maria kaj kiuj
 
 ŝtelis kaj ŝtopis siajn poŝojn per prezentado de fakturoj pri
 
-neekzistantaj ˛oleraj kaj disenteriaj barakoj. 
+neekzistantaj ˛oleraj kaj disenteriaj barakoj.
 
 Nun pagis pro tio unu grupo da barakoj nome de ĉiuj ce-
 
 teraj kaj en fetoro de brulantaj pajlosakoj ŝvebis al la firma-
 
-mento la tuta ŝtelisteco de la arkidukina protekto. 
+mento la tuta ŝtelisteco de la arkidukina protekto.
 
 Sur roko malantaŭ la stacidomo germanoj jam rapidis kon-
 
@@ -11310,11 +11260,11 @@ bo: ”Al la herooj el Łupkowska-intermonto”, kun granda ger-
 
 mana aglino fandita el bronzo, ĉe kio sur la soklo estis laŭvor-
 
-te menciite, ke tiu emblemo estas fabrikita el rusaj kanonoj, 
+te menciite, ke tiu emblemo estas fabrikita el rusaj kanonoj,
 
 militakiritaj ĉe liberigado de Karpatoj fare de germanaj regi-
 
-mentoj. 
+mentoj.
 
 En tiu ĉi stranga kaj ĝis nun nekutima atmosfero la bata-
 
@@ -11340,15 +11290,15 @@ Sátoraljaújhely en tute alia direkto, ĉar en telegramoj oni pa-
 
 rolis pri lokoj:
 
-Csap — Ungvár, Kis — Berezna — Uzsok. 
+Csap — Ungvár, Kis — Berezna — Uzsok.
 
 Post dek minutoj montriĝas, ke staboficiro sidanta en la
 
 brigada posteno estas stultulo, ĉar venas ĉifrita telegramo, ĉu
 
-parolas oka marŝbataliono de la sepdekkvina regimento \(sol-
+parolas oka marŝbataliono de la sepdekkvina regimento (sol-
 
-data ĉifro G3\). La stultulo en la brigada posteno estas mirigita
+data ĉifro G3). La stultulo en la brigada posteno estas mirigita
 
 per respondo, ke temas pri sepa infanteria bataliono de la
 
@@ -11364,7 +11314,7 @@ ska-intermonto, kaj sendas ĉifritan sciigon: La marŝordono
 
 neŝanĝita, al Łupkowska-intermonto — Sanok, kie pluaj or-
 
-donoj. 
+donoj.
 
 En la stabvagono post reveno de la kapitano Ságner dis-
 
@@ -11372,7 +11322,7 @@ volviĝas interparolo pri certa senpripensemo kaj oni faras
 
 certajn aludojn, ke sen soldatoj de la germana regno la orien-
 
-ta armea korpuso estus tute senkonsila. 
+ta armea korpuso estus tute senkonsila.
 
 La leŭtenanto Dub provas defendi senpripensemon de la
 
@@ -11380,19 +11330,19 @@ aŭstra generala stabo kaj parolaĉas ion pri tio, ke ĉi-tiea re-
 
 giono estis sufiĉe detruita post antaŭnelongaj bataloj kaj la
 
-trako ankoraŭ ne povis esti laŭorde riparita. 
+trako ankoraŭ ne povis esti laŭorde riparita.
 
 ĉiuj oficiroj rigardas lin kunsente, kvazaŭ ili volus diri: tiu
 
 sinjoro ne kulpas pri sia idioteco. Ne trovante subtenon, la
 
-leŭtenanto Dub komencis plu babilaĉi pri belega impreso, 
+leŭtenanto Dub komencis plu babilaĉi pri belega impreso,
 
 per kiu efikas sur lin tiu ĉi disbatita regiono, atestanta pri tio, kiel scias bati la fera pugno de nia soldataro. Denove neniu
 
 al li respondas, al kio li ripetas: ”Jes, certe, kompreneble, la
 
-rusoj cedis ĉi tie en absoluta paniko.” 
+rusoj cedis ĉi tie en absoluta paniko.”
 
 **185**
 
@@ -11408,9 +11358,9 @@ dos la leŭtenanton Dub kiel oficiran patrolon malantaŭ pik-
 
 dratajn barilojn por rekognoski poziciojn de la malamiko, kaj
 
-flustras al la ĉefleŭtenanto Lukáô, kun kiu ili estas elklinitaj el fenestro de la vagono: ”Tiujn ĉi civilulojn ŝuldis al ni diablo. 
+flustras al la ĉefleŭtenanto Lukáô, kun kiu ili estas elklinitaj el fenestro de la vagono: ”Tiujn ĉi civilulojn ŝuldis al ni diablo.
 
-Ju pli granda inteligentulo, des pli granda bruto.” 
+Ju pli granda inteligentulo, des pli granda bruto.”
 
 Ôajnas, ke la leŭtenanto Dub tute ne ĉesos paroli. Li plu
 
@@ -11418,11 +11368,11 @@ rakontas al ĉiuj oficiroj, kion li legis en la gazetaro pri tiuj
 
 karpataj bataloj kaj interbatiĝo pri karpataj intermontoj dum
 
-la aŭstra-germana ofensivo ĉe San**53**. 
+la aŭstra-germana ofensivo ĉe San**53**.
 
 Li rakontas pri tio tiel, kvazaŭ li ne nur partoprenus tiujn
 
-batalojn, sed eĉ mem direktus ĉiujn operacojn. 
+batalojn, sed eĉ mem direktus ĉiujn operacojn.
 
 Neordinare naŭzaj estas precipe liaj frazoj de tiu ĉi senco:
 
@@ -11432,27 +11382,27 @@ nion Bukovsko — Dynów, havante kontakton kun la trupu-
 
 nuo el Bardejov ĉe Vyôná Polianka, kie ni disbatis malamikan
 
-divizion el Samara.” 
+divizion el Samara.”
 
 La ĉefleŭtenanto Lukáô jam ne eltenis kaj rimarkis al la
 
 leŭtenanto Dub: ”Pri kio vi ŝajne parolis jam antaŭ la milito
 
-kun via sinjoro distriktestro.” 
+kun via sinjoro distriktestro.”
 
 La leŭtenanto Dub malamike ekrigardis la ĉefleŭtenanton
 
-Lukáô kaj eliris el la vagono. 
+Lukáô kaj eliris el la vagono.
 
 La soldata trajno staris sur taluso kaj kelke da metroj pli
 
 sube sub deklivo kuŝis diversaj objektoj, forĵetitaj de rusaj
 
-soldatoj, kiuj ŝajne cedis tra tiu ĉi fosaĵo. Vidiĝis ĉi tie rusti-53 komence de majo 1915 aŭstri-hungara kaj germana armeoj okupis
+soldatoj, kiuj ŝajne cedis tra tiu ĉi fosaĵo. Vidiĝis ĉi tie rusti-53 komence de aŭstri-hungara kaj germana armeoj okupis
 
 preskaŭ la tutan Galicion kaj forpelis rusajn taĉmentojn al la rivero San en norda Galicio. Komandanto de aŭstra-germana armea korpuso generalo Mackensen transpaŝis kun sia armeo eĉ la riveron
 
-San \(16.5.1915\)
+San (16.5.1915)
 
 **186**
 
@@ -11468,25 +11418,25 @@ okovritaj strioj da gazaj bandaĝoj kaj vato. Sur unu loko su-
 
 per tiu fosaĵo staris grupo da soldatoj kaj la leŭtenanto Dub
 
-tuj konstatis, ke inter ili staras Ôvejk kaj ion al ili rakontas. 
+tuj konstatis, ke inter ili staras Ôvejk kaj ion al ili rakontas.
 
-Li do iris tien. 
+Li do iris tien.
 
 ”Kio ĉi tie okazis?” eksonis severa voĉo de la leŭtenanto
 
-Dub, ĉe kio tiu stariĝis rekte antaŭ Ôvejk. 
+Dub, ĉe kio tiu stariĝis rekte antaŭ Ôvejk.
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke ni rigardas,” re-
 
-spondis Ôvejk en la nomo de ĉiuj. 
+spondis Ôvejk en la nomo de ĉiuj.
 
-”Kaj kion vi rigardas?” ekkriis la leŭtenanto Dub. 
+”Kaj kion vi rigardas?” ekkriis la leŭtenanto Dub.
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke ni rigardas su-
 
-ben en la fosaĵon.” 
+ben en la fosaĵon.”
 
-”Kaj kiu donis al vi por tio permeson?” 
+”Kaj kiu donis al vi por tio permeson?”
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke tio estas deziro
 
@@ -11504,7 +11454,7 @@ to kuntrenas kun si diversajn superfluaĵojn. Li estas per tio
 
 superflue ŝarĝita. Per tio li superflue laciĝas, kaj se li kuntre-
 
-nas tiajn pezaĵojn, li ne povas facile batali.” 
+nas tiajn pezaĵojn, li ne povas facile batali.”
 
 Al la leŭtenanto Dub subite eklumis espero, ke fine li ve-
 
@@ -11514,7 +11464,7 @@ nigos Ôvejkon antaŭ militan feldtribunalon pro kontraŭmilita
 
 opinias, ke la soldato forĵetu kartoĉojn, kiuj kuŝaĉas ĉi tie sur
 
-la terŝvelaĵo, aŭ bajonetojn, kiujn mi vidas tie?” 
+la terŝvelaĵo, aŭ bajonetojn, kiujn mi vidas tie?”
 
 **187**
 
@@ -11526,11 +11476,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 dis Ôvejk, agrable ridetante, ”bonvolu rigardi ĉi tien suben sur
 
-tiun forĵetitan ladan noktovazon.” 
+tiun forĵetitan ladan noktovazon.”
 
 Kaj vere, sub la taluso inter eroj de potoj arogante kuŝaĉis
 
-noktovazo kun parte forbatita emajlo, ĉirkaŭronĝita de rusto; 
+noktovazo kun parte forbatita emajlo, ĉirkaŭronĝita de rusto;
 
 ĉiujn tiujn ĉi objektojn, jam netaŭgajn por mastrumado, me-
 
@@ -11540,11 +11490,11 @@ de estontaj arkeologoj, kiuj, kiam ili malkovros tiun ĉi resta-
 
 dejon, el tio idiotiĝos kaj infanoj en lernejoj lernos pri epoko
 
-de emajlaj noktovazoj. 
+de emajlaj noktovazoj.
 
 La leŭtenanto Dub ekrigardis tiun ĉi objekton, sed li ne
 
-povis ol simple konstati, ke tio estas vere unu el tiuj invalidoj, kiuj sian freŝan junaĝon pasigis sub lito. 
+povis ol simple konstati, ke tio estas vere unu el tiuj invalidoj, kiuj sian freŝan junaĝon pasigis sub lito.
 
 Sur ĉiuj faris tio grandegan impreson, kaj kiam la leŭtenan-
 
@@ -11594,21 +11544,21 @@ kaj faris per tio tian mensleviĝon, ke alveturis tien episkopo
 
 Brynych el Hradec kun procesio kaj standardoj por tion rigar-
 
-di. Tiu apotekisto el Podêbrady opiniis, ke tio rilatas al li, kaj tiel ili ambaŭ, li kaj sinjoro Hájek, interkverelis.” 
+di. Tiu apotekisto el Podêbrady opiniis, ke tio rilatas al li, kaj tiel ili ambaŭ, li kaj sinjoro Hájek, interkverelis.”
 
 La leŭtenanto Dub havis guston deĵetegi Ôvejkon tien su-
 
-ben, sed li regis sin kaj alkriis ĉiujn: ”Mi diras al vi, ke vi ĉi tie superflue ne gapu\! Vi ĉiuj min ankoraŭ ne konas, sed kiam vi
+ben, sed li regis sin kaj alkriis ĉiujn: ”Mi diras al vi, ke vi ĉi tie superflue ne gapu! Vi ĉiuj min ankoraŭ ne konas, sed kiam vi
 
-min ekkonos…\!” 
+min ekkonos…!”
 
 ”Vi ĉi tie restos, Ôvejk,” li diris per terura voĉo, kiam Ôvejk
 
-volis foriri kun la ceteraj al vagonoj. 
+volis foriri kun la ceteraj al vagonoj.
 
 Ili restis solaj stari unu kontraŭ la alia kaj la leŭtenanto
 
-Dub meditis, kion teruran diri. 
+Dub meditis, kion teruran diri.
 
 Sed Ôvejk lin antaŭiris: ”Obee mi raportas, sinjoro leŭte-
 
@@ -11616,15 +11566,15 @@ nanto, almenaŭ tiu ĉi vetero povus persisti. Tage ne estas tro
 
 varmege kaj noktoj estas ankaŭ tute agrablaj, tiel ke tio estas
 
-la plej konvena tempo por militi.” 
+la plej konvena tempo por militi.”
 
 La leŭtenanto Dub eltiris revolveron kaj demandis: ”ĉu vi
 
-konas tion?” 
+konas tion?”
 
 skribis apotekisto Hellich, la plej influhava persono de la eldonantaro, kaj Haôek kompreneble la postenon de redaktoro ne ricevis
 
-55 \(murdita 929 aŭ 935\): klera, pacama, kapabla kaj pia ĉeą reĝo, patrono de ĉeąj landoj \(Bohemio, Moravio, Silezio\), murdita de sia
+55 (murdita 929 aŭ 935): klera, pacama, kapabla kaj pia ĉeą reĝo, patrono de ĉeąj landoj (Bohemio, Moravio, Silezio), murdita de sia
 
 frato Boleslav kaj liaj helpantoj. Lian nomon portas interalie la ĉef-placo de Prago, en kies supra parto estas lia statuo surĉevale
 
@@ -11636,19 +11586,19 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Obee mi raportas, sinjoro leŭtenanto, mi konas. Sinjoro
 
-ĉefleŭtenanto Lukáô havas ĝuste tian.” 
+ĉefleŭtenanto Lukáô havas ĝuste tian.”
 
-”Memoru do tion, kanajlo\!” serioze kaj digne diris la leŭ-
+”Memoru do tion, kanajlo!” serioze kaj digne diris la leŭ-
 
 tenanto Dub, kaŝante la revolveron reen; ”por ke vi sciu, ke
 
 povus okazi al vi io tre malagrabla, se vi daŭrigus tiujn viajn
 
-propagandojn.” 
+propagandojn.”
 
 La leŭtenanto Dub foriris, ripetante al si: ”Nun mi diris al
 
-li tion plej bone: propagandojn, jes, propagandojn\!” 
+li tion plej bone: propagandojn, jes, propagandojn!”
 
 Antaŭ ol Ôvejk denove enpaŝis sian vagonon, li ankoraŭ
 
@@ -11656,7 +11606,7 @@ momenton promenis kaj murmuris al si: ”Kien propre mi lin
 
 vicigu?” Kaj ju pli longe, des pli klare venas al li en la menson
 
-nomo de tiu ĉi speco: ”duonfurzulo”. 
+nomo de tiu ĉi speco: ”duonfurzulo”.
 
 ”Furzulo” en soldata terminologio estis delonge uzata kun
 
@@ -11668,7 +11618,7 @@ loneloj aŭ iom aĝaj kapitanoj kaj majoroj, kaj estis tio certa pli alta grado 
 
 na kolonelo aŭ majoro, kiu ege kriegis, sed ĉe tio li amis siajn
 
-soldatojn kaj protektis ilin kontraŭ aliaj regimentoj, precipe
+soldatojn kaj protektis ilntraŭ aliaj regimentoj, precipe
 
 se temis pri aliregimentaj patroloj, kiuj la soldatojn elprena-
 
@@ -11678,13 +11628,13 @@ dormosignalo. ”Maljunulaĉo” zorgis pri siaj soldatoj, manĝo
 
 devis esti en ordo, sed li ĉiam havis ian kapricon; en io li es-
 
-tis pedanto — kaj tial li estis ”maljunulaĉo”. 
+tis pedanto — kaj tial li estis ”maljunulaĉo”.
 
 Sed se ”maljunulaĉo” ĉe tio superflue ĉikanis soldatojn kaj
 
 suboficirojn, elpensadis noktan ekzercadon kaj similajn afe-
 
-rojn, li estis ”kanajla maljunulaĉo”. 
+rojn, li estis ”kanajla maljunulaĉo”.
 
 El ”kanajla maljunulaĉo” iĝis ”furzulo” kiel pli alta grado de
 
@@ -11698,27 +11648,27 @@ LA BRAVA SOLDATO ÔVEJK
 
 nifis ĉion kaj ekzistas granda diferenco inter furzulo en civi-
 
-la vivo kaj furzulo en soldatservo. 
+la vivo kaj furzulo en soldatservo.
 
 La unua, civila, estas ankaŭ superulo, kaj ankaŭ tiel ĝene-
 
-rale nomas lin servistoj en oficejoj kaj subordigitaj oficistoj. 
+rale nomas lin servistoj en oficejoj kaj subordigitaj oficistoj.
 
 Li estas filistro-burokrato, kiu riproĉas ekzemple tion, ke mal-
 
-neto ne estas bone sekgita per sorba papero kaj simile. ¯ene-
+neto ne estas bone sekgita per sorba papero kaj simile. ene-
 
 rale estas tio idiote bruta fenomeno en la homa socio, ĉar tia
 
 spritmankulo ŝajnigas ĉe tio vivspertulon, ĉion volas kompre-
 
-ni, ĉion scias klarigi kaj pro ĉio ofendiĝas. 
+ni, ĉion scias klarigi kaj pro ĉio ofendiĝas.
 
 Sed kiu estis en soldatservo, komprenas la diferencon in-
 
 ter tiu ĉi fenomeno kaj ”furzulo” en uniformo. ĉi tie tiu vor-
 
-to prezentis ”maljunulaĉon”, kiu estis ”kanajla”, vere kanajla, 
+to prezentis ”maljunulaĉon”, kiu estis ”kanajla”, vere kanajla,
 
 al ĉio alpaŝis akre, sed malgraŭ tio li haltis antaŭ ĉiu obsta-
 
@@ -11726,7 +11676,7 @@ klo; soldatojn li ne amis kaj vane kontraŭ ili batalis, ne sciis
 
 akiri al si aŭtoritaton, kiun ĝuis ”maljunulaĉo” eĉ ”kanajla
 
-maljunulaĉo”. 
+maljunulaĉo”.
 
 En kelkaj garnizonoj, kiel ekzemple en Tridentino, ansta-
 
@@ -11734,13 +11684,13 @@ taŭ ”furzulo” oni diradis ”nia maljuna kanajlo”. En ĉiuj oka-
 
 zoj temis pri persono iom aĝa, kaj se Ôvejk enmense nomis la
 
-leŭtenanton Dub ”duonfurzulo”, li esprimis absolute logike, 
+leŭtenanton Dub ”duonfurzulo”, li esprimis absolute logike,
 
 ke koncerne kaj la aĝon kaj la rangon kaj entute ĉion mankas
 
 al la leŭtenanto Dub ankoraŭ kvindek procentoj por ke li iĝu
 
-”furzulo”. 
+”furzulo”.
 
 Revenante kun tiuj ĉi pensoj al sia vagono, li renkontis la
 
@@ -11750,11 +11700,11 @@ ion nekompreneblan, ke li ĵus renkontiĝis kun sia sinjoro leŭ-
 
 tenanto Dub kaj tiu tute neatendite lin vangobatis, ĉar li laŭ-
 
-dire scias pri faktoj, ke Kunert interrilatas kun Ôvejk. 
+dire scias pri faktoj, ke Kunert interrilatas kun Ôvejk.
 
-”En tiu ĉi okazo,” diris Ôvejk trankvile, ”ni iros al raporto. 
+”En tiu ĉi okazo,” diris Ôvejk trankvile, ”ni iros al raporto.
 
-Aŭstra soldato devas lasi sin vangobati nur en certaj okazoj. 
+Aŭstra soldato devas lasi sin vangobati nur en certaj okazoj.
 
 **191**
 
@@ -11780,7 +11730,7 @@ vere pruvis, ke la servosoldato mensogas, ke tiutage li lin ne
 
 piedbatis, sed nur vangobatis, tiel tiun servosoldaton oni mal-
 
-liberigis por tri semajnoj pro falsa akuzo. 
+liberigis por tri semajnoj pro falsa akuzo.
 
 Sed tio ŝanĝas nenion en la tuta afero,” daŭrigis Ôvejk, ”tio
 
@@ -11790,23 +11740,23 @@ medicino Hubiâka, ke estas egale distranĉi en patologia insti-
 
 tuto homon, kiu sin pendumis aŭ venenigis. Kaj mi iras kun
 
-vi. Kelke da vangobatoj signifas en la soldatservo multon.” 
+vi. Kelke da vangobatoj signifas en la soldatservo multon.”
 
-Kunert tute perpleksiĝis kaj lasis sin konduki de Ôvejk al la
+Kunert tute perpleksiĝis kaj lasis snduki de Ôvejk al la
 
-stabvagono. 
+stabvagono.
 
 La leŭtenanto Dub ekkriegis, klinante sin el fenestro: ”Kion
 
-vi ĉi tie volas, kanajloj?” 
+vi ĉi tie volas, kanajloj?”
 
 ”Kondutu digne,” admonis Ôvejk Kunerton kaj puŝis lin
 
-antaŭ si en la vagonon. 
+antaŭ si en la vagonon.
 
 En la koridoro aperis la ĉefleŭtenanto Lukáô kaj malantaŭ
 
-li la kapitano Ságner. 
+li la kapitano Ságner.
 
 La ĉefleŭtenanto Lukáô, kiu travivis kun Ôvejk jam tiom da
 
@@ -11814,7 +11764,7 @@ aferoj, terure miris, ĉar Ôvejk ne mienis jam tiel bonkore se-
 
 rioze, lia vizaĝo ne havis konatan bonaniman mienon, sed
 
-signon pri novaj malagrablaj okazaĵoj. 
+signon pri novaj malagrablaj okazaĵoj.
 
 **192**
 
@@ -11824,11 +11774,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto,” diris Ôvejk, ”la
 
-afero iras al raporto.” 
+afero iras al raporto.”
 
 ”Ne komencu denove per viaj idiotaĵoj, Ôvejk, mi havas da
 
-tio ankaŭ jam sufiĉe.” 
+tio ankaŭ jam sufiĉe.”
 
 ”Bonvolu permesi,” diris Ôvejk, ”mi estas kuriero de via
 
@@ -11836,13 +11786,13 @@ kompanio, vi, permesu, bonvolas esti komandanto de la de-
 
 kunuo. Mi scias, ke tio aspektas terure strange, sed mi scias
 
-ankaŭ, ke sinjoro leŭtenanto Dub estas via subulo.” 
+ankaŭ, ke sinjoro leŭtenanto Dub estas via subulo.”
 
 ”Ôvejk, vi plene freneziĝis,” falis en lian parolon la ĉefleŭ-
 
 tenanto Lukáô, ”vi estas ebriega, vi faros plej bone, se vi fori-
 
-ros\! ĉu vi komprenas, idioto, bruto?” 
+ros! ĉu vi komprenas, idioto, bruto?”
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto,” diris Ôvejk, pu-
 
@@ -11854,11 +11804,11 @@ turigo fare de elektra tramo. Tiu sinjoro inventisto mem sin
 
 oferis por tiu provo, kaj poste la urbo devis pagi al lia vidvino
 
-kompenson pro tiu damaĝo.” 
+kompenson pro tiu damaĝo.”
 
-La kapitano Ságner, ne sciante, kion diri, kapjesis ĉe tio, 
+La kapitano Ságner, ne sciante, kion diri, kapjesis ĉe tio,
 
-dum la ĉefleŭtenanto Lukáô mienis senespere. 
+dum la ĉefleŭtenanto Lukáô mienis senespere.
 
 ”ĉio devas iri per la vojo de raporto, obee mi raportas, sinj-
 
@@ -11874,13 +11824,13 @@ nur ordonojn. Ke mi devas esti informita pri ĉio, kio okazas
 
 anonci al vi, sinjoro ĉefleŭtenanto, ke sinjoro leŭtenanto Dub
 
-pro nenio neatendite vangobatis sian servosoldaton. Mi tion, 
+pro nenio neatendite vangobatis sian servosoldaton. Mi tion,
 
 obee mi raportas, sinjoro ĉefleŭtenanto, eventuale eĉ ne di-
 
 rus. Sed se mi scias, ke sinjoro leŭtenanto Dub estas sub via
 
-komandopovo, mi decidiĝis, ke tio devas iri al raporto.” 
+komandopovo, mi decidiĝis, ke tio devas iri al raporto.”
 
 **193**
 
@@ -11888,9 +11838,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-”Tio ĉi estas stranga afero,” diris la kapitano Ságner, ”kial, 
+”Tio ĉi estas stranga afero,” diris la kapitano Ságner, ”kial,
 
-Ôvejk, vi puŝas ĉi tien tiun Kunerton?” 
+Ôvejk, vi puŝas ĉi tien tiun Kunerton?”
 
 ”Obee mi raportas, sinjoro bataliona komandanto, ke ĉio
 
@@ -11910,11 +11860,11 @@ raporto, ĝis li estis translokita al maristoj, kie li iĝis ĉefser-
 
 dizertinto. Poste li tie edziĝis kaj parolis ankaŭ kun vojaĝisto
 
-Havlasa**56**, kiu tute ne ekkonis, ke tiu homo ne estas indiĝeno. 
+Havlasa**56**, kiu tute ne ekkonis, ke tiu homo ne estas indiĝeno.
 
 — ĉiuflanke estas tio tre trista, se iu devas iri al raporto pro
 
-kelke da sensencaj vangobatoj. Sed li tute ne volis ĉi tien iri, 
+kelke da sensencaj vangobatoj. Sed li tute ne volis ĉi tien iri,
 
 ĉar li diris, ke li ĉi tien ne iros. Li estas entute tia vangobata-ta servosoldato, ke li eĉ ne scias, pri kiu vangobato ĉi tie te-
 
@@ -11928,13 +11878,13 @@ aliflanke, necesis ke li tuj plendu, ke li ricevis tiujn vangoba-
 
 tojn, sed li ne kuraĝis, ĉar li sciis, ke, kiel skribis certa poeto, estas pli bone esti kiel humila violo. Scie, li servas ĉe sinjoro
 
-leŭtenanto Dub.” 
+leŭtenanto Dub.”
 
 Puŝante Kunerton antaŭ sin, Ôvejk al li diris: ”Ne tremu
 
-senĉese kiel tremolo\!” 
+senĉese kiel tremolo!”
 
-56 Jan Havlasa \(propranome Jan Klecanda\), ĉeą vojaĝisto, verkisto kaj diplomato \(1920-1924 ĉe˛oslovaka ambasadoro en Brazilo\)
+56 Jan Havlasa (propranome Jan Klecanda), ĉeą vojaĝisto, verkisto kaj diplomato (1920-1924 ĉe˛oslovaka ambasadoro en Brazilo)
 
 **194**
 
@@ -11944,23 +11894,23 @@ LA BRAVA SOLDATO ÔVEJK
 
 La kapitano Ságner demandis Kunerton, kiel tio propre
 
-okazis. 
+okazis.
 
 Sed Kunerrt proklamis, tremante per la tuta korpo, ke ili
 
 povas demandi sinjoron leŭtenanton Dub, ke tiu lin tute ne
 
-vangobatis. 
+vangobatis.
 
 La judaso Kunert, senĉese tremante per la tuta korpo, pro-
 
-klamis eĉ, ke Ôvejk tion tute al si elpensis. 
+klamis eĉ, ke Ôvejk tion tute al si elpensis.
 
 Al tiu ĉi hontiga situacio faris finon la leŭtenanto Dub, kiu
 
 subite aperis kaj alkriegis Kunerton: ”ĉu vi volas ricevi an-
 
-koraŭ d e n o v e kelke da vangobatoj?” 
+koraŭ d e n o v e kelke da vangobatoj?”
 
 La afero estis do tute klara kaj la kapitano Ságner simple
 
@@ -11968,11 +11918,11 @@ proklamis al la leŭtenanto Dub: ”Ekde la hodiaŭa tago Kunert
 
 estas alkomandita al la bataliona kuirejo, kaj koncerne nov-
 
-an servosoldaton, turnu vin al la ĉefserĝento-kontisto Vanêk.” 
+an servosoldaton, turnu vin al la ĉefserĝento-kontisto Vanêk.”
 
 La leŭtenanto Dub soldatsalutis kaj ĉe foriro diris al Ôvejk
 
-nur: ”Mi vetas, ke foje vi estos pendumita.” 
+nur: ”Mi vetas, ke foje vi estos pendumita.”
 
 Kiam li foriris, Ôvejk turnis sin al la ĉefleŭtenanto Lukáô
 
@@ -11980,13 +11930,13 @@ per milda, amika tono: ”En Mnichovo Hradiôtê estis ankaŭ tia
 
 sinjoro kaj ankaŭ tiel parolis kun tiu alia kaj tiu al li respon-
 
-dis: ”ĉe ekzekutejo ni renkotiĝos.” 
+dis: ”ĉe ekzekutejo ni renkotiĝos.”
 
 ”Ôvejk,” diris la ĉefleŭtenanto Lukáô, ”vi estas ja idioto, kaj
 
 ne aŭdacu al mi diri, kiel vi kutimas: ’Obee mi raportas, ke mi
 
-estas idioto’.” 
+estas idioto’.”
 
 ”Okulfrapanta,” ekparolis la kapitano Ságner, klinante sin
 
@@ -11994,13 +11944,13 @@ el fenestro, kaj li tre ŝate de tiu fenestro cedus, sed li jam ne
 
 havis tempon, ĉar aperis tiu malfeliĉo: la leŭtenanto Dub sub
 
-la fenestro. 
+la fenestro.
 
 La leŭtenanto Dub komencis per tio, ke li tre bedaŭras
 
 tion, kiel la kapitano Ságner foriris, neelaŭskultinte liajn kaŭ-
 
-zojn pri ofensivo en la orienta fronto. 
+zojn pri ofensivo en la orienta fronto.
 
 **195**
 
@@ -12016,19 +11966,19 @@ sivo evoluis fine de aprilo. Ni devis trarompi la rusan fronton
 
 kaj kiel la plej konvenan lokon por tiu ĉi trarompo ni trovis
 
-fronton inter Karpatoj kaj Vistulo.” 
+fronton inter Karpatoj kaj Vistulo.”
 
 ”Mi pri tio kun vi ne kverelas,” respondis la kapitano Ság-
 
-ner seke kaj foriris de la fenestro. 
+ner seke kaj foriris de la fenestro.
 
-Kiam duonhoron post tio oni daŭrigis la veturon al Sanok, 
+Kiam duonhoron post tio oni daŭrigis la veturon al Sanok,
 
-la kapitano Ságner streĉis sin sur benko kaj ŝajnigis dormon, 
+la kapitano Ságner streĉis sin sur benko kaj ŝajnigis dormon,
 
 por ke la leŭtenanto Dub intertempe forgesu siajn gurditajn
 
-konkludojn pri ofensivo. 
+konkludojn pri ofensivo.
 
 En la vagono kun Ôvejk mankis Baloun. Nome, li elpetis al
 
@@ -12038,7 +11988,7 @@ no. Nun li estis en vagono kun militkuirejoj en malagrabla
 
 situacio, ĉar ĉe tio, kiel la trajno moviĝis, li enflugis kapantaŭe en kaldronon kaj la piedoj pendis al li trans ĝian randon. Sed
 
-li alkutimiĝis al tiu situacio kaj el la kaldrono e˛is ŝmacado, 
+li alkutimiĝis al tiu situacio kaj el la kaldrono e˛is ŝmacado,
 
 kiel se erinaco pelas blatojn, kaj pli poste petvoĉo de Baloun:
 
@@ -12050,13 +12000,13 @@ daŭris ĝis la plej proksima stacio, kien ili alveturis kun kaldro-
 
 no de la dekunua kompanio jam purigita, ke ĝia stana tavo-
 
-lo vere brilis. 
+lo vere brilis.
 
 ”Dio rekompencu vin pro tio, kamaradoj,” dankis Baloun
 
 kore. ”De la tempo, kiam mi estas nun en la soldatservo, la
 
-fortuno ekridetis al mi la unuan fojon.” 
+fortuno ekridetis al mi la unuan fojon.”
 
 Kaj estis vere kion diri. En Łupkowska-intermonto Baloun
 
@@ -12064,7 +12014,7 @@ akiris du porciojn da gulaŝo, ankaŭ la ĉefleŭtenanto Lukáô
 
 montris sian kontenton,. ke Baloun alportis al li el la oficira
 
-kuirejo netuŝitan manĝon kaj lasis por li pli grandan duonon. 
+kuirejo netuŝitan manĝon kaj lasis por li pli grandan duonon.
 
 **196**
 
@@ -12072,7 +12022,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-Baloun estis tute feliĉa, balancis la piedojn, kiujn li elŝovis el la vagono, kaj subite tiu ĉi tuta milito ŝajnis al li esti io var-meca, familia. 
+Baloun estis tute feliĉa, balancis la piedojn, kiujn li elŝovis el la vagono, kaj subite tiu ĉi tuta milito ŝajnis al li esti io var-meca, familia.
 
 Kompania kuiristo komencis pri li ŝerci, ke kiam oni alve-
 
@@ -12084,7 +12034,7 @@ al sia bono, se oni ne ricevis tion dum la tuta vojo. Baloun nur
 
 kapjesis kaj flustris: ”Vi vidos, kamaradoj, ke sinjoro dio nin
 
-ne forlasos.” 
+ne forlasos.”
 
 ĉiuj sincere al li ridis kaj la kuiristo, sidante sur militkui-
 
@@ -12112,7 +12062,7 @@ aperi novaj soldataj tombejoj. Sub Szczawne eblis el la traj-
 
 no vidi ŝtonan krucon kun senkapa sinjoro Kristo, kiu perdis
 
-la kapon ĉe pafdetruo de la trako. 
+la kapon ĉe pafdetruo de la trako.
 
 La trajno altigis sian rapidecon, impetante suben tra valo
 
@@ -12120,11 +12070,11 @@ al Sanok, la horizontoj plivastiĝis kaj tiel ambaŭflanke iĝis
 
 ankaŭ pli multnombraj la tutaj grupoj da disbatitaj vilaĝoj en
 
-la regiono. 
+la regiono.
 
 De la fervoja taluso oni vidis sube en rivereto ĉe Kulaszna
 
-falegintan, disbatitan trajnon de la Ruĝa Kruco. 
+falegintan, disbatitan trajnon de la Ruĝa Kruco.
 
 Baloun konsterniĝe malfermegis je tio la okulojn kaj miris
 
@@ -12134,13 +12084,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-precipe al sube disĵetitaj eroj de la lokomotivo. ¯ia tubo es-
+precipe al sube disĵetitaj eroj de la lokomotivo. ia tubo es-
 
-tis enpuŝita en fervojan taluson kaj elstraris el ĝi eksteren kiel kanontubo je dudekokcentimetra kalibro. 
+tis enpuŝita en fervojan taluson kaj elstraris el ĝi eksteren kiel kanontubo je dudekokcentimetra kalibro.
 
 Tiu ĉi fenomeno vekis atenton ankaŭ en la vagono, kie es-
 
-tis Ôvejk. Pleje ekscitiĝis la kuiristo Jurajda: ”ĉu tio estas permesite, pafi kontraŭ vagonoj de la Ruĝa Kruco?” 
+tis Ôvejk. Pleje ekscitiĝis la kuiristo Jurajda: ”ĉu tio estas permesite, pafi kontraŭ vagonoj de la Ruĝa Kruco?”
 
 ”Tio ne estas permesite, sed oni povas tion fari,” diris
 
@@ -12178,9 +12128,9 @@ gan firmaon, sukeraĵejon kaj ie en Moravio ankaŭ librobin-
 
 dejon sub nomo de tute alia firmao. Kiam sinjoro Karlík eks-
 
-ciis, ke tiu studento de konservatorio amindumas lian filinon, 
+ciis, ke tiu studento de konservatorio amindumas lian filinon,
 
-li vizitis lin en lia loĝejo kaj diris al li: ’Vi ne povas kun mia filino edziĝi, ĉifonulo. Mi ŝin al vi ne donos\!’ ’Bone,’ respondis al li sinjoro Mikeô, ’se mi ne povas kun ŝi edziĝi, kion mi
+li vizitis lin en lia loĝejo kaj diris al li: ’Vi ne povas kun mia filino edziĝi, ĉifonulo. Mi ŝin al vi ne donos!’ ’Bone,’ respondis al li sinjoro Mikeô, ’se mi ne povas kun ŝi edziĝi, kion mi
 
 **198**
 
@@ -12220,7 +12170,7 @@ markon de bona konduto. ĉi tie vi do vidas, ke estas malper-
 
 mesitaj diversaj aferoj, sed fari ilin oni povas, kaj ke la vojoj
 
-povas esti diversaj, nur volon ni ĉiuj havu la saman.” 
+povas esti diversaj, nur volon ni ĉiuj havu la saman.”
 
 ”Karaj amikoj,” diris la unujara volontulo, kiu fervore fa-
 
@@ -12246,21 +12196,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-kontraŭ ni pafas kaj malhelpas nian transiron trans riveron. 
+kontraŭ ni pafas kaj malhelpas nian transiron trans riveron.
 
-Ili honore plenumis sian taskon, alivestitaj kiel kampistoj. 
+Ili honore plenumis sian taskon, alivestitaj kiel kampistoj.
 
 Kion mi vidas,” ekvokis la unujara volontulo, rigardante en
 
-siajn notojn. ”Kiel ĉi tie aperis nia sinjoro Vanêk? 
+siajn notojn. ”Kiel ĉi tie aperis nia sinjoro Vanêk?
 
-Aŭdu, sinjoro ĉefserĝento-kontisto,” li turnis sin al Vanêk, 
+Aŭdu, sinjoro ĉefserĝento-kontisto,” li turnis sin al Vanêk,
 
 ”kia bela artikolo pri vi estos en la historio de la bataliono. Mi konjektas, ke vi troviĝas tie jam unufoje, sed tio ĉi estos nepre pli bona kaj pli efika.” La unujara volontulo legis kun em-
 
 faza voĉo: ”Heroa morto de la ĉefserĝento-kontisto Vanêk. Al
 
-kuraĝa entrepreno, eksplodigo de malamika blendita trajno, 
+kuraĝa entrepreno, eksplodigo de malamika blendita trajno,
 
 anoncis sin ankaŭ la ĉefserĝento-kontisto Vanêk, alivestita
 
@@ -12274,7 +12224,7 @@ amika divizio, kie vidalvide al la morto li rifuzis kian ajn kla-
 
 rigon pri posteno kaj multnombreco de nia soldataro. ĉar li
 
-estis alivestita, oni kondamnis lin kiel spionon al pendumo, 
+estis alivestita, oni kondamnis lin kiel spionon al pendumo,
 
 sed konsidere lian altan rangon tiu puno estis ŝanĝita al mort-
 
@@ -12286,7 +12236,7 @@ okulojn. Al la demando, ĉu li havas ian deziron, li respondis:
 
 ’Sciigu pere de parlamentario mian lastan saluton al mia ba-
 
-taliono, kaj ke mi mortas kun konvinko, ke nia bataliono daŭ-
+taliono, kaj ke mi mortas kun konv, ke nia bataliono daŭ-
 
 rigos sian venkan vojon. Krom tio sciigu al sinjoro kapitano
 
@@ -12318,7 +12268,7 @@ gajnitan sumon transdonu al la rusa Ruĝa Kruco’, li diris, sta-
 
 rante jam antaŭ fusiltuboj. Tiu ĉi nobla grandanimeco kor-
 
-tuŝis ĉeestantajn armeajn anstataŭantojn ĝis larmoj. 
+tuŝis ĉeestantajn armeajn anstataŭantojn ĝis larmoj.
 
 Pardonu, sinjoro Vanêk,” daŭrigis la unujara volontulo, ”ke
 
@@ -12328,7 +12278,7 @@ tio, ĉu oni eble transdonu tion al la aŭstra Ruĝa Kruco, sed
 
 fine mi supozas, ke el la vidpunkto de homeco estas tio ega-
 
-la, ĉefe ke oni tion transdonos al humana institucio.” 
+la, ĉefe ke oni tion transdonos al humana institucio.”
 
 ”Tiu nia mortinto povis tion transdoni al supa instituto de
 
@@ -12336,9 +12286,9 @@ la urbo Prago,” diris Ôvejk, ”sed tiel ĉi estas tio tamen nur pli
 
 bona, sinjoro urbestro probable aĉetus al si por tiu sumo trip-
 
-kolbason al lunĉo.” 
+kolbason al lunĉo.”
 
-”Nu jes, oni ŝtelas ĉie,” diris la telefonisto Chodounskë. 
+”Nu jes, oni ŝtelas ĉie,” diris la telefonisto Chodounskë.
 
 ”ĉefe oni ŝtelas ĉe la Ruĝa Kruco,” proklamis la kuiristo
 
@@ -12358,13 +12308,13 @@ mo. ĉiu homo trapasas en sia senfina vivo sennombrajn ŝan-
 
 tiu ĉi mondo kiel ŝtelisto. Mi mem jam travivis unu tian peri-
 
-odon.” 
+odon.”
 
 La kuiristo okultisto Jurajda eltiris el sia dorsosako botelon
 
-da konjako. 
+da konjako.
 
-”ĉi tie vi vidas seneraran pruvon de mia aserto,” li diris, 
+”ĉi tie vi vidas seneraran pruvon de mia aserto,” li diris,
 
 malŝtopante la botelon. ”Mi prenis ĝin antaŭ la forveturo el
 
@@ -12374,19 +12324,19 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-la oficira kuirejo. ¯i estas konjako de la plej bona marko kaj
+la oficira kuirejo. i estas konjako de la plej bona marko kaj
 
-estis preparita al uzo por sukeraj glazuroj sur Linzaj tortoj. 
+estis preparita al uzo por sukeraj glazuroj sur Linzaj tortoj.
 
 Sed ĝi estis antaŭdestinita al tio, ke mi ĝin ŝtelu, same kiel mi
 
-estis antaŭdestinita por iĝi ŝtelisto.” 
+estis antaŭdestinita por iĝi ŝtelisto.”
 
 ”Kaj ankaŭ ne estus malbone,” ekparolis Ôvejk, ”se ni estus
 
 antaŭdestinitaj esti viaj kunkulpuloj, almenaŭ mi havas tian
 
-antaŭsenton.” 
+antaŭsenton.”
 
 Kaj la antaŭdestino vere plenumiĝis. La botelo cirkulis mal-
 
@@ -12396,29 +12346,28 @@ konjakon necesas trinki el gamelo kaj juste dividi, ĉar por la
 
 botelo estas da ili ĉiuj kvin, tiel ke ĉe nepara numero povas
 
-facile okazi, ke iu certe trinkos el la botelo je unu gluto pli ol tiuj ceteraj, al kio Ôvejk rimarkis: ”Tio estas vero, se sinjoro
-
+facile okazi, ke iu certe trs el la botelo je unu gluto pli ol tiuj ceteraj, al kio Ôvejk rimarkis: ”Tio estas vero, se sinjoro
 
 
 Vanêk deziras havi paran numeron, li eksiĝu el la societo, por
 
-ke ne estu iaj malagrablaĵoj kaj kvereloj.” 
+ke ne estu iaj malagrablaĵoj kaj kvereloj.”
 
 Vanêk do revokis sian proponon kaj prezentis alian, gran-
 
-daniman, ke la donacinto Jurajda estu vicigita sur tian lokon, 
+daniman, ke la donacinto Jurajda estu vicigita sur tian lokon,
 
-ke li povu trinki dufoje, kio vekis ŝtormon de malkonsento, 
+ke li povu trinki dufoje, kio vekis ŝtormon de malkonsento,
 
 ĉar Vanêk jam unufoje trinkis, gustumante la konjakon ĉe
 
-malŝtopado de la botelo**57**. 
+malŝtopado de la botelo**57**.
 
 Fine estis akceptita propono de la unujara volontulo trin-
 
 ki laŭ la alfabeto, kion li kialigis tiel, ke tio estas jam certa
 
-antaŭdestino, kian nomon ĉiu el ili havas. 
+antaŭdestino, kian nomon ĉiu el ili havas.
 
 La botelon fintrinkis Chodounskë, unua laŭ la alfabeta or-
 
@@ -12426,7 +12375,7 @@ do, akompanata per minaca rigardo de Vanêk, kiu al si elkal-
 
 kulis, ke kiel lasta li havos je unu gluto pli, kio estis kruda
 
-matematika eraro, ĉar estis dudek unu glutoj. 
+matematika eraro, ĉar estis dudek unu glutoj.
 
 Poste ili ludis simplan cvikon kun tri kartoj; montriĝis, ke
 
@@ -12438,15 +12387,15 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-la unujara volontulo ĉiufoje, kiam li alprenas atutan karton, 
+la unujara volontulo ĉiufoje, kiam li alprenas atutan karton,
 
 uzas ĉe tio religiajn sentencojn el la Sankta Skribo. Prenante
 
 al si atutan fanton, li vokis: ”Sinjoro, lasu al mi tiun ĉi fanton ankaŭ ĉi-somere, ke mi ĝin kultivu kaj sterku, ĝi alportu al mi
 
-fruktojn.” 
+fruktojn.”
 
-Kiam oni al li riproĉis, ke li aŭdacis alpreni eĉ atutan okon, 
+Kiam oni al li riproĉis, ke li aŭdacis alpreni eĉ atutan okon,
 
 li ekvokis per forta voĉo: ”ĉu virino, havanta dek groŝojn, se
 
@@ -12454,11 +12403,11 @@ li ekvokis per forta voĉo: ”ĉu virino, havanta dek groŝojn, se
 
 fervore, dum ŝi ne trovos? Kaj kiam ŝi trovis, ŝi kunvokas naj-
 
-barojn kaj amikinojn dirante: ’¯oju kune kun mi, ĉar mi al-
+barojn kaj amikinojn dirante: ’oju kune kun mi, ĉar mi al-
 
 prenis atutan okon kaj en kartoj venis al mi atuta reĝo kun
 
-aso\!’ — Donu ĉi tien do la kartojn, vi ĉiuj malgajnis.” 
+aso!’ — Donu ĉi tien do la kartojn, vi ĉiuj malgajnis.”
 
 La unujara volontulo Marek havis vere grandan feliĉon en
 
@@ -12476,21 +12425,21 @@ soldon. Li estis per tio konsternita kaj la unujara volontulo
 
 postulis de li atestojn, ke ĉe elpago de soldo la ĉefserĝento-
 
-kontisto Vanêk elpagu la soldon de Chodounskë al li. 
+kontisto Vanêk elpagu la soldon de Chodounskë al li.
 
 ”Ne timu, Chodounskë,” konsolis lin Ôvejk. ”Se vi havos
 
-feliĉon, vi falos en la unua batalo kaj koncerne viajn soldojn, 
+feliĉon, vi falos en la unua batalo kaj koncerne viajn soldojn,
 
-Marek foriros kun longa nazo, trankvile tion al li subskribu.” 
+Marek foriros kun longa nazo, trankvile tion al li subskribu.”
 
-La mencio, ke Chodounskë falos, tuŝis lin tre malagrable, 
+La mencio, ke Chodounskë falos, tuŝis lin tre malagrable,
 
 tiel ke li diris kun certeco: ”Mi ne povas fali, ĉar mi estas te-
 
 lefonisto, telefonistoj estas ĉiam en fronta kaŝejo kaj dratojn
 
-oni streĉas aŭ serĉas erarojn ĉiam nur post batalo.” 
+oni streĉas aŭ serĉas erarojn ĉiam nur post batalo.”
 
 **203**
 
@@ -12504,15 +12453,15 @@ estas elmetitaj al granda danĝero kaj ke ĉefe telefonistojn
 
 ĉiam elserĉas la malamika artilerio. Neniu telefonisto estas
 
-sekurigita en sia kaŝejo. Eĉ se li estus dek metrojn sub la tero, 
+sekurigita en sia kaŝejo. Eĉ se li estus dek metrojn sub la tero,
 
 la malamika artilerio tamen lin tie trovos. Ke telefonistoj pe-
 
-reas kiel hajleroj dum somera pluvo, pri tio atestas la fakto, 
+reas kiel hajleroj dum somera pluvo, pri tio atestas la fakto,
 
 ke kiam li forlasis Bruckon, oni malfermis tie ĝuste la dude-
 
-kokan kurson por telefonistoj. 
+kokan kurson por telefonistoj.
 
 Chodounskë afliktite rigardis antaŭ sin, kio instigis Ôvejkon
 
@@ -12520,21 +12469,21 @@ al amika bona vorto: ”Nu, mallonge dirite, vi havas neenvi-
 
 indan eskapejon.” Chodounskë afable respondis: ”Fermu la
 
-faŭketon, onklino.” 
+faŭketon, onklino.”
 
 ”Mi rigardos la literon ’C’ en miaj notoj pri historio de la
 
 bataliono… Chodounskë… Chodounskë, hm, aha, ĉi tie ni
 
-tion havas: ’La telefonisto Chodounskë superŝutita de mino. 
+tion havas: ’La telefonisto Chodounskë superŝutita de mino.
 
 Li telefonas el sia tombo al la stabo: ’Mi mortas kaj gratulas
 
-al mia bataliono pro la venko\!’ ” 
+al mia bataliono pro la venko!’ ”
 
 ”Tio devas al vi sufiĉi,” diris Ôvejk, ”aŭ vi deziras ankoraŭ
 
-ion al tio aldoni? ĉu vi memoras tiun telefoniston el Titanic**58**, kiu, kiam la ŝipo komencis jam droni, senĉese telefonis suben al subakvigita kuirejo, kiam jam estos tagmanĝo?” 
+ion al tio aldoni? ĉu vi memoras tiun telefoniston el Titanic**58**, kiu, kiam la ŝipo komencis jam droni, senĉese telefonis suben al subakvigita kuirejo, kiam jam estos tagmanĝo?”
 
 ”Por mi estas tio egala,” diris la unujara volontulo, ”la an-
 
@@ -12542,21 +12491,20 @@ taŭmortan eldiron de Chodounskë eblas eventuale komple-
 
 tigi per tio, ke li fine vokos per telefono: ’Salutu de mi nian
 
-feran brigadon\!’ ” 
+feran brigadon!’ ”
 
-58 granda, luksa angla vaporŝipo, kiu dum sia unua ŝipveturo el Eŭro-po al Usono kunpuŝiĝis kun glacimonto kaj la 15an de aprilo 1912
+58 granda, luksa angla vaporŝipo, kiu dum sia unua ŝipveturo el Eŭro-po al Usono kunpuŝiĝis kun glacimonto kaj la 15an de
 
 dronis. La katastrofon ne postvivis 1503 homoj
 
 **204**
 
-!(images/000003.png)
 
 LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-4. MARŝI\! MARŝ’\! 
+4. MARŝI! MARŝ’!
 
 Kiam oni alveturis al Sanok, montriĝis, ke en la vagono
 
@@ -12584,7 +12532,7 @@ ciojn, ke la ”fera brigado” kun sia stabo koncentru marŝbata-
 
 lionojn cent kvindek kilometrojn en la ariero, se la fronto
 
-59 nekonsekvenceco de la aŭtoro, ĝuste devas esti ”por la alveturinta marŝbataliono de la naŭdekunua regimento” \(kio estas tute klara el antaŭa eĉ sekvanta teksto\)
+59 nekonsekvenceco de la aŭtoro, ĝuste devas esti ”por la alveturinta marŝbataliono de la naŭdekunua regimento” (kio estas tute klara el antaŭa eĉ sekvanta teksto)
 
 **205**
 
@@ -12594,17 +12542,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 etendiĝis tiutempe de Brody al Bug kaj laŭlonge de la rivero
 
-norden al Sokal’. 
+norden al Sokal’.
 
 Tiu ĉi tre interesa strategia demando estis solvita terure
 
 simple, kiam la kapitano Ságner iris en Sanok anonci al la
 
-stabo de la brigado alveturon de la marŝbataliono. 
+stabo de la brigado alveturon de la marŝbataliono.
 
 Kuriera oficiro estis adjutanto de la brigado, kapitano
 
-Tayrle. 
+Tayrle.
 
 ”Mi tre miras,” diris la kapitano Tayrle, ”ke vi ne ricevis
 
@@ -12612,19 +12560,19 @@ certajn sciigojn. La marŝordono estas certa. Nature vi havis
 
 devon anticipe al ni anonci la linion de via marŝo. Laŭ dispo-
 
-zicioj de la ĉefa stabo vi alveturis je du tagoj pli frue.” 
+zicioj de la ĉefa stabo vi alveturis je du tagoj pli frue.”
 
 La kapitano Ságner iom ruĝiĝis, sed ne venis al li en la
 
 menson ripeti ĉiujn tiujn ĉifritajn telegramojn, kiujn li rice-
 
-vis dum la tuta vojo. 
+vis dum la tuta vojo.
 
 ”Mi miras al vi,” diris la adjutanto Tayrle…
 
 ”Mi opinias,” respondis la kapitano Ságner, ”ke ni ĉiuj ofi-
 
-ciroj alparolas nin reciproke ’ci’.” 
+ciroj alparolas nin reciproke ’ci’.”
 
 ”Bone,” diris la kapitano Tayrle, ”diru al mi, ĉu ci estas akti-
 
@@ -12644,7 +12592,7 @@ vigi aŭ en civila vivo plenumas oficiran ekzamenon kaj kiel
 
 civilulo plu faras idiotaĵojn, kaj kiam venas milito, estas el li
 
-ne leŭtenanto, sed surfekiĝinto\!” 
+ne leŭtenanto, sed surfekiĝinto!”
 
 La kapitano Tayrle forkraĉis kaj intime ekfrapetis la kapita-
 
@@ -12662,27 +12610,27 @@ nojn, ’anĝelajn malĉastulinojn’. Ni havas ĉi tie filinon de ge-
 
 neralo, kiu antaŭe praktikis lesbaninan amon. Ni ĉiuj alives-
 
-tas nin kiel virinoj kaj ci vidos, kion ŝi scipovas\! ŝi estas tia
+tas nin kiel virinoj kaj ci vidos, kion ŝi scipovas! ŝi estas tia
 
 malgrasa bestio, ke oni eble eĉ ne ekpensus pri io tia. Sed ŝi
 
 tion scipovas, kamarado. ŝi estas pasiulino- cetere, ci tion
 
-ekkonos.” 
+ekkonos.”
 
-”Pardonu\!” li embarasiĝis; ”mi devas denove vomi, tio es-
+”Pardonu!” li embarasiĝis; ”mi devas denove vomi, tio es-
 
-tas hodiaŭ jam la trian fojon.” 
+tas hodiaŭ jam la trian fojon.”
 
 Kiam li poste revenis, li sciigis al la kapitano Ságner, por
 
 pruvi, kiel estas ĉi tie gaje, ke tio estas sekvoj de la hieraŭa
 
-vespero, kiun partoprenis ankaŭ pionira taĉmento. 
+vespero, kiun partoprenis ankaŭ pionira taĉmento.
 
 Kun komandanto de tiu ĉi taĉmento, kiu ankaŭ estis en la
 
-rango de kapitano, konatiĝis la kapitano Ságner tre baldaŭ. 
+rango de kapitano, konatiĝis la kapitano Ságner tre baldaŭ.
 
 Nome, la kancelarion enfalis uniformita longulo kun tri oraj
 
@@ -12690,13 +12638,13 @@ steletoj, kaj en postdiboĉa inerteco, ne rimarkante la ĉeeston
 
 de la kapitano Ságner, tute intime ekparolis al Tayrle: ”Kion
 
-ci faras, porkino? Hieraŭ ci ’bele’ malplaĉigis nian grafinon\!” 
+ci faras, porkino? Hieraŭ ci ’bele’ malplaĉigis nian grafinon!”
 
 Li sidiĝis sur seĝon, kaj vipante per maldika kanvergo siajn
 
 tibiojn, li ridis plengorĝe: ”Se mi rememoros, kiel ci vomis en
 
-ŝian sinon…” 
+ŝian sinon…”
 
 ”Jes,” diris Tayrle, ”hieraŭ estis tio vere gaja.” Nur poste li
 
@@ -12706,7 +12654,7 @@ go, kaj ĉiuj eliris tra kancelario de administra fako de la bri-
 
 gado eksteren en kafejon, kiu subite elkreskis el antaŭa bie-
 
-rejo. 
+rejo.
 
 Kiam ili iris tra la kancelario, la kapitano Tayrle prenis al
 
@@ -12724,7 +12672,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 la, sendanĝera laboro en ariero de la armeo kun grandaj, kon-
 
-tente ŝtopitaj ventroj kaj en ekstraj uniformoj. 
+tente ŝtopitaj ventroj kaj en ekstraj uniformoj.
 
 Kaj al tiuj ĉi dek du dikaj apostoloj de fronteskapo la ka-
 
@@ -12732,27 +12680,27 @@ pitano Tayrle diris, volante prezentiĝi antaŭ Ságner kaj la alia
 
 kapitano: ”Ne opiniu, ke mi havas vin ĉi tie kiel en porkog-
 
-rasigejo. Porkoj\! Malpli vori kaj drinki, sed pli kuri. 
+rasigejo. Porkoj! Malpli vori kaj drinki, sed pli kuri.
 
 Nun mi montros al vi ankoraŭ alian dresadon,” anoncis
 
-Tayrle al siaj kunuloj. 
+Tayrle al siaj kunuloj.
 
 Li denove ekbatis per kanvergo sur la tablon kaj demandis
 
-tiujn dek du: ”Kiam vi krevos, porkoj?” 
+tiujn dek du: ”Kiam vi krevos, porkoj?”
 
 ĉiuj dek du respondis unisone: ”Laŭ via ordono, sinjoro
 
-kapitano.” 
+kapitano.”
 
 Ridante al sia propra idioteco kaj stulteco, la kapitano
 
-Tayrle eliris el la kancelario. 
+Tayrle eliris el la kancelario.
 
 Kiam ĉiuj tri sidis en la kafejo, Tayrle ordonis alporti bo-
 
-telon da sorpa likvoro kaj venigi fraŭlinojn, kiuj estas liberaj. 
+telon da sorpa likvoro kaj venigi fraŭlinojn, kiuj estas liberaj.
 
 Montriĝis, ke la kafejo estas propre nenio alia ol bordelo, kaj
 
@@ -12760,7 +12708,7 @@ Montriĝis, ke la kafejo estas propre nenio alia ol bordelo, kaj
 
 scitiĝis ĝis la plej alta grado, en la antaŭĉambro vulgare insul-
 
-tis la prostituistinon kaj kriis, kiu estas ĉe fraŭlino Ella. Kiam li ricevis respondon, ke tie estas ia leŭtenanto, li tondris ankoraŭ pli. 
+tis la prostituistinon kaj kriis, kiu estas ĉe fraŭlino Ella. Kiam li ricevis respondon, ke tie estas ia leŭtenanto, li tondris ankoraŭ pli.
 
 ĉe fraŭlino Ella estis sinjoro leŭtenanto Dub, kiu, kiam la
 
@@ -12784,21 +12732,21 @@ LA BRAVA SOLDATO ÔVEJK
 
 oni obeis lian ordonon, ĉar ili estas jam en zono de la fron-
 
-to; ĉiu, kiun li tie trafos, estos starigita antaŭ feldtribunalon. 
+to; ĉiu, kiun li tie trafos, estos starigita antaŭ feldtribunalon.
 
 La leŭtenanto Dub iris persone konvinkiĝi, ĉu oni ne ma-
 
-lobeis lian ordonon, kaj ŝajne tial li elektis kiel elirpunkton de sia kontrolo sofon en ĉambreto de Ella en unua etaĝo de t.n. 
+lobeis lian ordonon, kaj ŝajne tial li elektis kiel elirpunkton de sia kontrolo sofon en ĉambreto de Ella en unua etaĝo de t.n.
 
-”urba kafejo”, kaj sur tiu ĉi sofo tre bone sin amuzis. 
+”urba kafejo”, kaj sur tiu ĉi sofo tre bone sin amuzis.
 
-Intertempe la kapitano Ságner foriris jam al sia bataliono. 
+Intertempe la kapitano Ságner foriris jam al sia bataliono.
 
 Scie, la kunularo de Tayrle disiĝis. La kapitanon Tayrle oni
 
 serĉis el la brigado, kie la komandanto de la brigado jam pli
 
-ol unu horon serĉis sian adjutanton. 
+ol unu horon serĉis sian adjutanton.
 
 Venis novaj ordonoj de la divizio kaj necesis definitive de-
 
@@ -12806,7 +12754,7 @@ cidi pri marŝordono por la alveturinta naŭdekunua regimen-
 
 to, ĉar en origina direkto de tiu ĉi marŝos laŭ la novaj dispo-
 
-zicioj infanteria bataliono de la centdua regimento. 
+zicioj infanteria bataliono de la centdua regimento.
 
 ĉio tio estis tre konfuza, la rusoj cedis en nordorienta ang-
 
@@ -12834,9 +12782,9 @@ sian viraron en la gimnazio, kie ĝuste nun estis lokitaj la naŭ-
 
 dekunuuloj. Por loki sian stabon li postulis malloĝigi domon
 
-de Krakova banko, en kiu ĝuste estis la stabo de la brigado. 
+de Krakova banko, en kiu ĝuste estis la stabo de la brigado.
 
-La komandanto de la brigado kontaktis rekte la divizion, 
+La komandanto de la brigado kontaktis rekte la divizion,
 
 kie li precize priskribis la situacion, poste parolis kun la divi-
 
@@ -12850,7 +12798,7 @@ zio la akreokula Hanovrano, sekve de kio venis ordono al la
 
 brigado: ”La brigado formarŝas el la urbo je la sesa horo ves-
 
-pere direkte al Turowa-Wolska-Liskowiec-Starasol-Sambor, 
+pere direkte al Turowa-Wolska-Liskowiec-Starasol-Sambor,
 
 kie pluaj ordonoj. Kun ĝi marŝas infanteria bataliono de la
 
@@ -12862,25 +12810,25 @@ do formarŝas duonhoron antaŭ la sesa al Turowa, inter la
 
 suda kaj norda flankgardo distanco de tri kaj duono de kilo-
 
-metro. La postgardo foriras kvaronhoron post la sesa\!” 
+metro. La postgardo foriras kvaronhoron post la sesa!”
 
 Tiel do en gimnazio ekis granda tumulto kaj al konsiliĝo de
 
 batalionaj oficiroj mankis nur la leŭtenanto Dub, kiun elserĉi
 
-oni ordonis al Ôvejk. 
+oni ordonis al Ôvejk.
 
 ”Mi esperas,” diris al li la ĉefleŭtenanto Lukáô, ”ke vi tro-
 
 vos lin sen ĉiuj malfacilaĵoj, ĉar vi du senĉese havas ion inter
 
-vi.” 
+vi.”
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto, ke mi petas skri-
 
 ban ordonon de la kompanio. Tio estas ĝuste pro tio, ke in-
 
-ter ni estas ĉiam ĝuste tiu ’io’.” 
+ter ni estas ĉiam ĝuste tiu ’io’.”
 
 Dum la ĉefleŭtenanto Lukáô kopiis sur forŝirebla folio en
 
@@ -12896,9 +12844,9 @@ tia por konvinkiĝi, ĉu neniu de lia plotono deziras veni antaŭ
 
 feldtribunalon, per kiu li kutime minacas. Li mem proklamis
 
-antaŭ la viraro de sia plotono, ke li trairos ĉiujn bordelojn, kaj poste ke estos ve kaj ili lin ekkonos de tiu malbona flanko. 
+antaŭ la viraro de sia plotono, ke li trairos ĉiujn bordelojn, kaj poste ke estos ve kaj ili lin ekkonos de tiu malbona flanko.
 
-Cetere, mi scias, kie li troviĝas. Li estas ĝuste ĉi tie en la kontraŭa kafejo, ĉar la tuta viraro rigardis, kien li iras unue.” 
+Cetere, mi scias, kie li troviĝas. Li estas ĝuste ĉi tie en la kontraŭa kafejo, ĉar la tuta viraro rigardis, kien li iras unue.”
 
 ”Kunigitaj amuzejoj kaj urba kafejo”, entrepreno, kiun
 
@@ -12914,7 +12862,7 @@ lis iri tra la kafejo, iris de malantaŭe, kie en suno varmigis sin iom pli aĝa
 
 proksimume en tiu ĉi senco: ”Eniru, soldateto, ni havas ĉi tie
 
-belajn fraŭlinetojn..” 
+belajn fraŭlinetojn..”
 
 Kiam soldateto eniris, ŝi kondukis lin tra koridoro en ian
 
@@ -12924,7 +12872,7 @@ kuris en virina ĉemizo; unue ŝi volis monon, kaj tiun ĉi sumon
 
 tuj surloke, dum la soldateto dekroĉadis sian zonon kun ba-
 
-joneto, enkasigis la prostituistino. 
+joneto, enkasigis la prostituistino.
 
 Oficiraro alvenadis tra la kafejo. La vojo de sinjoroj ofici-
 
@@ -12940,11 +12888,11 @@ vinon aŭ likvorojn. ĉi tie la prostituistino toleris nenion, tio
 
 cimoj, kuŝaĉis sur sofo la leŭtenantro Dub en kalsono, dum
 
-fraŭlino Ella rakontis al li elpensitan tragedion de sia vivo, 
+fraŭlino Ella rakontis al li elpensitan tragedion de sia vivo,
 
 kiel tio ĉiam estas en tiuj ĉi okazoj, ke ŝia patro estis fabrikan-to kaj ŝi profesorino de liceo en Budapesto kaj ke tion ĉi ŝi
 
-faris pro malfeliĉa amo. 
+faris pro malfeliĉa amo.
 
 Je manetendo sur tableto malantaŭ la leŭtenanto Dub es-
 
@@ -12956,7 +12904,7 @@ caĵojn, estis tio ŝarĝoprovo, ke la leŭtenanto Dub ne toleras
 
 multe. Laŭ lia parolo vidiĝis, ke li ĉion tion jam intermiksis kaj ke Ellan li konsideras kiel sian servosoldaton Kunert; tiel li ŝin ankaŭ alparolis kaj minacis al la supozata Kunert laŭ sia kutimo: ”Kunert, Kunert, bestio, kiam vi min ekkonos de tiu mia
 
-malbona flanko…” 
+malbona flanko…”
 
 **211**
 
@@ -12970,29 +12918,29 @@ datetojn, kiuj eniradis de malantaŭe, sed li afable elŝiris sin al ulino en ĉ
 
 kaj tiu antaŭ la okuloj de Ôvejk arogante malkonfesis, ke ili
 
-havus ĉi tie ian sinjoron leŭtenanton kiel gaston. 
+havus ĉi tie ian sinjoron leŭtenanton kiel gaston.
 
 ”Ne alkriegu min tro, moŝtulino,” diris Ôvejk afable, dolĉe
 
 ĉe tio ridetante, ”aŭ mi donos al vi sur la faŭkon. Foje ĉe ni en
 
-Platnéæská-strato oni batregalis prostituistinon tiel, ke ŝi per-
+Platnéĝská-strato oni batregalis prostituistinon tiel, ke ŝi per-
 
 dis la konscion. Tiam filo serĉis tie sian patron, certan Von-
 
 dráâek, komercejo per pneŭmatikoj. Nomo de tiu prostituis-
 
-tino estis Kæován, kaj kiam oni ŝin rekonsciigis kaj en savsta-
+tino estis Kĝován, kaj kiam oni ŝin rekonsciigis kaj en savsta-
 
-cio demandis pri ŝia nomo, ŝi diris, ke ĝi komencas per ’C’. 
+cio demandis pri ŝia nomo, ŝi diris, ke ĝi komencas per ’C’.
 
-Kaj kia estas via estimata nomo?” 
+Kaj kia estas via estimata nomo?”
 
 La ”honorinda matrono” komencis terure kriegi, kiam post
 
 tiuj ĉi vortoj Ôvejk ŝin forpuŝis kaj serioze paŝis tra ligna ŝtu-
 
-paro en la unuan etaĝon. 
+paro en la unuan etaĝon.
 
 Sube aperis mem posedanto de la bordelo, malriĉiĝinta
 
@@ -13000,7 +12948,7 @@ pola nobelo, kiu elkuris malantaŭ Ôverjk tra la ŝtuparo kaj
 
 komencis tiri lin je la jako, ĉe kio li kriis al li germane, ke tie supre estas tio por soldatoj malpermesita, tie estas tio por
 
-sinjoroj oficiroj, por la soldataro estas tio sube. 
+sinjoroj oficiroj, por la soldataro estas tio sube.
 
 Ôvejk lin atentigis, ke li venas ĉi tien en intereso de la tuta
 
@@ -13014,7 +12962,7 @@ la ŝtuparo kaj supre daŭrigis en traserĉado de ĉambroj. Li
 
 konvinkiĝis, ke ĉiuj ĉambretoj estas senhomaj, nur kiam ĉe la
 
-fino de perono li ekfrapetis, premis la klinkon kaj malfermetis
+fino de perono li ekfrapetis, premis la kln kaj malfermetis
 
 la pordon, eksonis jelpa voĉo de Ella: ”Okupite” kaj senpere
 
@@ -13026,7 +12974,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 post tio profunda voĉo de la leŭtenanto Dub, kiu ŝajne opi-
 
-niis, ke li estas ankoraŭ en sia ĉambro en la tendaro: ”Eniru\!” 
+niis, ke li estas ankoraŭ en sia ĉambro en la tendaro: ”Eniru!”
 
 Ôvejk eniris, alpaŝis al la sofo kaj transdonante la kopion de
 
@@ -13040,7 +12988,7 @@ kaj laŭ tiu ĉi ordono, kiun mi al vi transdonas, tuj iri en nian
 
 kazernon en la gimnazio, ni havas tie grandan militan kon-
 
-siliĝon\!” 
+siliĝon!”
 
 La leŭtetanto Dub malfermegis je li la okulojn kun etaj pu-
 
@@ -13050,15 +12998,15 @@ ne ekkoni Ôvejkon. Tuj venis al li ideo, ke oni sendas al li Ôvej-
 
 kon al raporto kaj tial li diris: ”Mi tuj reguligos kun vi la kon-
 
-tojn, Ôvejk. Vi vidos, - kiel - vi - finiĝos…” 
+tojn, Ôvejk. Vi vidos, - kiel - vi - finiĝos…”
 
 ”Kunert,” li vokis al Ella, ”verŝu - al mi - ankoraŭ - glase-
 
-ton\!” 
+ton!”
 
 Li ektrinkis, kaj ŝirante la skriban ordonon, ridis: ”ĉu tio -
 
-estas - ekskuzatesto? ĉe - ni - valoras - neniaj ekskuzatestoj. 
+estas - ekskuzatesto? ĉe - ni - valoras - neniaj ekskuzatestoj.
 
 - Ni estas - en - soldatservo - kaj ne - en - lernejo. ĉu oni - do
 
@@ -13066,13 +13014,13 @@ estas - ekskuzatesto? ĉe - ni - valoras - neniaj ekskuzatestoj.
 
 - mi donos - al vi - kelke da - vangobatoj. - En kiu - jaro -
 
-Filipo - la Macedona - venkis - romanojn**60**, vi - tion - ne scias - vi - virĉevalo\!” 
+Filipo - la Macedona - venkis - romanojn**60**, vi - tion - ne scias - vi - virĉevalo!”
 
 ”Obee mi raportas, sinjoro leŭtenanto,” daŭrigis Ôvejk sen-
 
 kompate, ”tio estas la plej supera ordono de la brigado, ke
 
-sinjoroj oficiroj sin vestu kaj iru al bataliona konsiliĝo, scie, 
+sinjoroj oficiroj sin vestu kaj iru al bataliona konsiliĝo, scie,
 
 ni ekmarŝos, kaj ankoraŭ nur nun decidiĝos, kiu kompanio
 
@@ -13088,7 +13036,7 @@ formos antaŭgardon, flankgradon aŭ postgardon. Jam nun
 
 oni pri tio decidos kaj mi opinias, sinjoro leŭtenanto, ke an-
 
-kaŭ vi rajtas ion al tio diri.” 
+kaŭ vi rajtas ion al tio diri.”
 
 Tiu ĉi diplomata parolo iom rekonsciigis la leŭtenanton
 
@@ -13096,11 +13044,11 @@ Dub, tiel ke li nun komencis akiri certecon, ke li ja ne estas en
 
 la kazerno, sed pro singardemo li ankoraŭ demandis: ”Kie mi
 
-estas?” 
+estas?”
 
 ”Vi bonvolas esti en bordelo, sinjoro leŭtenanto. Tiuj voj-
 
-oj de Sinjoro estas diversaj.” 
+oj de Sinjoro estas diversaj.”
 
 La leŭtenanto Dub peze ekĝemis, derampis de sur la sofo
 
@@ -13114,7 +13062,7 @@ no tute alian signifon kaj sekve de la malfeliĉa amo tuj ram-
 
 pis sur la liton, rapide eltrinkis reston de sorpa likvoro en la
 
-botelo kaj denove iris malantaŭ la leŭtenanto. 
+botelo kaj denove iris malantaŭ la leŭtenanto.
 
 Surstrate tio denove eniris al la leŭtenanto Dub en la ka-
 
@@ -13124,13 +13072,13 @@ sencaĵojn sen kia ajn interrilato. Li parolis pri tio, ke li havas hejme poŝtm
 
 oron. Al ĉiu frazo li aldonis: ”Mi opinias, ke vi komprenas
 
-min bone.” 
+min bone.”
 
 ”Certe, ke mi komprenas vin bone,” respondis Ôvejk. ”Vi
 
 parolas simile kiel lutisto Pokornë en Budêjovice. Tiu, kiam
 
-homoj lin demandis: ’ĉu vi jam banis vin ĉijare en Malôe?’, 
+homoj lin demandis: ’ĉu vi jam banis vin ĉijare en Malôe?’,
 
 respondis: ’Mi ne banis min, sed aliflanke ĉijare estos multe
 
@@ -13138,7 +13086,7 @@ da prunoj.’ Aŭ oni lin demandis: ’ĉu vi jam manĝis ĉijare bo-
 
 letojn?’ kaj li al tio respondis: ’Mi ne manĝis, sed tiu nova
 
-Maroka sultano laŭdire estas tre bonkora homo.’ ” 
+Maroka sultano laŭdire estas tre bonkora homo.’ ”
 
 **214**
 
@@ -13150,11 +13098,11 @@ La leŭtenanto Dub haltis kaj elbuŝigis: ”Ke la Maroka sul-
 
 tano? Tio estas malatentata aŭtoritatulo,” viŝis al si ŝviton de
 
-sur la frunto, kaj rigardante Ôvejkon per nebulecaj okuloj, 
+sur la frunto, kaj rigardante Ôvejkon per nebulecaj okuloj,
 
 ekmurmuris: ”Tiel ĉi mi ne ŝvitis eĉ vintre. ĉu vi konsentas
 
-kun tio? ĉu vi min komprenas?” 
+kun tio? ĉu vi mmprenas?”
 
 ”Mi komprenas, sinjoro leŭtenanto. En nian gastejon ’ĉe
 
@@ -13166,11 +13114,11 @@ li miras, kia diferenco estas inter la temperaturo somere kaj
 
 vintre. Ke ŝajnas al li tre stranga, kial homoj tion ankoraŭ ne
 
-malkaŝis.” 
+malkaŝis.”
 
 Inter pordego de la gimnazio Ôvejk forlasis la leŭtenanton
 
-Dub, kiu ŝanceliris tra la ŝtuparo supren en konferencejon, 
+Dub, kiu ŝanceliris tra la ŝtuparo supren en konferencejon,
 
 kie estis la milita konsiliĝo, kaj tiu ankaŭ tuj raportis al la
 
@@ -13180,17 +13128,17 @@ li sidis kun la kapo klinita kaj de tempo al tempo li leviĝis ĉe
 
 diskuto por ekvoki: ”Via opinio estas ĝusta, sinjoroj, sed mi
 
-estas tute ebria.” 
+estas tute ebria.”
 
 Kiam estis ellaboritaj ĉiuj dispozicioj kaj oni decidis, ke la
 
 kompanio de la ĉefleŭtenanto Lukáô iru kiel antaŭgardo, la
 
-leŭtenanto Dub subite skuiĝis, leviĝis kaj diris: ”Mi memoras, 
+leŭtenanto Dub subite skuiĝis, leviĝis kaj diris: ”Mi memoras,
 
-sinjoroj, nian klasprofesoron en la unua klaso. Gloron al li, 
+sinjoroj, nian klasprofesoron en la unua klaso. Gloron al li,
 
-gloron al li, gloron al li\!” 
+gloron al li, gloron al li!”
 
 Al la ĉefleŭtenanto Lukáô venis en la menson, ke estos plej
 
@@ -13202,7 +13150,7 @@ porde staris gardistaro, por ke iu eble ne finŝtelu jam duone
 
 disŝtelitajn kolektojn da mineraloj en la kabineto. El la briga-
 
-do oni ankaŭ senĉese atentigis pri tio trairantajn taĉmentojn. 
+do oni ankaŭ senĉese atentigis pri tio trairantajn taĉmentojn.
 
 Tiu ĉi organiza afero datiĝis de la tempo, kiam bataliono
 
@@ -13214,11 +13162,11 @@ LA BRAVA SOLDATO ÔVEJK
 
 de honvedoj, loĝigita en la gimnazio, komencis rabi en la ka-
 
-bineto. Al la honvedoj plaĉis precipe kolekto da mineraloj, 
+bineto. Al la honvedoj plaĉis precipe kolekto da mineraloj,
 
 buntaj kristaloj kaj piritoj, kiujn ili enŝtopis en siajn dorsosa-
 
-kojn. 
+kojn.
 
 Sur malgranda soldata tombejo estas sur unu el blankaj
 
@@ -13228,17 +13176,17 @@ sonĝon honvedo, kiu ĉe tiu rabado de gimnaziaj kolektoj el-
 
 trinkis ĉiun denaturigitan alkoholon el ujo, en kiu estis kon-
 
-servitaj diversaj reptilioj. 
+servitaj diversaj reptilioj.
 
 La mondmilito pereigis la homan genton ankaŭ per ser-
 
-penta alkoholaĵo. 
+penta alkoholaĵo.
 
 Kiam jam ĉiuj disiris, la ĉefleŭtenanto Lukáô alvokigis la
 
 servosoldaton de la leŭtenanto Dub, Kunerton, kiu forkondu-
 
-kis kaj sur sofon kuŝigis sian leŭtenanton. 
+kis kaj sur sofon kuŝigis sian leŭtenanton.
 
 La leŭtenanto Dub subite estis kiel malgranda infano; li
 
@@ -13246,7 +13194,7 @@ prenis Kunerton je la mano, komencis trarigardi lian manpla-
 
 ton, ĉe kio li diris, ke el lia manplato li divenos la nomon de
 
-lia estonta edzino. 
+lia estonta edzino.
 
 ”Kia esta via nomo? Elprenu el mia surbrusta poŝo de la
 
@@ -13254,15 +13202,15 @@ jako notlibron kaj krajonon. Via nomo estas do Kunert; venu
 
 ĉi tien post kvaronhoro kaj mi lasos al vi ĉi tie paperfolieton
 
-kun nomo de via sinjorino edzino.” 
+kun nomo de via sinjorino edzino.”
 
 Apenaŭ li tion diris, li komencis ronki, sed li denove el tio
 
 vekiĝis kaj komencis skribaĉi en sian notlibron; kion li skri-
 
-bis, tion li elŝiris, ĵetis teren, kaj metante mistere fingron al la buŝo, diris balbute: ”Nun ankoraŭ ne, nur post kvaronhoro. 
+bis, tion li elŝiris, ĵetis teren, kaj metante mistere fingron al la buŝo, diris balbute: ”Nun ankoraŭ ne, nur post kvaronhoro.
 
-Plej bone estos serĉi la papereton kun vualitaj okuloj.” 
+Plej bone estos serĉi la papereton kun vualitaj okuloj.”
 
 Kunert estis tia bona bruto, ke post kvaronhoro li vere ve-
 
@@ -13274,9 +13222,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 de la leŭtenanto Dub: ”La nomo de via estonta edzino estas:
 
-sinjorino Kunert.” 
+sinjorino Kunert.”
 
-Kiam post momento li montris tion al Ôvejk, tiu al li diris, 
+Kiam post momento li montris tion al Ôvejk, tiu al li diris,
 
 ke Kunert nepre bone kaŝu tiu papereton, ke tiajn dokumen-
 
@@ -13284,9 +13232,8 @@ tojn de soldataj ranguloj ĉiu devas estimi, tio iam en aktiva
 
 soldatservo ne ekzistis, ke oficiro skribu al sia servosoldato
 
-kaj alparolu lin sinjoro. 
+kaj alparolu lin sinjoro.
 
-\*
 
 Kiam estis finitaj preparoj por ekmarŝi laŭ la donitaj dispo-
 
@@ -13300,11 +13247,11 @@ kaj havis al ĝi parolon. Scie, tiu viro tre ŝatis oratori, saltis de unua al d
 
 simiĝas al fronto de la malamiko, de kiu dividas nin kelke da
 
-tagmarŝoj. ¯is nun dum via marŝo vi ne havis la okazon, sol-
+tagmarŝoj. is nun dum via marŝo vi ne havis la okazon, sol-
 
 datoj, sciigi viajn adresojn al viaj karaj, kiujn vi forlasis, por ke viaj malproksimaj sciu, kien ili al vi skribu kaj por ke vi
 
-ĝojigu vin per leteroj de viaj karaj postvivantoj.” 
+ĝojigu vin per leteroj de viaj karaj postvivantoj.”
 
 Li ne kapablis iel el tio eliri, ripetis tion sennombre sin-
 
@@ -13312,7 +13259,7 @@ sekve: ”Karaj malproksimaj — karaj parencoj — karaj postvi-
 
 vantoj” ktp., ĝis fine li ekimpetis el tiu ĉi rondo per forta ek-
 
-voko: ”Por tio ni havas feldpoŝtojn ĉe la fronto\!” 
+voko: ”Por tio ni havas feldpoŝtojn ĉe la fronto!”
 
 Lia plua parolo aspektis tiel, kvazaŭ ĉiuj tiuj ĉi homoj en
 
@@ -13332,7 +13279,7 @@ meron 72, kie eble kuŝas letero el hejmo de liaj karaj proksi-
 
 muloj kun sendaĵo, enhavanta pecon da fumaĵita viando, lar-
 
-do kaj hejmaj biskvitoj. 
+do kaj hejmaj biskvitoj.
 
 Post tiu ĉi parolo, kiam brigada muzikistaro finludis impe-
 
@@ -13342,7 +13289,7 @@ opaj grupoj de tiu ĉi homa brutaro, destinita por esti buĉita
 
 ie malantaŭ Bug, ekmarŝis unu post la alia laŭ donitaj dispo-
 
-zicioj. 
+zicioj.
 
 La dekunua kompanio ekiris duonhoron antaŭ la sesa al
 
@@ -13364,7 +13311,7 @@ sian dorsosakon kaj fusilon, rakontante al si kun la ĉefser-
 
 ĝento-kontisto Vanêk pri tio, kiel antaŭ jaroj oni bele marŝis
 
-dum manovroj ĉe Velké Meziæíâí. 
+dum manovroj ĉe Velké Meziĝíâí.
 
 ”Tio estis ĝuste tia regiono kia estas ĉi tie, sed tiam ni ne
 
@@ -13378,9 +13325,9 @@ en dorsosakojn ni metis anstataŭ tio brikojn. En unu vilaĝo
 
 venis inspektistoj, elĵetis ĉiujn brikojn el niaj dorsosakoj kaj
 
-estis da ili tiom, ke poste ia homo tie finkonstruis al si el ili
+estis da ili tiom, ke poste ia homo tie fnstruis al si el ili
 
-familian domon.” 
+familian domon.”
 
 Momenton pli poste Ôvejk energis iris apud ĉevalo de la
 
@@ -13398,7 +13345,7 @@ cevos ian belan leteron el sia hejmo. Sed kiam mi soldatis
 
 antaŭ jaroj en Budêjovice, dum la soldatservo mi ricevis en la
 
-kazernon nur unu leteron kaj tiun mi havas ankoraŭ kaŝita.” 
+kazernon nur unu leteron kaj tiun mi havas ankoraŭ kaŝita.”
 
 El malpurigita ledsako Ôvejk eltiris grasmakulitan leteron
 
@@ -13406,9 +13353,9 @@ kaj legis, tenante la paŝon kun la ĉevalo de la ĉefleŭtenanto
 
 Lukáô, kiu komencis iom troti:
 
-”Kanajlo mizera, murdisto kaj senhontulo\! Sinjoro kapo-
+”Kanajlo mizera, murdisto kaj senhontulo! Sinjoro kapo-
 
-ralo Kæíò alveturis Pragon cele de forpermeso, mi dancis kun
+ralo Kĝíò alveturis Pragon cele de forpermeso, mi dancis kun
 
 li ’ĉe Kocan’ kaj li al mi diris, ke vi laŭdire dancas ’ĉe la ver-
 
@@ -13424,7 +13371,7 @@ ovas kaj li vin ankoraŭ ĉikanos, mi petis lin pri tio. Kaj an-
 
 koraŭ por ne forgesi, kiam vi alveturos cele de forpermeso, vi
 
-jam ne trovos min inter vivuloj.” 
+jam ne trovos min inter vivuloj.”
 
 ”Kompreneble,” daŭrigis Ôvejk ĉe malrapida trotado, ”ke
 
@@ -13440,7 +13387,7 @@ deksesjara knabino dum danclecionoj al gimnaziano, kiam
 
 tiu pinĉis ŝin sur la ŝultro: ’Sinjoro, vi forviŝis polenon de mia virgeco.’ Kompreneble, ke ĉiuj ridis, kaj ŝia panjo, kiu ŝin tie
 
-61 \(propranome Anna Srb, 1835-1920\): redaktorino de porvirina revuo
+61 (propranome Anna Srb, 1835-1920): redaktorino de porvirina revuo
 
 ”Lada”, ĉeą verkistino de popolaj rakontoj kaj romanoj, el literatu-ra vidpunkto ne tro altkvalitaj, kun naivaj amimplikaĵoj
 
@@ -13468,21 +13415,21 @@ manĉe vespere mi akompanis ŝin al lageto, tie ni sidiĝis sur
 
 akvobaraĵon kaj kiam subiris la suno, mi demandis ŝin, ĉu
 
-ankaŭ ŝi amas min. Obee mi raportas, sinjoro ĉefleŭtenanto, 
+ankaŭ ŝi amas min. Obee mi raportas, sinjoro ĉefleŭtenanto,
 
 ke aero estis tia varmeta, ĉiuj birdoj kantis kaj ŝi respondis al
 
-mi kun terura rido: ’Mi amas vin kiel linlignaĵon en la pugo, 
+mi kun terura rido: ’Mi amas vin kiel linlignaĵon en la pugo,
 
 vi estas ja idiota.’ Kaj mi estis vere idiota, tiel terure idiota, obee mi raportas, sinjoro ĉefleŭtenanto, ke antaŭ tio mi paŝis
 
 inter kampoj, inter altkreskiĝinta greno en senhoma spaco, eĉ
 
-unufoje ni ne sidiĝis kaj mi montris al ŝi nur tiun dian benon, 
+unufoje ni ne sidiĝis kaj mi montris al ŝi nur tiun dian benon,
 
 mi, idioto, al tiu kampista ulino klarigadis, ke tio ĉi estas se-
 
-kalo, tio tritiko kaj tio ĉi ke estas aveno.” 
+kalo, tio tritiko kaj tio ĉi ke estas aveno.”
 
 Kaj kvazaŭ por konfirmi tiun ĉi avenon ie antaŭe finsonis
 
@@ -13498,7 +13445,7 @@ rino:
 
 *Laŭ ordono de l’ destino*
 
-*donos ĉiu ĉi ulino\!” *
+*donos ĉiu ĉi ulino!” *
 
 *En tion tuj enfalis aliaj:*
 
@@ -13524,7 +13471,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *se ŝi timus kaj hezitus…” *
 
-Poste komencis germanoj kanti la samon germane. 
+Poste komencis germanoj kanti la samon germane.
 
 Tio estas tiel malnova soldata kanto, ke kantis ĝin en ĉiuj
 
@@ -13538,9 +13485,9 @@ verdaj arbaroj sude, la kampoj estis piedpremegitaj kaj detru-
 
 itaj sub ĉevalaj hufoj kaj sub botplandoj de miloj kaj miloj de
 
-pezaj soldataj botoj. 
+pezaj soldataj botoj.
 
-”Tiel ĉi simile ni detruis tion foje dum manovroj ĉe Písek,” 
+”Tiel ĉi simile ni detruis tion foje dum manovroj ĉe Písek,”
 
 ekparolis Ôvejk, ĉirkaŭrigardante. ”Kun ni estis tie ia arkidu-
 
@@ -13556,7 +13503,7 @@ taro ne akceptis dek ok kronojn da kompenso por piedtreti-
 
 taj kvin buŝeloj da kampo, li volis, sinjoro ĉefleŭtenanto, pro-
 
-cesi, kaj ricevis pro tio dek ok monatojn en malliberejo. 
+cesi, kaj ricevis pro tio dek ok monatojn en malliberejo.
 
 Mi opinias, sinjoro ĉefleŭtenanto, ke li propre povis ĝoji, se
 
@@ -13570,7 +13517,7 @@ rigus ilin sur sia terpeco, kaj ĉiu el ili devus bonvenigi la al-
 
 trangan sinjoron, kiel mi legis pri Hindio, kie subuloj de ia
 
-regnestro lasis sin de tiu elefanto dispremi.” 
+regnestro lasis sin de tiu elefanto dispremi.”
 
 **221**
 
@@ -13580,13 +13527,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Kion vi tion diras, Ôvejk?” vokis al li de sur la ĉevalo la
 
-ĉefleŭtenanto Lukáô. 
+ĉefleŭtenanto Lukáô.
 
 ”Obee mi raportas, sinjoro ĉefleŭtenanto, ke mi havas en
 
-la menso tiu elefanton, kiu portis sur sia dorso la regnestron, 
+la menso tiu elefanton, kiu portis sur sia dorso la regnestron,
 
-pri kiu mi legis.” 
+pri kiu mi legis.”
 
 ”ĉefe, ke vi scias, Ôvejk, ĉion ĝuste klarigi,” diris la ĉefleŭte-
 
@@ -13600,11 +13547,11 @@ la ŝultroj kaj ĉiu tion al si plifaciligis, kiel li povis. Ili transme-tis fus
 
 opiniis, ke ili helpos al si pli bone, se ili iros tra fosaĵo aŭ sur kamplimo, kie la grundo sub la piedoj ŝajnis al ili esti tamen
 
-nur pli mola ol sur la polvokovrita ŝoseo. 
+nur pli mola ol sur la polvokovrita ŝoseo.
 
 Plejparto da ili iris kun la kapo klinita teren kaj ĉiuj sufe-
 
-ris de granda soifo, ĉar malgraŭ tio, ke la suno jam subiris, 
+ris de granda soifo, ĉar malgraŭ tio, ke la suno jam subiris,
 
 estis same sufoke kaj varmege kiel tagmeze kaj en la ladbo-
 
@@ -13638,7 +13585,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-vinkante sin mem, ke ili faras tion por ĝuste dividi la pezon, 
+vinkante sin mem, ke ili faras tion por ĝuste dividi la pezon,
 
 por ke la rimenoj de la dorsosako ne malsuprentiru al ili unu
 
@@ -13650,13 +13597,13 @@ simile, se antaŭ tio kadetoj aŭ serĝentoj, kiam tiuj de mal-
 
 proksime ekvidis la ĉevalon de la ĉefleŭtenanto Lukáô, ne pe-
 
-lis ilin antaŭen. 
+lis ilin antaŭen.
 
 La ĉefleŭtenanto Lukáô rajdante laŭlonge de ili tute afable
 
 ilin admonis, ke ili leviĝu, ke al Turowa-Wolska estas ankoraŭ
 
-tri kilometroj, tie ke estos ripozo. 
+tri kilometroj, tie ke estos ripozo.
 
 Intertempe la leŭtenanto Dub rekonsciiĝis per senĉesa ru-
 
@@ -13676,7 +13623,7 @@ la maniero de dragonoj, fumis pipon kaj kantis al si dum mar-
 
 *”Kiam ni la vojdirekton*
 
-*al Jaromêæ ŝanĝis, *
+*al Jaromêĝ ŝanĝis, *
 
 *kredu aŭ ne: ni enmarŝis, *
 
@@ -13686,7 +13633,7 @@ Sur la ŝoseo pli ol kvincent paŝojn antaŭ la leŭtenanto Dub
 
 leviĝis nuboj da polvo, el kiu elprofundiĝis staturoj de solda-
 
-toj; la leŭtenanto Dub, al kiu denove revenis lia entuziasmo, 
+toj; la leŭtenanto Dub, al kiu denove revenis lia entuziasmo,
 
 klinis la kapon el la ĉareto kaj komencis kriegi al la ŝosea pol-
 
@@ -13702,23 +13649,23 @@ LA BRAVA SOLDATO ÔVEJK
 
 specaj malfacilaĵoj. Sed kun plena konfido mi rigardas ren-
 
-konten al via persistemo kaj via forta volo.” 
+konten al via persistemo kaj via forta volo.”
 
-”Idioto,” diris Ôvejk poete. 
+”Idioto,” diris Ôvejk poete.
 
 La leŭtenanto Dub daŭrigis: ”Por vi, soldatoj, neniu mal-
 
-helpo estas tiel granda, por ke vi ĝin ne superu\! Mi ripetas al
+helpo estas tiel granda, por ke vi ĝin ne superu! Mi ripetas al
 
 vi ankoraŭfoje, soldatoj, ke mi ne kondukas vin al facila ven-
 
 ko. Por vi estos tio kaprompa problemo, sed vi en tio suk-
 
-cesos\! Vin gloros la historio de epokoj.” 
+cesos! Vin gloros la historio de epokoj.”
 
 ”Ôovu al vi fingron en la gorĝon,” diris Ôvejk denove poe-
 
-te. 
+te.
 
 Kaj kvazaŭ la leŭtenanto Dub obeus, li komencis subite
 
@@ -13738,21 +13685,21 @@ cilan parolon, ĝis la leŭtenanto Dub rekonsciiĝis el ĉio tiagra-
 
 de, ke li fine povis proklami: ”Logike konkludante, mi faris
 
-stultaĵon, kiun mi kompensos antaŭ vizaĝo de la malamiko.” 
+stultaĵon, kiun mi kompensos antaŭ vizaĝo de la malamiko.”
 
 Sed kompreneble li ankoraŭ ne rekonsciiĝis plene, ĉar fo-
 
 rirante al sia plotono, li diris al la ĉefleŭtenanto Lukáô: ”Vi
 
-min ankoraŭ ne konas, sed kiam vi min ekkonos…\!” 
+min ankoraŭ ne konas, sed kiam vi min ekkonos…!”
 
-”Pri tio, kiel vi ekscesis, vi povas informiĝi ĉe Ôvejk.” 
+”Pri tio, kiel vi ekscesis, vi povas informiĝi ĉe Ôvejk.”
 
 La leŭtenanto Dub iris do unue ne al sia plotono, sed al
 
 Ôvejk, kiun li trovis en kompanio de Baloun kaj la ĉefserĝen-
 
-to-kontisto Vanêk. 
+to-kontisto Vanêk.
 
 Baloun ĝuste parolis pri tio, ke hejme en la muelejo li ĉiam
 
@@ -13800,31 +13747,31 @@ kaj kiel okazos, kaj ili al li respondis, ke estas nur ordono pro-
 
 vizore ĉerpi akvon kaj ke post momento povas veni ordono
 
-denove tiun akvon elverŝi. 
+denove tiun akvon elverŝi.
 
-¯uste en tiu momento venis la leŭtenanto Dub, kaj ĉar li
+uste en tiu momento venis la leŭtenanto Dub, kaj ĉar li
 
-estis tre necerta pri si mem, li demandis: ”ĉu vi amuziĝas?” 
+estis tre necerta pri si mem, li demandis: ”ĉu vi amuziĝas?”
 
 ”Ni amuziĝas, sinjoro leŭtenanto,” respondis nome de ĉiuj
 
 Ôvejk, ”la amuzo ĉe ni plene torentas. ĉiuflanke estas plej
 
-bone ĉiam gaje sin amuzi. ¯uste nun ni parolas pri citrata
+bone ĉiam gaje sin amuzi. uste nun ni parolas pri citrata
 
 acido. Sen amuzo povas esti neniu soldato, tiel oni almenaŭ
 
-pli bone forgesas ĉiujn malfacilaĵojn.” 
+pli bone forgesas ĉiujn malfacilaĵojn.”
 
 La leŭtenanto Dub diris al Ôvejk, ke tiu iru kun li, ke li vo-
 
 las ion demandi. Kiam ili estis flanke, li diris al li per terure
 
-necerta voĉo: ”ĉu vi ne parolis pri mi?” 
+necerta voĉo: ”ĉu vi ne parolis pri mi?”
 
 ”Ho ne, neniam, sinjoro leŭtenanto, nur pri tiu citrata aci-
 
-do kaj pri fumaĵita viando.” 
+do kaj pri fumaĵita viando.”
 
 **225**
 
@@ -13834,9 +13781,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”La ĉefleŭtenanto Lukáô al mi diris, ke mi laŭdire iel ekce-
 
-sis kaj ke vi tre bone pri tio scias, Ôvejk.” 
+sis kaj ke vi tre bone pri tio scias, Ôvejk.”
 
-Ôvejk tre serioze kaj emfaze proklamis: ”Vi faris nenion, 
+Ôvejk tre serioze kaj emfaze proklamis: ”Vi faris nenion,
 
 sinjoro leŭtenanto, vi estis nur gaste en certa bordelo. Sed
 
@@ -13846,7 +13793,7 @@ sinjoro leŭtenanto, vi estis nur gaste en certa bordelo. Sed
 
 vis lin ĉiam ankaŭ en simila ĉambro, aŭ ’ĉe Ôuha’ aŭ ’ĉe Dvo-
 
-æák’, en kiu mi trovis vin. Sube estis kafejo kaj supre en nia
+ĝák’, en kiu mi trovis vin. Sube estis kafejo kaj supre en nia
 
 okazo ulinoj. Vi, sinjoro leŭtenanto, ŝajne estis en eraro, kie
 
@@ -13856,7 +13803,7 @@ trinki ebriiĝas en tia varmo eĉ per ordinara rumo, des pli per
 
 sorpa likvoro kiel vi, sinjoro leŭtenanto. Mi ricevis ankaŭ or-
 
-donon alporti al vi invitilon al konsiliĝo, antaŭ ol ni ekmarŝis, 
+donon alporti al vi invitilon al konsiliĝo, antaŭ ol ni ekmarŝis,
 
 kaj mi trovis vin ankaŭ ĉe tiu ulino tie supre; kaŭze de tiu
 
@@ -13868,11 +13815,11 @@ ankoraŭ ne konas’, sed tia afero povas okazi al kiu ajn, se var-
 
 megas. Iun homon kaptas tio ĉiufoje, alia venas al tio kiel
 
-blinda kokino al grajno. Se vi konus la maljunan Vejvoda, 
+blinda kokino al grajno. Se vi konus la maljunan Vejvoda,
 
-masonestron el Vrôovice, sinjoro leŭtenanto, tiu ekintencis, 
+masonestron el Vrôovice, sinjoro leŭtenanto, tiu ekintencis,
 
-ke li trinkos nenion, post kio li ebriiĝus. Li do eltrinkis an-
+ke li trs nenion, post kio li ebriiĝus. Li do eltrinkis an-
 
 koraŭ glaseton por la vojo kaj eliris el la hejmo serĉi tiujn
 
@@ -13880,7 +13827,7 @@ senalkoholajn trinkaĵojn. Unue li haltis en la gastejo ’ĉe la
 
 haltejo’, tie mendis pokalon da vermuto kaj komencis diskre-
 
-te eldemandi la gastejestron, kion propre trinkas abstinuloj. 
+te eldemandi la gastejestron, kion propre trinkas abstinuloj.
 
 Li tute ĝuste konjektis, ke pura akvo estas eĉ por abstinuloj
 
@@ -13900,7 +13847,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ĉis tiuj senalkoholaj vinoj. Li demandis ankoraŭ, ĉu ekzistas
 
-ankaŭ senalkoholaj brandoj, eltrinkis ankoraŭ unu pokalon, 
+ankaŭ senalkoholaj brandoj, eltrinkis ankoraŭ unu pokalon,
 
 interparolis kun la gastejestro pri tio, ke estas vere peko ofte
 
@@ -13936,7 +13883,7 @@ poste ambaŭ foriris al Bolzan-strato, kie oni iras malsupren
 
 tra ŝtuparo kaj kie oni havas gramofonon. Kaj oni vere kranis
 
-tie nur fruktvinojn, ne nur senalkoholajn, sed eĉ sen alkoholo. 
+tie nur fruktvinojn, ne nur senalkoholajn, sed eĉ sen alkoholo.
 
 Unue ĉiu el ili mendis la si duonlitron da grosvino, poste
 
@@ -13960,29 +13907,29 @@ oni ne alportos tion al ili tuj, ke ili ĉion ĉi tie dishakos eĉ kun la gramof
 
 en izolejon — kaj ambaŭ estis kondamnitaj pro ebriegiĝo kiel
 
-abstinuloj.” 
+abstinuloj.”
 
 ”Kial vi tion al mi diras,” ekkris la leŭtenanto Dub, kiu post
 
-tiu ĉi parolo plene malebriiĝis. 
+tiu ĉi parolo plene malebriiĝis.
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke ambaŭ aferoj
 
 propre ne apartenas unu al la alia, sed kiam ni jam tiel inter-
 
-parolas…” 
+parolas…”
 
 ĉar la leŭtenanto Dub jam iel klare perceptis, venis al li en
 
 la menson, ke Ôvejk denove lin ofendis kaj kriis al li: ”Foje vi
 
-min ekkonos\! ĉu tio estas soldatpozo?” 
+min ekkonos! ĉu tio estas soldatpozo?”
 
 ”Obee mi raportas, ke mi havas malbonan pozon, mi for-
 
 gesis, obee mi raportas, kunfrapi la kalkunumojn. Mi faros
 
-tion tuj.” Ôvejk jam denove staris en la plej bona atentopozo. 
+tion tuj.” Ôvejk jam denove staris en la plej bona atentopozo.
 
 La leŭtenanto Dub meditis, kion ankoraŭ diri, sed fine li
 
@@ -13990,7 +13937,7 @@ elbuŝigis nur: ”Atentu vin antaŭ mi, por ke mi ne devu diri
 
 tion al vi lastfoje,” al kio li aldone korektis sian malnovan
 
-eldiron: ”Vi min ankoraŭ ne konas, sed mi vin konas.” 
+eldiron: ”Vi min ankoraŭ ne konas, sed mi vnas.”
 
 Forirante de Ôvejk, la leŭtenanto Dub ekpensis pri sia post-
 
@@ -14000,11 +13947,11 @@ diboĉa stato: ”Povas esti, ke pli bone efikus, se mi al li dirus:
 
 Poste la leŭtenanto Dub igis alvoki al si la servosoldaton
 
-Kunert kaj ordonis al li, ke tiu havigu al li kruĉon da akvo. 
+Kunert kaj ordonis al li, ke tiu havigu al li kruĉon da akvo.
 
 Honore al Kunert estu dirite, ke en Turowa-Wolska li longe
 
-serĉis kruĉon kaj akvon. 
+serĉis kruĉon kaj akvon.
 
 Fine li sukcesis ŝteli la kruĉon de pola sinjoro parokestro
 
@@ -14020,17 +13967,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 toj, ĉar la puto estis tiel garnita tiukaŭze, ke akvo en ĝi estis
 
-suspekta kiel tifoza. 
+suspekta kiel tifoza.
 
 Sed la leŭtenanto Dub eltrinkis la tutan kruĉon da akvo sen
 
 ajnaj pluaj sekvoj, per kio li konfirmis la proverbon: ”Bona
 
-porko toleras ĉion.” 
+porko toleras ĉion.”
 
 ĉiuj ege eraris, opiniante, ke en Turowa-Wolska ili eble
 
-tranoktos. 
+tranoktos.
 
 La ĉefleŭtenanto Lukáô alvokis la telefoniston Chodoun-
 
@@ -14042,7 +13989,7 @@ ekipaĵon ĉe la sanitara servo, tuj iros tra kampovojo al Maly
 
 Polanec kaj poste laŭlonge de rivereto suben en sudorienta
 
-direkto al Liskowiec. 
+direkto al Liskowiec.
 
 Ôvejk, Vanêk kaj Chodounskë estas enloĝigantoj. ĉiuj de-
 
@@ -14050,7 +13997,7 @@ vas prizorgi tranoktadon por la kompanio, kiu sekvos ilin
 
 post unu, maksimume post unu kaj duono de horo. Baloun
 
-intertempe surloke, kie tranoktos li, la ĉefleŭtenanto Lukáô, 
+intertempe surloke, kie tranoktos li, la ĉefleŭtenanto Lukáô,
 
 devas igi rosti anseron kaj ĉiuj tri devas atenti Balounon, ke
 
@@ -14066,7 +14013,7 @@ najn kabanojn, por ke la viraro bone ripozu, ĉar la kompanio
 
 formarŝas el Liskowiec tra Kroôcienko al Starosol jam duon-
 
-horon post la sesa matene. 
+horon post la sesa matene.
 
 Scie, la bataliono jam ne estis malriĉa. La brigada inten-
 
@@ -14074,7 +14021,7 @@ dantaro en Sanok elpagis al la batalino antaŭpagojn pro la
 
 estonta hombuĉado. En la kompania kaso estis pli ol cent mil
 
-kronoj kaj la ĉefseĝento-kontisto Vanêk ricevis jam ordonon, 
+kronoj kaj la ĉefseĝento-kontisto Vanêk ricevis jam ordonon,
 
 kiam ili estos ie surloke, per kio kompreniĝis en tranĉeoj, an-
 
@@ -14088,7 +14035,7 @@ taŭ la morto de la kompanio, elkalkuli kaj elpagi al la viraro
 
 sumojn, sendube al ĝi apartenantajn pro la nericevita soldat-
 
-pano kaj manĝo. 
+pano kaj manĝo.
 
 Dum ĉiuj kvar ekiris la vojon, ĉe la kompanio aperis loka
 
@@ -14098,49 +14045,49 @@ ili folieton kun ”Lurda kanto” en ĉiuj ligvoj. Li havis da tiuj
 
 kantoj paketon, kiun cele de disdono al trairantaj soldataj
 
-taĉmentoj lasis al li ĉi tie ia altranga eklezia soldatrangulo, 
+taĉmentoj lasis al li ĉi tie ia altranga eklezia soldatrangulo,
 
 traveturanta la ruinigitan Galicion en aŭtomobilo kun mal-
 
-ĉastulinoj. 
+ĉastulinoj.
 
 *”En valo, kie monto kliniĝas al rivero, *
 
 *mesaĝon sonorilo sciigas ĝis vespero. *
 
-*Ave, ave, ave Maria\! — Ave, ave, ave Maria\! *
+*Ave, ave, ave Maria! — Ave, ave, ave Maria! *
 
 *Bernardan — etulinon spirito supertera*
 
-*kondukas al herbriĉa arbaro ĉerivera. — Ave\! *
+*kondukas al herbriĉa arbaro ĉerivera. — Ave! *
 
 *Sur roko ŝi ekvidis rebrilon stelsimilan, *
 
-*figuron adorindan, sanktegan kaj gracilan. — Ave\! *
+*figuron adorindan, sanktegan kaj gracilan. — Ave! *
 
 *Ornamas la figuron lilia rob’ tre bela, *
 
-*ĉe koksoj ĉielblua rubando simpla, hela. — Ave\! *
+*ĉe koksoj ĉielblua rubando simpla, hela. — Ave! *
 
 *En manoj kunmetitaj amplena Sinjorino*
 
-*jen\! — tenas rozarion, ĉiela ĉi Reĝino. — Ave\! *
+*jen! — tenas rozarion, ĉiela ĉi Reĝino. — Ave! *
 
 *Vizaĝo de Bernarda ŝanĝiĝas, supertera*
 
-*trembrilo ŝiajn vangojn vualas tre tenera. — Ave\! *
+*trembrilo ŝiajn vangojn vualas tre tenera. — Ave! *
 
 *Rigardas ŝin Maria, ŝi preĝas, surgenuas, *
 
-*el buŝo de l’ Reĝino parol’ ĉiela fluas. — Ave\! *
+*el buŝo de l’ Reĝino parol’ ĉiela fluas. — Ave! *
 
 *’Ke naskis mi sen peko, ekkredu, ho, infano, *
 
-*la tutan homan genton protektas mia mano.’ — Ave\! *
+*la tutan homan genton protektas mia mano.’ — Ave! *
 
 *’Popol’ en procesioj ĉi tien tuj pilgirmu, *
 
-*trankvilon sian serĉu, min laŭdu kaj estimu\!’ — Ave\! *
+*trankvilon sian serĉu, min laŭdu kaj estimu!’ — Ave! *
 
 **230**
 
@@ -14150,39 +14097,39 @@ LA BRAVA SOLDATO ÔVEJK
 
 *’Atestu al nacioj preĝejo el marmoro, *
 
-*ĉi tie ke mi restas, en dom’ de mia gloro.’ — Ave\! *
+*ĉi tie ke mi restas, en dom’ de mia gloro.’ — Ave! *
 
 *’La fonto, kiu ŝprucas sub roko kaj deglitas, *
 
-*esprimas mian amon, ĉi tien vin invitas.’ — Ave\! *
+*esprimas mian amon, ĉi tien vin invitas.’ — Ave! *
 
 *Ni vokas al vi gloron, vi, valo korfavora, *
 
-*loĝejon en vi havas Patrino Sepdolora. — Ave\! *
+*loĝejon en vi havas Patrino Sepdolora. — Ave! *
 
 *Kaverno, ho, mirakla troviĝas en la roko, *
 
-*edenon al ni donis Reĝino sur ĉi loko. — Ave\! *
+*edenon al ni donis Reĝino sur ĉi loko. — Ave! *
 
 *Aj, inter ĉiuj tagoj ĉi tiu vere gloras, *
 
-*de tiu tag’ amasoj grandegaj Vin adoras. — Ave\! *
+*de tiu tag’ amasoj grandegaj Vin adoras. — Ave! *
 
 *Vi volis procesiojn de adorantoj havi, *
 
-*do venu nin, petantojn, en temp’ malbona savi. Ave\! *
+*do venu nin, petantojn, en temp’ malbona savi. Ave! *
 
 *Vi, sava stel’, nin gvidu sur vojoj de la bono, *
 
-*konduku viajn idojn al sankta Dia trono. — Ave\! *
+*konduku viajn idojn al sankta Dia trono. — Ave! *
 
 *Sanktega Virgulino, ameman havu koron, *
 
-*infanoj viaj spertu patrinan korfavoron. — Ave\!” *
+*infanoj viaj spertu patrinan korfavoron. — Ave!” *
 
 En Turowa-Wolska estis multe da latrinoj kaj ĉe tiuj ĉie
 
-kuŝaĉis paperetoj kun la ”Lurda kanto”. 
+kuŝaĉis paperetoj kun la ”Lurda kanto”.
 
 Kaporalo Nachtigal de ie ĉe Kaôperské Hory havigis al si
 
@@ -14190,17 +14137,17 @@ botelon da brando de timigita judo, amasigis kelke da kama-
 
 radoj kaj nun ĉiuj komencis kanti la ”Lurdan kanton” laŭ la
 
-germana teksto sen refreno ”Ave\!” en melodio de la kanto
+germana teksto sen refreno ”Ave!” en melodio de la kanto
 
-”Princ’ Eŭgeno”. 
+”Princ’ Eŭgeno”.
 
-Estis tio terure malbela vojo, kiam mallumiĝis kaj tiuj kvar, 
+Estis tio terure malbela vojo, kiam mallumiĝis kaj tiuj kvar,
 
 kiuj havis la taskon prizorgi tranoktadon por la dekunua
 
 kompanio, venis en arbareton super rivereto, eble kondukan-
 
-ta al Liskowiec. 
+ta al Liskowiec.
 
 Baloun, kiu je unua fojo troviĝis en situacio, ke li iras ien
 
@@ -14214,13 +14161,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 serĉi loĝejojn, ŝajnis neordinare mistera, subite ricevis ter-
 
-uran suspekton, ke tio ne estas nur tiel senkaŭze. 
+uran suspekton, ke tio ne estas nur tiel senkaŭze.
 
 ”Kamaradoj,” li diris mallaŭte, stumblante sur la vojo su-
 
-per rivereto, ”ili nin oferis.” 
+per rivereto, ”ili nin oferis.”
 
-”Kion vi per tio pensas?” mallaŭte ekkriegis al li Ôvejk. 
+”Kion vi per tio pensas?” mallaŭte ekkriegis al li Ôvejk.
 
 ”Kamaradoj, ni ne kriegu tiom,” petis Baloun mallaŭte, ”mi
 
@@ -14228,13 +14175,13 @@ sentas tion jam en la korpo, oni nin aŭdos kaj tuj komencos
 
 kontraŭ ni pafi. Mi tion scias. Tiuj niaj sendis nin antaŭen por
 
-elgvati, ĉu ne estas tie la malamiko, kaj se ili aŭdos pafadon, 
+elgvati, ĉu ne estas tie la malamiko, kaj se ili aŭdos pafadon,
 
 ili tuj scios, ke ne eblas iri pluen. Kamaradoj, ni estas antaŭ-
 
-patrolo, kiel instruis al mi tion kaporalo Terna.” 
+patrolo, kiel instruis al mi tion kaporalo Terna.”
 
-”Iru do kiel unua,” diris Ôvejk. ”Ni iros bele malantaŭ vi, 
+”Iru do kiel unua,” diris Ôvejk. ”Ni iros bele malantaŭ vi,
 
 por ke vi ŝirmu nin per via korpo, se vi estas tia giganto. Kiam
 
@@ -14242,7 +14189,7 @@ oni vin pafos, sciigu al ni tion, por ke ni povu ĝustatempe fari
 
 ’Al la tero’. Vi estas ja soldato, li timas, ke oni kontraŭ li pa-
 
-fos. ¯uste tion devas ĉiu soldato ege ŝati, ĉiu soldato devas
+fos. uste tion devas ĉiu soldato ege ŝati, ĉiu soldato devas
 
 scii, ke ju plioble la malamiko kontraŭ li ekpafos, des pli an-
 
@@ -14252,15 +14199,15 @@ malamika soldato sendas kontraŭ vi, malfortiĝas lia batalka-
 
 pablo. Li ĉe tio ĝojas, ke li povas kontraŭ vi pafi, ĉar li alme-
 
-naŭ ne devas kuntreni kartoĉojn kaj pli facile kuras.” 
+naŭ ne devas kuntreni kartoĉojn kaj pli facile kuras.”
 
-Baloun peze ekĝemis: ”Sed mi havas hejme bienon.” 
+Baloun peze ekĝemis: ”Sed mi havas hejme bienon.”
 
 ”Fajfu pri via bieno,” konsilis al li Ôvejk, ”prefere falu por
 
 sinjoro imperiestro. ĉu oni ne instruis al vi tion dum la sol-
 
-datservo?” 
+datservo?”
 
 ”Oni tion nur menciis,” diris la stulta Baloun. ”Oni kondu-
 
@@ -14268,7 +14215,7 @@ kis min nur al ekzercejo, kaj poste jam neniam mi aŭdis pri
 
 io simila, ĉar mi iĝis servosoldato… Sinjoro imperiestro povus
 
-nin almenaŭ pli bone nutri…” 
+nin almenaŭ pli bone nutri…”
 
 ”Vi estas ja malbeninda nesatigebla porkino. Soldaton
 
@@ -14284,7 +14231,7 @@ kapitano Untergriez jam antaŭ jaroj en la lernejo. Tiu ĉiam al
 
 ni diris: ’Damnindaj buboj, se iam eksplodus milito, oni ve-
 
-nus sur batalkampon, ne troŝtopu vin antaŭ la batalo\! Kiu
+nus sur batalkampon, ne troŝtopu vin antaŭ la batalo! Kiu
 
 estos troŝtopita kaj ricevos pafon en la ventron, tiu estas por
 
@@ -14294,19 +14241,19 @@ la vivo perdita, ĉar post tia pafo ĉiu supo kaj soldatpano eli-
 
 li havas en la stomako nenion, tia pafo en la ventron estas por
 
-li bagatelo, kiel se pikus lin vespo, vera ĝojo.’ ” 
+li bagatelo, kiel se pikus lin vespo, vera ĝojo.’ ”
 
 ”Mi digestas rapide,” diris Baloun, ”ĉe mi en la stomako
 
 neniam restas da tio multe. Ekzemple, mi forvoros la tutan
 
-pladon da knedlikoj kun porkaĵo kaj saŭrkrafto, kamarado, 
+pladon da knedlikoj kun porkaĵo kaj saŭrkrafto, kamarado,
 
 kaj post duonhoro mi ne elfekos el ĉio tio pli ol proksimume
 
 por tri supokuleroj, tio cetera en mi perdiĝos. Iu ekzemple
 
-diras, ke kiam li formanĝos kantarelojn, ke ili eliras el li tiel, kiel ili estis, nur ilin lavpurigi kaj denove meti en vinagron, 
+diras, ke kiam li formanĝos kantarelojn, ke ili eliras el li tiel, kiel ili estis, nur ilin lavpurigi kaj denove meti en vinagron,
 
 kaj ĉe mi male. Mi forvoros tiom da kantareloj, ke iu alia de
 
@@ -14314,19 +14261,19 @@ tio krevus, kaj kiam mi poste iras al necesejo, mi ellasos nur
 
 iom da flava kaĉo, kiel de infano, tio cetera en mi ankaŭ per-
 
-diĝis. 
+diĝis.
 
 En mi, kamarado,” sciigis Baloun intime al Ôvejk, ”solviĝas
 
 fiŝostoj kaj prunkernoj. Foje mi tion intence kalkulis. Mi for-
 
-manĝis sepdek knedbulojn farĉitajn per prunoj kun kernoj, 
+manĝis sepdek knedbulojn farĉitajn per prunoj kun kernoj,
 
-kaj kiam venis mia momento, mi iris malantaŭ la domon, 
+kaj kiam venis mia momento, mi iris malantaŭ la domon,
 
 fosetis en tio per ligna stangeto, metis la kernojn flanken kaj
 
-kalkulis. El sepdek kernoj solviĝis en mi pli ol duono.” 
+kalkulis. El sepdek kernoj solviĝis en mi pli ol duono.”
 
 El la buŝo de Baloun eliris mallaŭta longa ĝemo: ”Mia
 
@@ -14344,7 +14291,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 raspita fromaĝo, kaj mi ĝuste male, tiel ke foje mi ŝin pro tio
 
-vangobatis… Mi ne sciis pritaksi mian familian feliĉon\!” 
+vangobatis… Mi ne sciis pritaksi mian familian feliĉon!”
 
 Baloun haltis, ekŝmacis, per la lango prilekis la palaton kaj
 
@@ -14366,13 +14313,13 @@ pli da majorano en tripkolbasojn, kaj ĉe tio mi ĉiam donis al
 
 kuŝis du tagojn, ĉar ŝi ne volis morttranĉi al mi vespermanĝe
 
-meleagron, laŭdire ke sufiĉas por mi koko. 
+meleagron, laŭdire ke sufiĉas por mi koko.
 
 Jes, kamarado,” ekploris Baloun, ”havi nun tripkolbason
 
-sen majorano kaj kokojn. ĉu vi ŝatas anetan saŭcon? Nu vidu, 
+sen majorano kaj kokojn. ĉu vi ŝatas anetan saŭcon? Nu vidu,
 
-pro tiu ofte estis kriego, kaj nun mi trinkus ĝin kiel kafon.” 
+pro tiu ofte estis kriego, kaj nun mi trinkus ĝin kiel kafon.”
 
 Baloun iom post iom forgesis la imagon de supozata dan-
 
@@ -14382,11 +14329,11 @@ al Liskowiec, senĉese plu rakontis al Ôvejk kun emocio, kion
 
 li antaŭe ne pritaksis kaj kion li nun manĝus, ke liaj okuloj
 
-plorus de ĝojo. 
+plorus de ĝojo.
 
 Malantaŭ ili iris la telefonisto Chodounskë kun la ĉefser-
 
-ĝento-kontisto Vanêk. 
+ĝento-kontisto Vanêk.
 
 Chodounskë rakontis al Vanêk, ke laŭ lia opinio la mond-
 
@@ -14408,7 +14355,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 pe de reflektoro kaj komencas kontraŭ li pafi per la tuta art-
 
-ilerio. 
+ilerio.
 
 Sube en la vilaĝo, kien ili iris por elserĉi tranoktejon por la
 
@@ -14416,13 +14363,13 @@ kompanio, estis mallumo kaj komencis boji ĉiuj hundoj, kio
 
 devigis la ekspedicion halti kaj mediti pri tio, kiel procedi
 
-kontraŭ tiuj ĉi bestaĉoj. 
+kontraŭ tiuj ĉi bestaĉoj.
 
-”Kion vi dirus, se ni revenus,” ekflustris Baloun. 
+”Kion vi dirus, se ni revenus,” ekflustris Baloun.
 
 ”Baloun, Baloun, se ni tion anoncus, vi estus mortpafita
 
-pro malkuraĝo,” diris al tio Ôvejk. 
+pro malkuraĝo,” diris al tio Ôvejk.
 
 Hundoj bojis ĉiam pli kaj pli, kaj komencis boji eĉ tiuj sude
 
@@ -14432,13 +14379,13 @@ malantaŭ la rivero Ropa en Kroôcienko kaj en kelkaj aliaj vila-
 
 ”Ekkuŝi — ekkuŝi — ekkuŝi,” kiel li iam kriegis al siaj hun-
 
-doj, kiam li per ili ankoraŭ komercis. 
+doj, kiam li per ili ankoraŭ komercis.
 
 Hundoj komencis boji ankoraŭ pli, tiel ke la ĉefserĝento-
 
 kontisto Vanêk diris al Ôvejk:
 
-”Ne kriegu al ili, Ôvejk, aŭ vi ekbojigos la tutan Galicion.” 
+”Ne kriegu al ili, Ôvejk, aŭ vi ekbojigos la tutan Galicion.”
 
 ”Io simila,” respondis Ôvejk, ”okazis al ni dum manovroj en
 
@@ -14452,11 +14399,11 @@ la alia, senĉese pluen kaj pluen, kaj kiam tiuj hundoj en la
 
 vilaĝo, kie ni tendumis, jam silentiĝis, ili ekaŭdis denove bo-
 
-jadon de malproksime, ekzemple de ie ĉe Pelhæimov, komen-
+jadon de malproksime, ekzemple de ie ĉe Pelhĝimov, komen-
 
 cis denove boji kaj post momento bojis ĉio en la regionoj ĉe
 
-Tábor, Pelhæimov, Budêjovice, Humpolec, Tæeboñ kaj Jihlava. 
+Tábor, Pelhĝimov, Budêjovice, Humpolec, Tĝeboñ kaj Jihlava.
 
 Nia kapitano, tio estis tia nervoza maljunulaĉo, tiu ne povis
 
@@ -14484,7 +14431,7 @@ gita. Ankaŭ mi estis en tia patrolo, kaj kiam ni venis en ian
 
 vilaĝon de la regiono ĉe Milevsko, mi eraris kaj anoncis al
 
-vilaĝestro, ke ĉiu posedanto de hundo, kiu nokte ekbojos, 
+vilaĝestro, ke ĉiu posedanto de hundo, kiu nokte ekbojos,
 
 estos mortigita pro strategiaj kaŭzoj. La vilaĝestro ektimis, tuj
 
@@ -14496,7 +14443,7 @@ skaŭ lin mortpafis, li do revenis hejmen, kaj antaŭ ol ni en-
 
 marŝis la vilaĝon, laŭ lia konsilo ĉiuj ĉirkaŭvolvis la muzelojn
 
-de la hundoj per ĉifonoj, ke tri hundoj ricevis pro tio rabion.” 
+de la hundoj per ĉifonoj, ke tri hundoj ricevis pro tio rabion.”
 
 Ili descendis al la vilaĝo, kiam estis akceptita ĝenerala in-
 
@@ -14504,11 +14451,11 @@ struo de Ôvejk, ke hundoj nokte timas fajreton el ekbruligita
 
 cigaredo. Malfeliĉe neniu el ili fumis cigaredojn, tiel ke tiu ĉi
 
-konsilo de Ôvejk ne havis pozitivajn rezultojn. Sed montriĝis, 
+konsilo de Ôvejk ne havis pozitivajn rezultojn. Sed montriĝis,
 
 ke hundoj bojas pro ĝojo, ĉar ili amplene rememoris trairan-
 
-tajn soldatarojn, kiuj ĉiam lasis al ili ian manĝon. 
+tajn soldatarojn, kiuj ĉiam lasis al ili ian manĝon.
 
 Ili sentis jam de malantaŭe, ke proksimiĝas tiuj kreaĵoj, kiuj
 
@@ -14516,7 +14463,7 @@ lasas post si ostojn kaj ĉevalajn kadavrojn. Dio scias, de kie
 
 ĉirkaŭ Ôvejk subite aperis kvar bojuloj, kiuj komencis amike
 
-sur lin salteti kun vostoj levitaj supren. 
+sur lin salteti kun vostoj levitaj supren.
 
 Ôvejk ilin karesis, plaŭdbatetis kaj parolis kun ili en mal-
 
@@ -14526,9 +14473,9 @@ lumo kiel kun infanoj:
 
 donos al vi ostetojn, pankrustetojn, kaj poste matene ni de-
 
-nove marŝos pluen kontraŭ la malamiko.” 
+nove marŝos pluen kontraŭ la malamiko.”
 
-En kabanoj de la vilaĝo oni komencis eklumigi lampojn, 
+En kabanoj de la vilaĝo oni komencis eklumigi lampojn,
 
 **236**
 
@@ -14566,7 +14513,7 @@ ta, ke ne estas en ĝi loko eĉ por unu soldato. Tute ne ekzis-
 
 tas loko, kie eblus dormi. Ankaŭ aĉeti eblas ĉi tie nenion, Mo-
 
-skaloj ĉion forprenis. 
+skaloj ĉion forprenis.
 
 Se sinjoroj bonfardzantoj tion ne malŝatus, li forkondukus
 
@@ -14576,7 +14523,7 @@ kvaronhoroj de ĉi tie, tie estas sufiĉe da loko, ĉiu soldato po-
 
 vos kovri sin per ŝafa pelto, oni havas tie tiom da bovinoj, ke
 
-ĉiu soldato ricevos gamelon da lakto, akvo estas tie bongusta, 
+ĉiu soldato ricevos gamelon da lakto, akvo estas tie bongusta,
 
 sinjoroj oficiroj povas dormi tie en kasteleto, sed ĉi tie en Lis-
 
@@ -14586,7 +14533,7 @@ bovinojn, sed Moskaloj ĉiujn de li forprenis, tiel ke li mem, se
 
 li volas lakton por siaj malsanaj infanoj, devas iri ĝis Kroô-
 
-cienko. 
+cienko.
 
 Kiel atesto de tio ekmuĝis en apuda stalo ĉe li bovinoj kaj
 
@@ -14600,7 +14547,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 oni aŭdis jelpan virinan voĉon, kiu alkriis la kompatindajn
 
-bovinojn kaj deziris al ili, ke tordu ilin ˛olero. 
+bovinojn kaj deziris al ili, ke tordu ilin ˛olero.
 
 Sed la vilaĝestron tio ne konfuzis kaj li daŭrigis, surmetan-
 
@@ -14614,7 +14561,7 @@ bovino estas malsana, malgaja. Moskaloj forprenis de ĝi bovi-
 
 don. De tiu tempo ĝi ne donas lakton, sed la mastro bedaŭras
 
-ĝin morttranĉi, li opinias, ke Dipatrino de Czestochowa**63** al-kondukos ĉion denove en ordon.” 
+ĝin morttranĉi, li opinias, ke Dipatrino de Czestochowa**63** al-kondukos ĉion denove en ordon.”
 
 Dum sia parolo li surmetis mantelon:
 
@@ -14624,11 +14571,11 @@ eĉ ne tri kvaronhorojn, kion mi, kulpulo, tion diras, daŭros tio
 
 eĉ ne duonhoron. Mi konas vojon trans rivereton, poste tra
 
-betula arbareto laŭlonge de kverko… Tiu vilaĝo estas granda, 
+betula arbareto laŭlonge de kverko… Tiu vilaĝo estas granda,
 
 kaj tre forta brando en drzinkejoj. Ni iru, sinjoroj bonfardzan-
 
-toj\! Kial heziti? Por sinjoroj soldatoj de via glora regimento
+toj! Kial heziti? Por sinjoroj soldatoj de via glora regimento
 
 necesas, ke ili kuŝiĝu en ordo, en komforto. Sinjoro impe-
 
@@ -14640,9 +14587,9 @@ ni? — Pedikoj, skabio, varioloj kaj ˛olero. Hieraŭ ĉe ni, en nia
 
 malbenita vilaĝo tri uloj nigriĝis kaŭze de ˛olero… La plej
 
-mizerikorda Dio malbenis la vilaĝon Liskowiec…” 
+mizerikorda Dio malbenis la vilaĝon Liskowiec…”
 
-En tiu momento Ôvejk majeste mansignis. 
+En tiu momento Ôvejk majeste mansignis.
 
 ”Sinjoroj bonfarantoj,” li diris, imitante la voĉon de la vi-
 
@@ -14652,7 +14599,7 @@ toj estis ordono loĝiĝi en tiu aŭ alia vilaĝo kaj la vilaĝestro iel sin eks
 
 63 bildo de Maria la Virgulino en granda klostro en Czestochowa
 
-\(urbo en suda Polio\). Al la bildo oni atribuas miraklajn ecojn
+(urbo en suda Polio). Al la bildo oni atribuas miraklajn ecojn
 
 **238**
 
@@ -14670,15 +14617,15 @@ oni iras kun ili de kabano al kabano kaj diras simple: ĉi tie
 
 estas loko por tri, ĉi tie por kvar viroj, en la parokejo estos
 
-sinjoroj oficiroj kaj ĉio devas esti preparita post duonhoro. 
+sinjoroj oficiroj kaj ĉio devas esti preparita post duonhoro.
 
 Sinjoro bonfaranto,” turnis sin Ôvejk serioze al la vilaĝ-
 
-estro, ”kie vi havas ĉi tie la plej proksiman arbon?” 
+estro, ”kie vi havas ĉi tie la plej proksiman arbon?”
 
 La vilaĝestro ne komprenis, kion signifas la vorto ’arbo’, kaj
 
-tial Ôvejk al li klarigis, ke tio estas betulo, kverko, pirarbo, 
+tial Ôvejk al li klarigis, ke tio estas betulo, kverko, pirarbo,
 
 pomarbo, mallonge ĉio, kio havas fortikajn branĉojn. La vi-
 
@@ -14688,11 +14635,11 @@ iujn fruktarbojn, li ektimis, ĉar ĉerizoj jam maturiĝis, kaj di-
 
 ris, ke li scias pri nenio tia, nur ke antaŭ la domo li havas
 
-kverkon. 
+kverkon.
 
 ”Bone,” diris Ôvejk, per la mano montrante internacian ge-
 
-ston de pendumo, ”ni pendumos vin ĉi tie antaŭ via kabano, 
+ston de pendumo, ”ni pendumos vin ĉi tie antaŭ via kabano,
 
 ĉar vi devas konscii, ke estas milito kaj ke ni havas ordonojn
 
@@ -14700,9 +14647,9 @@ dormi ĉi tie kaj ne en ia Kroôcienko. Vi, ulo, ne ŝanĝos niajn
 
 strategiajn planojn, aŭ vi balanciĝos sur pendumilo, kiel tio
 
-estas en tiu libro pri la svedaj militoj… Tia okazo, sinjoroj, 
+estas en tiu libro pri la svedaj militoj… Tia okazo, sinjoroj,
 
-estis foje dum manovroj ĉe Velké Meziæíâí…” 
+estis foje dum manovroj ĉe Velké Meziĝíâí…”
 
 En tiu momento interrompis Ôvejkon la ĉefserĝento-konti-
 
@@ -14710,7 +14657,7 @@ sto Vanêk:
 
 ”Tion vi diros al ni nur poste, Ôvejk,” kaj turnante sin al la
 
-vilaĝestro, ordonis: ”Do, nun alarmon kaj loĝejojn\!” 
+vilaĝestro, ordonis: ”Do, nun alarmon kaj loĝejojn!”
 
 La vilaĝestro komencis tremi, balbutis ion pri tio, ke li pen-
 
@@ -14718,7 +14665,7 @@ sis tion por sinjoroj bonfarantoj plej bone, sed se ne eblas
 
 alie, ke io en la vilaĝo tamen eble nur troviĝos, por ke ĉiuj
 
-sinjoroj estu kontentaj, ke li tuj alportos lanternon. 
+sinjoroj estu kontentaj, ke li tuj alportos lanternon.
 
 **239**
 
@@ -14734,11 +14681,11 @@ do tordiĝis kiel la plej granda kriplulo, Chodounskë subite
 
 ekvokis:
 
-”Kien malaperis al ni Baloun?” 
+”Kien malaperis al ni Baloun?”
 
 Sed antaŭ ol ili povis bone ĉirkaŭrigardi, senbrue malfer-
 
-miĝis pordeto malantaŭ kameno, kondukanta ien eksteren, 
+miĝis pordeto malantaŭ kameno, kondukanta ien eksteren,
 
 kaj tra tiu enŝoviĝis Baloun, ĉirkaŭrigardis, ĉu ne estas tie la
 
@@ -14750,23 +14697,23 @@ nazkataron:
 
 thion en la faŭkhon, khaj nun ĉhio thio ghluiĝas al mhi sur la
 
-palathon. ¯hi esthas nek sala nek dolĉha, esthas thio pana
+palathon. hi esthas nek sala nek dolĉha, esthas thio pana
 
-phasto.” 
+phasto.”
 
 La ĉefserĝento-kontisto Vanêk lumigis lin per elektra lam-
 
 peto kaj ĉiuj konstatis, ke en la vivo ili ankoraŭ ne vidis tiel
 
-malpurigitan aŭstran soldaton. Poste ili ektimis, ĉar ili vidis, 
+malpurigitan aŭstran soldaton. Poste ili ektimis, ĉar ili vidis,
 
 ke la jako de Baloun ŝvelis tiom, kvazaŭ li estus en la plej alta
 
-grado de gravedeco. 
+grado de gravedeco.
 
 ”Kio al vi okazis, Baloun?” demandis Ôvejk kunsente, fin-
 
-gropuŝante lin ĉe la ŝvelinta ventro. 
+gropuŝante lin ĉe la ŝvelinta ventro.
 
 ”Tio estas kukumetoj,” stertoris Baloun, sufokiĝante per
 
@@ -14774,17 +14721,17 @@ pasto, kiu moviĝis nek supren, nek malsupren, ”atentu, tio
 
 estas kukumetoj en salo. Rapidante mi formanĝis tri kaj la
 
-ceterajn mi al vi alportis.” 
+ceterajn mi al vi alportis.”
 
 Baloun komencis tiri el sub la jako kukumeton post kuku-
 
-meto kaj disdonis ilin ĉirkaŭe. 
+meto kaj disdonis ilin ĉirkaŭe.
 
 Sur la sojlo staris jam la vilaĝestro kun lanterno, kiu, vid-
 
 ante tiun ĉi scenon, krucosignis sin kaj eklamentis:
 
-”Moskaloj forprenis eĉ niaj forprenas.” 
+”Moskaloj forprenis eĉ niaj forprenas.”
 
 **240**
 
@@ -14792,7 +14739,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ĉiuj eliris en la vilaĝon, akompanataj per aro da hundoj, 
+ĉiuj eliris en la vilaĝon, akompanataj per aro da hundoj,
 
 kiuj plej persiste tenis sin ĉe Baloun kaj nun saltatakis poŝon
 
@@ -14800,13 +14747,13 @@ de lia pantalono, kie Baloun havis pecon da lardo, ankaŭ aki-
 
 ritan en la manĝoprovizejo, sed pro avideco perfide malkon-
 
-fesitan al la kamaradoj. 
+fesitan al la kamaradoj.
 
-”Kial la hundoj vin postkuras?” demandis Ôvejk Balounon. 
+”Kial la hundoj vin postkuras?” demandis Ôvejk Balounon.
 
 Baloun respondis post iom pli longa medito:
 
-”Ili sentas en mi bonan homon.” 
+”Ili sentas en mi bonan homon.”
 
 Sed ĉe tio li ne diris, ke li havas la manon sur lardo en poŝo
 
@@ -14816,19 +14763,19 @@ Dum rondiro cele de tranokto oni konstatis, ke Liskowiec
 
 estas granda vilaĝo, sed kiu estis vere jam tre elsuĉita de la
 
-milita bruego. ¯i ja ne suferis per incendioj, ambaŭ militan-
+milita bruego. i ja ne suferis per incendioj, ambaŭ militan-
 
 taj partioj kvazaŭ mirakle ne alprenis ĝin en sferon de mili-
 
 taj operacioj, sed estis ĉi tie lokita loĝantaro de nemalprok-
 
-simaj detruitaj vilaĝoj Chyrov, Grabowa kaj Golubla. 
+simaj detruitaj vilaĝoj Chyrov, Grabowa kaj Golubla.
 
 En iuj kabanoj vivis eĉ ok familioj en la plej granda mize-
 
-ro post ĉiuj tiuj perdoj, kiujn ili suferis de la rabista milito, 
+ro post ĉiuj tiuj perdoj, kiujn ili suferis de la rabista milito,
 
-kies unu periodo traflugis ilin kiel sovaĝaj torentoj de inundo. 
+kies unu periodo traflugis ilin kiel sovaĝaj torentoj de inundo.
 
 La kompanion necesis loki en malgranda duonruinigita
 
@@ -14838,17 +14785,17 @@ lokon duono de la kompanio. La ceteraj estis lokitaj po dek
 
 viroj en kelke da bienoj, kie monhavaj nobeloj ne allasis al si
 
-malriĉan feĉon de povrigitaj senbienuloj. 
+malriĉan feĉon de povrigitaj senbienuloj.
 
 La stabo de la kompanio kun ĉiuj oficiroj, la ĉefserĝento-
 
-kontisto Vanêk, servosoldatoj, la telefonisto, sanitara servo, 
+kontisto Vanêk, servosoldatoj, la telefonisto, sanitara servo,
 
-kuiristoj kaj Ôvejk loĝiĝis en parokejo ĉe sinjoro parokestro, 
+kuiristoj kaj Ôvejk loĝiĝis en parokejo ĉe sinjoro parokestro,
 
 kiu ankaŭ ne akceptis al si eĉ unu ruinigitan familion el la
 
-ĉirkaŭaĵo, tiel ke li havis tie sufiĉe da loko. 
+ĉirkaŭaĵo, tiel ke li havis tie sufiĉe da loko.
 
 Estis tio altstatura, magra, maljuna sinjoro en paliĝinta kaj
 
@@ -14868,7 +14815,7 @@ venis aŭstri-hungaraj soldataroj kaj tiuj forvoris ĉiujn liajn
 
 anserojn kaj kokinojn, kiujn la rusoj lasis senatente — kaj lo-
 
-ĝis ĉe li kelke da hirtaj kozakoj el malantaŭ Bajkalo. 
+ĝis ĉe li kelke da hirtaj kozakoj el malantaŭ Bajkalo.
 
 Poste li ekmalamis la soldatarojn de la monarkio ankoraŭ
 
@@ -14880,9 +14827,9 @@ kun granda malamo kaj faris al li tre bone, kiam li povis ĉir-
 
 kaŭ ili paŝi, skui la ŝultrojn kaj ripeti:
 
-”Mi havas nenion. Mi estas vera almozulo, ĉe mi, sinjoroj, 
+”Mi havas nenion. Mi estas vera almozulo, ĉe mi, sinjoroj,
 
-vi ne trovos eĉ pantranĉeton.” 
+vi ne trovos eĉ pantranĉeton.”
 
 Plej malgaje mienis ĉe tio kompreneble Baloun, kiu nur
 
@@ -14896,21 +14843,21 @@ sinjoro parokestro, kien de tempo al tempo enrigardis alt-
 
 kreska junulo, kiu servis ĉe sinjoro parokestro kiel stalservisto
 
-kaj kuiristino samtempe kaj havis severan ordonon ĉie atenti, 
+kaj kuiristino samtempe kaj havis severan ordonon ĉie atenti,
 
-por ke oni ne ŝtelu. 
+por ke oni ne ŝtelu.
 
 En la kuirejo Baloun trovis ankaŭ nenion, nur en papere-
 
 to sur salujo iom da kumino, kiun li ŝtopis al si en la buŝon
 
-kaj kies aromo vekis ĉe li gustajn halucinojn pri porkido. 
+kaj kies aromo vekis ĉe li gustajn halucinojn pri porkido.
 
 Sur korto de la malgranda distilejo malantaŭ la parokejo
 
 brulis jam fajro sub kaldronoj de militkuirejo, akvo jam bo-
 
-liĝis kaj en tiu akvo oni kuiris nenion. 
+liĝis kaj en tiu akvo oni kuiris nenion.
 
 La ĉefserĝento-kontisto kun kuiristoj kuris tien kaj reen tra
 
@@ -14924,7 +14871,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 la saman respondon, ke Moskaloj ĉion formanĝis kaj forpre-
 
-nis. 
+nis.
 
 Ili vekis ankaŭ judon en drinkejo, kiu komencis ŝiregi al si
 
@@ -14952,7 +14899,7 @@ nuojn de unu post alia, vokis ĉe tio:
 
 ”Prefere mortigu la maljunan, kompatindan judon, sed ne
 
-foriru sen la bovino.” 
+foriru sen la bovino.”
 
 Li konfuzis ĉiujn per sia jelpado tiel, ke tiun bestaĉon, kiun
 
@@ -14962,7 +14909,7 @@ jo. Poste, kiam li jam havis monon en poŝo, ankoraŭ longe li
 
 antaŭ ili ploris kaj lamentis, ke ili lin tute pereigis, detruis, ke li mem sin povrigis, se tian belegan bovinon li vendis al ili tiel malmultekoste. Li petis ilin, ke ili lin pendumu pro tio, ke ĉe
 
-siaj maljunaj ostoj li faris tian stultaĵon, pro kiu liaj prapatroj devas sin turni en la tomboj. 
+siaj maljunaj ostoj li faris tian stultaĵon, pro kiu liaj prapatroj devas sin turni en la tomboj.
 
 Kiam li ankoraŭ satruliĝis antaŭ ili en polvo, li deskuis su-
 
@@ -14978,15 +14925,15 @@ bite de si ĉian bedaŭron, foriris hejmen, kie li diris en kamero
 
 al sia edzino:
 
-”Kara Elseta, soldatoj stultaj kaj via Natano ege saĝa.” 
+”Kara Elseta, soldatoj stultaj kaj via Natano ege saĝa.”
 
-La bovino postulis ege da laboro. En iuj momentoj ŝajnis, 
+La bovino postulis ege da laboro. En iuj momentoj ŝajnis,
 
 ke tute ne eblas ĝin senhaŭtigi. ĉe detirado oni kelkfoje ŝiris
 
 la haŭton, sub kiu aperis muskolaro, tordita kiel sekiĝinta
 
-ŝipa ŝnurego. 
+ŝipa ŝnurego.
 
 Intertempe oni altrenis de ie sakon da terpomoj kaj kom-
 
@@ -14994,7 +14941,7 @@ encis senespere kuiri tiujn tendenojn kaj ostojn, dum apude
 
 en pli malgranda kuirejo oni kuiris en plena senespero man-
 
-ĝon por oficiroj el peco de tiu skeleto. 
+ĝon por oficiroj el peco de tiu skeleto.
 
 Tiu ĉi kompatinda bovino, se tiun ĉi fenomenon de la na-
 
@@ -15006,7 +14953,7 @@ taŭ la batalo ĉe Sokal’**65** la komandantoj almemorigus al la viraro la bov
 
 ra kriego kaj kolerego ĵetegus sin kun bajonetoj kontraŭ la
 
-malamiko. 
+malamiko.
 
 La bovino estis tia malhontulino, ke absolute ne eblis fari
 
@@ -15016,11 +14963,11 @@ restis ĉe ostoj, formante kun ili unu tuton, rigidiĝis kiel bu-
 
 rokrato, kiu duonon de la vivo adoras oficajn laŭliteraĵojn kaj
 
-voras nur aktojn. 
+voras nur aktojn.
 
 Ôvejk, kiu kiel kuriero konservis senĉesan kontakton inter
 
-la stabo kaj la kuirejo por sciiĝi, kiam tio estos jam kuirita, 
+la stabo kaj la kuirejo por sciiĝi, kiam tio estos jam kuirita,
 
 raportis fine al la ĉefleŭtenanto Lukáô:
 
@@ -15028,7 +14975,7 @@ raportis fine al la ĉefleŭtenanto Lukáô:
 
 vino havas tiel malmolan viandon, ke per ĝi eblas tranĉi vit-
 
-65 la batalo okazis de la 1a ĝis 15a de aŭgusto 1915
+65 la batalo okazis de la 1a ĝis 15a de
 
 **244**
 
@@ -15036,9 +14983,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ron. Kiam la kuiristo Pavlíâek kun Baloun provis la viandon, 
+ron. Kiam la kuiristo Pavlíâek kun Baloun provis la viandon,
 
-Pavlíâek elrompis al si antaŭan denton kaj Baloun molaron.” 
+Pavlíâek elrompis al si antaŭan denton kaj Baloun molaron.”
 
 Baloun serioze alpaŝis antaŭ la ĉefleŭtenanton Lukáô kaj
 
@@ -15052,21 +14999,21 @@ mi povis. Tiu dento estas elrompita en oficira kuirejo, kiam ni
 
 provis, ĉu el tiu viando tamen nur ne eblus prepari bifste-
 
-kon.” 
+kon.”
 
 Post tiuj ĉi vortoj leviĝis de apogseĝo ĉe fenestro trista sta-
 
 turo. Estis tio la leŭtenanto Dub, kiun oni alveturigis per sani-
 
-tara ĉareto kiel tute ruinigitan homon. 
+tara ĉareto kiel tute ruinigitan homon.
 
 ”Mi petas silenton,” li diris per senespera voĉo, ”al mi es-
 
-tas malbone\!” 
+tas malbone!”
 
 Li denove sidiĝis sur malnovan apogseĝon, kie en ĉiu fen-
 
-deto estis miloj da pedikaj ovoj. 
+deto estis miloj da pedikaj ovoj.
 
 ”Mi estas laca,” li diris per tragika voĉo, ”mi estas malsa-
 
@@ -15080,7 +15027,7 @@ lio estu pri ĉio delikate informita kaj ke oni ne forgesu rimarki
 
 sur mia tombo, ke mi estis ankaŭ antaŭ la milito i.r. gimna-
 
-zia profesoro.” 
+zia profesoro.”
 
 Li komencis milde ronki kaj jam ne aŭdis, kiel Ôvejk eldiris
 
@@ -15104,13 +15051,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 oficira kuirejo, ke pri bifsteko ne eblas eĉ paroli kaj ke ansta-
 
-taŭ bifsteko oni kuiros gulaŝon. 
+taŭ bifsteko oni kuiros gulaŝon.
 
-Estis decidite, ke antaŭ ol oni trumpetos manĝosignalon, 
+Estis decidite, ke antaŭ ol oni trumpetos manĝosignalon,
 
 la viraro dormetu, ĉar la vespermanĝo estos preta nur antaŭ-
 
-matene. 
+matene.
 
 La ĉefserĝento-kontisto Vanêk altrenis de ie garbeton da
 
@@ -15122,7 +15069,7 @@ káô, kiu ripozis super li sur malnova sofo:
 
 ”Kredu al mi, sinjoro ĉefleŭtenanto, ke dum la tuta milito
 
-mi ankoraŭ ne voris tiajn bovinojn…” 
+mi ankoraŭ ne voris tiajn bovinojn…”
 
 En la kuirejo antaŭ ekbruligita stumpo de preĝeja kande-
 
@@ -15132,7 +15079,7 @@ hejmen, por ke li ne devu per tio peni, kiam ili fine havos
 
 destinita la numeron de feldpoŝto. Li skribis:
 
-”Mia amata kaj kara edzino, la plej kara Boòenka\! 
+”Mia amata kaj kara edzino, la plej kara Boòenka!
 
 Estas nokto kaj mi senĉese rememoras vin, mia oro, kaj
 
@@ -15170,7 +15117,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 vin pretendi dum mia foresto, mi opinias, kara Boòenka, ke
 
-mi strangolmortigus lin surloke. Longe mi kaŝis tion en mi, 
+mi strangolmortigus lin surloke. Longe mi kaŝis tion en mi,
 
 sed se mi ekpensas, ke li povus denove vin postkuri, mia koro
 
@@ -15188,13 +15135,13 @@ cidiĝis jam al ĉio, eĉ se tio kostus al mi la vivon. Milfoje vin
 
 kisas, salutas la paĉjon kaj panjon
 
-Via Antoĉjo. 
+Via Antoĉjo.
 
-PS. Ne forgesu, ke mi donis al vi mian nomon\!” 
+PS. Ne forgesu, ke mi donis al vi mian nomon!”
 
 Li daŭrigis en skribado de leteroj por provizo:
 
-”Mia la plej kara Boòenka\! 
+”Mia la plej kara Boòenka!
 
 Kiam vi ricevos tiujn ĉi liniojn, sciu, ke ni estas post gran-
 
@@ -15204,7 +15151,7 @@ forpafis interalie proksimume dek malamikajn aeroplanojn
 
 kaj generalon kun granda veruko sur la nazo.En la plej kru-
 
-da batalo, kiam super ni krevis ŝrapneloj, mi pensis pri vi, 
+da batalo, kiam super ni krevis ŝrapneloj, mi pensis pri vi,
 
 kara Boòenka, kion vi probable faras, kiel vi fartas kaj kio no-
 
@@ -15220,11 +15167,11 @@ po por daŭrigi la skribadon. Mi esperas, ke vi restis al mi fi-
 
 dela, ĉar vi bone scias, ke koncerne tion mi estas senkompa-
 
-tulo. Sed estas jam tempo por marŝi\! Mi kisas vin milfoje, 
+tulo. Sed estas jam tempo por marŝi! Mi kisas vin milfoje,
 
-kara Boòenka, kaj esperu, ke ĉio tio bone finiĝos. 
+kara Boòenka, kaj esperu, ke ĉio tio bone finiĝos.
 
-Via sincera Antoĉjo.” 
+Via sincera Antoĉjo.”
 
 **247**
 
@@ -15234,7 +15181,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 Le telefonisto Chodounskë komencis dormeti kaj ekdormis
 
-super la tablo. 
+super la tablo.
 
 La parokestro, kiu ne dormis kaj senĉese paŝis tra la paro-
 
@@ -15242,7 +15189,7 @@ kejo, malfermis pordon al la kuirejo kaj pro ŝparemo blov-
 
 estingis finbrulantan stumpon de preĝeja kandelo apud Cho-
 
-dounskë. 
+dounskë.
 
 En la manĝoĉambro dormis neniu krom la leŭtenanto
 
@@ -15252,23 +15199,23 @@ brigado en Sanok ricevis novan budĝeteton koncerne provi-
 
 zadon de la soldataro per produktoj, zorge ĝin studis kaj kon-
 
-statis, ke propre ju pli la soldataro proksimiĝas al la fronto, 
+statis, ke propre ju pli la soldataro proksimiĝas al la fronto,
 
 des pli malaltiĝas ĝiaj porcioj. Li devis eĉ ekrideti al paragrafo de la ordono, en kiu oni malpermesas uzi safranon kaj zingi-bron ĉe preparo de supo por la viraro. En la ordono estis an-
 
 kaŭ noto, ke ĉe militkuirejoj oni kolektu ostojn kaj sendadu
 
-ilin al diviziaj magazenoj en la ariero. Tio estis iom neklara, 
+ilin al diviziaj magazenoj en la ariero. Tio estis iom neklara,
 
 ĉar oni ne sciis, pri kiuj ostoj temas, ĉu pri homaj aŭ pri ostoj
 
-el alia buĉota brutaro. 
+el alia buĉota brutaro.
 
 ”Aŭdu, Ôvejk,” diris la ĉefleŭtenanto Lukáô, oscedante pro
 
 enuo, ”antaŭ ol ni ricevos ian manĝon, vi povus rakonti al mi
 
-ian okazintaĵon.” 
+ian okazintaĵon.”
 
 ”Ho,” respondis Ôvejk, ”antaŭ ol ni ricevos manĝon, en tia
 
@@ -15278,13 +15225,13 @@ historion de la ĉeą nacio. Mi konas nur tre mallongan oka-
 
 zintaĵon pri certa sinjorino poŝtestrino el la regiono ĉe Sed-
 
-lâany, al kiu post morto de ŝia edzo oni konfidis tiun poŝton. 
+lâany, al kiu post morto de ŝia edzo oni konfidis tiun poŝton.
 
 Tio pri ŝi venis al mi en la kapon tuj, kiam mi aŭdis paroli pri
 
 feldpoŝtoj, kvankam kun tiuj tio havas tute nenion komu-
 
-nan.” 
+nan.”
 
 **248**
 
@@ -15294,7 +15241,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 ”Ôvejk,” ekparolis la ĉefleŭtenanto Lukáô de sur la sofo, ”vi
 
-komencas denove per viaj teruraj idiotaĵoj.” 
+komencas denove per viaj teruraj idiotaĵoj.”
 
 ”Kompreneble, obee mi raportas, sinjoro ĉefleŭtenanto, tio
 
@@ -15320,17 +15267,17 @@ so, ke li senĉese evoluu kaj kleriĝu, iom post iom eniru en pli
 
 altajn sferojn, en pli inteligentajn kaj pli amplenajn mondojn.’
 
-Kiam ni volis lin de tie eltiri, li gratis kaj mordis. Li opiniis, ke li estas hejme, kaj nur kiam ni deĵetis lin tiel denove, li komencis flatpeti, ke ni lin de tie eltiru.” 
+Kiam ni volis lin de tie eltiri, li gratis kaj mordis. Li opiniis, ke li estas hejme, kaj nur kiam ni deĵetis lin tiel denove, li komencis flatpeti, ke ni lin de tie eltiru.”
 
 ”Sed kio estas pri tiu poŝtestrino?” senespere ekvokis la
 
-ĉefleŭtenanto Lukáô. 
+ĉefleŭtenanto Lukáô.
 
 ”ŝi estis tre bonanima ulino, sed tamen nur kanajla, sinj-
 
-oro ĉefleŭtenanto, en la poŝto ŝi plenumis ĉiujn siajn devojn, 
+oro ĉefleŭtenanto, en la poŝto ŝi plenumis ĉiujn siajn devojn,
 
-sed ŝi havis unu mankon, ke ŝi opiniis, ke ĉiuj ŝin persekutas, 
+sed ŝi havis unu mankon, ke ŝi opiniis, ke ĉiuj ŝin persekutas,
 
 insidas ŝin, kaj tial post taglaboro ŝi donis pri ili anoncojn al
 
@@ -15368,21 +15315,21 @@ zita de parokestro ke li postkuris lian nevinon, ĉe kiu tiu pa-
 
 rokestro dormis, sed ke tiu instruisto prenis al si ateston de
 
-distrikta kuracisto, ke li estas impotenta ekde siaj ses jaroj, 
+distrikta kuracisto, ke li estas impotenta ekde siaj ses jaroj,
 
 kiam li rajdside falis el subtegmento sur timonon de garbve-
 
-turilo. Tiu kanajla ulino faris do anoncon pri la ĉefĝendermo, 
+turilo. Tiu kanajla ulino faris do anoncon pri la ĉefĝendermo,
 
 distrikta kuracisto kaj lerneja inspektoro, ke ili ĉiuj estas sub-
 
 aĉetitaj de tiu instruisto. Ili ĉiuj ŝin akuzis, ŝi estis kondamnita kaj apelaciis, ke ŝi estas spiritmalforta. Esploris ŝin kriminalaj kuracistoj kaj tiuj donis al ŝi bontrovon, ke kvankam ŝi estas
 
-idiota, ke ŝi tamen povas plenumi kiun ajn ŝtatan servon.” 
+idiota, ke ŝi tamen povas plenumi kiun ajn ŝtatan servon.”
 
 La ĉefleŭtenanto Lukáô ekkriis:
 
-”Jesuo Maria\!”, al kio li ankoraŭ aldonis: ”Ion mi al vi di-
+”Jesuo Maria!”, al kio li ankoraŭ aldonis: ”Ion mi al vi di-
 
 rus, Ôvejk, sed mi ne volas abomenigi al mi la vesperman-
 
@@ -15390,11 +15337,11 @@ rus, Ôvejk, sed mi ne volas abomenigi al mi la vesperman-
 
 ”Mi diris al vi, sinjoro ĉefleŭtenanto, ke tio, kion mi al vi
 
-rakontos, estas io terura idiota.” 
+rakontos, estas io terura idiota.”
 
 La ĉefleŭtenanto Lukáô nur eksvingis la manon kaj diris:
 
-”De vi mi jam eksciis da ’saĝaĵoj’, vere…” 
+”De vi mi jam eksciis da ’saĝaĵoj’, vere…”
 
 ”ĉiu ne povas esti saĝa, sinjoro ĉefleŭtenanto,” diris Ôvejk
 
@@ -15432,15 +15379,15 @@ la gastejo per rapideco de elektra tramo, proksimume, sinj-
 
 oro ĉefleŭtenanto, per dek kilometroj en horo. — Aŭ ni havas
 
-ekzemple, sinjoro ĉefleŭtenanto, formikon…” 
+ekzemple, sinjoro ĉefleŭtenanto, formikon…”
 
 La ĉefleŭtenanto Lukáô rektiĝis sur la sofo kaj kunmetis la
 
 manojn:
 
-”Mi devas miri al mi mem, ke mi ĉiam kun vi parolas, 
+”Mi devas miri al mi mem, ke mi ĉiam kun vi parolas,
 
-Ôvejk, mi konas vin ja, Ôvejk, tiel longan tempon— —” 
+Ôvejk, mi konas vin ja, Ôvejk, tiel longan tempon— —”
 
 Ôvejk ĉe tio konsente kapjesis:
 
@@ -15450,7 +15397,7 @@ manojn:
 
 kune travivis jam diversajn aferojn. Ni kune trasuferis jam
 
-multon kaj ĉiam ni venis al tio kiel blinda kokido al grajno. 
+multon kaj ĉiam ni venis al tio kiel blinda kokido al grajno.
 
 Obee mi raportas, sinjoro ĉefleŭtenanto, ke tio estas la sor-
 
@@ -15460,7 +15407,7 @@ nin kunvenigis kaj mi deziras ankaŭ nenion alian ol povi esti
 
 al vi iam tre multe utila. — ĉu vi ne havas malsaton, sinjoro
 
-ĉefleŭtenanto?” 
+ĉefleŭtenanto?”
 
 La ĉefleŭtenanto Lukáô, kiu intertempe denove ekkuŝis sur
 
@@ -15480,7 +15427,7 @@ por momento eksteren kaj forlasos lin, ĉar tiuj idiotaĵoj, kiujn
 
 li de li aŭdas, lacigas lin pli ol la tuta marŝo de Sanok. Li tre
 
-volonte por momento ekdormus, sed li ne povas. 
+volonte por momento ekdormus, sed li ne povas.
 
 ”Tion faras cimoj, sinjoro ĉefleŭtenanto. Tio estas jam mal-
 
@@ -15490,9 +15437,9 @@ vos tion da cimoj kiel en parokejoj. Parokestro Zamastil en
 
 Horní Stodólky verkis pri cimoj eĉ libron, ili rampis sur lin eĉ
 
-dum la prediko.” 
+dum la prediko.”
 
-”Kion mi do diris, Ôvejk, ĉu vi iros al la kuirejo, aŭ ne?” 
+”Kion mi do diris, Ôvejk, ĉu vi iros al la kuirejo, aŭ ne?”
 
 Ôvejk foriris kaj kiel ombro eliris malantaŭ li piedfingre
 
@@ -15502,13 +15449,13 @@ Kiam matene ili ekmarŝis el Liskowiec al Starasol, ili kun-
 
 veturigis en militkuirejo la kompatindan bovinon, kiu an-
 
-koraŭ ne finkuiriĝis. Estis decidite, ke oni kuiros ĝin dumvoje, 
+koraŭ ne finkuiriĝis. Estis decidite, ke oni kuiros ĝin dumvoje,
 
 kaj formanĝos ĝin, kiam estos ripozo en duono de la vojo el
 
-Liskowiec al Starasol. 
+Liskowiec al Starasol.
 
-Al la viraro oni kuiris por la vojo nigran kafon. 
+Al la viraro oni kuiris por la vojo nigran kafon.
 
 La leŭtenanton Dub oni denove tiris sur la sanitara ĉare-
 
@@ -15522,11 +15469,11 @@ Kunert hieraŭ pri li tute ne zorgis, ke li reguligos kun li la
 
 kontojn, kiam ili venos sur la lokon. ĉiumomente li petis, ke
 
-oni donu al li akvon, kiun li eltrinkis kaj tuj denove elvomis. 
+oni donu al li akvon, kiun li eltrinkis kaj tuj denove elvomis.
 
 ”Al kiu — al kio vi ridas?” li kriis de sur la ĉareto. ”Mi in-
 
-struos vin, kun mi ne ludu, vi min ekkonos\!” 
+struos vin, kun mi ne ludu, vi min ekkonos!”
 
 La ĉefleŭtenanto Lukáô rajdis sur ĉevalo kaj kiel kompani-
 
@@ -15554,7 +15501,7 @@ Buchánek; tiu sin mortpafis pro kaŭcio, kiun li prenis al si
 
 cele de edziĝo de sia estonta bopatro**66** kaj kiun li fordiboĉis kun malĉastulinoj. Poste li prenis al si duan kaŭcion de tiu
 
-dua estonta bopatro, per tiu li mastrumis jam pli ekonomie, 
+dua estonta bopatro, per tiu li mastrumis jam pli ekonomie,
 
 tiun li iom post iom malgajnis en ludkartoj kaj ulinetojn li
 
@@ -15562,13 +15509,13 @@ flanklasis. Ankaŭ tio ne sufiĉis al li por longa tempo, tiel ke li devis turni
 
 tria kaŭcio li aĉetis al si ĉevalon, araban virĉevalon, nepur-
 
-sangan…” 
+sangan…”
 
-La ĉefleŭtenanto Lukáô desaltis de sur la ĉevalo. 
+La ĉefleŭtenanto Lukáô desaltis de sur la ĉevalo.
 
 ”Ôvejk,” li diris per minaca tono, ”se vi parolos ankoraŭ pri
 
-kvara kaŭcio, mi deĵetos vin en fosaĵon.” 
+kvara kaŭcio, mi deĵetos vin en fosaĵon.”
 
 Li denove eksaltis sur la ĉevalon kaj Ôvejk serioze daŭrigis:
 
@@ -15576,9 +15523,9 @@ Li denove eksaltis sur la ĉevalon kaj Ôvejk serioze daŭrigis:
 
 cio oni ne povas eĉ paroli, ĉar post la tria kaŭcio li sin mort-
 
-pafis.” 
+pafis.”
 
-”Fine,” diris la ĉefleŭtenanto Lukáô. 
+”Fine,” diris la ĉefleŭtenanto Lukáô.
 
 ”Por ke ni do ne forgesu la parolon,” daŭrigis Ôvejk, ”tiajn
 
@@ -15602,13 +15549,13 @@ ta opinio fari al la tuta viraro, kiel li tion kutimis. Li faris paŭ-
 
 zon, amasigis nin ĉiujn kiel kokidojn ĉirkaŭ kovkokino kaj
 
-komencis al ni klarigadi: ’Kanajloj, vi tute ne scias pritaksi, ke vi marŝas sur la terglobo, ĉar vi estas tia nekulturita bando, 
+komencis al ni klarigadi: ’Kanajloj, vi tute ne scias pritaksi, ke vi marŝas sur la terglobo, ĉar vi estas tia nekulturita bando,
 
 ke la homo ekrigardante vin emas vomi, lasi vin tiel marŝi sur
 
 la suno, kie homo — kiu sur nia mizera planedo havas pezon
 
-de sesdek kilogramoj — pezas pli ol mil sepcent kilogramojn, 
+de sesdek kilogramoj — pezas pli ol mil sepcent kilogramojn,
 
 tiam vi duonmortaĉus, tio estus marŝado, se vi havus en la
 
@@ -15622,7 +15569,7 @@ Inter ni estis kompatinda instruisto, kiu aŭdacis ankaŭ anonci
 
 sin por ekparoli: ’Kun via permeso, sinjoro ĉefleŭtenanto, sur
 
-la luno sesdekkilograma homo pezas nur dek tri kilogramojn. 
+la luno sesdekkilograma homo pezas nur dek tri kilogramojn.
 
 Sur la luno ni havus pli facilan marŝadon, ĉar nia tornistro
 
@@ -15636,7 +15583,7 @@ ton, ĝoju, ke mi donos al vi nur tian ordinaran surteran, se mi
 
 donus al vi tiun lunan, ĉe via malgranda pezo vi flugus ien ĝis
 
-Alpoj kaj frakasiĝus je ili. Se mi donus al vi tiun pezan sunan, 
+Alpoj kaj frakasiĝus je ili. Se mi donus al vi tiun pezan sunan,
 
 la uniformo sur vi ŝanĝiĝus al kaĉo kaj via kapo foflugus ien
 
@@ -15648,7 +15595,7 @@ dum la tuta tempo ĉe marŝo kaj parolis, sinjoro ĉefleŭtenan-
 
 to, pri homa digno, ke oni lin traktas kiel ian parolnekapablan
 
-animalon. Poste sinjoro ĉefleŭtenanto sendis lin al raporto, 
+animalon. Poste sinjoro ĉefleŭtenanto sendis lin al raporto,
 
 oni malfermis lin por dek kvar tagoj kaj li servis aldone an-
 
@@ -15658,13 +15605,13 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-koraŭ ses semajnojn**67**, sed li ilin ne finservis, ĉar li havis her-nion, oni lin iel devigis, ke li turnu sin en la kazerno sur reko, li tion ne eltenis kaj mortis kiel simulanto en malsanulejo.” 
+koraŭ ses semajnojn**67**, sed li ilin ne finservis, ĉar li havis her-nion, oni lin iel devigis, ke li turnu sin en la kazerno sur reko, li tion ne eltenis kaj mortis kiel simulanto en malsanulejo.”
 
-”Tio estas vere stranga, Ôvejk,” diris la ĉefleŭtenanto Lukáô, 
+”Tio estas vere stranga, Ôvejk,” diris la ĉefleŭtenanto Lukáô,
 
 ”ke, kiel mi diris al vi jam kelkfoje, vi havas kutimon per ku-
 
-rioza maniero malestimigi la oficiraron.” 
+rioza maniero malestimigi la oficiraron.”
 
 ”Tion mi ne havas,” respondis Ôvejk kun sincero. ”Mi vo-
 
@@ -15694,7 +15641,7 @@ oro Jenom venus peti la manon de lia filino, ke li deĵetegos lin
 
 de sur la ŝtuparo tiel, ke la mondo tion ne vidis. Sinjoro Je-
 
-nom ektrinkis por kuraĝo kaj tamen nur iris al sinjoro Bílek, 
+nom ektrinkis por kuraĝo kaj tamen nur iris al sinjoro Bílek,
 
 kiu bonvenigis lin en antaŭĉambro kun granda tranĉilo, per
 
@@ -15710,7 +15657,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 pendolhorloĝo sur la vando ekhaltis. Sinjoro Bílek komencis
 
-ridi, tuj metis al li la manon kaj parolis nur: ’Bonvolu eniri, 
+ridi, tuj metis al li la manon kaj parolis nur: ’Bonvolu eniri,
 
 sinjoro Jenom — bonvolu sidiĝi — espereble vi ne surkakiĝis
 
@@ -15734,7 +15681,7 @@ do nenio alia ol ke ambaŭ sinjoroj eltrinku la bieron, forman-
 
 ĝu la italajn kolbasetojn kaj disiru. Poste sinjoro Jenom havis
 
-ankoraŭ malhonoron en tiu gastejo, kien iradis sinjoro Bílek, 
+ankoraŭ malhonoron en tiu gastejo, kien iradis sinjoro Bílek,
 
 kaj fine ĉie en la tuta kvartalo oni ne nomis lin alie ol ’La sur-
 
@@ -15746,9 +15693,9 @@ kompare kun tio bagatelo. — Al ni en la gastejon ’ĉe la kali-
 
 ko’ en la strato Na bojiôti iradis ankoraŭ antaŭ la milito ĉef-
 
-policisto, certa sinjoro Hubiâka, kaj ankaŭ sinjoro redaktoro, 
+policisto, certa sinjoro Hubiâka, kaj ankaŭ sinjoro redaktoro,
 
-kiu kolektis sciigojn pri rompitaj kruroj, surveturigitaj homoj, 
+kiu kolektis sciigojn pri rompitaj kruroj, surveturigitaj homoj,
 
 memmortigantoj kaj publikigis tion en gazeto. Tio estis tiel
 
@@ -15778,7 +15725,7 @@ hejmen kaj diris eĉ ne unu vorton. Li saltis antaŭ ilin kaj ek-
 
 kriegis al tiu sinjoro en la orelon: ’Ne kriegu tiom, aŭ mi vin
 
-forkondukos\!’ Imagu, sinjoro ĉefleŭtenanto, tiun ilian ekti-
+forkondukos!’ Imagu, sinjoro ĉefleŭtenanto, tiun ilian ekti-
 
 mon. Vane ili al li klarigis, ke tio estas ŝajne eraro, ĉar ili am-baŭ veturas de festeno ĉe sinjoro regento. Ke la kaleŝo alve-
 
@@ -15814,7 +15761,7 @@ riko**68** kaj estis ofice en Vinohrady, tiujn ambaŭ li trafis ĉe rompo de la 
 
 li plenumos sian aferon en komisarejo ĉe la sankta Henriko
 
-kaj post unu horo ke li venos al komisarejo en Salma-strato. 
+kaj post unu horo ke li venos al komisarejo en Salma-strato.
 
 La patrolo do fortrenis ilin ambaŭ kun si, kie ili sidis ĝis ma-
 
@@ -15824,7 +15771,7 @@ revenis al ’ĉe la kaliko’ en la strato Na Bojiôti, tie vekis la ĉefpolici
 
 kia enketado el tio rezultos, se Hubiâka ne tenos la langon
 
-malantaŭ la dentoj…” 
+malantaŭ la dentoj…”
 
 La ĉefleŭtenanto Lukáô ŝajnis esti jam lacigita per tiu pa-
 
@@ -15832,13 +15779,13 @@ rolo, sed antaŭ ol li instigis la ĉevalon troti por antaŭrajdi la
 
 avangardon, li diris al Ôvejk:
 
-”Se vi parolus ĝis vespero, estus tio ĉiam pli idiota.” 
+”Se vi parolus ĝis vespero, estus tio ĉiam pli idiota.”
 
 ”Sinjoro ĉefleŭtenanto,” vokis Ôvejk malantaŭ la forrajdan-
 
-ta ĉefleŭtenanto, ”ĉu vi ne deziras scii, kiel tio finiĝis?” 
+ta ĉefleŭtenanto, ”ĉu vi ne deziras scii, kiel tio finiĝis?”
 
-La ĉefleŭtenanto Lukáô rapidigis al galopo. 
+La ĉefleŭtenanto Lukáô rapidigis al galopo.
 
 La stato de la leŭtenanto Dub pliboniĝis tiagrade, ke li el-
 
@@ -15846,19 +15793,19 @@ rampis el la sanitara ĉareto, amasigis ĉirkaŭ si la tutan stabon
 
 de la kompanio kaj kiel en duonkonscio komencis ĉiujn in-
 
-strui. Li havis al ili ege longan parolon, kiu ŝarĝis ĉiujn pli ol municio kaj fusiloj. 
+strui. Li havis al ili ege longan parolon, kiu ŝarĝis ĉiujn pli ol municio kaj fusiloj.
 
-Estis tio miksaĵo de diversaj alegorioj. 
+Estis tio miksaĵo de diversaj alegorioj.
 
 Li komencis: ”La amo de soldatoj al sinjoroj oficiroj faras
 
-nekredeblajn oferojn eblaj kaj de tio ne dependas, kaj male, 
+nekredeblajn oferojn eblaj kaj de tio ne dependas, kaj male,
 
 se tiu ĉi amo ne estas ĉe la soldato denaska, oni devas ĝin
 
-eldevigi. En civila vivo eldevigita amo de unu al la alia, ni diru 68 iama polica komisarejo en Jindæiôská-strato en Prago \(Jindæiôská-
+eldevigi. En civila vivo eldevigita amo de unu al la alia, ni diru 68 iama polica komisarejo en Jindĝiôská-strato en Prago (Jindĝiôská-
 
-strato = strato de Henriko\)
+strato = strato de Henriko)
 
 **258**
 
@@ -15876,11 +15823,11 @@ to eĉ la plej etan malfirmigon de tiu amo, kiu ligas la solda-
 
 ton al lia superulo. Tiu ĉi amo ne estas nur ordinara amo, sed
 
-temas propre pri estimo, timo kaj disciplino.” 
+temas propre pri estimo, timo kaj disciplino.”
 
-Ôvejk dum la tuta tempo iris apude ĉe la maldekstra flanko, 
+Ôvejk dum la tuta tempo iris apude ĉe la maldekstra flanko,
 
-kaj kiel la leŭtenanto Dub parolis, li estis per la vizaĝo senĉese turnita al li dekstren. 
+kaj kiel la leŭtenanto Dub parolis, li estis per la vizaĝo senĉese turnita al li dekstren.
 
 La leŭtenanto Dub komence tion iel ne rimarkis kaj daŭri-
 
@@ -15890,13 +15837,13 @@ gis plu en sia parolo:
 
 al la oficiro estas ege lakona, ĉar la rilato inter la soldato kaj la oficiro estas tute simpla: unu obeas, la alia ordonas. Jam
 
-antaŭlonge ni legis en libroj pri milita arto, ke ĝuste la soldata lakonismo, la soldata simpleco estas tiu virto, kiun devas alproprigi al si ĉiu soldato, amanta, vole nevole, sian superulon, 
+antaŭlonge ni legis en libroj pri milita arto, ke ĝuste la soldata lakonismo, la soldata simpleco estas tiu virto, kiun devas alproprigi al si ĉiu soldato, amanta, vole nevole, sian superulon,
 
 kiu en liaj okuloj devas por li esti la plej granda, preta, kri-
 
-staliĝinta objekto de firma kaj perfekta volo.” 
+staliĝinta objekto de firma kaj perfekta volo.”
 
-Nur nun li ekrimarkis ”Rigardi dekstren\!” de Ôvejk, kiel tiu
+Nur nun li ekrimarkis ”Rigardi dekstren!” de Ôvejk, kiel tiu
 
 lin okulsekvas; tio estis al li tre malagrabla, ĉar subite sentis
 
@@ -15906,7 +15853,7 @@ veturi el tiu ĉi vojo de soldata amo al la superulo, kaj tial li
 
 alkriis Ôvejkon:
 
-”Kial vi gapas al mi kiel bovido al nova pordego?” 
+”Kial vi gapas al mi kiel bovido al nova pordego?”
 
 ”Laŭ la ordono, obee mi raportas, sinjoro leŭtenanto, vi
 
@@ -15916,7 +15863,7 @@ vian buŝon, kiam vi parolas. ĉar ĉiu soldato devas plenumi
 
 ordonojn de sia superulo kaj memori ilin eĉ por la estonta
 
-tempo, mi estis al tio devigita.” 
+tempo, mi estis al tio devigita.”
 
 **259**
 
@@ -15928,7 +15875,7 @@ LA BRAVA SOLDATO ÔVEJK
 
 rigardu min, stula ulo, vi scias, ke mi tion ne ŝatas, ke mi ne
 
-toleras, se mi vin vidas, mi ekcelos mian atenton al vi…” 
+toleras, se mi vin vidas, mi ekcelos mian atenton al vi…”
 
 Ôvejk faris per la kapo turnon maldekstren kaj paŝis plu
 
@@ -15936,33 +15883,33 @@ apud la leŭtenanto Dub tiel rigide, ke la leŭtenanto Dub ek-
 
 kriis:
 
-”Kien vi rigardas, se mi parolas kun vi?” 
+”Kien vi rigardas, se mi parolas kun vi?”
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke laŭ via ordono
 
-mi estas en la pozo ’rigardi maldekstren’.” 
+mi estas en la pozo ’rigardi maldekstren’.”
 
-”A˛,” ekĝemis la leŭtenanto Dub, ”vi prezentas ja krucon. 
+”A˛,” ekĝemis la leŭtenanto Dub, ”vi prezentas ja krucon.
 
-Rigardu rekte antaŭen kaj pensu pri vi: mi estas tia stultulo, 
+Rigardu rekte antaŭen kaj pensu pri vi: mi estas tia stultulo,
 
-ke pri mi ne estos domaĝe. ĉu vi tion memoras?” 
+ke pri mi ne estos domaĝe. ĉu vi tion memoras?”
 
 Ôvejk rigardis antaŭ sin kaj diris:
 
 ”Obee mi raportas, sinjoro leŭtenanto, ĉu mi al tio respon-
 
-du?” 
+du?”
 
 ”Kion vi aŭdacas,” alkriegis lin la leŭtenanto Dub. ”Kiel vi
 
-kun mi parolas, kion vi per tio pensas?” 
+kun mi parolas, kion vi per tio pensas?”
 
 ”Obee mi raportas, sinjoro leŭtenanto, ke per tio mi pen-
 
 sas nur pri tiu via ordono en iu stacio, kie vi min riproĉis, ke
 
-mi tute ne respondu, kiam vi finos la parolon.” 
+mi tute ne respondu, kiam vi finos la parolon.”
 
 ”Vi min do timas,” diris ĝojiĝe la leŭtenanto Dub, ”sed vi
 
@@ -15970,19 +15917,19 @@ min ankoraŭ ne ekkonis. Antaŭ mi tremis aliaj homoj ol es-
 
 tas vi, memoru tion. Mi sciis bridi alijn ulojn , tial fermu la
 
-faŭkon kaj restu bele malantaŭe, ke mi vin ne vidu\!” 
+faŭkon kaj restu bele malantaŭe, ke mi vin ne vidu!”
 
 Tiel Ôvejk restis malantaŭe ĉe la sanitara servo kaj komfor-
 
 te veturis per ĉareto ĝis la loko destinita por ripozo, kie ĉiuj
 
-fine ĝisatendis supon kaj viandon el la kompatinda bovino. 
+fine ĝisatendis supon kaj viandon el la kompatinda bovino.
 
 ”Tiun bovinon necesis marini en vinagro almenaŭ dek kvar
 
 tagojn, kaj se jam ne tiun bovinon, do tiun homon, kiu ĝin
 
-aĉetis,” proklamis Ôvejk. 
+aĉetis,” proklamis Ôvejk.
 
 **260**
 
@@ -16002,13 +15949,13 @@ gi la kompanion, ĉar tie estas du regimentoj el Poznaã. La
 
 kontisto Vanêk kun Ôvejk elserĉos tranokton por la kompa-
 
-nio en Felsztyn. 
+nio en Felsztyn.
 
 ”Atentu, Ôvejk, ke vi ne faru ion dumvoje,” atentigis lin la
 
-ĉefleŭtenanto Lukáô. ”ĉefe kondutu ĝentile al la loĝantaro\!” 
+ĉefleŭtenanto Lukáô. ”ĉefe kondutu ĝentile al la loĝantaro!”
 
-”Obee mi raportas, sinjoro ĉefleŭtenanto, ke mi klopodos. 
+”Obee mi raportas, sinjoro ĉefleŭtenanto, ke mi klopodos.
 
 Mi havis ja malbelan sonĝon, kiam antaŭmatene mi iom ek-
 
@@ -16020,7 +15967,7 @@ tramalsekigis plafonon ĉe sinjoro dommastro, kiu tuj matene
 
 min malluigis. Tia okazaĵo, sinjoro ĉefleŭtenanto, jam vere
 
-estis; en Karlín, malantaŭ la viadukto…” 
+estis; en Karlín, malantaŭ la viadukto…”
 
 ”Donu al ni trankvilon, Ôvejk, pri viaj stultaj paroloj kaj
 
@@ -16032,11 +15979,11 @@ enfluas unua rivereto, kiu estos ĉe via dekstra mano, vi iros
 
 tra kampovojo supren, precize norden, kaj vi povas erarvojiĝi
 
-nenien alien ol en Felsztynon. ĉu vi tion memoras?” 
+nenien alien ol en Felsztynon. ĉu vi tion memoras?”
 
 Ôvejk do ekpaŝis kun la ĉefserĝento-kontisto Vanêk laŭ la
 
-marŝordono. 
+marŝordono.
 
 Estis post tagmezo; la regiono peze respiris en varmego kaj
 
@@ -16054,17 +16001,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-ĝis, kiel furiozis artilerio. Anstataŭ arboj sur grandaj areoj kaj deklivoj elstaris el la tero iaj stumpoj kaj tiun ĉi dezerton sul-kigis tranĉeoj. 
+ĝis, kiel furiozis artilerio. Anstataŭ arboj sur grandaj areoj kaj deklivoj elstaris el la tero iaj stumpoj kaj tiun ĉi dezerton sul-kigis tranĉeoj.
 
 ”ĉi tie tio aspektas alie ol ĉe Prago,” diris Ôvejk por inter-
 
-rompi la silenton. 
+rompi la silenton.
 
 ”ĉe ni estas rikoltosezono jam for,” diris la ĉefserĝento-
 
 kontisto Vanêk. ”En regiono ĉe Kralupy ni komencas kiel
 
-unuaj.” 
+unuaj.”
 
 ”ĉi tie estos post la milito tre bona rikolto,” diris Ôvejk post
 
@@ -16088,7 +16035,7 @@ ganteco, sed li ne, li restis trankvila, nomis neniun porko aŭ
 
 porkino, eĉ sur la faŭkon li donis al neniu. Li nur kunvokis
 
-ĉiujn siajn virojn kaj diras al ili per sia agrabla voĉo: ’Unue, 
+ĉiujn siajn virojn kaj diras al ili per sia agrabla voĉo: ’Unue,
 
 soldatoj, vi devas konscii, ke la kazerno ne estas delikataĵven-
 
@@ -16114,7 +16061,7 @@ batalo entombigos, estus tute egale, per kia soldatpano vi
 
 ŝtopiĝis antaŭ via morto. La panjo tero vin malkomponiĝos
 
-kaj forvoros eĉ kun botoj. En la mondo nenio povas perdiĝi, 
+kaj forvoros eĉ kun botoj. En la mondo nenio povas perdiĝi,
 
 el vi, soldatoj, elkreskos nova greno, el kiu estos soldatpanoj
 
@@ -16140,27 +16087,27 @@ soldatservo devas esti akra kiel zono, la soldatoj estas alkuti-
 
 miĝintaj al tio, ke oni al ili ĉiutage almemorigu, ke ili estas
 
-hundoj kaj porkoj, alie ke ili perdas estimon al siaj superuloj. 
+hundoj kaj porkoj, alie ke ili perdas estimon al siaj superuloj.
 
-Komence li kontraŭstaris, parolis ion pri inteligenteco, pri tio, 
+Komence li kontraŭstaris, parolis ion pri inteligenteco, pri tio,
 
 ke en la nuna tempo estas jam malpermesite servi sub kan-
 
-vergo, sed fine li tamen lasis sin konvinki, vangobatis min kaj
+vergo, sed fine li tamen lasis snvinki, vangobatis min kaj
 
 elĵetis tra la pordo, ke altiĝu lia aŭtoritato. Kiam mi anoncis
 
-la rezulton de mia traktado, ĉiuj havis el tio grandan ĝojon, 
+la rezulton de mia traktado, ĉiuj havis el tio grandan ĝojon,
 
 sed li denove neniigis tion al ili tuj la sekvantan tagon. Li ve-
 
-nas al mi kaj antaŭ ĉiuj diras: ’Ôvejk, hieraŭ mi trofervoriĝis, 
+nas al mi kaj antaŭ ĉiuj diras: ’Ôvejk, hieraŭ mi trofervoriĝis,
 
 jen vi havas florenon kaj trinku je mia sano. Necesas scii, kiel
 
 trakti la soldataron.’
 
-Ôvejk ĉirkaŭrigardis la regionon. 
+Ôvejk ĉirkaŭrigardis la regionon.
 
 ”Mi opinias,” li diris, ”ke ni iras malbonan direkton. Sin-
 
@@ -16178,15 +16125,15 @@ dekstren, poste maldekstren — kaj ni iras ĉiam rekten. Aŭ ni
 
 eble jam trapasis ĉion tion senatente dum la parolo? Mi vidas
 
-ĉi tie antaŭ mi nepre du vojojn al tiu Felsztyn. Mi proponas, 
+ĉi tie antaŭ mi nepre du vojojn al tiu Felsztyn. Mi proponas,
 
-ke ni nun iru tiun vojon maldekstre.” 
+ke ni nun iru tiun vojon maldekstre.”
 
 La ĉefserĝento-kontisto Vanêk, kiel tio jam kutime estas, se
 
 du troviĝas sur vojkruciĝo, komencis aserti, ke oni devas iri
 
-dekstren. 
+dekstren.
 
 ”Tiu mia vojo,” diris Ôvejk, ”estas pli komforta ol tiu via. Mi
 
@@ -16202,19 +16149,19 @@ bele tra herbejaro, ornamos mian kepon per eta floro kaj ŝir-
 
 kolektos la tutan florbukedon por sinjoro ĉefleŭtenanto. Ce-
 
-tere ni povas konvinkiĝi, kiu el ni du pravas, kaj mi esperas, 
+tere ni povas konvinkiĝi, kiu el ni du pravas, kaj mi esperas,
 
 ke ni ĉi tie disiros kiel bonaj kamaradoj. ĉi tie estas tia regi-
 
-ono, ke al tiu Felsztyn devas konduki ĉiuj vojoj.” 
+ono, ke al tiu Felsztyn devas konduki ĉiuj vojoj.”
 
 ”Ne faru stultaĵojn, Ôvejk,” diris Vanêk, ”laŭ la mapo ni
 
-devas ĉi tie iri, kiel mi diras, ĝuste dekstren.” 
+devas ĉi tie iri, kiel mi diras, ĝuste dekstren.”
 
 ”Mapo povas ankaŭ erari,” respondis Ôvejk, descendante
 
-en valon de rivereto. ”Foje nokte fumaĵisto Kæenek el Vino-
+en valon de rivereto. ”Foje nokte fumaĵisto Kĝenek el Vino-
 
 hrady iris hejmen laŭ urbplano de Prago el ’ĉe Montág’ en
 
@@ -16224,11 +16171,11 @@ dêlov ĉe Kladno, kie oni trovis lin matene tute frostorigidi-
 
 ĝintan en sekala kampo, kien li falis pro laciĝo. Se vi do ne
 
-lasas vin konvinki, sinjoro ĉefserĝento-kontisto, kaj havas
+lasas vnvinki, sinjoro ĉefserĝento-kontisto, kaj havas
 
 obstinan kapon, ni devas do disiri kaj ni renkontiĝos nur sur-
 
-loke en Felsztyn. Rigardu nur la poŝhorloĝon, por ke ni sciu, 
+loke en Felsztyn. Rigardu nur la poŝhorloĝon, por ke ni sciu,
 
 **264**
 
@@ -16236,9 +16183,9 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-kiu estos tie pli frue. Kaj se eble minacus al vi ia danĝero, 
+kiu estos tie pli frue. Kaj se eble minacus al vi ia danĝero,
 
-ekpafu en aeron, por ke mi sciu, kie vi estas.” 
+ekpafu en aeron, por ke mi sciu, kie vi estas.”
 
 Posttagmeze Ôvejk ĝisiris al malgranda lageto, kie li ren-
 
@@ -16246,7 +16193,7 @@ kontiĝis kun forkurinta rusa militkaptito, kiu ĉi tie sin banis
 
 kaj ĉe ekvido de Ôvejk komencis fuĝi nuda, kiel li eliris el ak-
 
-vo. 
+vo.
 
 Ôvejk scivolis, kiel eble konvenus al li rusa uniformo, kiu
 
@@ -16260,11 +16207,11 @@ ziris vidi sin detale speguliĝi en akvo, tial li paŝis sur bordo de la lago ti
 
 tiuj fortrenis Ôvejkon malgraŭ liaj protestoj al etapo en Chy-
 
-rov, kie ili alvicigis lin al transporto de rusaj militkaptitoj, 
+rov, kie ili alvicigis lin al transporto de rusaj militkaptitoj,
 
 destinitaj al laboro ĉe riparo de fervoja trako direkte al Prze-
 
-myôl. 
+myôl.
 
 ĉio tio okazis tiel rapide, ke Ôvejk ekkonsciis la situacion
 
@@ -16272,13 +16219,13 @@ nur la sekvantan tagon kaj per peceto da ligna brulstumpo
 
 skribis sur blankan muron de lerneja ĉambro, kie oni loĝigis
 
-parton de la militkaptitoj: ĉi tie dormis Jozefo Ôvejk el Prago, 
+parton de la militkaptitoj: ĉi tie dormis Jozefo Ôvejk el Prago,
 
 kompania kuriero de la dekunua marŝko de la naŭdekunua
 
 regimento, kiu kiel enloĝiganto pro eraro falis en aŭstran
 
-kaptitecon ĉe Felsztyn. 
+kaptitecon ĉe Felsztyn.
 
 **265**
 
@@ -16292,11 +16239,11 @@ EN PLENA ILUSTRITA VORTARO
 
 *anabaso*
 
-tre longa marŝo, migrado \(origine longa marŝo
+tre longa marŝo, migrado (origine longa marŝo
 
-de dek mil grekaj \(el la greka anabasis\): soldatoj
+de dek mil grekaj (el la greka anabasis): soldatoj
 
-el Mezopotamio al Eŭropo\)
+el Mezopotamio al Eŭropo)
 
 *apuntato*
 
@@ -16310,17 +16257,17 @@ suboficiroj
 
 esprimo el kartludo mariaĝo — la ludanto, kiu
 
-anoncas intencon ludi \(el la germana Bettel\) bet-
+anoncas intencon ludi (el la germana Bettel) bet-
 
-lon \( ”almozi”, Bettel = almozulo\), devas ludi tiel, 
+lon ( ”almozi”, Bettel = almozulo), devas ludi tiel,
 
 ke li ne havu eĉ unu prenon dum la ludo
 
 *bu˛tetoj bu˛toj*
 
-ĉeąj brikformaj kukoj, farĉitaj per marmelado, 
+ĉeąj brikformaj kukoj, farĉitaj per marmelado,
 
-papavo, kazeo k.s. 
+papavo, kazeo k.s.
 
 Bu˛tetoj — malgrandaj nefarĉitaj bu˛toj, kiujn
 
@@ -16334,13 +16281,13 @@ nacio en orienta Siberio
 
 1. vidu PIV
 
-2. malnova mezurunuo por kampoj \(unu buŝelo
+2. malnova mezurunuo por kampoj (unu buŝelo
 
-egalas proksimume al 28,77 aroj\)
+egalas proksimume al 28,77 aroj)
 
 *cviko*
 
-\(el la germana Zwick\) speco de hazarda karludo
+(el la germana Zwick) speco de hazarda karludo
 
 kun kvar kartoj
 
@@ -16358,7 +16305,7 @@ objektojn
 
 esprimo el kartludo mariaĝo — la ludanto, kiu
 
-anoncas intencon ludi \(el la germana ”durch”\)
+anoncas intencon ludi (el la germana ”durch”)
 
 dur˛on, devas ludi tiel, ke li akiru ĉiujn prenojn
 
@@ -16408,7 +16355,7 @@ fanoj
 
 *kaŭbojo*
 
-\(el la angla cowboy\): paŝtisto de brutaro en iama
+(el la angla cowboy): paŝtisto de brutaro en iama
 
 Sovaĝa okcidento. Kaŭbojoj elstaris per eminen-
 
@@ -16424,15 +16371,15 @@ aferoj
 
 *kriptografio*
 
-scienco pri sistemoj de sekreta \(ĉifrita\) skribo
+scienco pri sistemoj de sekreta (ĉifrita) skribo
 
 *kriptogramo*
 
-sekreta \(ĉifrita\) skribaĵo
+sekreta (ĉifrita) skribaĵo
 
 *kurato*
 
-feldkurato \(vidu supre\)
+feldkurato (vidu supre)
 
 *leonbegro*
 
@@ -16464,7 +16411,7 @@ foro, amoniako kaj eteroleoj
 
 porcia kvanto da rostitaj pankubetoj, sen kia ajn
 
-alia aldonaĵo \(viando, legomo ktp.\)
+alia aldonaĵo (viando, legomo ktp.)
 
 *perkelto*
 
@@ -16490,13 +16437,13 @@ speco de dolĉeta vino, speco de vinberoj
 
 *soŭleto*
 
-\(el la hebrea lingvo\): pecetoj da ansera viando, 
+(el la hebrea lingvo): pecetoj da ansera viando,
 
 stufitaj en kuirita grio
 
 *ŝodo*
 
-\(france Chadeau\): dolĉa kremo el vino, ovoflavoj
+(france Chadeau): dolĉa kremo el vino, ovoflavoj
 
 kaj sukero
 
@@ -16510,11 +16457,11 @@ ne
 
 1. vidu PIV
 
-2. translokigo \(transveturigado\) de homo, objek-
+2. translokigo (transveturigado) de homo, objek-
 
-to aŭ aro da ili pro diversaj celoj \(ekz. transporto
+to aŭ aro da ili pro diversaj celoj (ekz. transporto
 
-de varo, retenito, militkaptitoj\)
+de varo, retenito, militkaptitoj)
 
 **268**
 
@@ -16522,22 +16469,17 @@ LA BRAVA SOLDATO ÔVEJK
 
 *e* LIBRO
 
-www.omnibus.se/inko
+www.omnibus.se/
 
-**ISBN 91-7303-093-7**
 
 **269**
 
 
-
-
-
 # Document Outline
 
-+ Enhavo  
-	+ 1. TRANS HUNGARION 
-	+ 2. EN BUDAPESTO 
-	+ 3. EL HATVAN G’IS LA LIMO DE GALICIO 
-	+ 4. MARS’\! MARS’\!  
-	+ VORTOJ, NETROVEBLAJ EN PLENA ILUSTRITA VORTARO
-
++ Enhavo
++ 1. TRANS HUNGARION
++ 2. EN BUDAPESTO
++ 3. EL HATVAN G’IS LA LIMO DE GALICIO
++ 4. MARS’! MARS’!
++ VORTOJ, NETROVEBLAJ EN PLENA ILUSTRITA VORTARO

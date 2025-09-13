@@ -1,42 +1,13 @@
-% Eo - Conan Doyle, Arthur
-% La viro kun la tordita lipo
-
-!(images/000001.jpg)
 
 
-La viro kun la tordita lipo
-
-de Sir Arthur Conan Doyle
-
-Esperantigita de Sylvan Zaft
-
-[Torixoréu libroj - http://www.lujz.org/libro/](http://www.lujz.org/libro/)
-
-Legu [html-an version ](http://members.aol.com/sylvanz/tl1.htm)ˆce Sylvan Zaft. 
-
-Enhavo
-
-Parto I
-
-1
-
-Parto II
-
-19
-
-Parto I
-
-2
-
-Kopirajto c pri ˆci tiu traduko ˆce Sylvan Zaft 1996. Vi rajtus fari elektronikajn kopiojn kaj paperajn kopiojn por via persona uzado kaj por disdoni tute senpage al aliaj nur se la kopioj inkluzivas tiun ˆci avizon. Vi ne rajtas enmeti tiun tradukon en iun ajn alian interretan lokon. Por alia permeso, bonvolu skribi al mi. Mia adreso estas sylvanz@aol.com. 
+Kopirajto c pri ˆci tiu traduko ˆce Sylvan Zaft 1996. Vi rajtus fari elektronikajn kopiojn kaj paperajn kopiojn por via persona uzado kaj por disdoni tute senpage al aliaj nur se la kopioj inkluzivas tiun ˆci avizon. Vi ne rajtas enmeti tiun tradukon en iun ajn alian interretan lokon. Por alia permeso, bonvolu skribi al mi. Mia adreso estas sylvanz@aol.com.
 
 Noto pri la traduko:
 
-Mi faris la originalan version de la traduko. Poste Claude Piron afable korektis erarojn kaj sugestis kiel mi povus plibonigi la stilon. Mi dankas lin por lia altvalora helpo. ˆ
 
 Car en iuj lokoj mi ne sekvis
 
-liajn sugestojn mi respondecas por iuj ajn restantaj eraroj kaj malglataˆoj. 
+liajn sugestojn mi respondecas por iuj ajn restantaj eraroj kaj malglataˆoj.
 
 Isa Whitney, frato de forpasinta Elias Whitney, Doktoro de Diostudo, estro de la Diostuda Kolegio de Saint George, estis sklava prenanto de opio. La kutimo kreskadis en li, la˘
 
@@ -44,7 +15,7 @@ u mia kompreno, pro iu
 
 idiota kaprico kiam li ˆceestis universitaton; ˆcar, leginte la priskribon de De Quincey pri narkotaˆaj revoj kaj sentoj, li trasorbigis sian tabakon kun opiofluaˆo provante ka˘
 
-uzi ion similan. Li eltrovis, 
+uzi ion similan. Li eltrovis,
 
 kiel tiom da aliaj anta˘
 
@@ -62,15 +33,14 @@ parencoj. Ankora˘
 
 u mi povas vidi lin kun flava pasteca vizaˆ
 
-go, palpebroj senpovaj, etaj pupiloj, 
+go, palpebroj senpovaj, etaj pupiloj,
 
-3
 
 tutkunpremiˆ
 
 ginta en seˆ
 
-go, tuta ruino de nobla vir’. 
+go, tuta ruino de nobla vir’.
 
 Iun nokton, estis en junio de 1889, la pordsonorilo eksonis je la horo kiam viro komencas oscedi kaj ekrigardi la horloˆ
 
@@ -82,27 +52,27 @@ go, dum mia edzino mallevis genuen sian kudraˆon
 
 kun frustriˆ
 
-ga mieno. 
+ga mieno.
 
-“Paciento\!” ˆsi diris. “Vi devos foriri.” 
+“Paciento!” ˆsi diris. “Vi devos foriri.”
 
 Mi ˆ
 
-gemis ˆcar mi ˆus revenis post laciga tago. 
+gemis ˆcar mi ˆus revenis post laciga tago.
 
 Ni a˘
 
-udis la malfermon de la pordo, kelkajn rapidajn vortojn, kaj poste rapidajn paˆsojn sur la linoleumo. Nia pordo flugis malferme kaj sinjorino vestita en iu malhela ˆstofo, kun nigra vualo, eniris la ˆcambron. 
+udis la malfermon de la pordo, kelkajn rapidajn vortojn, kaj poste rapidajn paˆsojn sur la linoleumo. Nia pordo flugis malferme kaj sinjorino vestita en iu malhela ˆstofo, kun nigra vualo, eniris la ˆcambron.
 
 “Vi devas pardoni ke mi eniris tiel malfrue,” ˆsi komencis, kaj tiam, subite perdante la memregadon, ˆsi ˆetis la brakojn ˆcirka˘
 
-u la kolon de mia edzino, kaj ploregis sur ties ˆsultro. 
+u la kolon de mia edzino, kaj ploregis sur ties ˆsultro.
 
-“Ho, mi tiel suferas\!” ˆsi kriis; “mi tiom deziras iom da help’.” 
+“Ho, mi tiel suferas!” ˆsi kriis; “mi tiom deziras iom da help’.”
 
-“Ej\!” diris mia edzino levante la vualon, “estas Kate Whitney. Kiom vi timigis min, Kate\! Mi tute ne divenis kiu eniras.” 
+“Ej!” diris mia edzino levante la vualon, “estas Kate Whitney. Kiom vi timigis min, Kate! Mi tute ne divenis kiu eniras.”
 
-“Mi ne sciis kion fari, mi do iris tuj al vi.” Tiel ˆciam estis. Homoj ˆcagrenataj venis al mia edzino kiel birdoj lumturen. 
+“Mi ne sciis kion fari, mi do iris tuj al vi.” Tiel ˆciam estis. Homoj ˆcagrenataj venis al mia edzino kiel birdoj lumturen.
 
 “Estis saˆ
 
@@ -110,11 +80,10 @@ ge veni al ni. Vi nun trinku iom da vino kun akvo, sidu komforte kaj ˆcion diru
 
 u, ˆcu
 
-vi preferas ke mi sendu James al la lito?” 
+vi preferas ke mi sendu James al la lito?”
 
-4
 
-“Ho, ne, ne, ne\! Mi bezonas konsilon kaj helpon de kuracisto. Temas pri Isa. Jam du tagojn li ne estas hejme Mi ege timas\!” 
+“Ho, ne, ne, ne! Mi bezonas konsilon kaj helpon de kuracisto. Temas pri Isa. Jam du tagojn li ne estas hejme Mi ege timas!”
 
 Ne unuafoje ˆsi parolis al ni pri la afliktoj de la edzo, al mi kiel kuracisto, al mia edzino kiel malnova amikino kaj kunstudintino. ˆ
 
@@ -124,7 +93,7 @@ trovi. ˆ
 
 Cu ˆsi sciis kie la edzo estas? ˆ
 
-Cu eble ni povos revenigi lin al ˆsi? 
+Cu eble ni povos revenigi lin al ˆsi?
 
 ˆ
 
@@ -146,7 +115,7 @@ gante je ties efikoj. Oni
 
 povos trovi lin tie, ˆsi certis, ˆce la Orbriko-Opiejo en Upper-Swandam-strateto. Sed kion povus ˆsi, juna, timema virino; ˆcu iri en tian lokon, ekpreni la edzon de inter ˆcirka˘
 
-uaj brutoj? 
+uaj brutoj?
 
 Tia estis la situacio, kaj evidente eblis nur unu solvo. Kial ne mi kuniri kun ˆsi tiuloken? Kaj, se pripensi, kial iru ˆsi? Mi estis la kuraca konsultato de Isa Whitney, kaj, do, povos influi lin. Estante sola mi pli bone sukcesos la endaˆon. Mi donis al ˆsi mian vorton ke mi sendos lin hejmen en fiakro ene de du horoj, se li ja troviˆ
 
@@ -154,7 +123,7 @@ gos ˆce la adreso kiun ˆsi donis al mi. Do post dek minutoj mi forlasis
 
 la brakseˆ
 
-gon kaj la gajan sidˆcambron kaj en lu-kabrioleto rapidis orienten kun stranga komisio, kiel tiam al mi ˆsajnis, kvankam nur la postaj okazaˆoj povos montri kiagrade stranga. 
+gon kaj la gajan sidˆcambron kaj en lu-kabrioleto rapidis orienten kun stranga komisio, kiel tiam al mi ˆsajnis, kvankam nur la postaj okazaˆoj povos montri kiagrade stranga.
 
 Nenio malfacilis dum la unua stadio de mia aventuro. Upper-Swandam-strateto estas lokaˆco 5
 
@@ -162,19 +131,19 @@ kaˆsita malanta˘
 
 u la altaj havenkajoj kiuj la˘
 
-uas la nordan riverflankon oriente de London-ponto. 
+uas la nordan riverflankon oriente de London-ponto.
 
 Inter vestaˆc- kaj ˆ
 
 ginvendejo, aliratan per kruta ˆstuparo kiu desupras al spaco nigra kiel kavernbuˆso, mi trovis la ejon kiun mi serˆcis. Ordonante ke la veturigisto atendu, mi desupris la˘
 
-u la ˆstupoj, 
+u la ˆstupoj,
 
-eluzataj per la senˆcesa paˆsado de ebriaj piedoj; kaj per la lumo de flagra olelampo superporda mi trovis la klinkon kaj eniris longan malaltan ˆcambron, kun aero dika-peza pro la bruna opiofumo, kaj lignaj kuˆsejoj aranˆ
+eluzataj per la senˆcesa paˆsado de ebriaj piedoj; kaj per la lumo de flagra olelampo superporda mi trovis la kln kaj eniris longan malaltan ˆcambron, kun aero dika-peza pro la bruna opiofumo, kaj lignaj kuˆsejoj aranˆ
 
 gitaj unu super la alia kiel en la anta˘
 
-uparto de ˆsipo elmigra. 
+uparto de ˆsipo elmigra.
 
 Tra la malforta lumo oni povis malklare ekvidi korpojn kuˆsantajn en strangaj nekredeblaj pozoj, kun kurbaj ˆsultroj, fleksitaj genuoj, kapoj malanta˘
 
@@ -188,7 +157,7 @@ brilaj jen malfortaj la˘
 
 u tio, ˆcu la venena bruleto kreskis a˘
 
-u malkreskis en la metalaj pipfornetoj. 
+u malkreskis en la metalaj pipfornetoj.
 
 La plejparto el la fumantaro kuˆsis silente, sed iuj murmuris al si, kaj aliaj kunparolis per strangaj malla˘
 
@@ -196,63 +165,61 @@ utaj unutonaj voˆcoj; iliaj diroj ˆsprucis hakate kaj poste mortis en silenton
 
 gulo, kiu, kun la makzelo sur la pugno, kaj la kubutoj
 
-surgenue, fiksrigardis la fajron. 
+surgenue, fiksrigardis la fajron.
 
-Kiam mi eniris, flavpala malaja servisto jam estis rapidanta kun pipo kaj drogprovizo por mi, gestante al vaka lignolito. 
+Kiam mi eniris, flavpala malaja servisto jam estis rapidanta kun pipo kaj drogprovizo por mi, gestante al vaka lignolito.
 
 “Dankon. Mi ne venas por resti,” mi diris. “ ˆ
 
 Ci tie estas mia amiko, S-ro Isa Whitney, kaj mi
 
-6
 
-deziras paroli kun li.” 
+deziras paroli kun li.”
 
-Dekstre iu movis kaj ekkriis, kaj rigardante tra la malforta lumo mi ekvidis Whitney, pala, marasma, kaj nekombita, kiu rigardis min. 
+Dekstre iu movis kaj ekkriis, kaj rigardante tra la malforta lumo mi ekvidis Whitney, pala, marasma, kaj nekombita, kiu rigardis min.
 
-“Mia Di’ \! Estas Watson,” li diris. Li estis en kompatinda reagstato, kun ˆciu nervo agacita. “Diru, Watson, kioma hor’ ?” 
+“Mia Di’ ! Estas Watson,” li diris. Li estis en kompatinda reagstato, kun ˆciu nervo agacita. “Diru, Watson, kioma hor’ ?”
 
 “Preska˘
 
-u la dekunua.” 
+u la dekunua.”
 
-“Kiu tag’ ?” 
+“Kiu tag’ ?”
 
 “Vendredo, la dek na˘
 
-ua de junio.” 
+ua de junio.”
 
 “ ˆ
 
-Cielon\! Mi pensis ke merkredo. Certe ja estas merkredo. Kial vi volas timigi ulon?” Li mallevis la vizaˆ
+Cielon! Mi pensis ke merkredo. Certe ja estas merkredo. Kial vi volas timigi ulon?” Li mallevis la vizaˆ
 
-gon braken kaj ekploris en alta soprana tono. 
+gon braken kaj ekploris en alta soprana tono.
 
-“Viro, mi diras al vi ke estas vendredo. Jam du tagojn via edzino atendas vin. Vi devus honti\!” 
+“Viro, mi diras al vi ke estas vendredo. Jam du tagojn via edzino atendas vin. Vi devus honti!”
 
 “Jes. Sed vi konfuzas vin, Watson, ˆcar mi estas tie ˆci nur malmultajn horojn, por tri pipoj, kvar pipoj, mi forgesas kiom. Sed mi alhejmiˆ
 
-gos kun vi. Mi ne timigu Kate, kompatindan etan Kate. 
+gos kun vi. Mi ne timigu Kate, kompatindan etan Kate.
 
-Donu la manon\! ˆ
+Donu la manon! ˆ
 
-Cu vi venis fiakre?” 
+Cu vi venis fiakre?”
 
 “Jes. ˆ
 
-Gi atendas.” 
+Gi atendas.”
 
 “Do, mi iros en ˆ
 
 gi. Sed mi certe ˆsuldas iom. Demandu kiom mi ˆsuldas, Watson. Mi ne bone
 
-fartas. Mi nenion povas fari.” 
+fartas. Mi nenion povas fari.”
 
 Mi marˆsis en la mallarˆ
 
 ga pasejo inter la du vicoj da dormantoj sen enspiri por eviti la narkotajn
 
-7
 
 fumaˆcojn, serˆce al la mastro. Kiam mi pasis la altan viron ˆce la fajrokorbo mi sentis ektiron ˆce la basko, kaj malla˘
 
@@ -270,13 +237,13 @@ u ˆ
 
 gi falis el la fingroj pro laceco. Mi iris du paˆsojn anta˘
 
-uen kaj rerigardis. 
+uen kaj rerigardis.
 
-Nur per mia tuta sinregado mi subpremis miran ekkrion\! Li jam turnis sian dorson por ke neniu krom mi povu vidi lin. Lia formo grandiˆ
+Nur per mia tuta sinregado mi subpremis miran ekkrion! Li jam turnis sian dorson por ke neniu krom mi povu vidi lin. Lia formo grandiˆ
 
 gis, la sulketoj foriˆ
 
-gis, la malhelaj okuloj reakiris fajrecon, 
+gis, la malhelaj okuloj reakiris fajrecon,
 
 kaj tie, ˆcefajre, larˆ
 
@@ -288,15 +255,15 @@ gu, kaj tuj, dum li duonturnis la vizaˆ
 
 gon al la aliaj, refariˆ
 
-gis kaduka mollipa maljunulo. 
+gis kaduka mollipa maljunulo.
 
-“Holmes\!” mi flustris, “kial el ˆciuj surteraj lokoj vi elektis ˆci tiun aˆcejon?” 
+“Holmes!” mi flustris, “kial el ˆciuj surteraj lokoj vi elektis ˆci tiun aˆcejon?”
 
 “Plej malbrue,” li respondis. “Mi havas bonegajn orelojn. Se vi bonkoros forigi tiun vian ebrian amikon, mi ˆ
 
-guos iomete paroli kun vi.” 
+guos iomete paroli kun vi.”
 
-“Mi havas lu-veturilon ekstere.” 
+“Mi havas lu-veturilon ekstere.”
 
 “Do bonvolu alhejmigi lin per ˆ
 
@@ -308,7 +275,7 @@ u ke vi sendu noton per la fiakristo al via edzino, dirantan ke vi estas kun mi.
 
 vi atendos ekstere, mi rekuniˆ
 
-gos kun vi post kvin minutoj.” 
+gos kun vi post kvin minutoj.”
 
 Malfacilas rifuzi ion al Sherlock Holmes, ˆcar liaj petoj ˆciam proponiˆ
 
@@ -328,23 +295,23 @@ urigardo, li rektiˆ
 
 gis
 
-kaj elkore ridegis. 
+kaj elkore ridegis.
 
-“Supozeble, Watson,” li diris, “vi imagas ke mi nun aldonis opifumadon al kokainaj injektoj, kaj al tiuj aliaj fi-agetoj pri kiuj vi helpis min per viaj kuracistaj opinioj.” 
+“Supozeble, Watson,” li diris, “vi imagas ke mi nun aldonis opifumadon al kokainaj injektoj, kaj al tiuj aliaj fi-agetoj pri kiuj vi helpis min per viaj kuracistaj opinioj.”
 
-“Mi certe miris trovi vin tie.” 
+“Mi certe miris trovi vin tie.”
 
-“Sed ne pli ol mi trovi vin.” 
+“Sed ne pli ol mi trovi vin.”
 
-“Mi iris por trovi amikon.” 
+“Mi iris por trovi amikon.”
 
-“Kaj mi por trovi malamikon.” 
+“Kaj mi por trovi malamikon.”
 
-“Malamikon, ˆcu?” 
+“Malamikon, ˆcu?”
 
 “Jes; unu el miaj naturaj malamikoj, a˘
 
-u, ˆcu mi diru, miaj naturaj ˆcasaˆoj. Vortˆspare, Watson, 
+u, ˆcu mi diru, miaj naturaj ˆcasaˆoj. Vortˆspare, Watson,
 
 mi estas meze de tre rimarkinda esploro, kaj mi esperis ˆcerpi ion interesan el la malklaraj vagemaj esprimoj de tiuj ebriuloj, kiel mi kelkfoje anta˘
 
@@ -358,59 +325,57 @@ gin, kaj la fripona eksmilitista hindo kiu estas la
 
 mastro tie ˆuris ke li venˆ
 
-gos sin kontra˘
+gos sntra˘
 
 u mi. Estas falpordo en la malanta˘
 
-ua parto de tiu konstruaˆo, 
+ua parto de tiu konstruaˆo,
 
-9
 
 apud la angulo de la Paul-kajo, kiu povus rakonti mirigaˆojn pri tiuj kiuj trapasis ˆ
 
 gin dum noktoj
 
-senlunaj.” 
+senlunaj.”
 
-“Kio\! ˆ
+“Kio! ˆ
 
-Cu vi aludas al murditaj?” 
+Cu vi aludas al murditaj?”
 
 “Jes ja, mortintaj korpoj, Watson. Ni estus riˆculoj se ni havus mil pundojn por ˆciu kompatinda ulo kiun oni mortigis tiuloke. Tio estas la plej aˆca murdkaptilo en la tuta riverflanko, kaj mi timas ke Neville St. Clair tien enirinte neniam plu eliros. Sed nia kariolo devas esti ˆci tie.” Li metis la du montrofingrojn inter la dentojn kaj akre fajfis — signalo al kiu oni respondis per simila fajfo de fore, balda˘
 
-u sekvata per radaj klakadoj kaj tintadoj hufaj. 
+u sekvata per radaj klakadoj kaj tintadoj hufaj.
 
-“Nun, Watson,” diris Holmes, dum alta kariolo ekkuris tramallume, elˆetante du orajn tunelojn de flava lumo el la flanklanternoj. “Vi venos kun mi, ˆcu ne?” 
+“Nun, Watson,” diris Holmes, dum alta kariolo ekkuris tramallume, elˆetante du orajn tunelojn de flava lumo el la flanklanternoj. “Vi venos kun mi, ˆcu ne?”
 
-“Se mi povos utili.” 
+“Se mi povos utili.”
 
 “Fidinda kamarado ˆciam utilas; kaj kronikisto ankora˘
 
 u pli. Mia ˆcambro en La Cedroj estas
 
-du-lita.” 
+du-lita.”
 
-“La Cedroj?” 
+“La Cedroj?”
 
 “Jes; la domo de S-ro St. Clair. Mi loˆ
 
-gas tie dum mi kondukas la esploron.” 
+gas tie dum mi kondukas la esploron.”
 
 “Kie ˆ
 
-gi situas?” 
+gi situas?”
 
 “Apud Lee, en Kent. Ni havas sepmejlan veturon anta˘
 
-u ni.” 
+u ni.”
 
-“Tamen mi estas tute en mallumo.” 
+“Tamen mi estas tute en mallumo.”
 
-10
 
 “Kompreneble vi estas. Vi scios pri ˆ
 
-gi poste. Ensaltu\! Bone, John; ni ne bezonos vin. Jen
+gi poste. Ensaltu! Bone, John; ni ne bezonos vin. Jen
 
 duonkrona monero. Atendu min morga˘
 
@@ -418,7 +383,7 @@ u, ˆcirka˘
 
 u la dekunua. Liberigu la ˆcevalon. ˆ
 
-Gis tiam\!” 
+Gis tiam!”
 
 Li vipetis la ˆcevalon kaj ni rapidis tra senfina serio de malgajaj, vakaj stratoj kiuj plilarˆ
 
@@ -430,7 +395,7 @@ post iom ˆ
 
 gis ni flugis trans larˆ
 
-gbalustradan ponton, sub kiu la malhelega rivero senforte fluadis. 
+gbalustradan ponton, sub kiu la malhelega rivero senforte fluadis.
 
 Anta˘
 
@@ -444,7 +409,7 @@ piedsonoj de policano a˘
 
 u la kantoj kaj kriegoj de malfrua aro da diboˆculoj. Malhelaj disaj nuboj
 
-senpove vagis traˆciele, kaj kelkaj steloj trembrilis malklare jen kaj jen videblaj tra la nubtruoj. 
+senpove vagis traˆciele, kaj kelkaj steloj trembrilis malklare jen kaj jen videblaj tra la nubtruoj.
 
 Holmes silente direktis, kun la kapo klinita brusten, aspektante kiel viro perdita en pensado, dum mi sidis apud li, scivola pri tiu nova serˆco, serˆco kiu ˆsajne elprovas liajn kapablojn tiel grave; kaj tamen mi timis interrompi lian pensofluon. Ni jam veturis kelkajn mejlojn kaj komencis atingi la limon de la beldoma anta˘
 
@@ -452,13 +417,13 @@ uurbo, kiam li sin skuis, ˆsultrotiris, kaj ekbruligis sian pipon kvaza˘
 
 u viro
 
-ˆus konvinkita ke li agas plej boncele. 
+ˆus konvinkita ke li agas plej boncele.
 
 “Vi havas bonegan talenton por silento, Watson,” diris li. “Tiel vi multvaloras al samvojulo. Mi ˆ
 
-gojas havi kunparolanton, ˆcar miaj pensoj ne tre agrablas. Mi min demandis, kion mi diros al tiu kara, malgranda virino ˆci-nokte kiam ˆsi renkontos min ˆceporde.” 
+gojas havi kunparolanton, ˆcar miaj pensoj ne tre agrablas. Mi min demandis, kion mi diros al tiu kara, malgranda virino ˆci-nokte kiam ˆsi renkontos min ˆceporde.”
 
-“Vi forgesas ke mi scias nenion.” 
+“Vi forgesas ke mi scias nenion.”
 
 “Mi havas apena˘
 
@@ -470,13 +435,12 @@ Sajnas absurde
 
 simple, kaj tamen mi povas kapti nenion, kio helpus por anta˘
 
-ueniri. Sendube estas multaj fadenoj, 
+ueniri. Sendube estas multaj fadenoj,
 
-11
 
-sed mi ne povas tuˆsi ties ekstremaˆojn. Nun, mi precize, koncize pridiros la aferon al vi, Watson, por ke vi eble povu ekvidi fajreron kie ˆcio mallumas por mi.” 
+sed mi ne povas tuˆsi ties ekstremaˆojn. Nun, mi precize, koncize pridiros la aferon al vi, Watson, por ke vi eble povu ekvidi fajreron kie ˆcio mallumas por mi.”
 
-“Nu, bonvolu.” 
+“Nu, bonvolu.”
 
 “Anta˘
 
@@ -484,7 +448,7 @@ u kelkaj jaroj, en majo de 1884 precize, iris al Lee sinjoro, nomita Neville St.
 
 uˆsajne havis multe da mono. Li luis domegon, beligis la terpecon, kaj ˆ
 
-generale vivis bonmaniere. 
+generale vivis bonmaniere.
 
 La˘
 
@@ -498,7 +462,7 @@ havas du infanojn. Li havis nenian okupon, sed interesiˆ
 
 gante pri kelkaj kompanioj, li kutime iris
 
-urben matene, revenante ˆciunokte per la vagonaro de la Cannon-strato 5:14. S-ro St. Clair nun estas 37-jara, kondutas modere, estas bona edzo, tre amema patro, viro populara kun ˆciu konato. 
+urben matene, revenante ˆciunokte per la vagonaro de la Cannon-strato 5:14. S-ro St. Clair nun estas 37-jara, kondutas modere, estas bona edzo, tre amema patro, viro populara kun ˆciu konato.
 
 Mi povas aldoni ke liaj tutaj ˆsuldoj ˆci-momente, la˘
 
@@ -506,21 +470,20 @@ u ˆcio kion ni povis eltrovi, sumiˆ
 
 gas al 88 pundoj
 
-kaj 10 ˆsilingoj, dum li havas krediton de 220 pundoj ˆce la Banko Capital and Counties. Do estas nenia kialo por pensi ke monaj malfacilaˆoj pezis sur lia menso. 
+kaj 10 ˆsilingoj, dum li havas krediton de 220 pundoj ˆce la Banko Capital and Counties. Do estas nenia kialo por pensi ke monaj malfacilaˆoj pezis sur lia menso.
 
 “Lastan lundon S-ro Neville St. Clair alurbis iom plu frue ol kutime, rimarkante anta˘
 
 u ol foriri ke
 
-li havas du gravajn komisiojn por fari, kaj ke li hejmportos por sia knabeto skatolon da ludbrikoj. 
+li havas du gravajn komisiojn por fari, kaj ke li hejmportos por sia knabeto skatolon da ludbrikoj.
 
 Nu, okazis nur hazarde, ke lia edzino ricevis telegramon samlunde, mallonge post lia foriro, dirantan ke malgranda multvalora paketo, kiun ˆsi atendis, restis por ˆsi ˆce la oficejo de la Kompanio Aberdeen Shipping. Nu, se vi bone konas Londonon, vi scias ke tiu kompania oficejo situas en Fresno-strato, kiu disiˆ
 
 gas de Upper-Swandam-strateto, kie vi ˆci-nokte trovis min. S-ino St. Clair tagmanˆ
 
-gis, 
+gis,
 
-12
 
 alurbis, iom butikumis, iris al la kompania oficejo, ricevis sian paketon, kaj troviˆ
 
@@ -530,9 +493,9 @@ piediranta tra la Swandam-strateto, reirante al la stacio. ˆ
 
 Cu vi sekvas min ˆ
 
-gis nun?” 
+gis nun?”
 
-“Tre klaras.” 
+“Tre klaras.”
 
 “Se vi memoras, ege varmis lundon, kaj S-ino St. Clair marˆsis malrapide, rigardante ˆcirka˘
 
@@ -548,13 +511,13 @@ al ˆsi, gestalvokis el dua-etaˆ
 
 ga fenestro. La fenestro estis malfermita, kaj ˆsi klare vidis lian vizaˆ
 
-gon, 
+gon,
 
 kiun ˆsi priskribis kiel agitata. Al ˆsi li freneze mansvingis, kaj tuj malaperis for de la fenestro tiel subite ke ˆsajnis al ˆsi ke iu nerezistebla forto fortiris lin el malanta˘
 
 ue. Aparta unika punkto frapis
 
-ˆsiajn lertajn inajn okulojn: kvankam li surhavis malhelan jakon similan al tiu kun kiu li ekiris urben, nun videblis nek kolumo nek kravato. 
+ˆsiajn lertajn inajn okulojn: kvankam li surhavis malhelan jakon similan al tiu kun kiu li ekiris urben, nun videblis nek kolumo nek kravato.
 
 “Konvinkita ke io ne estis en ordo, ˆsi paˆsis la˘
 
@@ -562,7 +525,7 @@ u la ˆstupoj malsupren, ˆcar la domo estis nenio alia
 
 ol la opiejo kie ˆcinokte vi min trovis, kaj kurante tra la frontˆcambro ˆsi provis ˆstupi al la unua etaˆ
 
-go. 
+go.
 
 Piede de la ˆstupoj, tamen, ˆsi renkontis tiun hindan kanajlon, pri kiu mi jam parolis, kiu forpuˆsis ˆsin kaj, helpata de sia dana asistanto, ˆetis ˆsin straten. Plena de la plej frenezigaj duboj kaj timoj, ˆsi rapidis sur la strateto kaj, plej bonˆsance, renkontis en la Fresno-strato kelkajn policistojn kun ilia inspektisto, kiuj revenis al sia rondiro. La inspektisto kun du aliaj ree kuniris kun ˆsi, kaj malgra˘
 
@@ -572,17 +535,16 @@ rezistado de la posedanto, ili anta˘
 
 ueniris al la ˆcambro en kiu S-ro St. Clair laste estis vidata. Estis
 
-13
 
 nenia signo de li tie. Fakte, sur la tuta etaˆ
 
 go troviˆ
 
-gis neniu krom aˆca kriplulo forpuˆse aspektanta, 
+gis neniu krom aˆca kriplulo forpuˆse aspektanta,
 
 kiu ˆsajne tie loˆ
 
-gis. Kaj li kaj la hindo forte ˆuris ke neniu posttagmeze estis en la frontoˆcambro. 
+gis. Kaj li kaj la hindo forte ˆuris ke neniu posttagmeze estis en la frontoˆcambro.
 
 Tiel firmaj estis iliaj neoj ke la inspektisto konsterniˆ
 
@@ -590,9 +552,9 @@ gis kaj preska˘
 
 u kredis ke S-ino St. Clair eraris
 
-kiam, kun ekkrio, ˆsi rapidis al malgranda ligna skatolo kiu kuˆsis sur la tablo, kaj deˆsiris la kovrilon. 
+kiam, kun ekkrio, ˆsi rapidis al malgranda ligna skatolo kiu kuˆsis sur la tablo, kaj deˆsiris la kovrilon.
 
-Elfalis aro da infanaj ludbrikoj. Estis la ludiloj kiujn li promesis hejmenporti. 
+Elfalis aro da infanaj ludbrikoj. Estis la ludiloj kiujn li promesis hejmenporti.
 
 “Tiu malkovro, kaj la evidenta konfuzo kiun montris la kriplulo konvinkis la inspektiston ke la afero seriozas. Oni detale esploris la ˆcambrojn, kaj la rezultoj tute indikis abomenan krimon. La fronta ˆcambro estas senlukse meblita kiel restada ˆcambro, kaj apude estas eta dormˆcambro el kiu oni povas rigardi la malfronton de unu el la kajoj. Inter la kajo kaj la dormˆcambra fenestro estas mallarˆ
 
@@ -612,7 +574,7 @@ ga kaj malsupre malfermebla. Ekzameno rivelis iomete da
 
 sango sur la fenestra breto; kelkaj disaj gutoj videblis sur la ligna planko de la dormˆcambro. Kaˆsite malanta˘
 
-u kurtenon en la fronta ˆcambro estis ˆciuj vestoj de S-ro Neville St. Clair, krom lia jako. 
+u kurtenon en la fronta ˆcambro estis ˆciuj vestoj de S-ro Neville St. Clair, krom lia jako.
 
 Liaj botoj, liaj ˆstrumpoj, lia ˆcapelo kaj lia horloˆ
 
@@ -630,9 +592,8 @@ gante se konsideri ke la tajdo plejaltiˆ
 
 gis je la momento
 
-de la tragedio. 
+de la tragedio.
 
-14
 
 “Kaj nun pri la kanajloj kiuj aperas implikitaj en la afero. La hinda eksmilitisto estas konata kiel viro kun plej aˆcaj anta˘
 
@@ -648,19 +609,19 @@ pli ol krimhelpanto. Li difendis sin asertante ke li scias absolute nenion, kaj 
 
 gejluanto, kaj ke li neniel povas klarigi la trovon de
 
-la vestoj de la mankanta sinjoro. 
+la vestoj de la mankanta sinjoro.
 
 “Sufiˆcas pri la hinda mastro. Nun pri la minaceca kriplulo kiu loˆ
 
 gas en la dua etaˆ
 
-go de la opiejo, 
+go de la opiejo,
 
 kaj kiu certe estis la lasta homo kies okuloj rigardis al Neville St. Clair. Lia nomo estas Hugh Boone, kaj lia ege malbela vizaˆ
 
 go estas bone konata de ˆciu homo kiu multfoje vizitas la Urbon. Li
 
-estas profesia almozulo, kvankam, por eviti la policajn regulojn, li ˆsajnigas ke li vendas alumetojn. 
+estas profesia almozulo, kvankam, por eviti la policajn regulojn, li ˆsajnigas ke li vendas alumetojn.
 
 Je mallonga distanco tra la Threadneedle-strato, ˆce la maldekstra flanko, estas, kiel vi eble iam rimarkis, mura anguleto. Tie, ˆciutage, tiu estaˆo prenas sian sidlokon, krucante sub si la krurojn, kun iu stoketo da alumetoj surgenue, kaj li estas tiel kompatinda vidaˆo, ke pluveto da almozoj falas en la grasan ledan ˆcapon kiu kuˆsas trotuare anta˘
 
@@ -670,7 +631,7 @@ u ol imagi ke
 
 mi iam profesie konos lin, kaj mi miris pri tio, kiom li rikoltis en malmulte da tempo. Lia aspekto, vi komprenas, estas tiel rimarkinda ke neniu povas pasi sen observi lin. Densa malorda oranˆ
 
-ga hararo, 
+ga hararo,
 
 pala vizaˆ
 
@@ -686,15 +647,15 @@ u tio, kion ni nun ekscias, tiu estas
 
 la viro kiu loˆ
 
-gis en la opiodomo, kaj la lasta vidinto de la sinjoro kiun ni serˆcas.” 
+gis en la opiodomo, kaj la lasta vidinto de la sinjoro kiun ni serˆcas.”
 
-“Sed kriplulo\!” diris mi. “Kion li povis fari senhelpe kontra˘
+“Sed kriplulo!” diris mi. “Kion li povis fari senhelpe kontra˘
 
-u viro en la plejforto de sia viv’ ?” 
+u viro en la plejforto de sia viv’ ?”
 
-“Li estas kriplulo pro tio, ke li lamas; sed krome li aspektas kiel forta bonnutrata viro. Certe via kuracista sperto dirus al vi, Watson, ke malforteco en unu membro ofte estas kompensata per aparta forto alie.” 
+“Li estas kriplulo pro tio, ke li lamas; sed krome li aspektas kiel forta bonnutrata viro. Certe via kuracista sperto dirus al vi, Watson, ke malforteco en unu membro ofte estas kompensata per aparta forto alie.”
 
-“Bonvolu rakonti plu.” 
+“Bonvolu rakonti plu.”
 
 “S-ino St. Clair svenis vidante la sangon ˆcefenestran, kaj polististoj eskortis ˆsin hejmen en fiakro, ˆcar ˆsia ˆceesto ne povus helpi la esplorojn. Inspektisto Barton, kiu direktis la enketon, tre zorge ekzamenis la ejon sen trovi ion ajn kio lumigus la problemon. Estis erare ne tuj aresti Boone, kaj oni lasis al li kelkajn minutojn dum kiuj li povis komuniki ion al sia amiko, la hindo, sed tiu fuˆso balda˘
 
@@ -720,13 +681,13 @@ ganta. Oni forportis lin, la˘
 
 ute protestantan, al
 
-la policejo, dum la inspektisto restis ˆceloke, esperante ke la forfluanta tajdo povos montri iun freˆsan rivelaˆon. 
+la policejo, dum la inspektisto restis ˆceloke, esperante ke la forfluanta tajdo povos montri iun freˆsan rivelaˆon.
 
 “Kaj ˆ
 
-gi tion faris, kvankam ili ne trovis sur la kotbordo tion kion ili timis trovi. La jakon de Neville St. Clair la tajdo malkovris retroirante, kaj ne s-on Neville St. Clair mem. Kaj kion, viaopinie, ili trovis en la poˆsoj?” 
+gi tion faris, kvankam ili ne trovis sur la kotbordo tion kion ili timis trovi. La jakon de Neville St. Clair la tajdo malkovris retroirante, kaj ne s-on Neville St. Clair mem. Kaj kion, viaopinie, ili trovis en la poˆsoj?”
 
-“Mi ne povas imagi.” 
+“Mi ne povas imagi.”
 
 “Ne, mi opinias ke vi ne povus diveni. ˆ
 
@@ -742,11 +703,11 @@ gas inter la kajo kaj la domo. Verˆsajne ke la pezigita jako restis, dum
 
 la senvesta korpo forsuˆciˆ
 
-gis riveren.” 
+gis riveren.”
 
 “Sed mi komprenas ke oni trovis ˆciujn aliajn vestojn en la ˆcambro. ˆ
 
-Cu la korpo portis nur jakon?” 
+Cu la korpo portis nur jakon?”
 
 “Ne, sinjor’, sed oni povus doni pri la faktoj jenan verˆsajnan klarigon. Supozu ke tiu viro Boone jam puˆsis Neville St. Clair tra la fenestro; neniu homa okulo povus vidi la faron. Kion li farus poste? Kompreneble la ideo frapus lin ke li devus seniˆ
 
@@ -780,9 +741,9 @@ udas iun rapide
 
 alsupri, kaj li nur havas sufiˆce da tempo por fermi la fenestron anta˘
 
-u ol aperas la policistoj.” 
+u ol aperas la policistoj.”
 
-“Eblas.” 
+“Eblas.”
 
 “Nu, ni prenos tion kiel pensobazan hipotezon manke de pli bona. Kiel mi jam diris, oni arestis Boone kaj forportis lin policejen, sed oni ne povis montri ion ajn kontra˘
 
@@ -792,7 +753,7 @@ lin kiel profesian almozulon, sed lia vivo ˆsajnis tre kvieta kaj senkulpa. Tie
 
 gas en lia malapero — restas same distancaj je solvo
 
-kiel iam ajn. Mi konfesas ke mi ne povas rememori el mia tuta sperto kazon kiu unuavide ˆsajnis tiel simpla sed kiu prezentis tiom da malfacilaˆoj.” 
+kiel iam ajn. Mi konfesas ke mi ne povas rememori el mia tuta sperto kazon kiu unuavide ˆsajnis tiel simpla sed kiu prezentis tiom da malfacilaˆoj.”
 
 Dum Sherlock Holmes detalis tiun unikan serion da eventoj, ni rapidis tra la rando de la urbego ˆ
 
@@ -812,7 +773,7 @@ goj kie malmultaj lumoj
 
 ankora˘
 
-u briletis elfenestre. 
+u briletis elfenestre.
 
 “Ni estas ˆce la rando de Lee,” diris mia kuniranto. “Ni jam tuˆsis tri graflandojn anglajn en nia mallonga veturo: ni ekis en Middlesex, trairis angulon de Surrey, kaj jen finas en Kent. ˆ
 
@@ -820,25 +781,24 @@ Cu vi vidas
 
 tiun lumon inter la arboj? Estas La Cedroj, kaj apud tiu lampo sidas virino kies maltrankvilaj 18
 
-oreloj jam sendube kaptis la huftintadon de niaj ˆcevaloj.” 
+oreloj jam sendube kaptis la huftintadon de niaj ˆcevaloj.”
 
-“Sed kial vi ne kondukas la enketon el Baker-strato?” mi demandis. 
+“Sed kial vi ne kondukas la enketon el Baker-strato?” mi demandis.
 
 “ ˆ
 
-Car multaj esploroj farendas ˆci tie. Sino St. Clair plej bonkore metis du ˆcambrojn je mia dispono, kaj vi povas esti certa ke ˆsi nepre bonvenigos mian amikon kaj kunlaboranton. Mi malplezure renkontos ˆsin, Watson, dum mankas al mi novaˆoj pri ˆsia edzo. Jen ni estas. Haltu, vi, haltu\!” 
+Car multaj esploroj farendas ˆci tie. Sino St. Clair plej bonkore metis du ˆcambrojn je mia dispono, kaj vi povas esti certa ke ˆsi nepre bonvenigos mian amikon kaj kunlaboranton. Mi malplezure renkontos ˆsin, Watson, dum mankas al mi novaˆoj pri ˆsia edzo. Jen ni estas. Haltu, vi, haltu!”
 
 Parto II
 
-20
 
-Kopirajto c pri ˆci tiu traduko ˆce Sylvan Zaft 1996. Vi rajtus fari elektronikajn kopiojn kaj paperajn kopiojn por via persona uzado kaj por disdoni tute senpage al aliaj nur se la kopioj inkluzivas tiun ˆci avizon. Vi ne rajtas enmeti tiun tradukon en iun ajn alian interretan lokon. Por alia permeso, bonvolu skribi al mi. Mia adreso estas sylvanz@aol.com. 
+Kopirajto c pri ˆci tiu traduko ˆce Sylvan Zaft 1996. Vi rajtus fari elektronikajn kopiojn kaj paperajn kopiojn por via persona uzado kaj por disdoni tute senpage al aliaj nur se la kopioj inkluzivas tiun ˆci avizon. Vi ne rajtas enmeti tiun tradukon en iun ajn alian interretan lokon. Por alia permeso, bonvolu skribi al mi. Mia adreso estas sylvanz@aol.com.
 
 Ni ˆjus haltis anta˘
 
-u granda domo kiu staris en propra terpeco. Stal-knabo elkuris al la ˆcevalkapo, 
+u granda domo kiu staris en propra terpeco. Stal-knabo elkuris al la ˆcevalkapo,
 
-kaj elsaltante mi sekvis Holmes sur la malgranda kurba gruzvojeto kiu iris domen. 
+kaj elsaltante mi sekvis Holmes sur la malgranda kurba gruzvojeto kiu iris domen.
 
 Kiam ni
 
@@ -860,39 +820,38 @@ po iomete kurbiga, la kapo kaj vizaˆ
 
 go elstaraj; kun avidaj okuloj kaj disaj lipoj, ˆsi estis staranta
 
-demando. 
+demando.
 
-“Nu\!” ˆsi ekkriis, “nu?” Kaj tiam, vidante ke estis du el ni, ˆsi elmetis esperkrion kiu etiˆ
+“Nu!” ˆsi ekkriis, “nu?” Kaj tiam, vidante ke estis du el ni, ˆsi elmetis esperkrion kiu etiˆ
 
 gis ˆ
 
 gemen
 
-kiam ˆsi vidis mian kunvenanton kapnei kaj ˆsultrolevi. 
+kiam ˆsi vidis mian kunvenanton kapnei kaj ˆsultrolevi.
 
 “ ˆ
 
-Cu nenia bona novaˆo?” 
+Cu nenia bona novaˆo?”
 
-“Nenio.” 
+“Nenio.”
 
 “ ˆ
 
-Cu nenio malbona?” 
+Cu nenio malbona?”
 
-“Ne.” 
+“Ne.”
 
-21
 
-“Dank’ al Dio pro tio. Sed eniru. Vi devas esti lacaj, ˆcar vi travivis longan tagon.” 
+“Dank’ al Dio pro tio. Sed eniru. Vi devas esti lacaj, ˆcar vi travivis longan tagon.”
 
-“Mi prezentu mian amikon, D-ron Watson. Li ege utilis al mi en pluraj miaj kazoj, kaj bonˆsancas ke mi povis igi lin veni kaj kunesplori.” 
+“Mi prezentu mian amikon, D-ron Watson. Li ege utilis al mi en pluraj miaj kazoj, kaj bonˆsancas ke mi povis igi lin veni kaj kunesplori.”
 
 “Mi tre kontentas renkonti vin,” diris ˆsi premante varme mian manon. “Mi certas ke vi pardonos pri io ajn kio mankos al vi en niaj aranˆ
 
-goj, kiam vi pripensos la baton kiu tiel subite trafis nin.” 
+goj, kiam vi pripensos la baton kiu tiel subite trafis nin.”
 
-“Mia kara sinjorino,” diris mi, “mi estas armea veterano, kaj eˆc se mi tio ne estus, mi tre bone povas vidi ke ne necesas ia ajn pardonpeto. Se mi iel estos helppova, ˆcu al vi, ˆcu al mia amiko ˆci tie, mi ja estos kontenta.” 
+“Mia kara sinjorino,” diris mi, “mi estas armea veterano, kaj eˆc se mi tio ne estus, mi tre bone povas vidi ke ne necesas ia ajn pardonpeto. Se mi iel estos helppova, ˆcu al vi, ˆcu al mia amiko ˆci tie, mi ja estos kontenta.”
 
 “Nun, S-ro Sherlock Holmes,” diris la sinjorino kiam ni eniris la bone lumigitan manˆ
 
@@ -904,73 +863,72 @@ gis malvarma vespermanˆ
 
 go, “mi volus meti al vi unu a˘
 
-u du malkaˆsajn demandojn, 
+u du malkaˆsajn demandojn,
 
-al kiuj mi petas malkaˆsan respondon.” 
+al kiuj mi petas malkaˆsan respondon.”
 
-“Certe, sinjorino.” 
+“Certe, sinjorino.”
 
 “Ne zorgu pri miaj sentoj. Mi estas nek histeria nek svenema. Mi simple deziras a˘
 
-udi vian veran, 
+udi vian veran,
 
-veran opinion.” 
+veran opinion.”
 
-“Pri kiu punkto?” 
+“Pri kiu punkto?”
 
-“En la korprofundo, ˆcu vi opinias ke Neville vivas?” 
+“En la korprofundo, ˆcu vi opinias ke Neville vivas?”
 
 Sherlock Holmes ˆsajnis embarasiˆ
 
-gi pro la demando. “Malkaˆse, nun\!” ˆsi rediris, starante sur la
+gi pro la demando. “Malkaˆse, nun!” ˆsi rediris, starante sur la
 
 tapiˆseto kaj akre rigardante malsupren al li dum li klinsidis sur korbo-seˆ
 
-go. 
+go.
 
-22
 
-“Malkaˆse do, sinjorino, mi ne tion opinias.” 
-
-“ ˆ
-
-Cu vi opinias ke li mortis?” 
-
-“Jes.” 
+“Malkaˆse do, sinjorino, mi ne tion opinias.”
 
 “ ˆ
 
-Cu murdita?” 
+Cu vi opinias ke li mortis?”
 
-“Ne tion mi diras. Eble.” 
+“Jes.”
 
-“Kaj je kiu tago li trafis sian morton?” 
+“ ˆ
 
-“Je lundo.” 
+Cu murdita?”
+
+“Ne tion mi diras. Eble.”
+
+“Kaj je kiu tago li trafis sian morton?”
+
+“Je lundo.”
 
 “Do eble, S-ro Holmes, vi bonvolus klarigi kiel eblas ke mi ricevis leteron de li hodia˘
 
-u.” 
+u.”
 
 Sherlock Holmes eksaltis de la seˆ
 
-go kiel galvanizita. 
+go kiel galvanizita.
 
 “Kion?” li muˆ
 
-gis. 
+gis.
 
 “Jes, hodia˘
 
 u.” ˆ
 
-Si staris ridetante, levante folieton en la aero. 
+Si staris ridetante, levante folieton en la aero.
 
 “ ˆ
 
-Cu mi rajtas vidi?” 
+Cu mi rajtas vidi?”
 
-“Certe.” 
+“Certe.”
 
 Li avide ekkaptis ˆ
 
@@ -992,23 +950,22 @@ guste de la
 
 anta˘
 
-utago tial, ke noktomezo pasis jam delonge. 
+utago tial, ke noktomezo pasis jam delonge.
 
-“Kruda skribo,” murmuris Holmes. “Certe, sinjorino, tio ne estas la skribo de via edzo.” 
+“Kruda skribo,” murmuris Holmes. “Certe, sinjorino, tio ne estas la skribo de via edzo.”
 
-23
 
-“Ne, sed la enhavo estas.” 
+“Ne, sed la enhavo estas.”
 
-“Mi ekvidas ke kiu ajn adresis la koverton devis iri demandi pri la adreso.” 
+“Mi ekvidas ke kiu ajn adresis la koverton devis iri demandi pri la adreso.”
 
-“Kiel vi povas ekscii tion? 
+“Kiel vi povas ekscii tion?
 
-“La nomo, vi vidas, estas en perfekte nigra inko kiu sekiˆ
+“La nomo, vi vidas, estas en perfekte nigra kiu sekiˆ
 
 gis. La cetero havas grizecan koloron, kiu
 
-montras ke oni uzis sorbpaperon. Se oni samtempe skribus ˆcion kaj poste sorbigus, nigregus nenio. 
+montras ke oni uzis sorbpaperon. Se oni samtempe skribus ˆcion kaj poste sorbigus, nigregus nenio.
 
 Tiu viro skribis la nomon, kaj poste pa˘
 
@@ -1018,19 +975,19 @@ u ol li skribis la adreson, kio nur povas signifi ke li
 
 ne bone konis ˆ
 
-gin. Tio estas evidente bagatelo, sed nenio tiel gravas kiel bagateloj. Ni nun vidu la leteron. Ho\! Estis objekto ˆci tie\!” 
+gin. Tio estas evidente bagatelo, sed nenio tiel gravas kiel bagateloj. Ni nun vidu la leteron. Ho! Estis objekto ˆci tie!”
 
-“Jes, estis ˆci tiu ringo. Lia sigelringo.” 
+“Jes, estis ˆci tiu ringo. Lia sigelringo.”
 
-“Kaj vi certas ke tio estas en la skribstilo de via edzo?” 
+“Kaj vi certas ke tio estas en la skribstilo de via edzo?”
 
-“En unu el liaj skribmanieroj.” 
+“En unu el liaj skribmanieroj.”
 
-“Unu, kion...?” 
+“Unu, kion...?”
 
 “Lia skribado kiam li rapidis. Tre malsamas de lia kutima skribmaniero, kaj tamen mi bone konas ˆ
 
-gin.” 
+gin.”
 
 “Kara, ne timu. ˆ
 
@@ -1038,23 +995,23 @@ Cio finiˆ
 
 gos bone. Estas erarego kies rebonigo postulos iom da tempo. Atendu
 
-pacience. - Neville. 
+pacience. - Neville.
 
 “Skribita per krajono sur blanka paˆ
 
-go de libro, oktava formato, neniu akvomarko. Hm\! Poˆstita
+go de libro, oktava formato, neniu akvomarko. Hm! Poˆstita
 
 hodia˘
 
-u en Gravesend de viro kun malpura dikfingro. Ho\! Kaj la klapon leksigelis homo kiu, se mi 24
+u en Gravesend de viro kun malpura dikfingro. Ho! Kaj la klapon leksigelis homo kiu, se mi 24
 
 ne eraras, anta˘
 
 ue maˆcis tabakon. ˆ
 
-Cu vi tute ne dubas ke tio estas la skribo de via edzo, sinjorino?” 
+Cu vi tute ne dubas ke tio estas la skribo de via edzo, sinjorino?”
 
-“Neniel. Neville skribis tiujn vortojn.” 
+“Neniel. Neville skribis tiujn vortojn.”
 
 “Kaj oni poˆstis ilin hodia˘
 
@@ -1066,15 +1023,15 @@ ne kuraˆ
 
 gus diri ke la danˆ
 
-gero ˆcesis.” 
+gero ˆcesis.”
 
-“Sed li certe vivas, S-ro Holmes.” 
+“Sed li certe vivas, S-ro Holmes.”
 
 “Krom se tio estas lerta falsaˆo por misdirekti nin. La ringo, post ˆcio, pruvas nenion. Oni povis forpreni ˆ
 
-gin de li.” 
+gin de li.”
 
-“Ne, ne; tio estas, tio estas lia propra skribado.” 
+“Ne, ne; tio estas, tio estas lia propra skribado.”
 
 “Tre bone. Tamen, eblas ke li skribis ˆ
 
@@ -1082,11 +1039,11 @@ gin lundon kaj ke oni poˆstis ˆ
 
 gin nur hodia˘
 
-u\!” 
+u!”
 
-“Eblas.” 
+“Eblas.”
 
-“Se tiel, multo povis okazi intertempe.” 
+“Se tiel, multo povis okazi intertempe.”
 
 “Ho, ne senkuraˆ
 
@@ -1104,95 +1061,93 @@ Cu vi pensas ke mi povus respondi al tia bagatelo
 
 kaj ankora˘
 
-u ne scii pri lia morto?” 
+u ne scii pri lia morto?”
 
-“Nu, post ˆcio, kion mi spertis, mi akceptas ke virina impreso povas valori pli ol la konkludo de analiza rezonanto. Kaj en tiu letero vi certe havas tre fortan ateston por subteni vian opinion. 
+“Nu, post ˆcio, kion mi spertis, mi akceptas ke virina impreso povas valori pli ol la konkludo de analiza rezonanto. Kaj en tiu letero vi certe havas tre fortan ateston por subteni vian opinion.
 
-25
 
-Tamen, se via edzo vivas kaj povas skribi leterojn, kial li restas for de vi?” 
+Tamen, se via edzo vivas kaj povas skribi leterojn, kial li restas for de vi?”
 
-“Mi ne povas imagi. Tio estas neimagebla.” 
+“Mi ne povas imagi. Tio estas neimagebla.”
 
 “Kaj lundon, ˆcu li faris nenian rimarkon anta˘
 
-u ol foriri?” 
+u ol foriri?”
 
-“Ne.” 
+“Ne.”
 
-“Kaj ˆcu vin surprizis vidi lin en Swandam-strateto?” 
+“Kaj ˆcu vin surprizis vidi lin en Swandam-strateto?”
 
-“Ege.” 
-
-“ ˆ
-
-Cu la fenestro estis malfermita?” 
-
-Jes.” 
+“Ege.”
 
 “ ˆ
 
-Cu li do povis krii al vi?” 
+Cu la fenestro estis malfermita?”
 
-“Li povis.” 
-
-“ ˆ
-
-Cu li nur, kiel mi komprenas, elˆetis sensencan krion?” 
-
-“Jes.” 
+Jes.”
 
 “ ˆ
 
-Cu ekkrion por helpo, viaopinie?” 
+Cu li do povis krii al vi?”
 
-“Jes. Li mansvingis.” 
+“Li povis.”
+
+“ ˆ
+
+Cu li nur, kiel mi komprenas, elˆetis sensencan krion?”
+
+“Jes.”
+
+“ ˆ
+
+Cu ekkrion por helpo, viaopinie?”
+
+“Jes. Li mansvingis.”
 
 “Sed tio povis esti krio pro surprizo. ˆ
 
 Cu konsterno pri via neatendata apero eble igis lin eklevi la
 
-manojn?” 
+manojn?”
 
-“Eblas.” 
+“Eblas.”
 
-“Kaj ˆcu vi pensis ke oni detiris lin?” 
+“Kaj ˆcu vi pensis ke oni detiris lin?”
 
-26
 
-“Li malaperis tiom subite.” 
+“Li malaperis tiom subite.”
 
 “Eble li malanta˘
 
 uen saltis. ˆ
 
-Cu vi vidis neniun alian en la ˆcambro?” 
+Cu vi vidis neniun alian en la ˆcambro?”
 
-“Ne, sed tiu terura viro konfesis ke li estis tie, kaj la hindo estis ˆce la piedo de la ˆstuparo.” 
+“Ne, sed tiu terura viro konfesis ke li estis tie, kaj la hindo estis ˆce la piedo de la ˆstuparo.”
 
 “Jes, ja. ˆ
 
 Cu via edzo, la˘
 
-u tio kion vi povis vidi, surhavis la kutimajn vestojn?” 
+u tio kion vi povis vidi, surhavis la kutimajn vestojn?”
 
 “Jes, sed sen kolumo a˘
 
 u kravato. Mi klare vidis lian nudan gorˆ
 
-gon.” 
+gon.”
 
 “ ˆ
 
-Cu li iam ajn parolis pri Swandam-strateto?” 
+Cu li iam ajn parolis pri Swandam-strateto?”
 
-“Neniam.” 
+“Neniam.”
 
 “ ˆ
 
-Cu li iam ajn montris signojn ke li prenis opion?” 
+Cu li iam ajn montris signojn ke li prenis opion?”
 
-“Neniam.” 
+“Neniam.”
 
 “Dankon, S-ino St. Clair. Tiuj estas la ˆcefaj punktoj pri kiuj mi volis havi tute klaran ideon. Ni nun havu malgrandan noktmanˆ
 
@@ -1200,11 +1155,11 @@ gon kaj poste enlitiˆ
 
 gu, ˆcar ni eble havos tre plenan tagon morga˘
 
-u.” 
+u.”
 
 Grandan kaj komfortan dulitan ˆcambron ˆsi disponigis al ni, kaj mi balda˘
 
-u kuˆsis inter la littukoj, 
+u kuˆsis inter la littukoj,
 
 ˆcar mi lacegis post la aventurriˆca nokto. Sherlock Holmes estis tia viro, tamen, kiu senripoze pluiras tagojn, eˆc semajnon, kiam li havas enmense nesolvitan problemon, turnante ˆ
 
@@ -1230,7 +1185,6 @@ veˆston, surmetis grandan bluan ˆcambrorobon, kaj poste vagis tie kaj tie amas
 
 goj. Kun tiuj li konstruis specon de orienta divano sur kiu
 
-27
 
 li eksidis krurkruce, kun, anta˘
 
@@ -1242,27 +1196,27 @@ ganta supren, silentan, senmovan, kun la lumo sur liaj
 
 fortaj aglaj trajtoj. Tiel li sidis dum mi endormiˆ
 
-gis, kaj tiel li sidis kiam subita ekkrio vekis min, 
+gis, kaj tiel li sidis kiam subita ekkrio vekis min,
 
 kaj mi konstatis ke la somera suno brilas en la apartamenton. La pipo plu estis inter la lipoj, la fumo plu volviˆ
 
 gis supren, kaj la ˆcambron plenigis densa tabaka nebuleto, sed el la amaseto da forta marista tabako kiun mi vidis la anta˘
 
-uan nokton restis plu nenio. 
+uan nokton restis plu nenio.
 
 “ ˆ
 
 Cu vi vekiˆ
 
-gis, Watson?” li demandis. 
+gis, Watson?” li demandis.
 
-“Jes.” 
+“Jes.”
 
 “ ˆ
 
-Cu preta por matena veturo?” 
+Cu preta por matena veturo?”
 
-“Certe.” 
+“Certe.”
 
 “Do, vestu vin. Neniu movetas ˆ
 
@@ -1276,7 +1230,7 @@ gridis al si kiam li parolis, liaj okuloj stelbrilis, kaj li ˆsajnis malsama
 
 viro kompare kun la malgaja pensanto de la anta˘
 
-ua nokto. 
+ua nokto.
 
 Dum mi vestis min mi ekrigardis mian poˆshorloˆ
 
@@ -1284,21 +1238,20 @@ gon. Ne surprizis ke neniu movetis. Estis la kvara
 
 kaj dudekkvin. Mi apena˘
 
-u finis kiam Holmes reiris kun la novaˆo ke la knabo nun jungas la ˆcevalon. 
+u finis kiam Holmes reiris kun la novaˆo ke la knabo nun jungas la ˆcevalon.
 
 “Mi volas provi etan teorion mian,” li diris, surtirante la botojn. “Mi opinias, Watson, ke vi nun staras apud unu el la plej absolutaj stultuloj en E˘
 
 uropo. Mi meritas ke oni piedfrapu min de ˆci tie
 
-28
 
 ˆ
 
-gis Charing Cross. Sed mi pensas ke mi nun posedas la ˆslosilon pri la kazo.” 
+gis Charing Cross. Sed mi pensas ke mi nun posedas la ˆslosilon pri la kazo.”
 
 “Kaj kie ˆ
 
-gi estas?” mi demandis, ridetante. 
+gi estas?” mi demandis, ridetante.
 
 “En la banˆcambro,” li respondis. “Ho, jes, mi ne ˆsercas,” li da˘
 
@@ -1308,13 +1261,13 @@ nekredo. “Mi ˆus estis tie, kaj mi elprenis ˆ
 
 gin, kaj mi havas ˆ
 
-gin en ˆci tiu Gladstone-valizo. Venu, 
+gin en ˆci tiu Gladstone-valizo. Venu,
 
 mia knab’, kaj ni vidu ˆcu ˆ
 
 gi ta˘
 
-ugas por la seruro.” 
+ugas por la seruro.”
 
 Ni iris malsupren kiel eble plej senbrue, kaj eksteren en la brila matena sunlumo. Sur la vojo staris niaj ˆcevalo kaj kariolo kun la duonvestita stalknabo atendanta ˆce la kapo. Ni amba˘
 
@@ -1328,53 +1281,52 @@ la urbego, sed la vicoj de domoj amba˘
 
 uflanke estis tiel silentaj kaj senvivaj kiel en sonˆ
 
-ga urbo. 
+ga urbo.
 
 “Estis kelkrilate unika kazo,” diris Holmes, vipe igante la ˆcevalon galopi. “Mi konfesas ke mi estis blinda kiel talpo, sed pli bone lerni saˆ
 
-gon malfrue ol neniam.” 
+gon malfrue ol neniam.”
 
 Enurbe la plej fruaj vekiˆ
 
 gantoj ˆus dormeme komencis elrigardi el siaj fenestroj dum ni veturis
 
-sur la stratoj de la Surrey-flanko. Irante sur la Waterloo-Bridge-vojo, ni transiris la riveron, kaj, rapidante supren sur Wellington-strato, dekstren iris kaj trovis nin en Bow-strato. La polico bone konis Sherlock Holmes, kaj la du policistoj ˆceporde salutis lin. Unu el tiuj tenis la kapon de la ˆcevalo dum la alia enkondukis nin. 
+sur la stratoj de la Surrey-flanko. Irante sur la Waterloo-Bridge-vojo, ni transiris la riveron, kaj, rapidante supren sur Wellington-strato, dekstren iris kaj trovis nin en Bow-strato. La polico bone konis Sherlock Holmes, kaj la du policistoj ˆceporde salutis lin. Unu el tiuj tenis la kapon de la ˆcevalo dum la alia enkondukis nin.
 
-“Kiu deˆoras?” demandis Holmes. 
+“Kiu deˆoras?” demandis Holmes.
 
-“Inspektisto Bradstreet, sinjoro.” 
+“Inspektisto Bradstreet, sinjoro.”
 
-29
 
-“Ho, Bradstreet, kiel vi fartas?” Alta dika oficisto jam venis rekte al ni tra la koridoro platˆstona, surhavante kepon kaj jakon kun pasamentaj butonoj. “Mi dezirus mallonge paroli kun vi, Bradstreet.” 
+“Ho, Bradstreet, kiel vi fartas?” Alta dika oficisto jam venis rekte al ni tra la koridoro platˆstona, surhavante kepon kaj jakon kun pasamentaj butonoj. “Mi dezirus mallonge paroli kun vi, Bradstreet.”
 
-“Certe, S-ro Holmes. Enpaˆsu mian oficejon ˆci tie.” 
+“Certe, S-ro Holmes. Enpaˆsu mian oficejon ˆci tie.”
 
-Estis eta oficeja ˆcambro simila al oficejo kun granda registrolibro sur la tablo, kaj telefono elstaranta el la muro. La inspektisto eksidis ˆce sia skribtablo. 
+Estis eta oficeja ˆcambro simila al oficejo kun granda registrolibro sur la tablo, kaj telefono elstaranta el la muro. La inspektisto eksidis ˆce sia skribtablo.
 
-“Kion mi povas fari por vi, S-ro Holmes?” 
+“Kion mi povas fari por vi, S-ro Holmes?”
 
-“Mi venas ˆci tien pri la almozulo, Boone, tiu kiun oni akuzas koncerne pri la malapero de S-ro Neville St. Clair, el Lee.” 
+“Mi venas ˆci tien pri la almozulo, Boone, tiu kiun oni akuzas koncerne pri la malapero de S-ro Neville St. Clair, el Lee.”
 
-“Jes. Oni alportis lin ˆci tien kaj enkarcerigis lin por plua enketado.” 
+“Jes. Oni alportis lin ˆci tien kaj enkarcerigis lin por plua enketado.”
 
 “Tion mi a˘
 
 udis. ˆ
 
-Cu vi havas lin ˆci tie?” 
+Cu vi havas lin ˆci tie?”
 
-“En ˆcelo.” 
+“En ˆcelo.”
 
 “ ˆ
 
-Cu li estas kvieta?” 
+Cu li estas kvieta?”
 
 “Ho, li donas al ni neniun ˆ
 
-genon. Tamen li estas malpura kanajlo.” 
+genon. Tamen li estas malpura kanajlo.”
 
-“Malpura?” 
+“Malpura?”
 
 “Jes, lavi la manojn estas ˆcio, kion li konsentas fari, kaj lia vizaˆ
 
@@ -1382,11 +1334,10 @@ g’ estas tiel nigra kiel tiu de
 
 potriparisto. Nu, kiam oni finos lian kazon, li spertos regulan malliberejan banon; kaj mi pensas ke se vi vidos lin, vi samopinios kun mi ke li bezonas ˆ
 
-gin.” 
+gin.”
 
-30
 
-“Mi tre multe dezirus vidi lin.” 
+“Mi tre multe dezirus vidi lin.”
 
 “ ˆ
 
@@ -1394,23 +1345,23 @@ Cu vere? Ni facile tion aranˆ
 
 gos. Venu kun mi la˘
 
-u tiu direkto. Vi povas lasi vian valizon.” 
+u tiu direkto. Vi povas lasi vian valizon.”
 
 “Ne, mi preferas kunporti ˆ
 
-gin.” 
+gin.”
 
 “Tre bone. Sekvu min, bonvolu.” Li kondukis nin en koridoro, malfermis riglitan pordon, pasis malsupren per spirala ˆstuparo, kaj gvidis nin al kalkblanka koridoro kie vicoj da pordoj amba˘
 
-uflankis. 
+uflankis.
 
 “La tria dekstre estas la lia,” diris la inspektisto. “Jen ˆ
 
-gi\!” Li senbrue ekmovis panelon en la
+gi!” Li senbrue ekmovis panelon en la
 
-supra parto de la pordo kaj trarigardis. 
+supra parto de la pordo kaj trarigardis.
 
-“Li dormas,” li diris. “Vi povas vidi lin tre bone.” 
+“Li dormas,” li diris. “Vi povas vidi lin tre bone.”
 
 Ni amba˘
 
@@ -1440,41 +1391,41 @@ gis en ˆciama kolera grimaco. Amaso de tre ruˆ
 
 ga hararo
 
-kreskis malalte super la okuloj kaj la frunto. 
+kreskis malalte super la okuloj kaj la frunto.
 
-“Bela ulo, ˆcu ne?” diris la inspektisto. 
+“Bela ulo, ˆcu ne?” diris la inspektisto.
 
 “Li certe bezonas lavon,” rimarkis Holmes. “Mi supozis ke tiel estos, kaj mi prenis la liberecon alporti la ilojn.” Li malfermis la Gladstone-valizon dum li parolis, kaj elprenis, je mia miro, tre 31
 
-grandan lavspongon. 
+grandan lavspongon.
 
-“Haha\! Vi estas komikulo,” gorˆ
+“Haha! Vi estas komikulo,” gorˆ
 
-gridis la inspektisto. 
+gridis la inspektisto.
 
 “Nun, se vi bonvole malfermos tiun pordon tre senbrue, ni balda˘
 
 u havigos al li pli respektindan
 
-aspekton.” 
+aspekton.”
 
 “Nu, kial ne?” diris la inspektisto. “Li ne bonaspektas por la reputacio de la ˆceloj de Bow-strato, ˆcu?” Li glitigis sian ˆslosilon en la seruron, kaj ni ˆciuj tute senbrue eniris la ˆcelon. La dormanto duonturnis sin kaj poste refalis en profundan dormon. Holmes klinis sin al la akvokruˆco, malsekigis la spongon, kaj dufoje per ˆ
 
 gi energie tutfrotis la vizaˆ
 
-gon de la karcerulo. 
+gon de la karcerulo.
 
 “Mi prezentu al vi,” li la˘
 
-utvoˆcis, “S-ron Neville St. Clair, el Lee, en la Kenta graflando.” 
+utvoˆcis, “S-ron Neville St. Clair, el Lee, en la Kenta graflando.”
 
 Neniam en mia vivo mi vidis ion similan. La vizaˆ
 
 go de la viro senˆseliˆ
 
-gis subsponge kiel arbˆselo. 
+gis subsponge kiel arbˆselo.
 
-For estis la kruda bruna koloreto\! For anka˘
+For estis la kruda bruna koloreto! For anka˘
 
 u la terura cikatro kiu anta˘
 
@@ -1484,9 +1435,9 @@ gin, kaj la tordita
 
 lipo kiu donis forpuˆsan rikanon al la vizaˆ
 
-go\! Ektireto forportis la fuˆsplektitan ruˆ
+go! Ektireto forportis la fuˆsplektitan ruˆ
 
-ghararon, kaj jen, 
+ghararon, kaj jen,
 
 side sur la lito aperis pala malgajvizaˆ
 
@@ -1502,21 +1453,21 @@ go. Tiam vidante sin malkaˆsita, li akre kriegis kaj
 
 kaˆsis sian vizaˆ
 
-gon en la kapkusenon. 
+gon en la kapkusenon.
 
 “Sanktan ˆ
 
-Cielon\!” kriis la inspektisto, “jen vere estas la mankanta viro. Mi rekonas lin el la foto.” 
+Cielon!” kriis la inspektisto, “jen vere estas la mankanta viro. Mi rekonas lin el la foto.”
 
 La malliberulo turnis sin kun la mieno de viro elrevigita kaj donanta sin al sia sorto. “Nu, tiel 32
 
-estu,” diris li. “Kaj, mi petas, pri kio oni akuzas min?” 
+estu,” diris li. “Kaj, mi petas, pri kio oni akuzas min?”
 
 “Pri la forigo de S-ro Neville St. – Ho, ne, neniu povus akuzi vin pri tio, krom se oni kunmetus kazon pri provo memmortigi,” diris la inspektisto kun larˆ
 
 ga rideto. “Nu, mi estas dudek sep jarojn
 
-en la polico, sed ˆci tiu afero vere gajnas la premion.” 
+en la polico, sed ˆci tiu afero vere gajnas la premion.”
 
 “Se mi estas S-ro Neville St. Clair, evidentas ke neniu faris krimon. Oni do kontra˘
 
@@ -1524,23 +1475,23 @@ uleˆ
 
 ge detenas
 
-min.” 
+min.”
 
 “Neniu krimo fariˆ
 
 gis, sed tre granda eraro,” diris Holmes. “Vi pli saˆ
 
-ge agus fidante vian edzinon.” 
+ge agus fidante vian edzinon.”
 
 “Ne pro la edzino; pro la infanoj,” ˆ
 
-gemis la enˆcelulo. “Dio helpu min, ili ne hontu pri sia patro. 
+gemis la enˆcelulo. “Dio helpu min, ili ne hontu pri sia patro.
 
-Mia Di’ \! Kia malkovro\! Kion mi faru?” 
+Mia Di’ ! Kia malkovro! Kion mi faru?”
 
 Sherlock Holmes sidiˆ
 
-gis apud li sur la kuˆsejon kaj bonkore manpremis lian ˆsultron. 
+gis apud li sur la kuˆsejon kaj bonkore manpremis lian ˆsultron.
 
 “Se vi lasus al juˆ
 
@@ -1548,7 +1499,7 @@ gejo la taskon klarigi la aferon,” li diris, “vi apena˘
 
 u povus eviti publikan scion; tio
 
-estas memkompreneble. Sed, se vi konvinkos la policajn instancojn ke ili povas fari nenion kontra˘
+estas memkompreneble. Sed, se vi konvs la policajn instancojn ke ili povas fari nenion kontra˘
 
 u
 
@@ -1558,21 +1509,20 @@ ugaj instancoj. La kazo do neniam iros
 
 en la juˆ
 
-gejon.” 
+gejon.”
 
-“Dio benu vin\!” pasie ekkriis la malliberulo. “Mi suferus enkarceriˆ
+“Dio benu vin!” pasie ekkriis la malliberulo. “Mi suferus enkarceriˆ
 
 gon, ja, eˆc ekzekuton, prefere
 
 ol lasi mian mizeran sekreton iˆ
 
-gi familia makulo ˆce miaj infanoj. 
+gi familia makulo ˆce miaj infanoj.
 
 “Vi estas la unuaj kiuj a˘
 
 udos mian historion. Mia patro estis instruisto en Chesterfield, kie mi
 
-33
 
 ricevis bonegan edukon. Mi vojaˆ
 
@@ -1582,9 +1532,9 @@ gis raportisto por
 
 vespera ˆurnalo en Londono. Iutage mia redaktisto volis havi serion da artikoloj pri almozpetado en la urbego, kaj mi min proponis por havigi ilin. Jen la punkto kie ˆciuj miaj aventuroj komenciˆ
 
-gis. 
+gis.
 
-Mi povis akiri la faktojn sur kiuj mi bazos miajn artikolojn nur provante almozpeti kiel nespertulo. 
+Mi povis akiri la faktojn sur kiuj mi bazos miajn artikolojn nur provante almozpeti kiel nespertulo.
 
 Kiam mi estis aktoro mi kompreneble lernis ˆciujn sekretojn por alpreni iun ajn aspekton, kaj mi estis fama pro mia lerto tiurilate. Mi profitis de mia scio. Mi ˆsminkis la vizaˆ
 
@@ -1602,7 +1552,7 @@ ugaj vestoj, mi prenis mian lokon en la aferista
 
 parto de la urbo, ˆsajne kiel vendisto de alumetoj sed vere por almozi. Dum sep horoj mi laboradis je la metio, kaj kiam mi revenis hejmen vespere, mi mire konstatis ke mi ricevis ne malpli ol 26
 
-ˆsilingojn 4 pencojn. 
+ˆsilingojn 4 pencojn.
 
 “Mi verkis miajn artikolojn kaj ne multe pensis pri la afero, ˆ
 
@@ -1616,7 +1566,7 @@ monon kiam ideo ekfulmis. Mi petis du pluajn semajnojn de la kreditoro kaj ferio
 
 ginte mian aspekton. Post dek tagoj
 
-mi havis la monon, kaj la ˆsuldon mi pagis. 
+mi havis la monon, kaj la ˆsuldon mi pagis.
 
 “Nu, vi povas imagi kiel malfacile estis refiksiˆ
 
@@ -1624,9 +1574,8 @@ gi al peniga laborado por nur po du pundoj semajne
 
 dum mi sciis ke mi povos gajni tiom ˆciutage ˆsminkante la vizaˆ
 
-gon, metante surtere mian ˆcapon, 
+gon, metante surtere mian ˆcapon,
 
-34
 
 kaj sidante senmove. Estis longa batalo inter mia fiero kaj la mono, sed finfine la mono venkis, kaj mi forlasis ˆurnalismon por sidadi tagon post tago en la angulo kiun mi unue elektis, inspirante kompaton pro mia aˆcega vizaˆ
 
@@ -1638,7 +1587,7 @@ ue loˆ
 
 gis en Swandam-strateto, kie ˆciumatene
 
-mi povis eliri kiel malpurega almozpetanto kaj vespere aliigi min al bonvesta viro de la urbo. Tiun ulon, hindan veteranon, mi multe pagis por povi uzi ˆcambraron kaj scii ke mia sekreto estos sekura. 
+mi povis eliri kiel malpurega almozpetanto kaj vespere aliigi min al bonvesta viro de la urbo. Tiun ulon, hindan veteranon, mi multe pagis por povi uzi ˆcambraron kaj scii ke mia sekreto estos sekura.
 
 “Nu, tre balda˘
 
@@ -1656,11 +1605,11 @@ en la financa urboparto. La tutan tagon fluo da pencoj, kaj jen kaj jen anka˘
 
 u arˆ
 
-gentaj moneroj, 
+gentaj moneroj,
 
 verˆsiˆ
 
-gis al mi, kaj estis tre malbona tago kiam mi ne ricevis du pundojn. 
+gis al mi, kaj estis tre malbona tago kiam mi ne ricevis du pundojn.
 
 “Dum mi riˆciˆ
 
@@ -1668,11 +1617,11 @@ gis mi aspiris pli alten, prenis domon en la kamparo, kaj fine edziˆ
 
 gis. Mi agis tiel ke
 
-neniu suspektu pri mia reala okupo. Mia kara edzino sciis ke mi havas aferon en la financa kvartalo. 
+neniu suspektu pri mia reala okupo. Mia kara edzino sciis ke mi havas aferon en la financa kvartalo.
 
 ˆ
 
-Si ne sciis kian. 
+Si ne sciis kian.
 
 “Lastan lundon post la labortago mi ankora˘
 
@@ -1680,9 +1629,8 @@ u ne finis vesti min en mia ˆcambro super la opiejo
 
 kiam mi ekrigardis trafenestre kaj vidis je mia konsterno kaj miro ke mia edzino staras surstrate kun la okuloj plene fiksitaj al mi. Mi ekkriis surprize, suprenˆetis miajn brakojn por kaˆsi la vizaˆ
 
-gon, 
+gon,
 
-35
 
 kaj rapidante al mia konfidenculo, la hindo, petegis ke li lasu neniun alsupri al mi. Mi a˘
 
@@ -1714,7 +1662,7 @@ ge, ke anstata˘
 
 u rekoni min kiel S-ron
 
-Neville St. Clair, oni arestis min pro lia murdo. 
+Neville St. Clair, oni arestis min pro lia murdo.
 
 “Mi ne scias ˆcu estas io ajn alia por klarigi. Mi firme decidis gardi mian aliiˆ
 
@@ -1726,41 +1674,40 @@ go. Sciante ke mia edzino estos ege maltrankvile, mi deprenis
 
 mian ringon kaj konfidis ˆ
 
-gin al la hindo kiam neniu policisto min rigardis, kune kun rapida skribaˆo, 
+gin al la hindo kiam neniu policisto min rigardis, kune kun rapida skribaˆo,
 
-diranta al ˆsi ke ˆsi havas neniun kialon por timi.” 
+diranta al ˆsi ke ˆsi havas neniun kialon por timi.”
 
 “Tiu noto nur atingis ˆsin hiera˘
 
-u,” diris Holmes. 
+u,” diris Holmes.
 
-“Bona Dio\! Kian semajnon ˆsi devis pasigi\!” 
+“Bona Dio! Kian semajnon ˆsi devis pasigi!”
 
 “La polico observadis tiun hindon,” diris Inspektisto Bradstreet, “kaj mi povas facile imagi ke por li estis malfacile poˆsti leteron neobservate. Probable li enmanigis ˆ
 
 gin al iu sia marista kliento
 
-36
 
 kiu tute forgesis pri ˆ
 
-gi dum kelkaj tagoj.” 
+gi dum kelkaj tagoj.”
 
 “Jes ja,” diris Holmes, kapjese aprobante. “Mi ne havas dubon pri tio. Sed ˆcu oni neniam ajn procesis kontra˘
 
-u vi pro almozado?” 
+u vi pro almozado?”
 
-“Multfoje, sed kio estis monpuno al mi?” 
+“Multfoje, sed kio estis monpuno al mi?”
 
-“Tio devas ˆcesi nun, tamen,” diris Bradstreet. “Se la polico prisilentos tiun aferon, devos esti nenio plu pri Hugh Boone.” 
+“Tio devas ˆcesi nun, tamen,” diris Bradstreet. “Se la polico prisilentos tiun aferon, devos esti nenio plu pri Hugh Boone.”
 
-“Mi jam ˆuris tion per la plej solenaj ˆuroj kiujn homo povas fari.” 
+“Mi jam ˆuris tion per la plej solenaj ˆuroj kiujn homo povas fari.”
 
 “Tiuokaze mi pensas ke probable ni faros nenion plu pri la afero. Sed se ni trovos vin denove, tiam ˆcio publikiˆ
 
-gos. Mi estas certa, S-ro Holmes, ke ni multe ˆsuldas al vi pro la klarigo de la afero. 
+gos. Mi estas certa, S-ro Holmes, ke ni multe ˆsuldas al vi pro la klarigo de la afero.
 
-Mi dezirus scii kiel vi atingis viajn konkludojn.” 
+Mi dezirus scii kiel vi atingis viajn konkludojn.”
 
 “Mi atingis tiujn,” diris mia amiko, “per sidado sur kvin kusenoj, konsumante uncon da forta marista tabako. Mi pensas, Watson, ke se ni veturos al Baker-strato ni alvenos tien ˆ
 
@@ -1768,14 +1715,10 @@ gustahore por
 
 matenmanˆ
 
-gi.” 
-
-
-
+gi.”
 
 
 # Document Outline
 
-+ Parto I  
++ Parto I
 + Parto II
-

@@ -1,21 +1,4 @@
-% Eo - Baum, L.Frank
-% La mirinda sorcxisto de Oz
-
-!(images/000029.jpg)
-
-
-
-
-La
-
-MIRINDA
-
-SORĈISTO
-
 de OZ
-
-!(images/000036.jpg)
-
 
 
 La MIR-
@@ -30,71 +13,47 @@ De
 
 I l u s t r i t a d e
 
-* * * * * * 
 
 Tradukita de
 
 DONALD BROADRIBB
 
-Ĉi tiu eldono konsistas el reviziita formo de la traduko
 
-kiu unue aperis en 1996. La ilustraĵoj estas nove skanitaj, 
+kiu unue aperis en 1996. La ilustraĵoj estas nove skanitaj,
 
 kaj la plejparto de la desegnaĵoj malantaŭ la teksto estas
 
 reproduktita kun surpresita Esperanta teksto. Tamen la
 
-aktuala eldono estas provizora, ĉar unu-du malantaŭtek-
 
-staj ilustraĵoj estas nekompletaj pro sia komplekseco. 
+staj ilustraĵoj estas nekompletaj pro sia komplekseco.
 
 Laŭeble, la enpaĝigado kaj la lokado de la tekstoj kaj
 
 entekstaj ilustraĵoj fidele reproduktas tiujn de la originala
 
-Anglalingva eldono. 
 
 *La Mirinda Sorĉisto de Oz*
 
-De Baum, L. Frank \(Lyman Frank\), 1856 –1919
+De Baum, L. Frank (Lyman Frank), 1856 –1919
 
-Ilustrita de Denslow, W\[illiam\] W\[allace\], 1856 –1914
+Ilustrita de Denslow, W[illiam] W[allace], 1856 –1914
 
-Tradukita el la Angla en Esperanton de Broadribb, 
+Tradukita el la Angla en Esperanton de Broadribb,
 
-Donald \(Donald Richard\), 1933 –. 
-
-Traduko © Donald Broadribb 2001
-
-Unue eldonita en la Angla kiel *The Wonderful Wizard of*
-
-*Oz* de George M. Hill Co, 1900. 
-
-Unua Esperanta eldono: * La Mirinda Sorĉisto de Oz*, eld. 
-
-BOOKLEAF PUBLISHING, Beverley WA 6302, Aŭstralio, 
+Donald (Donald Richard), 1933 –.
 
 
-
-## 1996. 
-
-!(images/000018.jpg)
-
-!(images/000010.png)
-
-!(images/000003.png)
-
-!(images/000006.jpg)
-
-!(images/000161.jpg)
-
-!(images/000023.jpg)
-
-!(images/000011.png)
+*Oz* de George M. Hill Co, 1900.
 
 
+BOOKLEAF PUBLISHING, Beverley WA 6302, Aŭstralio,
 
-ENKONDUKO. 
+
+## 1996.
+
+
+ENKONDUKO.
 
 Folkloro, legendoj, mitoj kaj fe-rakontoj estis parto
 
@@ -106,7 +65,7 @@ fantaziaj, mirindaj kaj evidente malrealaj. La flugilhavaj
 
 feoj de Grimm kaj Andersen alportis pli da feliĉeco al la
 
-koroj de infanoj ol ĉiuj aliaj homkreaĵoj. 
+koroj de infanoj ol ĉiuj aliaj homkreaĵoj.
 
 Tamen la tradicia fe-rakonto, servinte dum
 
@@ -114,7 +73,7 @@ generaci-oj, nun estas klasifikebla kiel “eksmodaj” en la
 
 biblioteko por infanoj; ĉar venis la tempo por serio de
 
-novaj “mir-igaj rakontoj” en kiuj la steriotipaj ĝino, 
+novaj “mir-igaj rakontoj” en kiuj la steriotipaj ĝino,
 
 koboldo kaj feo estas eliminitaj, kune kun ĉiuj teruraj
 
@@ -122,7 +81,7 @@ kaj sangavidaj eventoj elpensitaj de siaj aŭtoroj por
 
 indiki timigan moralon en ĉiu rakonto. La moderna
 
-eduko inkluzivas moralecon; 
+eduko inkluzivas moralecon;
 
 tial la moderna infano serĉas nur dis-
 
@@ -130,7 +89,7 @@ triĝon en siaj mirigaj rakontoj kaj
 
 volonte malhavas ĉiujn malagrablajn
 
-okazaĵojn. 
+okazaĵojn.
 
 Kun tiu penso en la menso, la
 
@@ -144,107 +103,93 @@ modernigita fe-rakonto, en kiu la
 
 mirigo kaj ĝojo restas kaj la kordoloroj
 
-kaj koŝmaroj mankas. 
+kaj koŝmaroj mankas.
 
 L. FRANK BAUM
 
-Chicago, Aprilo 1900
+Chicago,
 
-!(images/000102.jpg)
-
-!(images/000050.jpg)
-
-**** 
 
 **LISTO DE ĈAPITROJ**
 
-ĈAPITRO I. — La ciklono. 
+ĈAPITRO I. — La ciklono.
 
-ĈAPITRO II. — Konsiliĝo kun la Manĝtuloj. 
+ĈAPITRO II. — Konsiliĝo kun la Manĝtuloj.
 
-ĈAPITRO III. — Kiel Doroteo savis la Birdotimigilon. 
+ĈAPITRO III. — Kiel Doroteo savis la Birdotimigilon.
 
-ĈAPITRO IV. — La vojo tra la arbaro. 
+ĈAPITRO IV. — La vojo tra la arbaro.
 
-ĈAPITRO V. — Ili savas la Stanan Lignohakiston. 
+ĈAPITRO V. — Ili savas la Stanan Lignohakiston.
 
-ĈAPITRO VI. — La Malkuraĝa Leono. 
+ĈAPITRO VI. — La Malkuraĝa Leono.
 
-ĈAPITRO VII. — La vojo al la Granda Oz. 
+ĈAPITRO VII. — La vojo al la Granda Oz.
 
-ĈAPITRO VIII. — La mortiga papavokampo. 
+ĈAPITRO VIII. — La mortiga papavokampo.
 
-ĈAPITRO IX. — La Reĝino de la kampomusoj. 
+ĈAPITRO IX. — La Reĝino de la kampomusoj.
 
-ĈAPITRO X. — La Pordogardisto. 
+ĈAPITRO X. — La Pordogardisto.
 
 ĈAPITRO XI. — La Mirinda Smeralda
 
-Urbo de Oz. 
+Urbo de Oz.
 
 ĈAPITRO XII. — Serĉante la Fian
 
-Sorĉistinon. 
+Sorĉistinon.
 
-ĈAPITRO XIII. — Kiel la kvar rekuniĝis. 
+ĈAPITRO XIII. — Kiel la kvar rekuniĝis.
 
-ĈAPITRO XIV. — La Flugantaj Simioj. 
+ĈAPITRO XIV. — La Flugantaj Simioj.
 
 ĈAPITRO XV. — Ili malmaskas Ozon
 
-la Teruran. 
+la Teruran.
 
 ĈAPITRO XVI. — La magia arto de la
 
-Granda Ĉarlatano. 
+Granda Ĉarlatano.
 
 ĈAPITRO XVII. — Kiel la balono
 
-lanĉiĝis. 
+lanĉiĝis.
 
-ĈAPITRO XVIII. — For al la sudo. 
+ĈAPITRO XVIII. — For al la sudo.
 
-ĈAPITRO XIX. — Atakataj de la batalantaj arboj. 
+ĈAPITRO XIX. — Atakataj de la batalantaj arboj.
 
-ĈAPTRO XX. — La delikata Porcelana Lando. 
+ĈAPTRO XX. — La delikata Porcelana Lando.
 
 ĈAPITRO XXI. — La Leono fariĝas la Reĝo de la
 
-Bestoj. 
+Bestoj.
 
-ĈAPITRO XXII. — La Lando de la Kveluloj. 
+ĈAPITRO XXII. — La Lando de la Kveluloj.
 
 ĈAPITRO XXIII. — La Bona Sorĉistino plenumas la
 
-deziron de Doroteo. 
+deziron de Doroteo.
 
-ĈAPITRO XXIV. — Denove hejme. 
-
-!(images/000097.jpg)
+ĈAPITRO XXIV. — Denove hejme.
 
 
-
-fl| à|â Ä|uÜÉ xáàtá wxw|€|àt tÄ Å|t 
+fl| à|â Ä|uÜÉ xáàtá wxw|€|àt tÄ Å|t
 
 uÉĉt tÅ|~|ĉÉ 9 ~tÅtÜtwÉÀ|t Xwé|ĉÉ
 
-!(images/000041.jpg)
 
-
-
-Ĉapitro I. 
+Ĉapitro I.
 
 La ciklono
 
-!(images/000004.jpg)
-
-**** 
 
 LOĜIS EN LA
 
-mezo 
+mezo
 
-de 
+de
 
 la
 
@@ -269,16 +214,13 @@ konsistigis la solan ĉambron; kaj en tiu
 ĉambro estis rustaspekta kuirforno, ŝranko
 
 
-
-12
-
 LA MIRINDA SORĈISTO DE OZ
 
 por la teleroj, tablo, tri aŭ kvar seĝoj, kaj la litoj. Onklo
 
 Henraiko kaj Onklino Em havis grandan liton en unu
 
-angulo, kaj Doroteo malgrandan liton en alia angulo. 
+angulo, kaj Doroteo malgrandan liton en alia angulo.
 
 Tute ne estis mansardo, nek kelo — kvankam ja estis
 
@@ -292,7 +234,7 @@ konstruaĵon renkontitan. Oni atingis tiun kaŝejon per
 
 klapohava luko en la mezo de la planko, de ĝi ŝtupetaro
 
-subenkondukis en la malgrandan, senluman truon. 
+subenkondukis en la malgrandan, senluman truon.
 
 Kiam Doroteo staris en la pordejo kaj ĉirkaŭrigar-
 
@@ -308,33 +250,29 @@ teron por fari el ĝi grizaĵon tra kiu estis fendetoj. Eĉ la
 
 herbaro ne verdis, ĉar la suno bruligis la pintojn de la
 
-longaj folioj ĝis ili estis egale grizaj kiel ĉio alia videbla. 
+longaj folioj ĝis ili estis egale grizaj kiel ĉio alia videbla.
 
 Iam oni farbis la domon, sed la suno vezikigis la farbon
 
 kaj la pluvoj forglitigis ĝin, kaj nun la domo estis egale
 
-senbrila kaj griza kiel ĉio alia. 
+senbrila kaj griza kiel ĉio alia.
 
 Kiam Onklino Em venis loĝi tie ŝi estis juna, bela
 
 edzino. La suno kaj la vento ankaŭ ŝin ŝanĝis. Ili forra-
 
-bis de ŝi la brilon de la okuloj kaj lasis ilin sobre grizaj. 
+bis de ŝi la brilon de la okuloj kaj lasis ilin sobre grizaj.
 
-Ŝi estis maldika kaj marasma, kaj nun ŝi neniam ridetis. 
+Ŝi estis maldika kaj marasma, kaj nun ŝi neniam ridetis.
 
 Kiam Doroteo, kiu estis orfino, unue venis al ili, Onklino
 
 Em estis tiom alarmita de la ridado de la infano ke ŝi
 
-!(images/000034.jpg)
-
-
 
 LA MIRINDA SORĈISTO DE OZ
 
-13
 
 kriis kaj premis sian manon sur sian koron kiam ajn la
 
@@ -342,7 +280,7 @@ gaja voĉo de Doroteo atingis ŝiajn orelojn; kaj ŝi ankoraŭ
 
 rigardis la knabineton mirante ke Doroteo povas trovi ion
 
-pri kio ridi. 
+pri kio ridi.
 
 Onklo Henriko neniam ridis. Li laboregis de la
 
@@ -350,9 +288,9 @@ mateno ĝis la nokto, kaj ne sciis kio estas ĝojo. Li ankaŭ
 
 estis griza, de la longa barbo ĝis la krudaj botoj, kaj li
 
-aspektis severa kaj senŝercema, kaj malofte li parolis. 
+aspektis severa kaj senŝercema, kaj malofte li parolis.
 
-Toto ridigis Doroteon, kaj protektis ŝin kontraŭ griz-
+Toto ridigis Doroteon, kaj protektis ŝntraŭ griz-
 
 iĝo simila al tiu de ĉio alia. Toto ne estis
 
@@ -366,13 +304,13 @@ nigraj okuloj kiuj briletis gajoplene
 
 ludis dum la tuta tago, kaj Doroteo
 
-ludis kun li, kaj elkore amis lin. 
+ludis kun li, kaj elkore amis lin.
 
-Tamen hodiaŭ ili ne ludis. 
+Tamen hodiaŭ ili ne ludis.
 
 Onklo Henriko sidis sur la sojlo kaj ri-
 
-gardis maltrankvile la ĉielon, 
+gardis maltrankvile la ĉielon,
 
 kiu estis eĉ pli griza ol
 
@@ -384,15 +322,12 @@ koj, kaj ankaŭ rigardis la
 
 ĉielon. Onklino Em lavadis la
 
-pladojn. 
+pladojn.
 
 El la malprok-
 
 sima nordo ili aŭdis
 
-
-
-14
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -404,25 +339,25 @@ venanta ŝtormo. Nun el la sudo venis akra fajfado en la
 
 aero, kaj dum ili turnis siajn kulojn tiudirekten ili vidis
 
-ondetojn ankaŭ en la herbaro tiudirekta. 
+ondetojn ankaŭ en la herbaro tiudirekta.
 
-Subite Onklo Henriko ekstaris. 
+Subite Onklo Henriko ekstaris.
 
 “Venas ciklono, Em,” li vokis al sia edzino. “Mi
 
 prizorgos la brutojn.” Li kuris al la ŝedoj kie loĝis la
 
-bovinoj kaj la ĉevaloj. 
+bovinoj kaj la ĉevaloj.
 
-Onklino Em ĉesis labori kaj venis al la pordo. 
+Onklino Em ĉesis labori kaj venis al la pordo.
 
-Rigardeto sufiĉis por informi ŝin pri la proksima danĝero. 
+Rigardeto sufiĉis por informi ŝin pri la proksima danĝero.
 
-“Ek, Doroteo\!” ŝi kriegis; “kuru en la kelon\!” 
+“Ek, Doroteo!” ŝi kriegis; “kuru en la kelon!”
 
 Toto eksaltis de la brakoj de Doroteo kaj kaŝis sin
 
-sub la lito, kaj la knabino iris repreni lin. Onklino Em, 
+sub la lito, kaj la knabino iris repreni lin. Onklino Em,
 
 timoplena, malfermis la lukoklapon en la planko kaj mal-
 
@@ -434,27 +369,25 @@ non. Kiam ŝi transpaŝis nur duonon de la ĉambro aŭdiĝis
 
 granda kriĉo de la vento, kaj la domo skuiĝis tiom forte
 
-ke ŝi ekfalis kaj subite trovis sin sidanta sur la planko. 
+ke ŝi ekfalis kaj subite trovis sin sidanta sur la planko.
 
-Io stranga okazis. 
+Io stranga okazis.
 
 La domo ĉirkaŭturniĝis du- aŭ tri-foje kaj mal-
 
 rapide leviĝis en la aeron. Al Doroteo la sento similis
 
-supreniron en balono. 
+supreniron en balono.
 
 La norda kaj la suda ventoj renkontiĝis tie, kie
 
 staris la domo, kaj tie estiĝis la preciza centro de la cik-
 
 
-
 LA MIRINDA SORĈISTO DE OZ
 
-15
 
-lono. En la centro de ciklono la aero kutime estas kvieta, 
+lono. En la centro de ciklono la aero kutime estas kvieta,
 
 sed la granda premo de la vento ĉiuflanke de la domo
 
@@ -462,9 +395,9 @@ levis ĝin pli kaj pli alten, ĝis ĝi estis ĉe la plejsupro de la
 
 ciklono; kaj tie ĝi restis kaj forportiĝis multegajn kilo-
 
-metrojn tiel facile kiel oni portas plumon. 
+metrojn tiel facile kiel oni portas plumon.
 
-Estis tre senlume, kaj la vento hurlis timige ĉirkaŭe, 
+Estis tre senlume, kaj la vento hurlis timige ĉirkaŭe,
 
 sed Doroteo trovis sin facile veturanta. Post la unuaj
 
@@ -472,15 +405,15 @@ kelkaj ĉirkaŭturniĝoj, kaj unufoja kruta ekkliniĝo de la
 
 domo, ŝi sentis kvazaŭluladon tre mildan, kian sentas
 
-bebo en lulilo. 
+bebo en lulilo.
 
-Al Toto tio ne plaĉis. Li ĉirkaŭkuris en la ĉambro, 
+Al Toto tio ne plaĉis. Li ĉirkaŭkuris en la ĉambro,
 
 jen tien, jen ĉi tien, laŭte bojante; sed Doroteo sidis tute
 
-senmove sur la planko kaj atendis por trovi kio okazos. 
+senmove sur la planko kaj atendis por trovi kio okazos.
 
-Unufoje Toto tro proksimiĝis al la malfermita luko, 
+Unufoje Toto tro proksimiĝis al la malfermita luko,
 
 kaj enfalis; kaj unue la knabineto kredis lin perdita. Sed
 
@@ -492,7 +425,7 @@ fali. Ŝi rampis al la truo, kaptis orelon de Toto, kaj reti-
 
 ris lin en la ĉambron, poste ŝi fermis la lukoklapon por
 
-ke neniu plia akcidento okazu. 
+ke neniu plia akcidento okazu.
 
 Forpasis horoj post horoj, kaj iom post iom Doro-
 
@@ -506,15 +439,9 @@ dum la forpasado de la horoj kaj la manko de katastro-
 
 foj, ŝi perdis sian maltrankviliĝon kaj decidis atendi kvete
 
-!(images/000122.jpg)
-
-
-
-16
 
 LA MIRINDA SORĈISTO DE OZ
 
-16
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -522,23 +449,20 @@ por trovi kio okazos. Fine ŝi rampis trans la skuiĝantan
 
 plankon al sia lito, kaj kuŝiĝis sur ĝin; kaj Toto sekvis
 
-kaj kuŝiĝis apud ŝin. 
+kaj kuŝiĝis apud ŝin.
 
 Malgraŭ la skuiĝado de la domo kaj la hurlado de
 
 la vento, Doroteo baldaŭ fermis siajn okulojn kaj pro-
 
-funde endormiĝis. 
-
-!(images/000140.jpg)
+funde endormiĝis.
 
 
-
-Ĉapitro II. 
+Ĉapitro II.
 
 Konsiliĝo kun
 
-la Manĝtuloj. 
+la Manĝtuloj.
 
 Doroteo
 
@@ -550,19 +474,15 @@ Smeral-
 
 doj
 
-!(images/000127.jpg)
-
-**** 
 
 LA MIRINDA SORĈISTO DE OZ
 
-19
 
 ubitaŜOKO
 
 ****vekis
 
-ŝin, 
+ŝin,
 
 tiom subite kaj severe ke se Doro-
 
@@ -572,7 +492,7 @@ eble estus damaĝita. Eĉ malgraŭ tio
 
 la batego senspirigis ŝin kaj instigis
 
-ŝin demandi al si pri kio okazis; 
+ŝin demandi al si pri kio okazis;
 
 kaj Toto voĉetis morne. Doroteo
 
@@ -584,19 +504,16 @@ inundis la malgrandan ĉambron. Ŝi eksaltis de sia lito kaj
 
 kun Toto ĉe ŝiaj kalkanoj ŝi kuris kaj malfermis la
 
-pordon. 
+pordon.
 
-La knabineto ekkriis mirigate kaj rigardis ĉirkaŭ sin, 
+La knabineto ekkriis mirigate kaj rigardis ĉirkaŭ sin,
 
-
-
-20
 
 LA MIRINDA SORĈISTO DE OZ
 
 ŝiaj okuloj fariĝis pli kaj pli grandaj pro la mirindaj
 
-vidaĵoj kiujn ŝi vidas. 
+vidaĵoj kiujn ŝi vidas.
 
 La ciklono estis malsupren metinta la domon, tre
 
@@ -616,7 +533,7 @@ fluanta kaj scintilanta inter verdaj bordoj, kaj murmu-
 
 ranta per voĉo tre plaĉa al knabineto kiu tiom longe loĝis
 
-sur la seka griza kamparo. 
+sur la seka griza kamparo.
 
 Dum ŝi staris fervore rigardante la strangajn kaj
 
@@ -630,7 +547,7 @@ estis malaltaj. Efektive, ili aspektis proksimume tiom altaj
 
 kiom Doroteo, kiu estis altekreska por infano de ŝia
 
-jaraĝo, kvankam ili estis, laŭaspekte, multe pli aĝaj. 
+jaraĝo, kvankam ili estis, laŭaspekte, multe pli aĝaj.
 
 Tri estis viroj kaj unu estis virino, kaj ĉiuj estis kurioze
 
@@ -648,17 +565,13 @@ troj; super ĝi estis ŝutitaj steletoj kiuj brilis kiel diamantoj
 
 en la sunlumo. La viroj estis blue vestitaj, samkolore kiel
 
-!(images/000069.jpg)
-
-
 
 LA MIRINDA SORĈISTO DE OZ
 
-21
 
 la ĉapeloj, kaj sur la piedoj estis bone poluritaj botoj kun
 
-larĝa blua faldo ĉe la supro. La viroj, pensis Doroteo, 
+larĝa blua faldo ĉe la supro. La viroj, pensis Doroteo,
 
 estis proksimume samaĝaj kiel Onklo Henriko, ĉar du el
 
@@ -666,7 +579,7 @@ ili havis barbojn. Sed la virineto estis sendube multe pli
 
 aĝa; ŝian vizaĝon kovris faltoj; ŝiaj kapharoj estis preskaŭ
 
-blankaj, kaj ŝi marŝis iom rigide. 
+blankaj, kaj ŝi marŝis iom rigide.
 
 Kiam tiuj personoj proksimiĝis al la domo kie Doro-
 
@@ -682,11 +595,11 @@ de la Manĝtuloj. Ni dankegas vin ĉar vi mortigis la fian
 
 Sorĉistinon de la Oriento kaj vi tiel liberigis nian
 
-popolon.” 
+popolon.”
 
-Doroteo 
+Doroteo
 
-aŭskultis 
+aŭskultis
 
 tiun
 
@@ -712,47 +625,42 @@ hejmo; kaj ŝi neniam
 
 mortigis ion ajn dum sia
 
-tuta vivo. 
+tuta vivo.
 
-!(images/000045.jpg)
-
-
-
-22
 
 LA MIRINDA SORĈISTO DE OZ
 
 Sed la virineto evidente atendis respondon, do Doro-
 
-teo diris, heziteme, 
+teo diris, heziteme,
 
 “Vi estas tre afabla; sed klare okazis ia eraro. Mi
 
-nenion mortigis.” 
+nenion mortigis.”
 
-“Nu, via domo mortigis ŝin,” respondis la virineto, 
+“Nu, via domo mortigis ŝin,” respondis la virineto,
 
-ridante, “do estas tutegale. Vidu\!” ŝi pludiris, indikante la
+ridante, “do estas tutegale. Vidu!” ŝi pludiris, indikante la
 
 angulon de la domo. “Jen ŝiaj du piedpintoj, ankoraŭ
 
-etenditaj sub ligna bloko.” 
+etenditaj sub ligna bloko.”
 
 Doroteo rigardis, kaj time krietis. Jen ja, sub la
 
 angulo de la granda trabo sur kiu kuŝis la domo, estis du
 
-etenditaj piedoj, portantaj arĝentajn ŝuojn kun pintoj. 
+etenditaj piedoj, portantaj arĝentajn ŝuojn kun pintoj.
 
-“Ho ve\! Ho ve\!” kriis Doroteo, kunmetante la
+“Ho ve! Ho ve!” kriis Doroteo, kunmetante la
 
 manojn konsternite. “La domo falis sur ŝin. Kion ni
 
-faru?” 
+faru?”
 
-“Nenio farindas,” diris la virineto trankvile. 
+“Nenio farindas,” diris la virineto trankvile.
 
-“Sed kiu ŝi estis?” demandis Doroteo. 
+“Sed kiu ŝi estis?” demandis Doroteo.
 
 “Ŝi estis la Fia Sorĉistino
 
@@ -764,41 +672,39 @@ la Manĝtulojn dum multaj
 
 jaroj,ili devis
 
-servadi 
+servadi
 
 ŝin
 
-nokte 
+nokte
 
 kaj
 
 tage. Nun ili
 
-liberiĝis, 
+liberiĝis,
 
 kaj
 
 ili dankas vin
 
-pro 
+pro
 
 tiu
 
 
-
 LA MIRINDA SORĈISTO DE OZ
 
-23
 
-komplezo.” 
+komplezo.”
 
-“Kiuj estas la Manĝtuloj?” demandis Doroteo. 
+“Kiuj estas la Manĝtuloj?” demandis Doroteo.
 
 “Ili estas la homoj kiuj loĝas en ĉi tiu lando de la
 
-Oriento, kie la Fia Sorĉistino regis.” 
+Oriento, kie la Fia Sorĉistino regis.”
 
-“Ĉu vi estas Manĝtulo?” demandis Doroteo. 
+“Ĉu vi estas Manĝtulo?” demandis Doroteo.
 
 “Ne, sed mi estas ilia amikino, kvankam mi loĝas
 
@@ -808,11 +714,11 @@ de la Oriento estas morta la Manĝtuloj sendis rapidan
 
 mesaĝiston al mi, kaj mi tuj venis. Mi estas la Sorĉistino
 
-de la Nordo.” 
+de la Nordo.”
 
-“Ho, mirige\!” kriis Doroteo. “Ĉu vi estas vera
+“Ho, mirige!” kriis Doroteo. “Ĉu vi estas vera
 
-sorĉistino?” 
+sorĉistino?”
 
 “Jes ja,” respondis la virineto. “Sed mi estas bona
 
@@ -820,17 +726,17 @@ Sorĉistino, kaj la popolo amas min. Mi ne estas tiom
 
 potenca kiom la Fia Sorĉistino kiu regis ĉi tie; se mi
 
-kapablus, mi mem liberigus la popolon.” 
+kapablus, mi mem liberigus la popolon.”
 
 “Sed mi kredis ke ĉiuj sorĉistinoj estas fiaj,” diris la
 
-knabino, kiun iom timigis renkonti veran sorĉistinon. 
+knabino, kiun iom timigis renkonti veran sorĉistinon.
 
 “Ho, ne, tio estas grava eraro. Ekzistis nur kvar
 
 Sorĉistinoj en la Lando Oz, kaj du el ili, kiuj loĝas en la
 
-Nordo kaj la Sudo, estas bonaj Sorĉistinoj. Mi scias tion, 
+Nordo kaj la Sudo, estas bonaj Sorĉistinoj. Mi scias tion,
 
 ĉar mi mem estas unu el ili, kaj mi ne povas erari. La
 
@@ -840,41 +746,38 @@ sorĉistinoj; sed nun vi mortigis unu el ili, do restas nur
 
 unu Fia Sorĉistino en la tuta Lando Oz—ŝi loĝas en la
 
-Okcidento.” 
+Okcidento.”
 
-“Sed,” diris Doroteo, post momento da pensado, 
+“Sed,” diris Doroteo, post momento da pensado,
 
-
-
-24
 
 LA MIRINDA SORĈISTO DE OZ
 
 Onklino Em diris al mi ke la sorĉistinoj ĉiuj jam mortis
 
-— antaŭ multege da jaroj.” 
+— antaŭ multege da jaroj.”
 
 “Kiu estas Onklino Em?” demandis la maljunul-
 
-ineto. 
+ineto.
 
 “Ŝi estas mia onklino kiu loĝas en Kansas, el kie mi
 
-venis.” 
+venis.”
 
 La Sorĉistino de la Nordo ŝajnis pensadi, kun la
 
 kapo klinita kaj la okuloj rigardantaj la teron. Post tio ŝi
 
-levis la kapon kaj diris, 
+levis la kapon kaj diris,
 
 “Mi ne scias kie estas Kansas, ĉar neniam antaŭe mi
 
 aŭdis la nomon de tiu lando. Sed diru al mi, ĉu ĝi estas
 
-civilizita lando?” 
+civilizita lando?”
 
-“Ho, jes,” respondis Doroteo. 
+“Ho, jes,” respondis Doroteo.
 
 “Do jen la kialo. Mi kredas ke en la civilizitaj
 
@@ -886,37 +789,31 @@ Oz neniam civiliziĝis, ĉar ni estas apartigitaj for de la
 
 resto de la mondo. Tial ni ankoraŭ havas sorĉistinojn kaj
 
-sorĉistojn inter ni.” 
+sorĉistojn inter ni.”
 
-“Kiuj estas la sorĉistoj?” demandis Doroteo. 
+“Kiuj estas la sorĉistoj?” demandis Doroteo.
 
 “Oz mem estas la Granda Sorĉisto,” respondis la
 
 Sorĉistino, flustrigante sian voĉon. “Li estas pli potenca ol
 
-ĉiuj ni aliaj kune. Li loĝas en la Urbo de Smeraldoj.” 
+ĉiuj ni aliaj kune. Li loĝas en la Urbo de Smeraldoj.”
 
 Doroteo intencis pli demandi, sed ĝuste tiam la
 
 Manĝtuloj, kiuj silente apudstaris, ekkriis laŭte kaj indikis
 
-la angulon de la domo kie kuŝadis la Fia Sorĉistino. 
+la angulon de la domo kie kuŝadis la Fia Sorĉistino.
 
 “Kio okazis?” demandis la maljunulineto; kaj ŝi
-
-!(images/000014.jpg)
-
 
 
 LA MIRINDA SORĈISTO DE OZ
 
 SORĈISTO DE OZ
 
-25
 
-25
-
-rigardis kaj komencis ridi. 
+rigardis kaj komencis ridi.
 
 La piedoj de la morta
 
@@ -924,9 +821,9 @@ Sorĉistino estis plene mal-
 
 aperintaj kaj restis nur la
 
-arĝentaj ŝuoj. 
+arĝentaj ŝuoj.
 
-“Tiom aĝa ŝi estis,” 
+“Tiom aĝa ŝi estis,”
 
 klarigis la Sorĉistino de la
 
@@ -944,7 +841,7 @@ sin kaj prenis la ŝuojn, kaj elskuinte
 
 la polvon ŝi transdonis ilin al Doro-
 
-teo. 
+teo.
 
 “La Sorĉistino de la Oriento
 
@@ -952,29 +849,24 @@ multe fieris pri tiuj arĝentaj ŝuoj,” di-
 
 ris Manĝtulo, “kaj ili havas ian sorĉokapablon; sed ni
 
-neniam sukcesis informiĝi pri ĝi.” 
+neniam sukcesis informiĝi pri ĝi.”
 
 Doroteo portis la ŝuojn en la domon kaj metis ilin
 
 sur la tablon. Poste ŝi reelvenis al la Manĝtuloj kaj
 
-diris: 
+diris:
 
 “Mi multe volas reiri al miaj onklino kaj onklo?, ĉar
 
 mi certas ke ili sentos malesperon pri mi. Ĉu vi povas
 
-helpi min trovi la vojon?” 
+helpi min trovi la vojon?”
 
 La Manĝtuloj kaj la Sorĉistino unue rigardis unu la
 
-alian, kaj poste Doroteon, kaj skuis la kapon nee. 
+alian, kaj poste Doroteon, kaj skuis la kapon nee.
 
-!(images/000071.jpg)
-
-
-
-26
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -982,29 +874,29 @@ LA MIRINDA SORĈISTO DE OZ
 
 unu, “estas grandega dezerto, kaj neniu povus transiri ĝin
 
-vivante.” 
+vivante.”
 
 “Estas same ĉe la Sudo,” diris alia, “ĉar mi mem
 
 estis tie kaj vidis ĝin. La Sudo estas la lando de la
 
-Kveluloj.” 
+Kveluloj.”
 
 “Oni diris al mi,” diris la tria viro, “ke estas same
 
-ĉe la Okcidento. Kaj tiu lando, kie la Palpbrumoj loĝas, 
+ĉe la Okcidento. Kaj tiu lando, kie la Palpbrumoj loĝas,
 
 estas regata de la Fia Sorĉistino de la Okcidento, kiu
 
-sklavigus vin se vi irus tien.” 
+sklavigus vin se vi irus tien.”
 
-“La Nordo estas mia hejmo,” diris la maljunulino, 
+“La Nordo estas mia hejmo,” diris la maljunulino,
 
 “kaj ĉe ĝia rando estas la sama granda dezerto kiu
 
 ĉirkaŭas ĉi tiun Landon Oz. Neeviteble, mia karulino, vi
 
-devos loĝi ĉe ni.” 
+devos loĝi ĉe ni.”
 
 Doroteo komencis plori pro tio, ĉar ŝi estis solsenta
 
@@ -1016,7 +908,7 @@ kaj ankaŭ komencis plori. Kaj la maljunulineto, nu ŝi
 
 deprenis sian ĉapon kaj ekvilibrigis la pinton sur la pinto
 
-de sia nazo, dum ŝi kalkulis “Unu, du, tri,” solenavoĉe. 
+de sia nazo, dum ŝi kalkulis “Unu, du, tri,” solenavoĉe.
 
 Tuj la ĉapo fariĝis ardeza tabuleto, sur kiu
 
@@ -1026,7 +918,7 @@ signoj:
 
 Doroteo
 
-“DOROTEO IRU AL LA URBO DE SMERALDOJ.” 
+“DOROTEO IRU AL LA URBO DE SMERALDOJ.”
 
 iru al la
 
@@ -1040,39 +932,37 @@ doj
 
 tabuleton de sia nazo, kaj leginte la vor-
 
-tojn sur ĝi, demandis, 
+tojn sur ĝi, demandis,
 
-“Ĉu vi nomiĝas Doroteo, karulino?” 
-
+“Ĉu vi nomiĝas Doroteo, karulino?”
 
 
 LA MIRINDA SORĈISTO DE OZ
 
-27
 
 “Jes,” respondis la infano, suprenrigardante kaj sek-
 
-igante siajn okulojn. 
+igante siajn okulojn.
 
 “Do vi devos iri al la Urbo de Smeraldoj. Eble Oz
 
-helpos vin.” 
+helpos vin.”
 
-“Kie estas tiu Urbo?” demandis Doroteo. 
+“Kie estas tiu Urbo?” demandis Doroteo.
 
-“Precize en la centro de la lando, kaj ĝin regas Oz, 
+“Precize en la centro de la lando, kaj ĝin regas Oz,
 
-la Granda Sorĉisto pri kiu mi parolis.” 
+la Granda Sorĉisto pri kiu mi parolis.”
 
 “Ĉu li estas bona homo?” demandis la knabino
 
-maltrankvile. 
+maltrankvile.
 
 “Li estas bona Sorĉisto. Ĉu li estas homo, mi ne
 
-scias, ĉar mi neniam vidis lin.” 
+scias, ĉar mi neniam vidis lin.”
 
-“Kiel mi iru?” demandis Doroteo. 
+“Kiel mi iru?” demandis Doroteo.
 
 “Vi devos marŝi. Estas malproksime, kaj necesos iri
 
@@ -1080,47 +970,42 @@ tra regiono kelkfoje agrabla kaj kelkfoje malluma kaj
 
 timiga. Tamen, mi uzos ĉiun magian arton kiun mi
 
-konas por protekti vin kontraŭ danĝeroj.” 
+konas por protekti vntraŭ danĝeroj.”
 
-“Ĉu vi bonvolos akompani min?” pledis la knabino, 
+“Ĉu vi bonvolos akompani min?” pledis la knabino,
 
 kiu jam komencis rigardi la maljunulineton kiel sian
 
-solan amikon. 
+solan amikon.
 
 “Ne, mi ne povos,” ŝi respondis, “sed mi donos al vi
 
 mian kison, kaj neniu kuraĝos damaĝi personon kisitan
 
-de la Sorĉistino de la Nordo.” 
+de la Sorĉistino de la Nordo.”
 
 Ŝi proksimiĝis al Doroteo kaj kisis ŝian frunton
 
-delikate. Kie ŝiaj lipoj tuŝis la knabinon ili lasis rondan, 
+delikate. Kie ŝiaj lipoj tuŝis la knabinon ili lasis rondan,
 
-brilan marketon, kiel sciiĝis Doroteo nelonge post tiam. 
+brilan marketon, kiel sciiĝis Doroteo nelonge post tiam.
 
 “La vojo al la Urbo de Smeraldoj estas pavimita per
 
-flavaj brikoj,” diris la Sorĉistino, “do vi ne maltrafos ĝin. 
+flavaj brikoj,” diris la Sorĉistino, “do vi ne maltrafos ĝin.
 
-!(images/000130.jpg)
-
-
-
-28
 
 LA MIRINDA SORĈISTO DE OZ
 
 LA MIRINDA SORĈISTO DE OZ
 
-Veninte al Oz, ne timu lin, 
+Veninte al Oz, ne timu lin,
 
 sed rakontu al li vian histo-
 
-rion kaj petu lin helpi vin. 
+rion kaj petu lin helpi vin.
 
-Adiaŭ, karulino.” 
+Adiaŭ, karulino.”
 
 La tri Manĝtuloj pro-
 
@@ -1134,7 +1019,7 @@ marŝis tra la arboj. La
 
 Sorĉistino amike skuetis
 
-sian kapon al Doroteo, 
+sian kapon al Doroteo,
 
 ĉirkaŭturnis sin trifoje sur
 
@@ -1144,26 +1029,19 @@ tuj malaperis, kio surpriz-
 
 egis malgrandan Toton, kiu bojis je ŝi tre laŭte post ŝia
 
-foriro, ĉar li timis eĉ brueti dum ŝi apude staris. 
+foriro, ĉar li timis eĉ brueti dum ŝi apude staris.
 
 Sed Doroteo, kiu sciis ke ŝi estas sorĉistino, antici-
 
 pis ke ŝi malaperos precize tiel, kaj tute ne estis
 
-surprizita. 
+surprizita.
 
-!(images/000139.jpg)
-
-* *
 
 LA MIRINDA SORĈISTO DE OZ
 
-29
 
 *“Mi estas la Sorĉistino de la Nordo.” *
-
-!(images/000147.jpg)
-
 
 
 Ĉapitro III
@@ -1171,11 +1049,6 @@ LA MIRINDA SORĈISTO DE OZ
 Kiel Doroteo savis
 
 la Birdotimigilon. 
-
-!(images/000157.jpg)
-
-!(images/000027.jpg)
-
 
 
 Kiam DOROTEO DE-
@@ -1202,19 +1075,16 @@ revenigi lin, kaj vidis tiom allogajn fruktojn sur la branĉoj
 
 ke ŝi deprenis kelkajn, ĉar ili estis ĝuste kion ŝi volis por
 
-pligrandigi sian matenmanĝon. 
+pligrandigi sian matenmanĝon.
 
 Post tio ŝi reiris al la domo, kaj doninte al si kaj al
 
 
-
-32
-
 LA MIRINDA SORĈISTO DE OZ
 
-Toto grandan trinkon de la frideta, klara akvo, ŝi komen-
+Toto grandan trn de la frideta, klara akvo, ŝi komen-
 
-cis pretigi sin por la veturo al la Urbo de Smeraldoj. 
+cis pretigi sin por la veturo al la Urbo de Smeraldoj.
 
 Doroteo posedis nur unu alian robon, sed ĝi estis
 
@@ -1226,7 +1096,7 @@ iomete fadinta pro multaj laviĝoj, ĝi ankoraŭ estis bela
 
 robo. La knabino zorge lavis sin, vestis sin per la pura
 
-katuna robo, kaj ligis sian palruĝan sunkufon al sia kapo. 
+katuna robo, kaj ligis sian palruĝan sunkufon al sia kapo.
 
 Ŝi prenis malgrandan korbon kaj plenigis ĝin per pano el
 
@@ -1234,7 +1104,7 @@ la ŝranko, kaj metis blankan tukon sur la supron. Post tio
 
 ŝi rigardis siajn piedojn kaj rimarkis kiom malnovaj kaj
 
-trivitaj estas ŝiaj ŝuoj. 
+trivitaj estas ŝiaj ŝuoj.
 
 “Certe ili ne taŭgas por multa marŝado, Toto,” ŝi
 
@@ -1242,51 +1112,47 @@ diris. Kaj Toto suprenrigardis al ŝia vizaĝo per siaj nigraj
 
 okuletoj kaj skuis sian voston por indiki ke li komprenas
 
-kion ŝi celas diri. 
+kion ŝi celas diri.
 
 Tiumomente Doroteo vidis kuŝantajn sur la tablo la
 
 arĝentajn ŝuojn kiuj antaŭe apartenis al la Sorĉistino de
 
-la Oriento. 
+la Oriento.
 
 “Ĉu eble ilia grando taŭgos por miaj piedoj?” ŝi
 
 diris al Toto. “Ili estus tute ĝustaj por longa marŝado, ĉar
 
-ili ne triviĝus.” 
+ili ne triviĝus.”
 
 Ŝi deprenis siajn malnovajn ledajn ŝuojn kaj provis
 
-la arĝentajn, kiuj estis tute ĝustadimensiaj por ŝiaj piedoj, 
+la arĝentajn, kiuj estis tute ĝustadimensiaj por ŝiaj piedoj,
 
-kvazaŭ farite specife por ili. 
+kvazaŭ farite specife por ili.
 
-Laste, ŝi prenis sian korbon. 
+Laste, ŝi prenis sian korbon.
 
 “Venu, Toto,” ŝi diris. “Ni iros al la Smeralda Urbo
-
-!(images/000001.jpg)
-
 
 
 LA MIRINDA SORĈISTO DE OZ
 
-33
 
 kaj demandos al la Granda Oz kiel ni povos reiri al
 
-Kansas.” 
+Kansas.”
 
 Ŝi fermis la pordon, ŝlosis ĝin, kaj zorge metis la
 
 ŝlosilon en la poŝon de sia robo. Kaj tiel, dum Toto trot-
 
-adis sobre malantaŭ ŝi, ŝi komencis sian marŝadon. 
+adis sobre malantaŭ ŝi, ŝi komencis sian marŝadon.
 
 Pluraj vojoj estis proksimaj, sed ŝi ne bezonis lon-
 
-gan tempon por trovi la vojon pavimitan per flavaj brikoj. 
+gan tempon por trovi la vojon pavimitan per flavaj brikoj.
 
 Post nelonge ŝi marŝadis vigle direkte al la Smeralda
 
@@ -1300,7 +1166,7 @@ oni supozus pri malgranda knabino kiu estis subite for-
 
 blovita el sia propra lando kaj surterigita en la mezon de
 
-fremda lando. 
+fremda lando.
 
 Ŝin surprizis, dum ŝi marŝadis, vidi kiom bela estas la
 
@@ -1308,7 +1174,7 @@ pejzaĝo ĉirkaŭ ŝi. Bonaspektaj bariloj, pentritaj delikate
 
 blukolore, staris laŭlonge de la flankoj de la vojo, kaj pre-
 
-ter ili estis abundaj kampoj de greno kaj legomoj. 
+ter ili estis abundaj kampoj de greno kaj legomoj.
 
 Evidente la Manĝtuloj estis bonaj kultivistoj kaj sukcesis
 
@@ -1316,35 +1182,32 @@ kreskigi abundajn rikoltaĵojn. Kelkfoje ŝi marŝis preter
 
 domon, kaj la loĝantoj elvenis por rigardi ŝin kaj klinis sin
 
-malalten dum ŝi preteriris; 
+malalten dum ŝi preteriris;
 
 ĉar ĉiuj sciis ke ŝi estas la
 
-detruinto 
+detruinto
 
-de 
+de
 
-la 
+la
 
 Fia
 
-Sorĉistino kaj liberigis ilin. 
+Sorĉistino kaj liberigis ilin.
 
 La domoj de la Manĝtuloj
 
-estis kuriozaspektaj loĝejoj, 
+estis kuriozaspektaj loĝejoj,
 
 ĉar ĉiu estis ronda, kun
 
-
-
-34
 
 LA MIRINDA SORĈISTO DE OZ
 
 granda kupolforma tegmento. Ĉiuj estis blukoloraj, ĉar en
 
-ĉi tiu lando de la Oriento bluo estis la plej amata koloro. 
+ĉi tiu lando de la Oriento bluo estis la plej amata koloro.
 
 Kiam proksimiĝis la vespero, kaj Doroteo lacis pro
 
@@ -1360,7 +1223,7 @@ plej laŭte kaj la homoj ridadis kaj kantadis; granda apuda
 
 tablo estis plene kovrita per bongustegaj fruktoj kaj nuk-
 
-soj, tortoj kaj kukoj, kaj multaj aliaj bonaj manĝaĵoj. 
+soj, tortoj kaj kukoj, kaj multaj aliaj bonaj manĝaĵoj.
 
 Oni afable salutis Doroteon, kaj invitis ŝin manĝi
 
@@ -1370,53 +1233,49 @@ unu el la plej riĉaj Manĝtuloj en la lando, kaj liaj amikoj
 
 vizitis lin por festi sian liberiĝon el la sklavigo farita de la
 
-Fia Sorĉistino. 
+Fia Sorĉistino.
 
 Doroteo ĝissate manĝis kaj ŝin servis la riĉa
 
 Manĝtulo mem, kiu nomiĝis Boq. Post tio ŝi sidiĝis sur
 
-kanapon kaj rigardis dum la homoj dancadis. 
+kanapon kaj rigardis dum la homoj dancadis.
 
-Kiam Boq vidis ŝiajn arĝentajn ŝuojn li diris, 
+Kiam Boq vidis ŝiajn arĝentajn ŝuojn li diris,
 
-“Klare ke vi estas grava sorĉistino.” 
+“Klare ke vi estas grava sorĉistino.”
 
-“Kial?” demandis la knabino. 
+“Kial?” demandis la knabino.
 
 “Ĉar vi surhavas arĝentajn ŝuojn kaj mortigis la
 
 Fian Sorĉistinon. Krome, via robo estas parte blanka, kaj
 
-nur magiistinoj kaj sorĉistinoj vestas sin per blankaĵoj.” 
+nur magiistinoj kaj sorĉistinoj vestas sin per blankaĵoj.”
 
 “Mia robo estas blu- kaj blank-plejda,” diris Doro-
 
-teo, glatigante la ĉifojn en ĝi. 
+teo, glatigante la ĉifojn en ĝi.
 
 “Vi tre kompleze surportas ĝin,” diris Boq. “Bluo
 
 estas la koloro de la Manĝtuloj, kaj blanko estas la koloro
 
-!(images/000039.jpg)
-
-
 
 LA MIRINDA SORĈISTO DE OZ
 
-35
 
-de sorĉistinoj; tial ni scias ke vi estas amika sorĉistino.” 
+de sorĉistinoj; tial ni scias ke vi estas amika sorĉistino.”
 
 Doroteo ne sciis respondi, ĉar ĉiuj ŝajne opiniis ŝin
 
 sorĉistino, kaj ŝi tute bone sciis ke ŝi estas nur ordinara
 
-knabineto kiu tute hazarde estis portita de ciklono al 
+knabineto kiu tute hazarde estis portita de ciklono al
 
-fremda lando. 
+fremda lando.
 
-Kiam ŝi laciĝis pro tiom da rigardo al la dancado, 
+Kiam ŝi laciĝis pro tiom da rigardo al la dancado,
 
 Boq kondukis ŝin en la domon, kie li donis al ŝi
 
@@ -1424,7 +1283,7 @@ Boq kondukis ŝin en la domon, kie li donis al ŝi
 
 ŝtofo, kaj Doroteo profunde dormis inter ili ĝis la
 
-mateno, dum Toto kuŝadis sur la blua tapiŝo apud ŝi. 
+mateno, dum Toto kuŝadis sur la blua tapiŝo apud ŝi.
 
 Ŝi ĝissate manĝis, kaj rigardis etan
 
@@ -1436,11 +1295,11 @@ multe amuzis Doroteon. Toto estis vera kuri-
 
 ozaĵo laŭ la homoj tie, ĉar ili antaŭe neniam
 
-vidis hundon. 
+vidis hundon.
 
 “Kiom distanca estas la Smeralda
 
-Urbo?” la knabino demandis. 
+Urbo?” la knabino demandis.
 
 “Mi ne scias,” respondis Boq, tre se-
 
@@ -1465,18 +1324,15 @@ danĝerajn lokojn antaŭ ol
 
 
 
-
-36
-
 LA MIRINDA SORĈISTO DE OZ
 
-atingi la finon de via marŝado.” 
+atingi la finon de via marŝado.”
 
 Tio iomete timigis Doroteon, sed ŝi sciis ke nur la
 
 Granda Oz povos helpi ŝin reiri al Kansas, do ŝi kuraĝe
 
-decidis ne retroiri. 
+decidis ne retroiri.
 
 Ŝi adiaŭis siajn amikojn, kaj rekomencis marŝadi laŭ
 
@@ -1490,13 +1346,13 @@ kampo estis aliflanke de la barilo, kaj ŝi vidis ke ne tre
 
 distanca estas Birdotimigilo, metita alte sur stangon por
 
-forpeli la birdojn de la matura maizo. 
+forpeli la birdojn de la matura maizo.
 
 Doroteo apogis sian mentonon per mano kaj pen-
 
 seme rigardis la Birdotimigilon. Ĝia kapo estis malgranda
 
-sako plenigita per pajlo; surpentritaj sur ĝi estis okuloj, 
+sako plenigita per pajlo; surpentritaj sur ĝi estis okuloj,
 
 nazo, kaj buŝo, por simili vizaĝon. Malnova, pinta blua
 
@@ -1512,7 +1368,7 @@ botoj kun bluaj supraĵoj, kiajn portas ĉiu viro en tiu
 
 lando, kaj la figuro estis altigita super la maiztigojn per
 
-stango kiu estis puŝita en lian kolon. 
+stango kiu estis puŝita en lian kolon.
 
 Dum Doroteo rigardis atentoplene la kuriozan, pen-
 
@@ -1525,70 +1381,63 @@ supozis ke sendube ŝi eraris, ĉar neniam iu el la Birdo-
 timigiloj en Kansas palpebrumas; sed baldaŭ la figuro
 
 
-
 LA MIRINDA SORĈISTO DE OZ
 
-37
 
 amikeme skuetis sian kapon al ŝi. Tiam ŝi malsupren
 
 grimpis de la barilo kaj marŝis al la Birdotimigilo, dum
 
-Toto ĉirkaŭkuradis la stangon bojante. 
+Toto ĉirkaŭkuradis la stangon bojante.
 
 “Bonan tagon,” diris la Birdotimigilo, per iom raŭka
 
-voĉo. 
+voĉo.
 
-“Ĉu vi parolis?” demandis la knabino, mirante. 
+“Ĉu vi parolis?” demandis la knabino, mirante.
 
-“Certe,” respondis la Birdotimigilo; “kiel vi fartas?” 
+“Certe,” respondis la Birdotimigilo; “kiel vi fartas?”
 
-“Sufiĉe bone, dankon,” respondis Doroteo, ĝentile. 
+“Sufiĉe bone, dankon,” respondis Doroteo, ĝentile.
 
-“Kiel vi fartas?” 
+“Kiel vi fartas?”
 
-“Mi ne fartas bone,” diris la Birdotimigilo ridetante, 
+“Mi ne fartas bone,” diris la Birdotimigilo ridetante,
 
 “ĉar estas tre tede stari ĉi tie nokte kaj tage por fortimigi
 
-korvojn.” 
+korvojn.”
 
-“Ĉu vi ne povas malsupreniri?” demandis Doroteo. 
+“Ĉu vi ne povas malsupreniri?” demandis Doroteo.
 
-“Ne, ĉar ĉi tiu stango estas puŝita en mian dorson. 
+“Ne, ĉar ĉi tiu stango estas puŝita en mian dorson.
 
 Se vi bonvolos forpreni la stangon, mi estos multe dank-
 
-ema al vi.” 
+ema al vi.”
 
 Doroteo etendis ambaŭ brakojn kaj delevis la
 
 figuron de la stango; ĉar, estante plenigita per pajlo, ĝi
 
-estis malmultepeza. 
+estis malmultepeza.
 
 “Tre grandan dankon,” diris la Birdotimigilo, kiam
 
 li estis metita sur la teron. “Mi sentas min kvazaŭ vere
 
-novan.” 
+novan.”
 
 Doroteon perpleksigis aŭdi tion, ĉar ŝajnis al ŝi
 
 strange aŭdi viron plenigitan per pajlo paroli, kaj vidi lin
 
-riverenci kaj marŝadi apud ŝi. 
+riverenci kaj marŝadi apud ŝi.
 
 “Kiu vi estas?” demandis la Birdotimigilo, kiam li
 
-estis sin streĉinte kaj oscedinte. “Kaj kien vi iras?” 
+estis sin streĉinte kaj oscedinte. “Kaj kien vi iras?”
 
-!(images/000019.jpg)
-
-
-
-38
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -1596,21 +1445,21 @@ LA MIRINDA SORĈISTO DE OZ
 
 al la Smeralda Urbo, por peti la Grandan Ozon resendi
 
-min min al Kansas.” 
+min min al Kansas.”
 
 “Kie estas la Smeralda Urbo?” li demandis; “kaj kiu
 
-estas Oz?” 
+estas Oz?”
 
-“Ĉu vi ne scias?” ŝi respondis, surprizite. 
+“Ĉu vi ne scias?” ŝi respondis, surprizite.
 
 “Tute ne. Mi nenion scias. Komprenu, mi estas
 
 plenigita per pajlo, do al mi tute mankas cerbo,” li
 
-respondis malĝoje. 
+respondis malĝoje.
 
-“Ho,” diris Doroteo, “min multe bedaŭrigas tio.” 
+“Ho,” diris Doroteo, “min multe bedaŭrigas tio.”
 
 “Ĉu vi kredas,” li demandis, “Ke se mi iros al
 
@@ -1618,19 +1467,19 @@ la Smeralda Urbo kun vi, la granda
 
 Oz donos al mi iom da cerb-
 
-aĵo?” 
+aĵo?”
 
-“Mi ne scias,” ŝi respondis, 
+“Mi ne scias,” ŝi respondis,
 
-“sed vi rajtos akompani min, 
+“sed vi rajtos akompani min,
 
 se vi deziras. Se Oz
 
-ne 
+ne
 
-donos 
+donos
 
-al 
+al
 
 vi
 
@@ -1638,21 +1487,19 @@ cerbaĵojn, vi ne estos
 
 pli malbonfortuna ol
 
-vi estas nun.” 
+vi estas nun.”
 
-“Estas 
+“Estas
 
-vere,” 
+vere,”
 
 diris la Birdotimig-
 
 ilo. “Komprenu,” li
 
 
-
 LA MIRINDA SORĈISTO DE OZ
 
-39
 
 pludiris, iom sekreteme, “ne ĝenas min ke miaj kruroj kaj
 
@@ -1666,21 +1513,21 @@ puŝas pinglon en mi, ne gravas, ĉar mi ne povas sentas
 
 kapo restos plena de pajlo anstataŭ de cerbo, kian havas
 
-vi, kiel mi iom povos scii ion ajn?” 
+vi, kiel mi iom povos scii ion ajn?”
 
 “Mi komprenas vian senton,” diris la knabineto, kiu
 
 vere kunsentis kun li. “Se vi venos kun mi, mi petos al
 
-Oz ke li faru ĉion eblan por vi.” 
+Oz ke li faru ĉion eblan por vi.”
 
-“Dankon,” li respondis dankeme. 
+“Dankon,” li respondis dankeme.
 
 Ili reiris al la vojo, Doroteo helpis lin transgrimpi la
 
 barilon, kaj ili komencis marŝadi laŭ la vojo el flavaj
 
-brikoj cele la Smeraldan Urbon. 
+brikoj cele la Smeraldan Urbon.
 
 Al Toto ne plaĉis la nova akompananto, unue. Li
 
@@ -1688,60 +1535,46 @@ flaradis ĉirkaŭ la pajloplenigito kvazaŭ suspektante ke
 
 eble estas nesto de ratoj en la pajlo, kaj li ofte bojetis
 
-malamikeme kontraŭ la Birdotimigilon. 
+malamikeme kontraŭ la Birdotimigilon.
 
 “Ne vin ĝenu Toto,” diris Doroteo, al sia nova
 
-amiko; “li neniam mordas.” 
+amiko; “li neniam mordas.”
 
-“Ho, li ne timigas min,” respondis la Birdotimigilo. 
+“Ho, li ne timigas min,” respondis la Birdotimigilo.
 
 “Li ne povos damaĝi la pajlon. Permesu ke mi portu tiun
 
 korbon por vi. Ne ĝenos min, ĉar mi ne povas laciĝi. Mi
 
-diros al vi sekreton,” li pludiris, dum li kunmarŝadis. 
+diros al vi sekreton,” li pludiris, dum li kunmarŝadis.
 
-“Nur unu aferon en la tuta mondo mi timas.” 
+“Nur unu aferon en la tuta mondo mi timas.”
 
 “Kion?” demandis Doroteo; “ĉu la Manĝtulan kul-
 
-tiviston kiu faris vin?” 
+tiviston kiu faris vin?”
 
-
-
-40
 
 LA MIRINDA SORĈISTO DE OZ
 
-“Ne,” 
+“Ne,”
 
-respondis 
+respondis
 
-la 
+la
 
-Birdotimigilo; 
+Birdotimigilo;
 
 “flamanta
 
-alumeto.” 
+alumeto.”
 
-!(images/000152.jpg)
-
-* *
 
 *“Evidente vi estas grava Sorĉistino.” *
 
-!(images/000117.jpg)
-
-* *
 
 *Doroteo rigardis atentoplene la Birdotimigilon. *
-
-!(images/000125.jpg)
-
-!(images/000008.jpg)
-
 
 
 KELKAJ HO-
@@ -1762,7 +1595,7 @@ rompitaj aŭ tute mankis, tiel ke restis
 
 nur truoj kiujn Toto transsaltis kaj Doroteo ĉirkaŭ-
 
-marŝis. Sed la Birdotimigilo, pro manko de cerbo, 
+marŝis. Sed la Birdotimigilo, pro manko de cerbo,
 
 antaŭenmarŝis senpaŭze, kaj tial paŝis en la truojn kaj
 
@@ -1770,13 +1603,10 @@ sterniĝis sur la malmolajn brikojn. Tamen tio neniam
 
 vundis lin, kaj Doroteo relevis lin kaj restarigis lin sur
 
-la piedoj, dum li gaje ridis kun ŝi pro la akcidento. 
+la piedoj, dum li gaje ridis kun ŝi pro la akcidento.
 
 La kultivitaj kampoj tute ne estis tiel bone prizorgataj ĉi tie
 
-
-
-44
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -1786,7 +1616,7 @@ zorgataj ĉi tie kiel en la antaŭaj lokoj. Troviĝis malpli da
 
 domoj kaj malpli da fruktarboj, kaj ju pli ili marŝis, des
 
-pli senbela kaj solsentiga fariĝis la tereno. 
+pli senbela kaj solsentiga fariĝis la tereno.
 
 Je la tagmezo ili sidiĝis apud la vojo, proksime al
 
@@ -1794,7 +1624,7 @@ rivereto, kaj Doroteo malfermis sian korbon kaj elprenis
 
 panon. Ŝi proponis pecon al la Birdotimigilo, sed li
 
-rifuzis. 
+rifuzis.
 
 “Mi neniam malsatas,” li diris, “kaj estas oportune
 
@@ -1804,11 +1634,11 @@ tondus truon en ĝi por ke mi povu manĝi, la pajlo kiu
 
 plenigas min elfalus, kaj tio ruinigus la formon de mia
 
-kapo.” 
+kapo.”
 
 Doroteo tuj vidis ke tio estas vera, do ŝi nur kap-
 
-jesis kaj plu manĝis sian panon. 
+jesis kaj plu manĝis sian panon.
 
 “Rakontu al mi iom pri vi mem, kaj pri la lando el
 
@@ -1820,13 +1650,13 @@ griza estas ĉio tie, kaj kiel la ciklono portis ŝin al ĉi tiu
 
 kurioza Lando Oz. La Birdotimigilo atente aŭskultis, kaj
 
-diris, 
+diris,
 
 “Mi ne komprenas kial vi volas foriri el ĉiu tiu bela
 
 lando kaj reiri al la seka, griza loko kiun vi nomas
 
-Kansas.” 
+Kansas.”
 
 “Vi ne komprenas ĉar vi ne havas cerbon,” respon-
 
@@ -1835,16 +1665,14 @@ dis la knabino. “Ne grave kiom mizeraj kaj grizaj estas
 niaj hejmoj, ni karno- kaj sango-homoj preferas loĝi tie ol
 
 
-
 LA MIRINDA SORĈISTO DE OZ
 
-45
 
 en iu alia lando, negrave kiom bela. Nenio egale bonas
 
-kiel la hejmo.” 
+kiel la hejmo.”
 
-La Birdotimigilo ĝemis. 
+La Birdotimigilo ĝemis.
 
 “Kompreneble mi ne povas kompreni,” li diris. “Se
 
@@ -1854,19 +1682,19 @@ viaj kapoj estus plenaj de pajlo, kiel la mia, verŝajne vi
 
 en Kansas. Estas bonsorte por Kansas ke vi havas
 
-cerbon.” 
+cerbon.”
 
 “Bonvolu rakonti al mi, dum ni ripozas,” petis la
 
-infano. 
+infano.
 
-La Birdotimigilo rigardis ŝin riproĉe, kaj respondis, 
+La Birdotimigilo rigardis ŝin riproĉe, kaj respondis,
 
 “Mia vivo ĝis nun estis tiom mallonga ke efektive
 
 mi scias tute nenion. Mi fariĝis nur antaŭhieraŭ. Mi tute
 
-ne scias kio okazis en la mondo antaŭ tiam. Bonfortune, 
+ne scias kio okazis en la mondo antaŭ tiam. Bonfortune,
 
 kiam la kultivisto faris mian kapon, li unue pentris miajn
 
@@ -1874,15 +1702,15 @@ orelojn, tiel ke mi aŭdis kio okazas. Apudestis alia
 
 Manĝtulo, kaj kion mi unue aŭdis estis la parolo de la
 
-kultivisto, 
+kultivisto,
 
 “‘Ĉu plaĉas al vi la oreloj?’
 
-“‘Ili estas nerektaj,’ respondis la aliulo. 
+“‘Ili estas nerektaj,’ respondis la aliulo.
 
 “‘Ne gravas,’ diris la kultivisto; ‘ili tamen estas ore-
 
-loj,’ kio ja estis vera. 
+loj,’ kio ja estis vera.
 
 “‘Nun mi faros la okulojn,’ diris la kultivisto. Do li
 
@@ -1892,11 +1720,8 @@ mi trovis ke mi rigardas lin, kaj ĉion ĉirkaŭ mi, tre inter-
 
 esate, ĉar tiu estis la unua fojo kiam mi ekvidis la
 
-mondon. 
+mondon.
 
-
-
-46
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -1904,9 +1729,9 @@ LA MIRINDA SORĈISTO DE OZ
 
 estis rigardanta la kultiviston; ‘blua farbo bone taŭgas por
 
-okuloj.’ 
+okuloj.’
 
-“‘Mi pentros la alian pli granda,’ diris la kultivisto. 
+“‘Mi pentros la alian pli granda,’ diris la kultivisto.
 
 Kaj kiam la dua okulo estis finita mi povis multe pli
 
@@ -1920,11 +1745,11 @@ korpon kaj miajn brakojn kaj krurojn; kaj kiam ili fine
 
 surfiksis mian kapon, mi estis tre fiera, ĉar mi opiniis ke
 
-mi estas egale bona kiel ĉiu alia persono. 
+mi estas egale bona kiel ĉiu alia persono.
 
 “‘Ĉi tiu ulo rapide timigos la korvojn,’ diris la kul-
 
-tivisto. ‘Li aspektas vera homo.’ 
+tivisto. ‘Li aspektas vera homo.’
 
 “‘Nu, li ja estas homo,’ diris la aliulo, kaj mi plene
 
@@ -1934,7 +1759,7 @@ la maizkampo, kaj metis min sur altan stangon, kie vi
 
 trovis min. Li kaj lia amiko baldaŭ foriris kaj lasis min
 
-sola. 
+sola.
 
 “Al mi ne plaĉis esti tiel forlasita; do mi strebis
 
@@ -1954,17 +1779,12 @@ kredigis min ke mi estas tre grava persono. Post iom da
 
 tempo maljuna korvo flugis apud min, kaj zorge rigard-
 
-!(images/000070.jpg)
-
-
-
-48
 
 LA MIRINDA SORĈISTO DE OZ
 
 “Nu,” diris la knabino, “ni ekiru.” Kaj ŝi transdonis
 
-la korbon al la Birdotimigilo. 
+la korbon al la Birdotimigilo.
 
 Tute ne estis bariloj ĉe la vojoflankoj nun, kaj la
 
@@ -1978,23 +1798,23 @@ tiĝis super la vojo el flavaj brikoj. Estis preskaŭ senlume
 
 sub la arboj, ĉar la branĉoj fortenis la taglumon; sed la
 
-marŝantoj ne haltis, kaj pluiris en la arbaron. 
+marŝantoj ne haltis, kaj pluiris en la arbaron.
 
 “Se ĉi tiu vojo eniras, ĝi nepre eliros,” diris la
 
 Birdotimigilo, “kaj ĉar la Smeralda Urbo estas ĉe la alia
 
-finaĵo de la vojo, ni devas sekvi kien ajn ĝi kondukas.” 
+finaĵo de la vojo, ni devas sekvi kien ajn ĝi kondukas.”
 
-“Ĉiu scias tion,” diris Doroteo. 
+“Ĉiu scias tion,” diris Doroteo.
 
 “Certe; tial mi scias,” respondis la Birdotimigilo. “Se
 
-necesus havi cerbon por scii ĝin, mi ja ne dirus ĝin.” 
+necesus havi cerbon por scii ĝin, mi ja ne dirus ĝin.”
 
 Post eble horo la lumo malaperis, kaj ili trovis sin
 
-stumblantaj en la mallumo. Doroteo tute ne povis vidi, 
+stumblantaj en la mallumo. Doroteo tute ne povis vidi,
 
 sed Toto vidis, ĉar kelkaj hundoj tre bone vidas en la
 
@@ -2002,29 +1822,25 @@ mallumo; kaj la Birdotimigilo deklaris sin egale kapabla
 
 vidi kiel dum la tago. Do ŝi prenis lian brakon, kaj
 
-sukcesis marŝadi sufiĉe bone. 
+sukcesis marŝadi sufiĉe bone.
 
 “Se vi vidos domon, aŭ iun ajn lokon kie ni povos
 
 tradormi la nokton,” ŝi diris, “nepre informu min; ĉar
 
-estas tre malkomforte marŝadi en la mallumo.” 
+estas tre malkomforte marŝadi en la mallumo.”
 
-Baldaŭ la Birdotimigilo haltis. 
+Baldaŭ la Birdotimigilo haltis.
 
 “Mi vidas dometon dekstre de ni,” li diris, “konstru-
 
-itan el ŝtipoj kaj branĉoj. Ĉu ni iru tien?” 
-
-!(images/000059.jpg)
-
+itan el ŝtipoj kaj branĉoj. Ĉu ni iru tien?”
 
 
 LA MIRINDA SORĈISTO DE OZ
 
-49
 
-“Jes, ja;” respondis la infano. “Mi plene laciĝis.” 
+“Jes, ja;” respondis la infano. “Mi plene laciĝis.”
 
 Do la Birdotimigilo gvidis ŝin inter la arboj ĝis ili
 
@@ -2032,41 +1848,29 @@ aringis la dometon, kaj Doroteo eniris kaj trovis liton de
 
 sekaj folioj en unu angulo. Ŝi tuj kuŝiĝis, kaj kun Toto
 
-apud ŝi ŝi baldaŭ profunde endormiĝis. La Birdotimigilo, 
+apud ŝi ŝi baldaŭ profunde endormiĝis. La Birdotimigilo,
 
 kiu neniam laciĝis, staris en alia angulo kaj pacience
 
-atendis la mateniĝon. 
+atendis la mateniĝon.
 
-!(images/000051.jpg)
-
-* *
 
 *“‘Mi fariĝis nur hieraŭ,’ diris la Birdotimigilo. *
 
-!(images/000058.jpg)
-
-* *
 
 *“Ŝi kaptis orelon de Toto.” *
 
-!(images/000067.jpg)
 
-
-
-Ĉapitro V. 
+Ĉapitro V.
 
 Ili savas la
 
 Stanan Lignohakiston
 
-!(images/000075.jpg)
-
-
 
 DOROTEO
 
-vekiĝis, 
+vekiĝis,
 
 la
 
@@ -2082,29 +1886,26 @@ dojn kaj sciurojn. Ŝi sidiĝis kaj
 
 ilo, ankoraŭ staranta pacence en sia
 
-angulo, atendande ŝin. 
+angulo, atendande ŝin.
 
-“Ni nepre devas serĉi akvon,” ŝi diris al li. 
+“Ni nepre devas serĉi akvon,” ŝi diris al li.
 
-“Por kio vi volas akvon?” li demandis. 
+“Por kio vi volas akvon?” li demandis.
 
 “Por purigi mian vizaĝon post la polvo de la vojo, kaj
 
-por trinki, tiel ke la seka pano ne gluiĝos al mia gorĝo.” 
+por trinki, tiel ke la seka pano ne gluiĝos al mia gorĝo.”
 
 “Certe estas ĝene konsisti el karno,” diris la Birdo-
 
-timigilo, penseme, “ĉar vi devas dormi, kaj manĝi kaj trinki. 
+timigilo, penseme, “ĉar vi devas dormi, kaj manĝi kaj trinki.
 
 
-
-54
-
-LA MIRINDA SORĈISTO DE OZ, 
+LA MIRINDA SORĈISTO DE OZ,
 
 Tamen, vi havas cerbon, kaj la kapablo pensadi valoras
 
-multajn ĝenojn.” 
+multajn ĝenojn.”
 
 Ili eliris el la dometo kaj promenis inter la arboj ĝis
 
@@ -2116,19 +1917,19 @@ tas multa pano en la korbo, kaj la knabino estis dankema
 
 ke la Birdotimigilo ne bezonas manĝi, ĉar apenaŭ estis
 
-sufiĉe por ŝi kaj por Toto por tiu tago. 
+sufiĉe por ŝi kaj por Toto por tiu tago.
 
 Kiam ŝi estis fininta sian manĝon, kaj estis preta
 
 reiri al la vojo el flavaj brikoj, ŝin alarmetis proksima
 
-sono de profunda ĝemo. 
+sono de profunda ĝemo.
 
-“Kio sonis?” ŝi demandis, time. 
+“Kio sonis?” ŝi demandis, time.
 
 “Mi tute ne povas konjekti,” respondis la Birdo-
 
-timigilo; “sed ni povas aliri kaj vidi.” 
+timigilo; “sed ni povas aliri kaj vidi.”
 
 Ĝuste tiam la sono de nova ĝemo atingis iliajn ore-
 
@@ -2136,45 +1937,40 @@ lojn, kaj la sono ŝajne venis el malantaŭ ili. Ili turnis sin
 
 kaj marŝis kelkajn paŝojn tra la arbaro, kaj tiam Doroteo
 
-ekvidis ion brilantan en sunradio kiu falis inter la arbojn. 
+ekvidis ion brilantan en sunradio kiu falis inter la arbojn.
 
 Ŝi kuris al tiu loko, kaj poste ŝi ekhaltis, kun krio
 
-pro surpriziĝo. 
+pro surpriziĝo.
 
 Unu el la grandaj arboj estis parte trahakita, kaj
 
-staranta apud ĝi, tenante hakilon levitan en liaj manoj, 
+staranta apud ĝi, tenante hakilon levitan en liaj manoj,
 
 estis viro konsistanta plene el stano. Liaj kapo kaj brakoj
 
 kaj kruroj estis artikigitaj al lia korpo, sed li staris tute
 
-senmove, kvazaŭ tute ne kapabla sin movi. 
+senmove, kvazaŭ tute ne kapabla sin movi.
 
-Doroteo rigardis lin mirege, ankaŭ la Birdotimigilo, 
+Doroteo rigardis lin mirege, ankaŭ la Birdotimigilo,
 
 dum Toto akre bojadis kaj provis mordi la stanajn kru-
 
-!(images/000104.jpg)
 
+LA MIRINDA SORĈISTO DE OZ,
 
-
-56
-
-LA MIRINDA SORĈISTO DE OZ, 
-
-turni ĝin. 
+turni ĝin.
 
 “Nun oleu la artikojn de miaj brakoj,” li diris. Kaj
 
 Doroteo oleis ilin kaj la Birdotimigilo zorge fleksis ilin ĝis
 
-ili estis tute liberaj de rusto kaj bonaj kiel novaj. 
+ili estis tute liberaj de rusto kaj bonaj kiel novaj.
 
 La Stana Lignohakisto kontente ĝemetis kaj mal-
 
-levis sian hakilon, kiun li apogis per arbo. 
+levis sian hakilon, kiun li apogis per arbo.
 
 “Tio multe komfortigas,” li diris. “Mi tenadis tiun
 
@@ -2182,55 +1978,53 @@ hakilon en la aero ekde kiam mi rustiĝis, kaj kontentigas
 
 min formeti ĝin finfine. Nun, se vi bonvolos olei la
 
-artikojn de miaj kruroj, mi denove estos normala.” 
+artikojn de miaj kruroj, mi denove estos normala.”
 
-Do ili oleis liajn krurojn ĝis li povis libere movi ilin; 
+Do ili oleis liajn krurojn ĝis li povis libere movi ilin;
 
 kaj li multfoje dankis ilin pro sia liberiĝo, ĉar li ŝajnis tre
 
-ĝentila, kaj tre dankema. 
+ĝentila, kaj tre dankema.
 
 “Mi eble starus tie por ĉiam se vi ne estus alven-
 
 inta,” li diris; “do certe vi savis mian vivon. Kial vi
 
-hazarde venis ĉi tien?” 
+hazarde venis ĉi tien?”
 
 “Ni estas survoje al la Smeralda Urbo, por renkonti
 
 la Grandan Ozon,” ŝi respondis, “kaj ni haltis ĉe via
 
-dometo por tie tradormi la nokton.” 
+dometo por tie tradormi la nokton.”
 
-“Kial vi volas renkonti Ozon?” li demandis. 
+“Kial vi volas renkonti Ozon?” li demandis.
 
 “Mi volas ke li resendu min al Kansas, kaj la Birdo-
 
 timigilo volas ke li metu iom da cerbo en lian kapon,” ŝi
 
-respondis. 
+respondis.
 
 La Stana Lignohakisto ŝajnis profunde pensadi dum
 
-momento. Post tio li diris: 
+momento. Post tio li diris:
 
-“Ĉu vi supozas ke Oz povus doni al mi koron?” 
+“Ĉu vi supozas ke Oz povus doni al mi koron?”
 
 “Nu, mi supozas ke jes,” Doroteo respondis. “Estus
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-57
-
-egale facile kiel doni al la Birdotimigilo cerbon.” 
+egale facile kiel doni al la Birdotimigilo cerbon.”
 
 “Vere,” la Stana Lignokahisto respondis, “Do, se vi
 
 permesos ke mi akompanu vin, ankaŭ mi iros al la Smer-
 
-alda Urbo por peti ke Oz helpu min.” 
+alda Urbo por peti ke Oz helpu min.”
 
 “Kunvenu,” diris la Birdotimigilo elkore, kaj Doro-
 
@@ -2240,13 +2034,13 @@ akompananton. Do la Stana Lignohakisto surŝultrigis sian
 
 hakilon kaj ĉiuj marŝis tra la arbaro ĝis ili atingis la
 
-vojon pavimitan per flavaj brikoj. 
+vojon pavimitan per flavaj brikoj.
 
 La Stana Lignohakisto jam petis ke Doroteo metu la
 
 oleujon en sian korbon. “Ĉar,” li diris, “se pluvos sur min
 
-kaj mi denove rustos, mi bezonegos la oleujon.” 
+kaj mi denove rustos, mi bezonegos la oleujon.”
 
 Estis bonsorte ke la nova kamarado fariĝis parto de
 
@@ -2258,7 +2052,7 @@ vojo ke ili ne povis tramarŝi. Sed la Stana Lignohakisto
 
 eklaboris per sia hakilo kaj hakis tiom bone ke baldaŭ li
 
-faris trairejon por la tuta grupo. 
+faris trairejon por la tuta grupo.
 
 Doroteo pensadis tiom profunde dum ili marŝis ke
 
@@ -2266,53 +2060,47 @@ Doroteo pensadis tiom profunde dum ili marŝis ke
 
 ruliĝis al la flanko de la vojo. Efektive li devis voki ŝin
 
-por ke ŝi helpu lin restariĝi. 
+por ke ŝi helpu lin restariĝi.
 
 “Kial vi ne ĉirkaŭmarŝis la truon?” demandis la
 
-Stana Lignohakisto. 
+Stana Lignohakisto.
 
 “Mi ne scias tion fari,” respondis la Birdotimigilo
 
 gaje. “Mia kapo pleniĝis per pajlo, komprenu, kaj tial mi
 
-iras al Oz por peti de li cerbon.” 
-
-!(images/000091.jpg)
+iras al Oz por peti de li cerbon.”
 
 
+LA MIRINDA SORĈISTO DE OZ,
 
-58
 
-LA MIRINDA SORĈISTO DE OZ, 
+LA MIRINDA SORĈISTO DE OZ.
 
-58
+“Mi komprenas,” diris la Stana Lignohakisto. “Sed,
 
-LA MIRINDA SORĈISTO DE OZ. 
+malgraŭe, cerbo ne estas la plej bona afero en la mondo.”
 
-“Mi komprenas,” diris la Stana Lignohakisto. “Sed, 
-
-malgraŭe, cerbo ne estas la plej bona afero en la mondo.” 
-
-“Ĉu vi havas cerbon?” demandis la Birdotimigilo. 
+“Ĉu vi havas cerbon?” demandis la Birdotimigilo.
 
 “Ne, mia kapo estas tute malplena,” respondis la
 
-Hakisto. “Sed iam mi havis cerbon, kaj ankaŭ koron; do, 
+Hakisto. “Sed iam mi havis cerbon, kaj ankaŭ koron; do,
 
-provinte ambaŭ, mi multe preferus havi koron.” 
+provinte ambaŭ, mi multe preferus havi koron.”
 
-“Kial?” demandis la Birdotimigilo. 
+“Kial?” demandis la Birdotimigilo.
 
-“Mi rakontos al vi mian historion, kaj tiel vi scios.” 
+“Mi rakontos al vi mian historion, kaj tiel vi scios.”
 
 Do, dum ili marŝadis tra la arbaro, la Stana Ligno-
 
-hakisto rakontis tion: 
+hakisto rakontis tion:
 
 “Mi naskiĝis filo de hakisto kiu hakadis la arbojn en
 
-la arbaro kaj vendis la lignon por gajni sian vivmonon. 
+la arbaro kaj vendis la lignon por gajni sian vivmonon.
 
 Kiam mi plenkreskis ankaŭ mi fariĝis lignohakisto, kaj
 
@@ -2322,7 +2110,7 @@ patrinon dum ŝia cetera vivo. Post tio mi decidis ke
 
 anstataŭ loĝi sola mi edziĝos, por ke min ne plenigu
 
-sento de soleco. 
+sento de soleco.
 
 “Unu Manĝtula knabino estis tiom bela ke mi
 
@@ -2339,10 +2127,8 @@ ke ŝi edziniĝu kun iu ajn, ĉar
 ŝi estis tiom mallaborema ke ŝi
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-59
 
 knabino restu kun ŝi kaj kuiradu kaj mastrumadu. Do la
 
@@ -2358,13 +2144,13 @@ mi hakadis laŭeble plej forte, ĉar mi fervoris akiri la
 
 novan domon kaj mian edzinon kiel eble plej baldaŭ, la
 
-hakilo ekglitis kaj detranĉis mian maldekstran kruron. 
+hakilo ekglitis kaj detranĉis mian maldekstran kruron.
 
 “Unuavide tio ŝajnis granda misfortuno, ĉar mi sciis
 
 ke unukrurulo ne multe sukcesus kiel lignohakisto. Do
 
-mi iris al stanisto kaj mendis de li novan kruron el stano. 
+mi iris al stanisto kaj mendis de li novan kruron el stano.
 
 La kruro funkciis tre bone, kiam mi kutimiĝis al ĝi; sed
 
@@ -2378,7 +2164,7 @@ ilo ekglitis kaj detranĉis mian dekstran kruron. Denove
 
 mi iris al la stanisto, kaj li denove faris por mi kruron el
 
-stano. Post tio la sorĉita hakilo detranĉis miajn brakojn, 
+stano. Post tio la sorĉita hakilo detranĉis miajn brakojn,
 
 unu post la alia; sed, ne malkuraĝigite, mi anstataŭigis
 
@@ -2386,9 +2172,9 @@ ilin per stanaj. Post tio la Fia Sorĉistino glitigis mian
 
 hakilon tiel ke ĝi detranĉis mian kapon, kaj unue mi kre-
 
-dis ke tiel mi vere finiĝis. Sed hazarde la stanisto venis, 
+dis ke tiel mi vere finiĝis. Sed hazarde la stanisto venis,
 
-kaj li faris por mi novan kapon el stano. 
+kaj li faris por mi novan kapon el stano.
 
 “Mi kredis ke mi fine venkis la Fian Sorĉistinon
 
@@ -2398,13 +2184,8 @@ kruela estas mia malamikino. Ŝi elpensis novan metodon
 
 mortigi mian amon al la Manĝtula knabino, kaj denove ŝi
 
-!(images/000112.jpg)
 
-
-
-60
-
-LA MIRINDA SORĈISTO DE OZ, 
+LA MIRINDA SORĈISTO DE OZ,
 
 glitigis mian hakilon, tiel ke ĝi hakis rekte tra mian kor-
 
@@ -2414,15 +2195,15 @@ kaj faris por mi korpon el stano, kaj fiksis al ĝi miajn
 
 stanajn brakojn kaj krurojn kaj kapon, per artikoj, tiel
 
-ke mi povis moviĝadi sambone kiel en la komenco. Sed, 
+ke mi povis moviĝadi sambone kiel en la komenco. Sed,
 
-ve\! Mi nun ne havis koron, do mi perdis mian tutan
+ve! Mi nun ne havis koron, do mi perdis mian tutan
 
 amon al la Manĝtula knabino, kaj ne gravis al mi ĉu aŭ
 
 ne mi edziĝos kun ŝi. Mi supozas ke ŝi plu loĝas kun la
 
-maljunulino, atendante ke mi venos preni ŝin. 
+maljunulino, atendante ke mi venos preni ŝin.
 
 “Mia korpo tiom brilis en la sunlumo ke mi multe
 
@@ -2432,9 +2213,9 @@ fieris pro ĝi, kaj nun ne gravis ĉu mia hakilo glitos, ĉar
 
 miaj artikoj rustos; sed mi gardis oleujon en mia dom-
 
-eto kaj zorgis olei min kiam ajn mi bezonis. Tamen, 
+eto kaj zorgis olei min kiam ajn mi bezonis. Tamen,
 
-unu tagon mi forgesis fari tion, kaj, estante en pluvego, 
+unu tagon mi forgesis fari tion, kaj, estante en pluvego,
 
 antaŭ ol mi konceptis la danĝe-
 
@@ -2460,41 +2241,35 @@ sono sur la tero; sed neniu
 
 povas ami sen koro, do mi
 
-!(images/000032.jpg)
 
-
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
-61
-
-61
 
 firme intencas iri al Oz por peti de li koron. Se li
 
 donos al mi, mi reiros al la Manĝtula knabino kaj edz-
 
-iĝos kun ŝi.” 
+iĝos kun ŝi.”
 
 Kaj Doroteon kaj la Birdotimigilon multe interesis
 
 la rakonto de la Stana Lignohakisto, kaj nun ili kompre-
 
-nis kial li tiom fervoras akiri novan koron. 
+nis kial li tiom fervoras akiri novan koron.
 
-“Tamen,” diris la Birdotimigilo, “mi petos cerbon, 
+“Tamen,” diris la Birdotimigilo, “mi petos cerbon,
 
 ne koron; ĉar malsaĝulo ne scius kion fari per koro se li
 
-havus ĝin.” 
+havus ĝin.”
 
 “Mi prenos koron,” respondis la Stana Lignohak-
 
 isto, “ĉar cerbo ne feliĉigas, kaj feliĉo estas la plej grava
 
-afero en la mondo.” 
+afero en la mondo.”
 
 Doroteo nenion diris, ĉar ŝi ne povis decidi kiu el
 
@@ -2506,15 +2281,15 @@ gravos ĉu la Stana Lignohakisto havas cer-
 
 bon kaj la Birdotimigilo koron, aŭ ĉu ĉiu
 
-el ili akiris sian deziraĵon. 
+el ili akiris sian deziraĵon.
 
 Kio plej ĝenis ŝin estis ke la pano
 
-estis preskaŭ plene manĝita, 
+estis preskaŭ plene manĝita,
 
 kaj nova manĝo por ŝi kaj
 
-Toto malplenigos la korbon. 
+Toto malplenigos la korbon.
 
 Estis vere ke nek la Stana
 
@@ -2524,26 +2299,17 @@ igilo kapablis manĝi, sed ŝi ne
 
 konsistis el stano aŭ pajlo, kaj
 
-ne povis vivi sen manĝo. 
-
-!(images/000151.jpg)
+ne povis vivi sen manĝo.
 
 
-
-“‘Tio multe komfortigas,’” diris la Stana Lignohakisto. 
-
-!(images/000085.jpg)
+“‘Tio multe komfortigas,’” diris la Stana Lignohakisto.
 
 
-
-Ĉapitro VI. 
+Ĉapitro VI.
 
 La Malkuraĝa
 
-Leono. 
-
-!(images/000093.jpg)
-
+Leono.
 
 
 nkoraŭDORO
@@ -2560,7 +2326,7 @@ pavimita per flavaj brikoj, sed ili estis multe kovritaj de
 
 sekaj branĉoj kaj mortaj folioj de la arboj, kaj la marŝado
 
-tute ne estis facila. 
+tute ne estis facila.
 
 Malmultaj birdoj estis en tiu parto de la arbaro, ĉar
 
@@ -2571,24 +2337,21 @@ lumo; sed fojfoje aŭdiĝis malaltatona muĝo de iu sovaĝa
 besto kaŝiĝinta inter la arboj. Tiuj sonoj rapidbatigis la
 
 
-
-66
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 koron de la knabineto, ĉar ŝi ne sciis ilian kaŭzon; sed
 
 Toto sciis, kaj li marŝis proksime al la flanko de Doroteo
 
-kaj eĉ ne bojis responde. 
+kaj eĉ ne bojis responde.
 
 “Kiom longe daŭros,” la infano demandis al la
 
-Stana Lignohakisto, “ĝis ni estos ekster la arbaro?” 
+Stana Lignohakisto, “ĝis ni estos ekster la arbaro?”
 
 “Mi ne scias,” estis la respondo, “ĉar mi neniam
 
-estis en la Smeralda Urbo. Sed mia patro iris tien iam, 
+estis en la Smeralda Urbo. Sed mia patro iris tien iam,
 
 kiam mi estis knabo, kaj li diris ke la vojo estas longa tra
 
@@ -2596,19 +2359,19 @@ danĝera tereno, kvankam proksime al la urbo kie Oz
 
 loĝas la lando estas bela. Sed mi ne timas dum mi havas
 
-mian oleujon, kaj nenio povas damaĝi la Birdotimigilon, 
+mian oleujon, kaj nenio povas damaĝi la Birdotimigilon,
 
 kaj sur via frunto estas la marko de la kiso de la bona
 
-Sorĉistino, kaj tio protektos vin.” 
+Sorĉistino, kaj tio protektos vin.”
 
-“Sed Toto\!” diris la knabino malkviete; “kio protek-
+“Sed Toto!” diris la knabino malkviete; “kio protek-
 
-tos lin?” 
+tos lin?”
 
-“Ni mem devos protekti lin, se estos danĝero por li,” 
+“Ni mem devos protekti lin, se estos danĝero por li,”
 
-respondis la Stana Lignohakisto. 
+respondis la Stana Lignohakisto.
 
 Tuj kiam li parolis, aŭdiĝis terura muĝo el la
 
@@ -2618,71 +2381,69 @@ la vojon. Per unu piedbato li ĵetis la Birdotimigilon
 
 ĉirkaŭturniĝantan ĝis la rando de la vojo, kaj post tio li
 
-frapegis la Stanan Lignohakiston per siaj akraj ungoj. 
+frapegis la Stanan Lignohakiston per siaj akraj ungoj.
 
 Sed, surprize al si, li ne damaĝis la stanon, kvankam la
 
-Hakisto falis sur la vojon kaj kuŝis senmove. 
+Hakisto falis sur la vojon kaj kuŝis senmove.
 
-Malgranda Toto, ĉar nun estis videbla malamiko, 
+Malgranda Toto, ĉar nun estis videbla malamiko,
 
 kuris bojante al la Leono, kaj la granda besto malfermis
 
 sian buŝon por mordi la hundon. Doroteo, timante ke
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-67
 
 Toto mortos, kaj sen atento al danĝero, kuris antaŭen kaj
 
 frapis la nazon de la Leono kiel eble plej forte, dum ŝi
 
-kriis: 
+kriis:
 
-“Vi ne aŭdacu mordi Toton\! Vi devus honti, granda
+“Vi ne aŭdacu mordi Toton! Vi devus honti, granda
 
-besto kia vi, mordi povran malgrandan hundon\!” 
+besto kia vi, mordi povran malgrandan hundon!”
 
 “Mi ne mordis lin,” diris la Leono, per sia piedo
 
-frotante la parton de la nazo kiun frapis Doroteo. 
+frotante la parton de la nazo kiun frapis Doroteo.
 
 “Ne, sed vi provis,” ŝi respondis kolere. “Vi estas
 
-nur granda malkuraĝulo\!” 
+nur granda malkuraĝulo!”
 
 “Mi scias,” diris la Leono, klinante la kapon pro
 
 honto. “Mi de ĉiam scias. Sed kiel mi povas ne esti
 
-malkuraĝa” 
+malkuraĝa”
 
 “Nu mi certe ne scias. Kaj vi batis pajloplenan
 
-homon, la povran Birdotimigilon\!” 
+homon, la povran Birdotimigilon!”
 
 “Ĉu li estas plenigita per pajlo?” demandis la Leono
 
 surprizite, dum li rigardis ŝin levi la Birdotimigilon kaj
 
-restarigi lin sur liaj piedoj kaj reĝustigi lian formon. 
+restarigi lin sur liaj piedoj kaj reĝustigi lian formon.
 
 “Kompreneble li estas plena de pajlo,” respondis
 
 Doroteo, kiu ankoraŭ koleris. “
 
-Tial li renversiĝis tiom facile,” komentis la Leono. 
+Tial li renversiĝis tiom facile,” komentis la Leono.
 
 “Min mirigis vidi lin ĉirkaŭturniĝi tiel. Ĉu ankaŭ la alia
 
-estas pajloplena?” 
+estas pajloplena?”
 
 “Ne,” diris Doroteo, “li konsistas el stano.” Kaj ŝi
 
-helpis la Hakiston restariĝi. 
+helpis la Hakiston restariĝi.
 
 “Tial li preskaŭ malakrigis miajn ungojn,” diris la
 
@@ -2690,41 +2451,36 @@ Leono. “Kiam ili komencis grati la stanon mi sentis mal-
 
 varmon suben kuri laŭ mia dorso. Kiu estas tiu
 
-!(images/000135.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
+malgranda besto kiun vi tiom amas?”
 
-68
+“Li estas mia hundo, Toto,” respondis Doroteo.
 
-LA MIRINDA SORĈISTO DE OZ. 
+“Ĉu li konsistas el stano aŭ estas plena de pajlo?”
 
-malgranda besto kiun vi tiom amas?” 
-
-“Li estas mia hundo, Toto,” respondis Doroteo. 
-
-“Ĉu li konsistas el stano aŭ estas plena de pajlo?” 
-
-demandis la Leono. 
+demandis la Leono.
 
 “Nek stano nek pajlo. Li estas — estas — viando-
 
-hundo.” 
+hundo.”
 
-Ho\! Li estas kurioza besto, kaj aspektas ege mal-
+Ho! Li estas kurioza besto, kaj aspektas ege mal-
 
 granda, kiam mi nun rigardas lin. Neniu alia volus
 
 mordi tian etulon, nur malkuraĝa mi,” pludiris la
 
-Leono malgaje. 
+Leono malgaje.
 
 “Kio malkuraĝigis vin?” demandis Doroteo, miro-
 
 plene rigardante la grandan beston, ĉar li
 
-estis granda kiel malgranda ĉevalo. 
+estis granda kiel malgranda ĉevalo.
 
-“Estas mistero,” respondis la Leono. 
+“Estas mistero,” respondis la Leono.
 
 “Mi supozas ke mi naskiĝis
 
@@ -2753,20 +2509,18 @@ kaj la tigroj kaj la ursoj decidus
 batali kontraŭ min, mi mem forku-
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-69
 
 rus — tiom malkuraĝa mi estas; sed tuj kiam ili aŭdas
 
 min muĝegi ili ĉiuj penas foriri de mi, kaj kompreneble
 
-mi akceptas tion.” 
+mi akceptas tion.”
 
 “Sed tio estas malĝusta. La Reĝo de Bestoj ne estu
 
-malkuraĝa,” diris la Birdotimigilo. 
+malkuraĝa,” diris la Birdotimigilo.
 
 “Mi scias tion,” respondis la Leono, viŝante larmon
 
@@ -2774,67 +2528,64 @@ de sia okulo per la pinto de sia vosto. “Tio multege
 
 malĝojigas min, kaj tre malfeliĉigas mian vivon. Sed kiam
 
-ajn estas danĝero, mia koro komencas rapide bati.” 
+ajn estas danĝero, mia koro komencas rapide bati.”
 
 “Eble vi suferas pro kormalsano,” diris la Stana
 
-Lignohakisto. 
+Lignohakisto.
 
-“Eble,” diris la Leono. 
+“Eble,” diris la Leono.
 
 “Se tiel,” pludiris la Stana Lignohakisto, “ĝoju, ĉar
 
 tio pruvas ke vi havas koron. Rilate al mi, mi ne havas
 
-koron, do mi ne povas suferi pro kormalsano.” 
+koron, do mi ne povas suferi pro kormalsano.”
 
 “Eble,” diris la Leono penseme, “se mi ne havus
 
-koron al mi ne mankus kuraĝo.” 
+koron al mi ne mankus kuraĝo.”
 
-“Ĉu vi havas cerbon?” demandis la Birdotimigilo. 
+“Ĉu vi havas cerbon?” demandis la Birdotimigilo.
 
 “Mi supozas ke jes. Mi neniam rigardis en mian
 
-kapon por informiĝi,” respondis la Leono. 
+kapon por informiĝi,” respondis la Leono.
 
 “Mi iras al la Granda Oz por peti lin doni al mi
 
 cerbon,” komentis la Birdotimigilo, “ĉar mia kapo estas
 
-plena de pajlo.” 
+plena de pajlo.”
 
 “Kaj mi iras por peti lin doni al mi koron,” diris la
 
-Stana Lignohakisto. 
+Stana Lignohakisto.
 
 “Kaj mi iras por peti lin resendi Toton kaj min al
 
-Kansas,” aldonis Doroteo. 
+Kansas,” aldonis Doroteo.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-70
+“Ĉu vi kredas ke Oz povus doni al mi kuraĝon?”
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-“Ĉu vi kredas ke Oz povus doni al mi kuraĝon?” 
-
-demandis la Malkuraĝa Leono. 
+demandis la Malkuraĝa Leono.
 
 “Egalfacile kiel doni al mi cerbon,” diris la
 
-Birdotimigilo. 
+Birdotimigilo.
 
-“Aŭ doni al mi koron,” diris la Stana Lignohakisto. 
+“Aŭ doni al mi koron,” diris la Stana Lignohakisto.
 
-“Aŭ resendi min al Kansas,” diris Doroteo. 
+“Aŭ resendi min al Kansas,” diris Doroteo.
 
 “Do, se vi konsentos, mi akompanos vin,” diris la
 
 Leono, “ĉar mia vivo estas netolerebla sen iom da
 
-kuraĝo.” 
+kuraĝo.”
 
 “Vi estos tre bonvena,” respondis Doroteo, “ĉar vi
 
@@ -2842,13 +2593,13 @@ helpos forteni la aliajn sovaĝajn bestojn. Ŝajnas al mi ke
 
 ili nepre estas pli malkuraĝaj ol vi se ili lasas vin tiom
 
-facile timigi ilin.” 
+facile timigi ilin.”
 
 “Efektive tiel estas,” diris la Leono; “sed tio ne
 
 plikuraĝigas min, kaj dum mi scios ke mi estas
 
-malkuraĝa mi restos malfeliĉa.” 
+malkuraĝa mi restos malfeliĉa.”
 
 Do denove la malgranda grupo rekomencis sian
 
@@ -2862,23 +2613,19 @@ zeloj de la Leono; sed post iom da tempo li
 
 plitrankviliĝis, kaj baldaŭ Toto kaj la Malkuraĝa Leono
 
-fariĝis bonaj amikoj. 
+fariĝis bonaj amikoj.
 
 Dum la cetero de tiu tago okazis neniu alia aven-
 
-turo kiu ĝenis la pacon de la marŝado. Estas vere ke, 
+turo kiu ĝenis la pacon de la marŝado. Estas vere ke,
 
 unufoje, la Stana Lignohakisto paŝis sur skarabon kiu
 
 rampadis laŭ la vojo, kaj mortigis la povran besteton. Tio
 
-!(images/000015.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-71
 
 multe
 
@@ -2890,7 +2637,7 @@ marŝis li ploris plurajn larmojn pro malĝojo kaj
 
 bedaŭro. Tiuj larmoj fluis malrapide sur lia vizaĝo kaj
 
-trans la ĉarnirojn de lia makzelo, kaj tie ili rustiĝis. 
+trans la ĉarnirojn de lia makzelo, kaj tie ili rustiĝis.
 
 Kiam Doroteo post nelonge demandis ion al li, la Stana
 
@@ -2910,7 +2657,7 @@ kaj oleis la makzelojn de la Stana
 
 Lignohakisto, kaj post kelkaj mo-
 
-mentoj li parolis same kiel antaŭe. 
+mentoj li parolis same kiel antaŭe.
 
 Mi lernu per tio,” diris
 
@@ -2920,7 +2667,7 @@ paŝas. Ĉar se mi mortigus
 
 alian insekton aŭ skarabon
 
-mi 
+mi
 
 nepre
 
@@ -2930,7 +2677,7 @@ rus, kaj plo-
 
 rado rustig-
 
-as 
+as
 
 miajn
 
@@ -2938,17 +2685,14 @@ makzelojn
 
 tiel ke mi
 
-ne 
+ne
 
 povas
 
-paroli.” 
+paroli.”
 
 
-
-72
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Post tio li zorge marŝadis rigardante konstante la
 
@@ -2958,7 +2702,7 @@ li superpaŝis por ne damaĝi ĝin. La Stana Lignohakisto
 
 bone sciis ke li ne havas koron, kaj tial li tre zorgis
 
-neniam esti kruela aŭ malafabla kontraŭ io ajn. 
+neniam esti kruela aŭ malafabla kontraŭ io ajn.
 
 “Vi, kiuj estas homoj kun koroj,” li diris, “havas gvi-
 
@@ -2966,33 +2710,25 @@ dilon, kaj tial ne necesas agi maljuste; sed mi ne havas
 
 koron, do mi devas esti tre zorgema. Kiam Oz donos al
 
-mi koron, kompreneble mi ne bezonos tiom zorgi.” 
-
-!(images/000118.jpg)
+mi koron, kompreneble mi ne bezonos tiom zorgi.”
 
 
-
-Ĉapitro VII. 
+Ĉapitro VII.
 
 La vojo al la
 
-Granda Oz. 
-
-!(images/000028.jpg)
-
-
-
+Granda Oz.
 
 
 DEVIS kampadi sub granda
 
-arbo en la arbaro, tiunokte, 
+arbo en la arbaro, tiunokte,
 
-ĉar ne estis domoj proksime. 
+ĉar ne estis domoj proksime.
 
 li La arbo estis bona, dika
 
-kovrilo protektanta ilin kon-
+kovrilo protektanta iln-
 
 I traŭ laroso. La Stana
 
@@ -3006,31 +2742,25 @@ kaj Doroteo pretigis belegan varmigan fajron kiu helpis
 
 panerojn, kaj nun ŝi ne sciis kion ili manĝos en la
 
-mateno. 
+mateno.
 
 “Se vi volas,” diris la Leono, “mi eniros la arbaron
 
-!(images/000124.jpg)
 
-
-
-76
-
-LA MIRINDA SORĈISTO DE OZ. 
-
+LA MIRINDA SORĈISTO DE OZ.
 
 
 kaj mortigos cervon por vi. Vi povos rosti ĝin per la
 
 fajro, ĉar via gusto estas tiom stranga ke vi preferas kuir-
 
-itaĵojn, kaj tiel vi havos bonan matenmanĝon.” 
+itaĵojn, kaj tiel vi havos bonan matenmanĝon.”
 
-“Ne\! Bonvolu, ne\!” pledis la Stana Lignohakisto. 
+“Ne! Bonvolu, ne!” pledis la Stana Lignohakisto.
 
 “Mi nepre plorus se vi mortigus povran cervon, kaj miaj
 
-makzeloj denove rustiĝus.” 
+makzeloj denove rustiĝus.”
 
 Sed la Leono foriris en la arbaron kaj trovis prop-
 
@@ -3058,7 +2788,7 @@ tenis lin malproksime de la fajro, ĉar li timis
 
 ke fajrero trafus lian pajlon kaj konsumus
 
-lin. Do li restis tre for de la flamoj, 
+lin. Do li restis tre for de la flamoj,
 
 kaj proksimiĝis nur por kovri
 
@@ -3066,33 +2796,31 @@ Doroteon per sekaj
 
 folioj kiam ŝi
 
-kuŝiĝis 
+kuŝiĝis
 
 por
 
-dormi. 
+dormi.
 
 Ili
 
 k o m f o r t i g i s
 
-kaj 
+kaj
 
 varmigis
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-77
-
-ŝin kaj ŝi dormis profunde ĝis la mateno. 
+ŝin kaj ŝi dormis profunde ĝis la mateno.
 
 Kiam mateniĝis, la knabino lavis sian vizaĝon en
 
 malgranda ondetanta rivereto kaj baldaŭ post tiam ili ĉiuj
 
-rekomencis marŝi al la Smeralda Urbo. 
+rekomencis marŝi al la Smeralda Urbo.
 
 La tago montriĝis eventoplena por la marŝantoj. Ili
 
@@ -3110,41 +2838,36 @@ rokoj en la fundo. La flankoj estis tiom krutaj ke neniu
 
 el ili povus malsuprengrimpi, kaj dum momento ŝajnis ke
 
-la marŝado devos ĉesi. 
+la marŝado devos ĉesi.
 
-“Kion ni faru?” demandis Doroteo senespere. 
+“Kion ni faru?” demandis Doroteo senespere.
 
 “Mi tute ne scias,” diris la Stana Lignohakisto; kaj
 
-la Leono skuis sian densan hararon kaj rigardis penseme. 
+la Leono skuis sian densan hararon kaj rigardis penseme.
 
-Sed la Birdotimigilo diris: 
+Sed la Birdotimigilo diris:
 
 “Ni ne povas flugi, tio estas certa; kaj ni ne povas
 
 malsuprengrimpi en tiun profundan abismon. Sekve, se ni
 
-ne povos transsalti, ni devos halti ĉi tie.” 
+ne povos transsalti, ni devos halti ĉi tie.”
 
 “Mi kredas povi transsalti,” diris la Malkuraĝa
 
-Leono, zorge mezurinte la distancon per sia menso. 
+Leono, zorge mezurinte la distancon per sia menso.
 
 “Do estas solvite,” respondis la Birdotimigilo, “ĉar vi
 
-povos transporti nin unuope sur via dorso.” 
+povos transporti nin unuope sur via dorso.”
 
-“Nu, mi provos,” diris la Leono. “Kiun la unua?” 
+“Nu, mi provos,” diris la Leono. “Kiun la unua?”
 
 “Mi,” deklaris la Birdotimigilo; “ĉar se vi trovus ke
 
 vi ne povas transsalti la breĉon, Doroteo mortus, aŭ la
 
-!(images/000064.jpg)
-
-
-
-78
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -3152,35 +2875,35 @@ la Lignohakisto estus forte kavigita de la rokoj. Sed se mi
 
 estos sur via dorso ne multe gravos ĉar la falo tute ne
 
-damaĝos min.” 
+damaĝos min.”
 
-“Mi mem timegas falon,” diris la Malkuraĝa Leono, 
+“Mi mem timegas falon,” diris la Malkuraĝa Leono,
 
 “sed mi supozas ke necesas provi. Do suriru mian dor-
 
-son kaj ni provos.” 
+son kaj ni provos.”
 
-La Birdotimigilo sidiĝis sur la dorson de la Leono, 
+La Birdotimigilo sidiĝis sur la dorson de la Leono,
 
 kaj la granda besto marŝis al la rando de la breĉo kaj
 
-kaŭriĝis. 
+kaŭriĝis.
 
 “Kial vi ne kuras por salti?” demandis la
 
-Birdotimigilo. 
+Birdotimigilo.
 
 “Ĉar ni, la Leonoj, ne saltas tiel,” li respondis. Kaj
 
 saltegante, li pafiĝis tra la aero kaj surteriĝis sendanĝere
 
-sur la alian flankon. 
+sur la alian flankon.
 
 Ĉiujn multe ĝojigis vidi kiel facile li faris tion, kaj
 
 kiam la Birdotimigilo estis degrimpinta de lia dorso, la
 
-Leono resaltis trans la abismon. 
+Leono resaltis trans la abismon.
 
 Doroteo decidis esti la dua; do ŝi tenis Toton en siaj
 
@@ -3200,19 +2923,13 @@ momentoj por ke la besto povu ripozi, ĉar liaj grandaj
 
 saltoj malfaciligis lian spiradon, kaj li anhelis kiel granda
 
-hundo tro longe kurinta. 
-
-!(images/000073.jpg)
+hundo tro longe kurinta.
 
 
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
-79
-
-79
 
 Ili trovis la arb-
 
@@ -3238,9 +2955,9 @@ strangajn bruojn el la profundo de la arbaro, kaj la Leono
 
 flustris al ili ke en ĉi tiu parto de la lando la Kolizuloj
 
-loĝas. 
+loĝas.
 
-“Kio estas la Kolizuloj?” demandis la knabino. 
+“Kio estas la Kolizuloj?” demandis la knabino.
 
 “Ili estas monstraj bestoj kun korpoj kiaj de leonoj
 
@@ -3250,17 +2967,14 @@ ungoj tiom longaj kaj akraj ke ili povus disduigi min tiel
 
 facile kiel mi povus mortigi Toton. Mi timegas la Koliz-
 
-ulojn.” 
+ulojn.”
 
 
-
-80
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Ne mirigas min,” respondis Doroteo. “Nepre ili
 
-estas timigaj bestoj.” 
+estas timigaj bestoj.”
 
 La Leono estis tuj respondonta, sed subite ili atingis
 
@@ -3268,27 +2982,27 @@ alian abismon kiu transiras la vojon; sed ĉi tiu abismo
 
 estis tiom larĝa kaj profunda ke la Leono tuj sciis ke li
 
-ne povos transsalti ĝin. 
+ne povos transsalti ĝin.
 
 Do ili sidiĝis por pripensi kion fari, kaj post serioza
 
-pensado la Birdotimigilo diris, 
+pensado la Birdotimigilo diris,
 
 “Jen granda arbo, proksima al la abismo. Se la
 
 Stana Lignohakisto povos haki ĝin tiel ke ĝi falos trans la
 
-abismon, ni povos transmarŝi facile.” 
+abismon, ni povos transmarŝi facile.”
 
 “Tiu estas bonega ideo,” diris la Leono. “Oni
 
 preskaŭ suspektus ke vi havas cerbon en la kapo, anstataŭ
 
-pajlon.” 
+pajlon.”
 
 La Stana Lignohakisto tuj komencis labori, kaj tiom
 
-akris lia hakilo ke la arbo baldaŭ estis preskaŭ trahakita. 
+akris lia hakilo ke la arbo baldaŭ estis preskaŭ trahakita.
 
 La Leono metis siajn fortajn antaŭajn krurojn kontraŭ la
 
@@ -3296,7 +3010,7 @@ arbon kaj puŝegis, kaj malrapide la granda arbo kliniĝis
 
 kaj falis bruegante trans la abismon, kun la plejsupraj
 
-branĉoj sur la alia flanko. 
+branĉoj sur la alia flanko.
 
 Ili ĵus komencis transiri tiun kuriozan ponton kiam
 
@@ -3304,19 +3018,17 @@ akra muĝo suprenrigardigis ilin, kaj terurate ili vidis
 
 kuradi cele ilin du grandajn bestojn kun ursaj korpoj kaj
 
-tigraj kapoj. 
+tigraj kapoj.
 
-“Jen la Kolizuloj\!” diris la Malkuraĝa Leono, 
+“Jen la Kolizuloj!” diris la Malkuraĝa Leono,
 
-komencante tremadi. 
+komencante tremadi.
 
-“Rapide\!” kriis la Birdotimigilo. “Ni transiru.” 
+“Rapide!” kriis la Birdotimigilo. “Ni transiru.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-81
 
 Do Doroteo transiris la unua, tenante Toton en la
 
@@ -3330,7 +3042,7 @@ timige ke Doroteo kriegis kaj la Birdotimigilo surdorsen
 
 falis, kaj eĉ la ferocaj bestoj ekhaltis kaj rigardis lin
 
-surprizite. 
+surprizite.
 
 Sed, trovinte sin pli grandaj ol la Leono, kaj memo-
 
@@ -3342,15 +3054,15 @@ nis sin por vidi kion ili nun faros. Tute sen halti, la
 
 ferocaj bestoj ankaŭ komencis transiri la arbon, kaj la
 
-Leono diris al Doroteo, 
+Leono diris al Doroteo,
 
 “Ni perdiĝis, ĉar ili certe disŝiros nin per siaj akraj
 
 ungoj. Sed staru proksime malantaŭ mi, kaj mi batalos
 
-ilin dum mi restos viva.” 
+ilin dum mi restos viva.”
 
-“Atendu\!” kriis la Birdotimigilo. Li intertempe estis
+“Atendu!” kriis la Birdotimigilo. Li intertempe estis
 
 pripensinta kion fari, kaj nun li petis la Stanan Lignohak-
 
@@ -3364,7 +3076,7 @@ transirintaj, la arbo ekfalis bruege en la abismon, kunpor-
 
 tante la malbelajn, hurlantajn bestojn, kaj ambaŭ
 
-disfrakasiĝis pro la akraj rokoj sur la fundo. 
+disfrakasiĝis pro la akraj rokoj sur la fundo.
 
 “Nu,” diris la Malkuraĝa Leono, libere spirante
 
@@ -3372,21 +3084,16 @@ denove, “ni ankoraŭ iom vivos, kaj tio plaĉas min, ĉar
 
 nepre estus tre malkomforte ne vivi. Tiuj bestoj timigis
 
-!(images/000042.jpg)
 
-
-
-82
-
-min 
+min
 
 min tiom ke mia koro
 
-ankoraŭ bategas.” 
+ankoraŭ bategas.”
 
-“Ha,” 
+“Ha,”
 
-diris 
+diris
 
 la
 
@@ -3394,25 +3101,25 @@ Stana Lignohakisto mal-
 
 gaje, “ volonte mi havus
 
-koron povantan bati.” 
+koron povantan bati.”
 
 Tiu aventuro des
 
 pli fervorigis la marŝan-
 
-tojn eliri el la arbaro, 
+tojn eliri el la arbaro,
 
 kaj ili tiom rapide marŝ-
 
 is ke Doroteo laciĝis, kaj devis
 
-rajdi sur la dorso de la Leono. 
+rajdi sur la dorso de la Leono.
 
 Ĝojigis ilin kiam la arbaro mal-
 
-pli densiĝis ju pli ili antaŭeniris, 
+pli densiĝis ju pli ili antaŭeniris,
 
-kaj en la posttagmezo ili subite trovis larĝan riveron, 
+kaj en la posttagmezo ili subite trovis larĝan riveron,
 
 rapide fluantan antaŭ ili. Ili povis vidi ke aliflanke de la
 
@@ -3422,15 +3129,15 @@ verdaj kampoj kaj helaj floroj kaj apud la tuta vojo estis
 
 arboj sur kiuj pendas bongusgaj fruktoj. Ilin multe plaĉis
 
-vidi tiun belan pejzaĝon antaŭ si. 
+vidi tiun belan pejzaĝon antaŭ si.
 
-“Kiel ni transiros la riveron?” demandis Doroteo. 
+“Kiel ni transiros la riveron?” demandis Doroteo.
 
 “Estas facile,” respondis la Birdotimigilo. “La Stana
 
 Lignohakisto konstruu por ni floson, tiel ke ni povos flosi
 
-al la alia flanko. 
+al la alia flanko.
 
 Do la Lignohakisto prenis sian hakilon kaj komen-
 
@@ -3438,19 +3145,15 @@ cis haki malgrandajn arbojn por fari floson, kaj dum li
 
 okupadis sin per tio, la Birdotimigilo trovis sur la river-
 
-!(images/000084.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-83
 
 bordo arbon plenan de belaj fruktoj. Tio plaĉis al Doro-
 
 teo, kiu estis manĝinta nur nuksojn dum tiu tago, kaj ŝi
 
-ĝissate manĝis la maturajn fruktojn. 
+ĝissate manĝis la maturajn fruktojn.
 
 Sed necesas tempo por konstrui floson, eĉ se konstruas
 
@@ -3464,32 +3167,20 @@ la mateno; kaj Doroteo sonĝis pri la Smeralda Urbo, kaj
 
 pri la bona Sorĉisto de Oz, kiu baldaŭ resendos ŝin al ŝia
 
-propra hejmo. 
+propra hejmo.
 
-!(images/000052.jpg)
-
-* *
 
 *“La arbo ekfalis bruege en la abismon.” *
 
-!(images/000056.jpg)
 
-* *
-
-*“Vi devus honti\!” *
-
-!(images/000148.jpg)
+*“Vi devus honti!” *
 
 
-
-Ĉapitro VIII. 
+Ĉapitro VIII.
 
 La mortiga
 
 papavokampo
-
-!(images/000063.jpg)
-
 
 
 NiaMALGRANDA GRUPO
@@ -3504,7 +3195,7 @@ Doroteo manĝis kvazaŭ princ-
 
 ino per persikoj kaj prunoj el
 
-la arboj apud la rivero. 
+la arboj apud la rivero.
 
 Malantaŭ ili estis la senluma
 
@@ -3516,17 +3207,12 @@ antaŭ ili estis bela, sunoplena regiono
 
 kiu ŝajnis voki ilin antaŭen al la Smer-
 
-alda Urbo. 
+alda Urbo.
 
 Estis vere ke la larĝa rivero nun
 
-!(images/000068.jpg)
 
-
-
-88
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 fortranĉis ilin de tiu bela regiono; sed la floso estis
 
@@ -3542,11 +3228,11 @@ Leono paŝis sur la floson, ĝi grave kliniĝis, ĉar li estis
 
 granda kaj multepeza; sed la Birdotimigilo kaj la Stana
 
-Lignohakisto ekstaris sur la alia fino por ekvilibrigi ĝin, 
+Lignohakisto ekstaris sur la alia fino por ekvilibrigi ĝin,
 
 kaj ili mane tenis longajn stangojn por puŝi la floson tra
 
-la akvo. 
+la akvo.
 
 Ili sukcesis sufiĉe bone, unue, sed kiam ili atingis la
 
@@ -3554,7 +3240,7 @@ mezon de la rivero la rapida fluo tiris la floson pli kaj pli
 
 for de la vojo el flavaj brikoj; kaj la akvo tiom pro-
 
-fundiĝis ke la longaj stangoj ne plu atingis la fundon. 
+fundiĝis ke la longaj stangoj ne plu atingis la fundon.
 
 “Estas malbone,” diris la Stana Lignohakisto, “ĉar se
 
@@ -3562,33 +3248,29 @@ ni ne atingos la bordon ni portiĝos en la landon de la fia
 
 Sorĉistino de la Okcidento, kaj ŝi sorĉos nin kaj sklavigos
 
-nin.” 
+nin.”
 
 “Kaj tiuokaze mi ne ricevus cerbon,” diris la Birdo-
 
-timigilo. 
+timigilo.
 
 Kaj mi ne rice-
 
 vus kuraĝon,” diris la
 
-Malkuraĝa Leono. 
+Malkuraĝa Leono.
 
 “Kaj mi ne ricevus
 
-!(images/000101.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
+koron,” diris la Stana Lignohakisto.
 
-LA MIRINDA SORĈISTO DE OZ. 
+“Kaj mi neniam reirus al Kansas,” diris Doroteo.
 
-89
-
-koron,” diris la Stana Lignohakisto. 
-
-“Kaj mi neniam reirus al Kansas,” diris Doroteo. 
-
-“Nepre ni atingu la Smeraldan Urbon, se eble,” 
+“Nepre ni atingu la Smeraldan Urbon, se eble,”
 
 aldonis la Birdotimigilo, kaj li tiom forte puŝis sian lon-
 
@@ -3598,31 +3280,31 @@ de la rivero, kaj antaŭ ol li povis reeltiri ĝin, aŭ malteni
 
 ĝin, la floso estis forportita kaj la povra Birdotimigilo
 
-estis lasita kroĉiĝanta al la stango meze de la rivero. 
+estis lasita kroĉiĝanta al la stango meze de la rivero.
 
-“Adiaŭ\!” li kriis al ili, kaj ili bedaŭregis forlasi lin; 
+“Adiaŭ!” li kriis al ili, kaj ili bedaŭregis forlasi lin;
 
 efektive, la Stana Lignohakisto komencis plori, sed
 
 feliĉige li memoris ke li eble rustos, do li sekigis siajn
 
-larmojn per la antaŭvesto de Doroteo. 
+larmojn per la antaŭvesto de Doroteo.
 
 Kompreneble ĉi tio estis malbona sorto por la
 
-Birdotimigilo. 
+Birdotimigilo.
 
 “Nun mi estas en malpli
 
 bona stato ol kiam mi unuafoje
 
-renkontis Doroteon,” li pensis. 
+renkontis Doroteon,” li pensis.
 
 “Tiam mi estis fiksita al stango
 
 en maizkampo, kie mi povis
 
-magi ke mi fortimigas korvojn; 
+magi ke mi fortimigas korvojn;
 
 sed certe ne utilas Birdotimigilo
 
@@ -3630,7 +3312,7 @@ fiksita sur stango en la mezo de
 
 rivero. Mi timas ke mi vere
 
-neniam akiros cerbon\!” 
+neniam akiros cerbon!”
 
 Laŭlonge de la rivero naĝis
 
@@ -3638,25 +3320,22 @@ la floso, kaj la povra Birdotimig-
 
 ilo fariĝis pli kaj pli for. Tiam la
 
-!(images/000144.jpg)
-
-
 
 90 90
 
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
 Leono diris:
 
-“Io estas farenda por savi nin. 
+“Io estas farenda por savi nin.
 
 Mi kredas ke mi povos naĝi al la
 
 bordo kaj kuntiri la floson, se vi tenos
 
-firme la pinton de mia vosto. 
+firme la pinton de mia vosto.
 
 Do li saltis en la akvon kaj la
 
@@ -3672,7 +3351,7 @@ la fluo, kaj Doroteo prenis la longan stangon de
 
 la Stana Lignohakisto kaj helpis puŝi la floson
 
-al la tero. 
+al la tero.
 
 Ili ĉiuj estis tre lacaj kiam ili fine atingis
 
@@ -3682,35 +3361,33 @@ aron, kaj ili ankaŭ sciis ke la rivero portis ilin
 
 tre for de la vojo el flavaj brikoj kiu kondukas
 
-al la Smeralda Urbo. 
+al la Smeralda Urbo.
 
 “Kion ni faru nun?” demandis la Stana
 
 Lignohakisto, dum la Leono kuŝis sur la herb-
 
-aro por ke la suno sekigu lin. 
+aro por ke la suno sekigu lin.
 
 “Ni devas iel reiri al la vojo,” diris
 
-Doroteo. 
+Doroteo.
 
 “La plej bona plano estos marŝi laŭ la
 
 riverbordo ĝis ni reatingos la vojon,” komentis la
 
-Leono. 
+Leono.
 
 Do post ilia ripozo, Doroteo prenis sian
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-91
 
 korbon kaj ili komencis marŝi laŭ la herba bordo, reen al
 
-la vojo de kiu la rivero portis ilin. Ĝi estis bela bordo, 
+la vojo de kiu la rivero portis ilin. Ĝi estis bela bordo,
 
 reen al la vojo de kiu la rivero portis ilin. Ĝi estis bela
 
@@ -3718,73 +3395,70 @@ regiono, kun multaj floroj kaj fruktarboj kaj sunbrilo por
 
 gajigi ilin, kaj se ili ne sentus tiom da bedaŭro pro la
 
-povra Birdotimigilo ili povus esti vere feliĉaj. 
+povra Birdotimigilo ili povus esti vere feliĉaj.
 
 Ili marŝis laŭ sia eblo plej rapide, kaj Doroteo hal-
 
 tis nur unufoje por pluki belan floron; kaj post iom da
 
-tempo la Stana Lignohakisto kriis: 
+tempo la Stana Lignohakisto kriis:
 
-“Rigardu\!” 
+“Rigardu!”
 
 Ĉiuj rigardis la riveron kaj vidis la Birdotimigilon
 
 fiksitan sur sia stango meze de la akvo, aspektantan tre
 
-solsenta kaj malfeliĉa. 
+solsenta kaj malfeliĉa.
 
-“Kion ni povas fari por savi lin?” demandis Doroteo. 
+“Kion ni povas fari por savi lin?” demandis Doroteo.
 
 La Leono kaj la Stana Lignohakisto ambaŭ skuis
 
 sian kapon ĉar ili ne sciis. Do ili sidiĝis sur la bordo kaj
 
-rigardis senespere la Birdotimigilon ĝis Cikonio alflugis, 
+rigardis senespere la Birdotimigilon ĝis Cikonio alflugis,
 
-vidinte ilin, kaj haltis por ripozi ĉe la rando de la akvo. 
+vidinte ilin, kaj haltis por ripozi ĉe la rando de la akvo.
 
 “Kiuj vi estas kaj kien vi iras?” demandis la
 
-Cikonio. 
+Cikonio.
 
 “Mi estas Doroteo,” respondis la knabino, “kaj jen
 
 miaj amikoj, la Stana Lignohakisto kaj la Malkuraĝa
 
-Leono; kaj ni iras al la Smeralda Urbo.” 
+Leono; kaj ni iras al la Smeralda Urbo.”
 
 “Jen ne la vojo,” diris la Cikonio, dum ŝi tordis sian
 
-longan kolon kaj akre rigardis la kuriozan grupon. 
+longan kolon kaj akre rigardis la kuriozan grupon.
 
 “Mi scias,” respondis Doroteo, “sed ni perdis la Bir-
 
-dotimigilon, kaj ni ne scias kiel rehavigi lin.” 
+dotimigilon, kaj ni ne scias kiel rehavigi lin.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-92
+“Kie li estas?” demandis la Cikonio.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-“Kie li estas?” demandis la Cikonio. 
-
-“Tie, en la rivero,” respondis la knabino. 
+“Tie, en la rivero,” respondis la knabino.
 
 “Se li ne estus tiel granda kaj peza mi alportus lin
 
-por vi,” komentis la Cikonio. 
+por vi,” komentis la Cikonio.
 
 “Li tute ne estas peza,” diris Doroteo, fervore, “ĉar li
 
 estas plenigita per pajlo; kaj se vi reportos lin al ni ni
 
-multege dankos vin senfine.” 
+multege dankos vin senfine.”
 
 “Nu, mi provos,” diris la Cikonio, “sed se mi tro-
 
-vos lin tro peza mi devos refaligi lin en la riveron.” 
+vos lin tro peza mi devos refaligi lin en la riveron.”
 
 Do la granda birdo flugis en la aeron kaj trans la
 
@@ -3796,15 +3470,15 @@ kaptis brakon de la Birdotimigilo kaj alte portis lin al la
 
 bordo, kie Doroteo kaj la Leono kaj la Stana Lignohak-
 
-isto kaj Toto atendis. 
+isto kaj Toto atendis.
 
 Kiam la Birdotimigilo retrovis sin inter siaj amikoj li
 
 estis ĝojega kaj ĉirkaŭbrakumis ĉiujn, eĉ la Leonon kaj
 
-Toton; kaj dum ili marŝadis li kantis “Tol-de-ri-de-o\!” 
+Toton; kaj dum ili marŝadis li kantis “Tol-de-ri-de-o!”
 
-ĉiupaŝe, tiom gaja li estis. 
+ĉiupaŝe, tiom gaja li estis.
 
 “Mi kredis ke mi devos resti en la rivero eterne,” li
 
@@ -3812,27 +3486,25 @@ diris, “sed la afabla Cikonio savis min, kaj se mi ja akiros
 
 cerbon mi retrovos la Cikonion kaj rekompence faros ian
 
-komplezon por ŝi.” 
+komplezon por ŝi.”
 
-“Ne necesas,” diris la Cikonio, kiu flugadis apud ili. 
+“Ne necesas,” diris la Cikonio, kiu flugadis apud ili.
 
 “Mi ĉiam plezure helpas kiam estas danĝero. Sed mi
 
-devas foriri nun, ĉar miaj beboj atendas min en la nesto. 
+devas foriri nun, ĉar miaj beboj atendas min en la nesto.
 
 Mi esperas ke vi trovos la Smeraldan Urbon kaj ke Oz
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-93
-
-helpos vin.” 
+helpos vin.”
 
 “Dankon,” respondis Doroteo, kaj la afabla Cikonio
 
-flugis en la aeron kaj baldaŭ ne plu videblis. 
+flugis en la aeron kaj baldaŭ ne plu videblis.
 
 Ili marŝadis aŭskultante la kantadon de la brilkoloraj
 
@@ -3844,25 +3516,25 @@ kaj bluaj kaj purpuraj floroj, kaj ankaŭ grandaj grupoj de
 
 skarlataj papavoj, kiuj estis tiom brilkoloraj ke ili preskaŭ
 
-blindigis la okulojn de Doroteo. 
+blindigis la okulojn de Doroteo.
 
-“Belegaj\!” la knabino krietis, spirante la spican
+“Belegaj!” la knabino krietis, spirante la spican
 
-odoron de la floroj. 
+odoron de la floroj.
 
 “Verŝajne,” respondis la Birdotimigilo. “Kiam mi
 
-havos cerbon mi supozeble pli ŝatos ilin.” 
+havos cerbon mi supozeble pli ŝatos ilin.”
 
-“Se mi nur havus koron mi sendube amus ilin,” 
+“Se mi nur havus koron mi sendube amus ilin,”
 
-aldonis la Stana Lignohakisto. 
+aldonis la Stana Lignohakisto.
 
 “De ĉiam plaĉas al mi floroj,” diris la Leono; “ili
 
 aspektas tiel senhelpaj kaj malfortaj. Sed en la arbaro ne
 
-estas tiom brilaj floroj kiel ĉi tiuj.” 
+estas tiom brilaj floroj kiel ĉi tiuj.”
 
 Ili nun atingis pli kaj pli da grandaj skarlataj
 
@@ -3882,17 +3554,12 @@ teo ne sciis tion, nek ŝi povis foriri de la grandaj ruĝaj
 
 floroj kiuj ĉie ĉirkaŭis ilin; do baldaŭ ŝiaj okuloj peziĝis
 
-!(images/000005.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
+kaj ŝi sentis bezonon sidiĝi por ripozi kaj por dormi.
 
-94
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-kaj ŝi sentis bezonon sidiĝi por ripozi kaj por dormi. 
-
-Sed la Stana Lignohakisto ne permesis tion. 
+Sed la Stana Lignohakisto ne permesis tion.
 
 “Ni devos rapidi kaj reatingi la vojon el flavaj
 
@@ -3902,11 +3569,11 @@ konsentis kun li. Do ili plu marŝadis ĝis Doroteo ne plu
 
 povis stari. Ŝiaj okuloj fermiĝis malgraŭ ŝia volo kaj ŝi
 
-forgesis kie ŝi estas kaj falis surteren apud la papavoj, 
+forgesis kie ŝi estas kaj falis surteren apud la papavoj,
 
-profunde dormante. 
+profunde dormante.
 
-“Kion ni faru?” demandis la Stana Lignohakisto. 
+“Kion ni faru?” demandis la Stana Lignohakisto.
 
 “Se ni lasos ŝin ĉi tie ŝi mortos,” diris la
 
@@ -3914,7 +3581,7 @@ Leono. “La odoro de la floroj mortigas nin
 
 ĉiujn. Mi mem apenaŭ povas teni la okulojn
 
-malfermitaj kaj la hundo jam dormas.” 
+malfermitaj kaj la hundo jam dormas.”
 
 Estis vere; Toto jam falis apud sian
 
@@ -3922,29 +3589,25 @@ mastrineton. Sed la Birdotimigilon kaj Stanan
 
 Ligno hakiston, ĉar ili ne konsistis el karno, ne
 
-!(images/000009.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
+ĝenis la odoro de la floroj.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-95
-
-ĝenis la odoro de la floroj. 
-
-“Rapide kuru,” diris la Birdotimigilo al la Leono, 
+“Rapide kuru,” diris la Birdotimigilo al la Leono,
 
 “kaj eliru ĉi tiun mortigan florkampon kiel eble plej
 
 baldaŭ. Ni kunportos la knabineton, sed se vi endormiĝos
 
-vi estas tro granda kaj ni ne povos porti vin.” 
+vi estas tro granda kaj ni ne povos porti vin.”
 
 Do la Leono vigligis sin kaj antaŭensaltadis kiel eble
 
-plej rapide. Post momento li ne plu estis videbla. 
+plej rapide. Post momento li ne plu estis videbla.
 
-“Ni uzu niajn manojn kiel seĝon, por porti ŝin,” 
+“Ni uzu niajn manojn kiel seĝon, por porti ŝin,”
 
 diris la Birdotimigilo. Do ili levis Toton kaj metis la hun-
 
@@ -3954,7 +3617,7 @@ uzante siajn manojn kiel sidejon kaj siajn bra-
 
 kojn kiel seĝobrakojn kaj portis la dormantan
 
-knabinon tra la floroj. 
+knabinon tra la floroj.
 
 Plu kaj plu ili marŝis, kaj ŝajnis ke la
 
@@ -3962,17 +3625,17 @@ grand a tapiŝo d a mortigaj floroj ĉirkaŭ ili
 
 neniam finiĝos. Ili sekvis la kurbiĝon de la riv-
 
-ero, kaj fine trovis sian amikon la Leonon, 
+ero, kaj fine trovis sian amikon la Leonon,
 
 profunde dormantan inter la papavoj. La floroj
 
-superfortis la grandan beston kaj, fine, li cedis, 
+superfortis la grandan beston kaj, fine, li cedis,
 
 kaj falis ne tre for de la fino de la papavoka-
 
 mpo, kie la dolĉa herbaro kuŝis en belaj verdaj
 
-kampoj antaŭ ili. 
+kampoj antaŭ ili.
 
 “Nenion ni povas fari por li,” diris la
 
@@ -3982,21 +3645,16 @@ multepeza, ni ne povos levi lin. Ni devos lasi
 
 lin ĉi tie eterne dormi, kaj eble li sonĝos ke li
 
-fine trovis kuraĝon.” 
-
-!(images/000017.jpg)
+fine trovis kuraĝon.”
 
 
-
-96
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Mi bedaŭras,” diris la Birdotimigilo. “La Leono
 
 estis tre agrabla kamarado malgraŭ sia malkuraĝo. Sed ni
 
-pluiru.” 
+pluiru.”
 
 Ili portis la dormantan knabinon al bela loko apud
 
@@ -4008,31 +3666,22 @@ delikate
 
 delikate sur la molan herbaron kaj atendis ĝis la freŝa
 
-venteto vekos ŝin. 
+venteto vekos ŝin.
 
-!(images/000024.jpg)
-
-* *
 
 *“La cikonio alte portis lin.” *
 
-!(images/000031.jpg)
 
-
-
-Ĉapitro IX. 
+Ĉapitro IX.
 
 La Reĝino de la
 
-Kampomusoj. 
-
-!(images/000108.jpg)
-
+Kampomusoj.
 
 
 “ NiNE POVAS ESTI TRE FOR
 
-la vojo el flavaj brikoj, nun,” 
+la vojo el flavaj brikoj, nun,”
 
 komentis la Birdotimigilo, dum
 
@@ -4040,19 +3689,19 @@ li staris apud la knabino, “ĉar ni
 
 jam marŝis preskaŭ tiom kiom for-
 
-portis nin la rivero.” 
+portis nin la rivero.”
 
 La Stana Lignohakisto estis
 
 tuj respondonta kiam li ekaŭdis
 
-malaltan muĝon, kaj turninte sian kapon \(kiu
+malaltan muĝon, kaj turninte sian kapon (kiu
 
-bonege turniĝis per ĉarniroj\) li vidis strangan beston sal-
+bonege turniĝis per ĉarniroj) li vidis strangan beston sal-
 
 tadi trans la herbaron al ili. Ĝi estis, efektive, granda flava
 
-Linko, kaj la Stana Lignohakisto opiniis ke ĝi nepre ĉasas
+L, kaj la Stana Lignohakisto opiniis ke ĝi nepre ĉasas
 
 ion, ĉar ĝiaj oreloj kuŝis proksime al la kapo kaj ĝia buŝo
 
@@ -4061,10 +3710,7 @@ estis larĝe malfermita, tiel ke vidiĝis du vicoj de malbelaj
 dentoj, dum ĝiaj ruĝaj okuloj ardis kiel fajrogloboj. Kiam
 
 
-
-100
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 ĝi pliproksimiĝis la Stana Lignohakisto vidis kuranta
 
@@ -4072,71 +3718,67 @@ antaŭ la besto malgrandan grizan kampomuson, kaj
 
 kvankam li ne havis koron li sciis ke estas maljuste ke la
 
-Linko strebas mortigi tian belan, sendanĝeran besteton. 
+L strebas mortigi tian belan, sendanĝeran besteton.
 
-Do la Hakisto levis sian hakilon kaj dum la Linko
+Do la Hakisto levis sian hakilon kaj dum la L
 
 preterkuris li rapide batis tiel ke la kapo de la besto plene
 
 apartiĝis de sia korpo, kaj ĝi ruliĝis en du pecoj ĉe liaj
 
-piedoj. 
+piedoj.
 
 La kampomuso, nun libera de sia malamiko, ekhal-
 
 tis; kaj malrapide venante al la Hakisto ĝi diris, per alta
 
-voĉeto: 
+voĉeto:
 
-“Ho, dankon\! Grandegan dankon, ĉar vi savis mian
+“Ho, dankon! Grandegan dankon, ĉar vi savis mian
 
-vivon.” 
+vivon.”
 
-“Ne menciu ĝin, mi petas,” respondis la Hakisto, 
+“Ne menciu ĝin, mi petas,” respondis la Hakisto,
 
 “Sciu ke mi ne havas koron, do mi zorgas helpi ĉiun kiu
 
-bezonas amikon, eĉ kiam ĝi estas nur muso.” 
+bezonas amikon, eĉ kiam ĝi estas nur muso.”
 
-“Nur muso\!” kriis la besteto, indigne; “mi ja estas
+“Nur muso!” kriis la besteto, indigne; “mi ja estas
 
-Reĝino—la Reĝino de ĉiuj kampomusoj\!” 
+Reĝino—la Reĝino de ĉiuj kampomusoj!”
 
-“Ĉu vere?” diris la Hakisto, klinante sin riverence. 
+“Ĉu vere?” diris la Hakisto, klinante sin riverence.
 
 “Sekve vi tre bone agis, kaj ne nur kuraĝe, savante
 
-mian vivon,” diris la Reĝino. 
+mian vivon,” diris la Reĝino.
 
 Tiumomente pluraj musoj vidiĝis alkurante tiel
 
 rapide kiel permesis iliaj kruretoj, kaj kiam ili vidis la
 
-Reĝinon ili kriis: 
+Reĝinon ili kriis:
 
-“Ho, via Moŝtino, ni kredis ke vi estos mortigita\! 
+“Ho, via Moŝtino, ni kredis ke vi estos mortigita!
 
-Kiel vi sukcesis eskapi de la granda Linko?” kaj ĉiuj kli-
+Kiel vi sukcesis eskapi de la granda L?” kaj ĉiuj kli-
 
 nis sin tiom malanten antaŭ la Reĝineto ke ili preskaŭ
 
-!(images/000048.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-101
-
-surkapiĝis. 
+surkapiĝis.
 
 “Ĉi tiu kurioza stanulo,” ŝi respondis, “mortigis la
 
-Linkon kaj savis mian vivon. Do ekde nun vi ĉiuj devas
+Ln kaj savis mian vivon. Do ekde nun vi ĉiuj devas
 
-servi lin, kaj obeu eĉ lian plej malgrandan deziron.” 
+servi lin, kaj obeu eĉ lian plej malgrandan deziron.”
 
-“Jes\!” kriis ĉiuj musoj, per akra koruso. Kaj post tio
+“Jes!” kriis ĉiuj musoj, per akra koruso. Kaj post tio
 
 ili diskuris ĉiudirekten, ĉar Toto estis vekiĝinta el sia
 
@@ -4146,31 +3788,31 @@ dormo, kaj vidante tiom da tiuj musoj ĉirkaŭ si li ekbojis
 
 musojn kiam li loĝis en Kansas, kaj li ne opiniis tion
 
-malbona ago. 
+malbona ago.
 
 Sed Stana Lignohakisto kaptis la hundon per siaj
 
 brakoj kaj firme tenis lin, dum li kriis al la musoj:
 
-“Revenu\! revenu\! Toto ne damaĝos vin.” 
+“Revenu! revenu! Toto ne damaĝos vin.”
 
 Aŭdinte tion la Reĝino de la Musoj etendis sian
 
 kapon de malanta herbaĵaro kaj demandis, per timida vo-
 
-ĉo, 
+ĉo,
 
 “Ĉu vi certas ke li ne mordos
 
-nin?” 
+nin?”
 
 “Mi ne permesos tion,” diris la
 
-Hakisto; “do ne timu.” 
+Hakisto; “do ne timu.”
 
 Unu post la alia la musoj
 
-revenis, kaj Toto ne bojis denove, 
+revenis, kaj Toto ne bojis denove,
 
 kvankam li strebis salti de la brakoj
 
@@ -4180,61 +3822,57 @@ ne bone scius ke li konsistas el
 
 stano. Fine unu el la plej grandaj
 
-musoj parolis. 
+musoj parolis.
 
 
-
-102
-
-LA MIRINDA SORĈISTO DE OZ. 
-
+LA MIRINDA SORĈISTO DE OZ.
 
 
 ‘‘“Ĉu ion ni povos fari,” ĝi demandis, “por repagi
 
-vin ĉar vi savis la vivon de nia Reĝino?” 
+vin ĉar vi savis la vivon de nia Reĝino?”
 
 “Mi kredas ke ne,” respondis la Hakisto; sed la Bir-
 
 dotimigilo, kiu strebis pensi sed ne povis ĉar lia kapo estis
 
-plena de pajlo, diris rapide, 
+plena de pajlo, diris rapide,
 
 “Jes; vi povas savi nian amikon la Malkuraĝan
 
-Leonon dormantan inter la papavoj.” 
+Leonon dormantan inter la papavoj.”
 
-“Leonon\!” kriis la Reĝineto. “Sed, li manĝus nin
+“Leonon!” kriis la Reĝineto. “Sed, li manĝus nin
 
-ĉiujn\!” 
+ĉiujn!”
 
 “Ne,” deklaris la Birdotimigilo, “ĉi tiu Leono estas
 
-malkuraĝa.” 
+malkuraĝa.”
 
-“Ĉu vere?” demandis la Muso. 
+“Ĉu vere?” demandis la Muso.
 
-“Li mem agnoskas tion,” respondis la Birdotimigilo, 
+“Li mem agnoskas tion,” respondis la Birdotimigilo,
 
 “kaj neniam li damaĝus personon kiu estas nia amiko. Se
 
 vi helpos nin savi lin mi promesas ke li tre amike trak-
 
-tos vin.” 
+tos vin.”
 
 “Bone,” diris la Reĝino, “ni fidos vin. Sed kion ni
 
-faru?” 
+faru?”
 
 “Ĉu multaj musoj nomas vin Reĝino kaj pretas obei
 
-vin?” 
+vin?”
 
-“Ho jes; miloj,” ŝi respondis. 
+“Ho jes; miloj,” ŝi respondis.
 
 “Do ordonu ke ĉiuj venu ĉi tien kiel eble plej
 
-baldaŭ, kaj ĉiu kunportu pecon de ŝnuro.” 
+baldaŭ, kaj ĉiu kunportu pecon de ŝnuro.”
 
 La Reĝino turnis sin al la musoj kiuj servas ŝin kaj
 
@@ -4242,19 +3880,17 @@ ordonis ke ili tuj foriru kaj venigu la tutan popolon. Tuj
 
 kiam ili aŭdis ŝian ordonon ili diskuris ĉiudirekten kiel
 
-eble plej rapide. 
+eble plej rapide.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-103
 
 “Nun,” diris la Birdotimigilo al la Stana Lignohak-
 
 isto, “iru al tiuj arboj apud la rivero kaj faru ĉareton por
 
-porti la Leonon.” 
+porti la Leonon.”
 
 Do la Hakisto tuj iris al la arboj kaj komencis
 
@@ -4268,7 +3904,7 @@ mallongaj pecoj de granda arbotrunko. Tiom rapide kaj
 
 bone li laboris ke kiam la musoj komencis alveni la
 
-ĉareto jam estis tute preta por ili. 
+ĉareto jam estis tute preta por ili.
 
 Ili venis el ĉiuj direktoj, kaj estis miloj da ili:
 
@@ -4284,19 +3920,19 @@ kuŝanta sur la herbaro kun miloj da musoj ĉirkaŭstaran-
 
 taj kaj timete rigardantaj ŝin. Sed la Birdotimigilo
 
-informis ŝin pri ĉio, kaj turninte sin al la digna Museto, 
+informis ŝin pri ĉio, kaj turninte sin al la digna Museto,
 
-li diris, 
+li diris,
 
 “Permesu ke mi konigu al vi ŝian Moŝtinon, la
 
-Reĝino.” 
+Reĝino.”
 
 Doroteo klinetis sian kapon solene kaj la Reĝino riv-
 
 erencis, kaj post tio ŝi fariĝis tre amikema kun la
 
-knabineto. 
+knabineto.
 
 La Birdotimigilo kaj la Hakisto nun komencis ligi la
 
@@ -4304,13 +3940,8 @@ musojn al la ĉaro, uzante la ŝnuretojn kiujn ili estis
 
 alportintaj. Unu finaĵo de ĉiu ŝnureto estis ligita ĉirkaŭ la
 
-!(images/000055.jpg)
 
-
-
-104
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -4326,27 +3957,21 @@ Lignohakisto povis sidi sur ĝi, kaj ili estis rapide tirataj de
 
 siaj strangaj ĉevaletoj al la loko kie la Leono kuŝis
 
-dormante. 
+dormante.
 
 Post multa tre malfacila laboro, ĉar la Leono multe
 
 pezis, ili sukcesis tiri lin sur la ĉareton. Post tio la Reĝino
 
-!(images/000062.jpg)
 
-
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-105
-
+LA MIRINDA SORĈISTO DE OZ.
 
 
 ordonis ke ŝia sia popolo komencu, ĉar ŝi timis ke se la
 
 musoj restos tro longe inter la papavoj ankaŭ ili
 
-ekdormos. 
+ekdormos.
 
 Unue la bestetoj, kvankam multaj, apenaŭ povis
 
@@ -4360,15 +3985,10 @@ papavoj sur la verdajn kampojn, kie li povis denove spiri
 
 la dolĉan, freŝan aeron, anstataŭ la venenan odoron de la
 
-floroj. 
-
-!(images/000072.jpg)
+floroj.
 
 
-
-106
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Doroteo venis renkonte al ili kaj elkore dankis la
 
@@ -4376,25 +3996,25 @@ musetojn ĉar ili savis de morto ŝian akompananton. Ŝi
 
 jam multe amis la grandan Leonon kaj ŝi ĝojis pro lia
 
-saviĝo. 
+saviĝo.
 
 Post tio la musoj estis malligitaj al la ĉareto kaj
 
 forkuris tra la herbaron al siaj hejmoj. La Reĝino de la
 
-Musoj foriris la plej lasta. 
+Musoj foriris la plej lasta.
 
 “Se iam vi denove bezonos nin,” ŝi diris, “venu en
 
-la kampon kaj voku, kaj ni aŭdos vin kaj venos helpi vin. 
+la kampon kaj voku, kaj ni aŭdos vin kaj venos helpi vin.
 
-Adiaŭ\!” 
+Adiaŭ!”
 
-“Adiaŭ\!” ĉiuj respondis, kaj la Reĝino forkuris, dum
+“Adiaŭ!” ĉiuj respondis, kaj la Reĝino forkuris, dum
 
 Doroteo firme tenis Toton por ke li ne postkuru kaj
 
-timigu ŝin. 
+timigu ŝin.
 
 Post tio ili sidiĝis apud la Leono atendante lian
 
@@ -4402,31 +4022,22 @@ vekiĝon
 
 vekiĝon; kaj la Birdotimigilo portis al Doroteo fruktojn el
 
-apuda arbo, kaj ŝi manĝis ilin. 
-
-!(images/000078.jpg)
+apuda arbo, kaj ŝi manĝis ilin.
 
 
-
-“Permesu ke mi konigu al vi ŝian Moŝtinon, la Reĝino.” 
-
-!(images/000086.jpg)
+“Permesu ke mi konigu al vi ŝian Moŝtinon, la Reĝino.”
 
 
-
-Ĉapitro X. 
+Ĉapitro X.
 
 La Pordo-
 
-gardisto. 
-
-!(images/000094.jpg)
-
+gardisto.
 
 
 om LONGE POSTE LA
 
-Malkuraĝa Leono vekiĝis, 
+Malkuraĝa Leono vekiĝis,
 
 ĉar li kuŝis tre longe inter
 
@@ -4440,13 +4051,13 @@ okulojn kaj ruliĝis de la
 
 ĉareto li ĝoje trovis sin vi-
 
-va. 
+va.
 
 “Mi kuris laŭeble rapide,” li diris, sidiĝinte kaj
 
 oscedante; “sed la floroj superfortis min. Kiel vi elirigis
 
-min?” 
+min?”
 
 Ili rakontis al li pri la kampomusoj, kaj kiel ili
 
@@ -4454,27 +4065,22 @@ malavare savis lin de morto; kaj la Malkuraĝa Leono
 
 ridis, kaj diris:
 
-!(images/000013.jpg)
 
-
-
-110
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Mi ĉiam opiniis min tre granda kaj timiga; sed eĉ
 
 malgrandaj floroj preskaŭ mortigis min, kaj malgrandaj
 
-musoj savis mian vivon. Ĉio estas tre stranga\! Sed, kama-
+musoj savis mian vivon. Ĉio estas tre stranga! Sed, kama-
 
-radoj, kion ni faru nun?” 
+radoj, kion ni faru nun?”
 
 “Ni devas pluserĉi por retrovi la vojon el flavaj
 
 brikoj,” diris Doroteo; “kaj post tio ni povos marŝadi laŭ
 
-ĝi al la Smeralda Urbo.” 
+ĝi al la Smeralda Urbo.”
 
 Do, ĉar la Leono estis tute refreŝigita, kaj tute bone
 
@@ -4486,7 +4092,7 @@ gis la vojon el flavaj brikoj kaj retur-
 
 nis sin por marŝi cele la Smeraldan
 
-Urbon kie loĝas la granda Oz. 
+Urbon kie loĝas la granda Oz.
 
 La vojo estis nun glata kaj bone
 
@@ -4496,19 +4102,13 @@ bela; tial la marŝantoj ĝoje lasis la
 
 arbaron multe malantaŭe kaj kun ĝi
 
-!(images/000021.jpg)
 
-
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
-111
 
-111
-
-la multajn danĝerojn renkontitajn en ĝiaj mornaj ombroj. 
+la multajn danĝerojn renkontitajn en ĝiaj mornaj ombroj.
 
 Denove ili povis vidi barilojn konstruitajn laŭlonge de la
 
@@ -4522,19 +4122,19 @@ posttagmezo, kaj kelkfoje homoj venis al la pordoj kaj
 
 rigardis ilin kvazaŭ dezirante fari demandojn; sed neniu
 
-proksimiĝis al ili nek parolis al ili pro la granda Leono, 
+proksimiĝis al ili nek parolis al ili pro la granda Leono,
 
 kiun ili multe timis. La homoj ĉiuj estis vestitaj per tre
 
 belaj smeraldaverdaj vestoj kaj surportis pintajn ĉapelojn
 
-kiel la Manĝtuloj. 
+kiel la Manĝtuloj.
 
 “Jen certe la Lando Oz,” diris Doroteo, “kaj nepre
 
-ni proksimiĝas al la Smeralda Urbo.” 
+ni proksimiĝas al la Smeralda Urbo.”
 
-“Jes,” respondis la Birdotimigilo; “ĉio verdas ĉi tie, 
+“Jes,” respondis la Birdotimigilo; “ĉio verdas ĉi tie,
 
 kaj en la Lando de la Manĝtuloj bluo estis la preferata
 
@@ -4544,51 +4144,48 @@ amikemaj kiel la Manĝtuloj kaj
 
 mi suspektas ke ni ne sukcesos
 
-trovi dormolokon por tranokti.” 
+trovi dormolokon por tranokti.”
 
 “Mi volas manĝi ion alian ol
 
-nur fruktojn,” diris la knabino, 
+nur fruktojn,” diris la knabino,
 
 “kaj mi certas ke Toto estas mal-
 
 satega. Ni haltu ĉe la sekva domo
 
-kaj parolu kun la loĝantoj.” 
+kaj parolu kun la loĝantoj.”
 
 Do, kiam ili atingis relative
 
 grandan domon, Doroteo kuraĝe
 
 
-
-112
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 marŝis al la pordo kaj frapis. Virino malfermis ĝin nur
 
-sufiĉe por trarigardi, kaj diris, 
+sufiĉe por trarigardi, kaj diris,
 
 “Kion vi volas, infano, kaj kial tiu granda Leono
 
-estas kun vi?” 
+estas kun vi?”
 
 “Ni volas tranokti kun vi, se vi permesos,” respon-
 
 dis Doroteo; “kaj la Leono estas mia amiko kaj
 
-kamarado, kaj nenial damaĝus vin.” 
+kamarado, kaj nenial damaĝus vin.”
 
 “Ĉu li estas malsovaĝa?” demandis la virino iomete
 
-pli malfermante la pordon. 
+pli malfermante la pordon.
 
 “Ho jes;” diris la knabino, “kaj li estas ankaŭ ege
 
 malkuraĝa; do li multe pli timos pro vi ol vi timos pro
 
-li.” 
+li.”
 
 “Nu,” diris la virino, pripensinte kaj denove rigar-
 
@@ -4596,9 +4193,9 @@ detinte la Leonon, “se estas tiel do vi rajtas enveni, kaj
 
 mi donos al vi iom da vespermanĝo kaj lokon kie vi
 
-povos dormi.” 
+povos dormi.”
 
-Do ili ĉiuj eniris la domon, kie estis, krom la virino, 
+Do ili ĉiuj eniris la domon, kie estis, krom la virino,
 
 du infanoj kaj viro. La kruro de la viro estis vundita, kaj
 
@@ -4606,27 +4203,23 @@ li kuŝadis sur sofo en angulo. Ili ŝajnis tre surprizitaj de
 
 la stranga grupo, kaj dum la virino surtabligis la
 
-manĝilojn la viro demandis, 
+manĝilojn la viro demandis,
 
-“Kien iras vi ĉiuj?” 
+“Kien iras vi ĉiuj?”
 
 “Al la Smeralda Urbo,” diris Doroteo, “por renkonti
 
-la Grandan Ozon.” 
+la Grandan Ozon.”
 
 “Ĉu vere?” krietis la viro. “Ĉu vi certas ke Oz
 
-akceptos renkonti vin?” 
+akceptos renkonti vin?”
 
-“Kial ne?” ŝi respondis. 
-
-!(images/000030.jpg)
+“Kial ne?” ŝi respondis.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-113
 
 “Nu, oni diras ke li neniam permesas ke iu ajn
 
@@ -4636,17 +4229,17 @@ eniru al li. Mi multafoje estis en la Smeralda Urbo, kaj
 
 permeson vidi la Grandan Ozon, nek mi scias pri iu alia
 
-vivanto kiu vidis lin.” 
+vivanto kiu vidis lin.”
 
-“Ĉu li neniam eliras?” demandis la Birdotimigilo. 
+“Ĉu li neniam eliras?” demandis la Birdotimigilo.
 
 “Neniam. Li sidas tagon post tago en la granda
 
 tronoĉambro de la palaco, kaj eĉ liaj servistoj neniam
 
-vidas lin vizaĝ-al-vizaĝe.” 
+vidas lin vizaĝ-al-vizaĝe.”
 
-“Kia li estas?” demandis la knabino. 
+“Kia li estas?” demandis la knabino.
 
 “Estas malfacile diri,” diris la viro penseme. “Kom-
 
@@ -4658,13 +4251,13 @@ kiel birdo; kaj kelkaj ke li aspektas kiel elefanto; kaj
 
 kelkaj diras ke li aspektas kiel kato. Al aliaj li aspektas
 
-bela feino, aŭ elfo, aŭ kia ajn li deziras. 
+bela feino, aŭ elfo, aŭ kia ajn li deziras.
 
 Sed kiu estas la vera Oz, kiam li sur-
 
 prenas sian propran formon, neniu viv-
 
-anto scias.” 
+anto scias.”
 
 “Tre strange,” diris
 
@@ -4674,57 +4267,54 @@ strebi, iel, renkonti lin, ĉar
 
 alie nia alveno estos va-
 
-na.” 
+na.”
 
 “Kial vi volas ren-
 
-konti la teruran Ozon?” 
+konti la teruran Ozon?”
 
-demandis la viro. 
+demandis la viro.
 
 
-
-114
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Mi volas ke li donu al mi cerbaĵon,” diris la Birdo-
 
-timigilo, fervore. 
+timigilo, fervore.
 
 “Ho, Oz povus fari tion sufiĉe facile,” deklaris la
 
-viro. “Li havas pli da cerbo ol li bezonas.” 
+viro. “Li havas pli da cerbo ol li bezonas.”
 
 “Kaj mi volas ke li donu al mi koron,” diris la
 
-Stana Lignohakisto. 
+Stana Lignohakisto.
 
 “Tio ne ĝenos lin,” pludiris la viro, “ĉar Oz havas
 
-grandan kolekton da koroj, ĉiudimensiajn kaj -formajn.” 
+grandan kolekton da koroj, ĉiudimensiajn kaj -formajn.”
 
 “Kaj mi volas ke li donu al mi kuraĝon,” diris la
 
-Malkuraĝa Leono. 
+Malkuraĝa Leono.
 
 “Oz tenas grandan poton da kuraĝo en sia
 
-tronoĉambro,” diris la viro, “kiun li kovris per ora plado, 
+tronoĉambro,” diris la viro, “kiun li kovris per ora plado,
 
 por ke ĝi ne superfluu el ĝi. Li tre volonte donos iom al
 
-vi.” 
+vi.”
 
 “Kaj mi volas ke li resendu min al Kansas,” diris
 
-Doroteo. 
+Doroteo.
 
-“Kie estas Kansas?” demandis la viro, surprizite. 
+“Kie estas Kansas?” demandis la viro, surprizite.
 
 “Mi ne scias,” respondis Doroteo malĝoje, “sed ĝi
 
-estas mia hejmo, kaj mi certas ke ĝi estas ie.” 
+estas mia hejmo, kaj mi certas ke ĝi estas ie.”
 
 “Verŝajne. Nu, Oz povas fari ĉion; do mi supozas
 
@@ -4738,15 +4328,13 @@ deziras, okazas. Sed kion VI volas?” li pludiris, parolante
 
 al Toto. Toto nur skuis sian voston, ĉar, neklarigeble, li
 
-ne kapablis paroli. 
+ne kapablis paroli.
 
 La virino nun vokis al ili dirante ke la manĝo estas
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-115
 
 preta, do ili grupiĝis ĉirkaŭ la tablon kaj Doroteo manĝis
 
@@ -4756,15 +4344,15 @@ da bona blanka pano, kaj ĝuis la manĝon. La Leono
 
 manĝis iom da kaĉo, sed ĝi ne plaĉis al li, kaj li diris ke
 
-ĝi konsistas el aveno kaj aveno estas manĝaĵo por ĉevaloj, 
+ĝi konsistas el aveno kaj aveno estas manĝaĵo por ĉevaloj,
 
 ne leonoj. La Birdotimigilo kaj la Stana Lignohakisto
 
 nenion manĝis. Toto manĝis iom da ĉio, kaj ĝojis den-
 
-ove bone manĝi. 
+ove bone manĝi.
 
-La virino nun donis al Doroteo liton en kiu dormi, 
+La virino nun donis al Doroteo liton en kiu dormi,
 
 kaj Toto kuŝiĝis apud ŝi, kaj la Leono gardis la pordon
 
@@ -4772,15 +4360,15 @@ de ŝia ĉambro por ke neniu ŝin ĝenu. La Birdotimigilo
 
 kaj la Stana Lignohakisto staris en angulo kviete dum la
 
-tuta nokto, kvankam kompreneble ili ne kapablis dormi. 
+tuta nokto, kvankam kompreneble ili ne kapablis dormi.
 
 La sekvan matenon, tuj kiam la suno leviĝis, ili
 
 rekomencis marŝi, kaj baldaŭ ili vidis belan verdan brilon
 
-en la ĉielo tuj antaŭ si. 
+en la ĉielo tuj antaŭ si.
 
-“Jen nepre la Smeralda Urbo,” diris Doroteo. 
+“Jen nepre la Smeralda Urbo,” diris Doroteo.
 
 Dum ili plu marŝis, la verda brilo fariĝis pli kaj pli
 
@@ -4790,25 +4378,20 @@ marŝado. Tamen jam estis posttagmeze kiam ili atingis la
 
 grandan muron kiu ĉirkaŭis la Urbon. Ĝi estis alta, kaj
 
-dika, kaj hele verdkolora. 
+dika, kaj hele verdkolora.
 
-Antaŭ ili, kaj ĉe la fino de la vojo el flavaj brikoj, 
+Antaŭ ili, kaj ĉe la fino de la vojo el flavaj brikoj,
 
 estis grandega pordo, kovrita per smeraldoj kiuj tiom scin-
 
 tilis pro la sunlumo ke eĉ la pentritaj okuloj de la
 
-Birdotimigilo preskaŭ blindiĝis. 
+Birdotimigilo preskaŭ blindiĝis.
 
 Sonorilo estis apud la pordego, kaj Doroteo puŝis la
 
-!(images/000038.jpg)
 
-
-
-116
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 butonon kaj aŭdis arĝentecan klakon el interne. Post tio
 
@@ -4816,7 +4399,7 @@ la granda pordo malrapide malfermiĝis, kaj ili ĉiuj trairis
 
 kaj trovis sin en alta arkaohava ĉambro, kies muroj scinti-
 
-lis pro sennombraj smeraldoj. 
+lis pro sennombraj smeraldoj.
 
 Antaŭ ili staris malgranda viro proksimume
 
@@ -4824,21 +4407,21 @@ samgranda kiel la Manĝtuloj. Li estis verde vestita, de la
 
 kapo al la piedoj, kaj eĉ lia haŭto estis verdeta. Apud li
 
-estis granda verda kesto. 
+estis granda verda kesto.
 
 Kiam li vidis Doroteon kaj ŝiajn akompanantojn la
 
-viro demandis, 
+viro demandis,
 
-“Kion vi volas en la Smeralda Urbo?” 
+“Kion vi volas en la Smeralda Urbo?”
 
 “Ni venis por renkonti la Grandan Ozon,” diris
 
-Doroteo. 
+Doroteo.
 
 Multe surprizis la viron tiu respondo kaj li sidiĝis
 
-por pripensi ĝin. 
+por pripensi ĝin.
 
 “Jam de multaj jaroj neniu petas renkonti Ozon,” li
 
@@ -4848,21 +4431,17 @@ timiga, kaj se vi venis pro senutila aŭ malsaĝa celo por
 
 ĝeni la saĝan kontempladon de la Granda Sorĉisto, li eble
 
-koleros kaj detruos vin ĉiujn tuj.” 
-
-!(images/000074.jpg)
+koleros kaj detruos vin ĉiujn tuj.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-117
-
-“Sed ne temas pri malsaĝa celo, nek sencela,” 
+“Sed ne temas pri malsaĝa celo, nek sencela,”
 
 respondis la Birdotimigilo; “ĝi estas grava. Kaj oni diris al
 
-ni ke Oz estas bona Sorĉisto.” 
+ni ke Oz estas bona Sorĉisto.”
 
 “Jes,” diris la verdulo; “kaj li regas la Smeraldan
 
@@ -4876,9 +4455,9 @@ Pordogardisto, kaj ĉar vi postulas renkonti la Grandan
 
 Ozon mi devos konduki vin al lia palaco. Sed unue vi
 
-devos surmeti la okulvitrojn.” 
+devos surmeti la okulvitrojn.”
 
-“Kial?” demandis Doroteo. 
+“Kial?” demandis Doroteo.
 
 “Ĉar se vi ne surhavus okulvitrojn la brilego kaj
 
@@ -4890,7 +4469,7 @@ estas surfiksitaj per seruro, ĉar tiel ordonis Oz kiam la
 
 Urbo unue estis konstruita, kaj mi havas la solan ŝlosilon
 
-kiu povas malŝlosi ilin.” 
+kiu povas malŝlosi ilin.”
 
 Li malfermis la grandan keston, kaj Doroteo vidis ke
 
@@ -4907,10 +4486,7 @@ ardisto trovis okulvitrojn prfecize
 metis ilin sur ŝiajn okulojn. Estis
 
 
-
-118
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 du oraj bendoj estis ligitaj al ili, kiuj ĉirkaŭis la dorson
 
@@ -4918,17 +4494,17 @@ de ŝia kapo. kie ili estis kunfiksitaj per ŝlosileto ĉe la fino
 
 de ĉeno ĉirkaŭ la kolo de la Pordogardisto. Kiam ili estis
 
-surfiksitaj, Doroteo ne povus forpreni ilin eĉ se ŝi volus, 
+surfiksitaj, Doroteo ne povus forpreni ilin eĉ se ŝi volus,
 
 sed kompreneble ŝi ne volis esti blindigita de la brilego de
 
-la Smeralda Urbo, do ŝi diris nenion. 
+la Smeralda Urbo, do ŝi diris nenion.
 
 Post tio la verdulo metis okulvitrojn sur la Birdot-
 
 imigilon kaj la Stanan Lignohakiston kaj la Leonon, kaj
 
-eĉ malgrandan Toton; kaj ĉiuj estis fiksitaj per la ŝlosilo. 
+eĉ malgrandan Toton; kaj ĉiuj estis fiksitaj per la ŝlosilo.
 
 Post tio la Pordogardisto surmetis siajn proprajn
 
@@ -4938,31 +4514,21 @@ palaco. Preninte grandan oran ŝlosilon de hoko sur la
 
 muro li malfermis alian pordon, kaj ili ĉiuj sekvis lin tra
 
-la pordon en la stratojn de la Smeralda Urbo. 
+la pordon en la stratojn de la Smeralda Urbo.
 
-!(images/000046.jpg)
-
-* *
 
 *“La Leono manĝis iom da kaĉo.” *
 
-!(images/000022.jpg)
 
-
-
-Ĉapitro XI. 
+Ĉapitro XI.
 
 La Mirinda
 
 Smeralda Urbo de
 
-!(images/000000.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-121
 
 KUN OKULOJ PROTEK-
 
@@ -4988,17 +4554,14 @@ sunlumo. La fenestroj estis el verda vitro; eĉ la ĉielo
 
 super la Urbo estis iomete verda, kaj la sunradioj estis
 
-verdaj. 
+verdaj.
 
 Multaj personoj — viroj, virinoj, kaj infanoj —
 
 ĉirkaŭmarŝadis, kaj ili estis verde vestitaj kaj havis verd-
 
 
-
-122
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 etajn haŭtojn. Ili rigardis Doroteon kaj ŝian strangan
 
@@ -5016,13 +4579,13 @@ verda krakmaizo estis vendataj, ankaŭ verdaj ŝuoj, verdaj
 
 adis verdan limonadon, kaj kiam la infanoj aĉetis ĝin
 
-Doroteo rimarkis ke ili pagas ĝin per verdaj moneroj. 
+Doroteo rimarkis ke ili pagas ĝin per verdaj moneroj.
 
 Ŝajne estis nek ĉevaloj nek iuspecaj bestoj; la viroj
 
 disportadis objektojn per verdaj ĉaretoj, kiujn ili
 
-antaŭenpuŝis. Ĉiu ŝajnis feliĉa kaj kontenta kaj prospera. 
+antaŭenpuŝis. Ĉiu ŝajnis feliĉa kaj kontenta kaj prospera.
 
 La Pordogardisto gvidis ilin tra la stratoj ĝis ili
 
@@ -5032,15 +4595,15 @@ Urbo, kiu estis la palaco de Oz, la Granda Sorĉisto. Sol-
 
 dato staris antaŭ la pordo, vestita per verda uniformo kaj
 
-kun longa verda barbo. 
+kun longa verda barbo.
 
 “Jen fremduloj,” diris al li la Pordogardisto, “kaj ili
 
-postulas renkonti la Grandan Ozon.” 
+postulas renkonti la Grandan Ozon.”
 
 “Enpaŝu,” respondis la soldato, “kaj mi portos vian
 
-mesaĝon al ili.” 
+mesaĝon al ili.”
 
 Do ili trairis la pordojn de la Palaco kaj kondukiĝis
 
@@ -5050,31 +4613,26 @@ mebloj ornamitaj per smeraldoj. La soldato devigis ilin
 
 ĉiujn viŝi siajn piedojn per verda mato antaŭ ol eniri la
 
-ĉambron, kaj kiam ili sidiĝis li diris ĝentile, 
+ĉambron, kaj kiam ili sidiĝis li diris ĝentile,
 
 “Bonvolu komfortigi vin dum mi iros al la pordo de
 
-!(images/000090.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-123
 
 LA MIRINDA SORĈISTO DE OZ
 
-123
 
 de la trono ĉambro kaj diros al Ozo ke vi
 
-ĉeestas.” 
+ĉeestas.”
 
 Ili devis longe atendi ĝis la soldato reve-
 
-nis. Kiam, fine, li revenis, Doroteo demandis, 
+nis. Kiam, fine, li revenis, Doroteo demandis,
 
-“Ĉu vi vidis Ozon?” 
+“Ĉu vi vidis Ozon?”
 
 “Ho, ne,” respondis la soldato; “mi neniam
 
@@ -5082,31 +4640,31 @@ vidis lin. Sed mi parolis al li dum li sidis mal-
 
 antaŭ sia ekrano, kaj diris al li vian mesaĝon. Li
 
-diras ke li akceptos paroli kun vi, se vi deziras; 
+diras ke li akceptos paroli kun vi, se vi deziras;
 
 sed ĉiu el vi devos eniri sola, kaj li akceptos nur
 
 unu el vi ĉiutage. Sekve, ĉar vi devos
 
-resti en la Palaco dum pluraj tagoj, 
+resti en la Palaco dum pluraj tagoj,
 
 mi kondukigos vin al ĉambroj kie vi
 
-povos 
+povos
 
-esti 
+esti
 
-komfortaj 
+komfortaj
 
-post 
+post
 
 via
 
-marŝado.” 
+marŝado.”
 
 “Dankon,” respondis la knab-
 
-ino; “Oz estas tre afabla.” 
+ino; “Oz estas tre afabla.”
 
 La soldato nun blovis verdan
 
@@ -5120,23 +4678,16 @@ hararon kaj verdajn okulojn, kaj ŝi ŝi
 
 riverencis profunde antaŭ Doroteo
 
-dirante, 
+dirante,
 
 “Sekvu min kaj mi gvidos vin al
 
-via ĉambro.” 
+via ĉambro.”
 
 Do Doroteo adiaŭis ĉiujn siajn
 
-!(images/000116.jpg)
 
-
-
-124
-
-124
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
@@ -5164,19 +4715,19 @@ daj libroj. Kiam Doroteo havis sufiĉan tempon por
 
 malfermi la librojn ŝi trovis ilin plenaj de kuriozaj verdaj
 
-bildoj kiuj ridigis ŝin pro sia komikeco. 
+bildoj kiuj ridigis ŝin pro sia komikeco.
 
 En ŝranko estis multaj verdaj roboj, el silko kaj
 
 sateno kaj veluro; kaj ĉiu el ili estis precize ĝustadimen-
 
-sia por Doroteo. 
+sia por Doroteo.
 
-“Sentu ke vi estas ĉehejme,” diris la verda knabino, 
+“Sentu ke vi estas ĉehejme,” diris la verda knabino,
 
 “kaj se vi deziros ion sonoru. Oz alvokos vin morgaŭ
 
-matene.” 
+matene.”
 
 Ŝi lasis Doroteon sola kaj reiris al la aliaj. Ilin ŝi
 
@@ -5194,13 +4745,9 @@ ripozigus kuŝado, kaj li ne povis fermi siajn okulojn; do li
 
 restis dum la tuta nokto rigardante malgrandan araneon
 
-!(images/000060.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-125
 
 kiu faras sian reton en angulo de la ĉambro, kvazaŭ ĝi ne
 
@@ -5218,7 +4765,7 @@ arbaro, kaj al li ne plaĉis esti fermita en ĉambron; sed lia
 
 saĝeco ne permesis ke tio ĝenu lin, do li saltis sur la liton
 
-kaj ruliĝis kiel kato kaj ronrone tuj dormigis sin. 
+kaj ruliĝis kiel kato kaj ronrone tuj dormigis sin.
 
 La sekvan matenon, post la matenmanĝo, la verda
 
@@ -5230,7 +4777,7 @@ oteo surmetis verdan silkan antaŭveston kaj ligis verdan
 
 rubandon ĉirkaŭ la kolon de Toto, kaj ili ekmarŝis al la
 
-Tronoĉambro de la Granda Oz. 
+Tronoĉambro de la Granda Oz.
 
 Unue ili atingis grandan kunvenejon en kiu estis
 
@@ -5246,23 +4793,20 @@ permesis ke ili vidu Ozon. Dum Doroteo
 
 eniris ili rigardis ŝin scivoleme, kaj unu el ili
 
-flustris, 
+flustris,
 
 “Ĉu vi vere rigardos
 
 la vizaĝon de Oz la
 
-Terura?” 
+Terura?”
 
 “Kompreneble respon-
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-126
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-dis la knabino, “se li akceptos vidi min.” 
+dis la knabino, “se li akceptos vidi min.”
 
 “Ho, li akceptos vidi vin,” diris la soldato kiu komu-
 
@@ -5274,23 +4818,23 @@ era kaj diris ke mi devas resendi vin al la loko el kie vi
 
 venis. Post tio li demandis min pri via aspekto, kaj kiam
 
-mi menciis viajn arĝentajn ŝuojn li estis tre interesata. 
+mi menciis viajn arĝentajn ŝuojn li estis tre interesata.
 
 Laste mi parolis al li pri la marko sur via frunto, kaj li
 
-decidis permesi ke vi eniru.” 
+decidis permesi ke vi eniru.”
 
 Ĝuste tiam sonorilo sonis, kaj la verda knabino diris
 
-al Doroteo, 
+al Doroteo,
 
 “Jen la signalo. Vi devas eniri la Tronoĉambron
 
-sola.” 
+sola.”
 
 Ŝi malfermis malgrandan pordon kaj Doroteo brave
 
-tramarŝis kaj trovis sin en mirinda loko. Ĝi estis granda, 
+tramarŝis kaj trovis sin en mirinda loko. Ĝi estis granda,
 
 ronda ĉambro, kun alta arka plafono, kaj la muroj kaj
 
@@ -5300,7 +4844,7 @@ dense kunlokigitaj. En la centro de la plafono estis granda
 
 lumo, same brila kiel la suno, kiu briligis la smeraldojn
 
-mirige. 
+mirige.
 
 Sed tio kio plej interesis Doroteon estis la granda
 
@@ -5317,56 +4861,54 @@ kruroj. Sur tiu kapo ne estis haroj, sed ĝi havis okulojn
 kaj nazon kaj buŝon, kaj ĝi estis pli granda ol la kapo de
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-127
-
-la plej granda giganto. 
+la plej granda giganto.
 
 Dum Doroteo rigardis tion mirante kaj timante la
 
 okuloj malrapide turniĝis kaj rigardis ŝin akre kaj senŝan-
 
-celiĝe. La buŝo moviĝis kaj Doroteo aŭdis voĉon diri: 
+celiĝe. La buŝo moviĝis kaj Doroteo aŭdis voĉon diri:
 
 “Mi estas Oz, la Granda, la Terura. Kiu estas vi, kaj
 
-kial vi serĉas min?” 
+kial vi serĉas min?”
 
 La voĉo ne estis tiom timiga kiom ŝi anticipis el la
 
-granda Kapo; do ŝi kuraĝe respondis, 
+granda Kapo; do ŝi kuraĝe respondis,
 
 “Mi estas Doroteo, la Malgranda kaj Humila. Mi
 
-venis por peti vian helpon.” 
+venis por peti vian helpon.”
 
-La okuloj rigardis ŝin penseme dum plena minuto. 
+La okuloj rigardis ŝin penseme dum plena minuto.
 
-Post tio diris la voĉo: 
+Post tio diris la voĉo:
 
-“Kie vi akiris la arĝentajn ŝuojn?” 
+“Kie vi akiris la arĝentajn ŝuojn?”
 
-“Mi akiris ilin de la fia Sorĉistino de la Oriento, 
+“Mi akiris ilin de la fia Sorĉistino de la Oriento,
 
 kiam mia domo falis sur ŝin kaj mortigis ŝin,” ŝi respond-
 
-is. 
+is.
 
 “Kie vi akiris la markon sur via frunto?” pludiris la
 
-voĉo. 
+voĉo.
 
 “Tie la bona Sorĉistino de la Nordo kisis min kiam
 
-ŝi adiaŭis min kaj sendis min al vi,” diris la knabino. 
+ŝi adiaŭis min kaj sendis min al vi,” diris la knabino.
 
 Denove la okuloj akre rigardis ŝin, kaj vidis ke ŝi
 
-diras la veron. Post tio Oz diris, 
+diras la veron. Post tio Oz diris,
 
-“Kion vi volas ke mi faru?” 
+“Kion vi volas ke mi faru?”
 
 “Resendu min al Kansas, kie estas miaj Onklino Em
 
@@ -5377,36 +4919,33 @@ vian landon, kvankam ĝi ja estas tre bela. Kaj mi estas
 certa ke Onklino Em estas multe malkvieta pro mia tiom
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-128
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-longa foresto.” 
+longa foresto.”
 
 La okuloj palpebrumis trifoje, kaj post tio ili turniĝis
 
 al la plafono kaj subturniĝis al la planko kaj turniĝadis
 
-tiel kurioze ke ili ŝajnis rigardi ĉiun parton de la ĉambro. 
+tiel kurioze ke ili ŝajnis rigardi ĉiun parton de la ĉambro.
 
-Kaj fine ili denove rigardis Doroteon. 
+Kaj fine ili denove rigardis Doroteon.
 
-“Kial mi faru tion por vi?” demandis Oz. 
+“Kial mi faru tion por vi?” demandis Oz.
 
 “Ĉar vi estas forta kaj mi estas malforta, ĉar vi estas
 
 Granda Sorĉisto kaj mi estas nur senhelpa knabineto,” ŝi
 
-respondis. 
+respondis.
 
 “Sed vi estis sufiĉa forta por mortigi la fian Sorĉist-
 
-inon de la Oriento,” diris Oz. 
+inon de la Oriento,” diris Oz.
 
-“Tio estis nur hazard,” respondis Doroteo simple; 
+“Tio estis nur hazard,” respondis Doroteo simple;
 
-“mi ne ne povis malebligi ĝin.” 
+“mi ne ne povis malebligi ĝin.”
 
 “Nu,” diris la Kapo, “mi diros al vi mian respon-
 
@@ -5420,15 +4959,15 @@ uzu mian magion por resendi vin al via hejmo vi unue
 
 devos fari ion por mi. Helpu min kaj post tio mi helpos
 
-vin.” 
+vin.”
 
-“Kion mi devos fari?” demandis la knabino. 
+“Kion mi devos fari?” demandis la knabino.
 
-“Mortigu la fian Sorĉistinon de la Okcidento,” 
+“Mortigu la fian Sorĉistinon de la Okcidento,”
 
-respondis Oz. 
+respondis Oz.
 
-“Sed mi ne povas\!” kriis Doroteo, multe surprizita. 
+“Sed mi ne povas!” kriis Doroteo, multe surprizita.
 
 “Vi mortigis la Sorĉistinon de la Oriento kaj vi sur-
 
@@ -5436,17 +4975,13 @@ portas la arĝentajn ŝuojn, kiuj enhavas potencan
 
 sorĉopovon. Nun restas nur unu Fia Sorĉistino en la tuta
 
-!(images/000077.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-129
 
 lando, kaj kiam vi povos diri ke ŝi estas mortinta mi
 
-resendos vin al Kansas — sed ne antaŭ tiam.” 
+resendos vin al Kansas — sed ne antaŭ tiam.”
 
 La malgranda knabino komencis plori, ĉar ŝi tiom
 
@@ -5454,9 +4989,9 @@ senesperiĝis; kaj la okuloj denove palpebrumis kaj rigar-
 
 dis ŝin malkviete, kvazaŭ la Granda Oz kredas ke ŝi
 
-povos helpi lin se ŝi volos. 
+povos helpi lin se ŝi volos.
 
-“Neniam mi mortigis ion ajn, ne intence,” ŝi ploris; 
+“Neniam mi mortigis ion ajn, ne intence,” ŝi ploris;
 
 “kaj eĉ se mi volus fari tion, kiel mi povus mortigi la
 
@@ -5464,7 +4999,7 @@ Fian Sorĉistinon? Se vi, kiu estas Granda kaj Terura, ne
 
 povas mem mortigi ŝin, kial vi supozas ke mi povus fari
 
-tion?” 
+tion?”
 
 “Mi ne scias,” diris la Kapo; “sed tio estas mia
 
@@ -5480,7 +5015,7 @@ meritas esti mortigita. Nun iru, kaj ne
 
 petu revidi min antaŭ ol vi estos
 
-plenuminta vian taskon. 
+plenuminta vian taskon.
 
 Malĝoje Doroteo foriris el la
 
@@ -5492,7 +5027,7 @@ na Lignohakisto atendas por aŭdi kion
 
 estis dirinta al ŝi
 
-Oz. 
+Oz.
 
 “Por
 
@@ -5501,28 +5036,25 @@ mi estas
 nenia es-
 
 
-
-130
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 pero,” ŝi diris malgaje, “ĉar Oz ne resendos min al mia
 
 hejmo antaŭ ol mi mortigos la Fian Sorĉistinon de la
 
-Okcidento; kaj tion mi neniam povos.” 
+Okcidento; kaj tion mi neniam povos.”
 
 Ŝiaj amikoj bedaŭris, sed ili ne povis helpi ŝin; do ŝi
 
 iris al sia ĉambro kaj kuŝiĝis sur la liton kaj endormiĝis
 
-plorante. 
+plorante.
 
 La sekvan matenon la soldato kun la verda barbo
 
-venis al la Birdotimigilo kaj diris, 
+venis al la Birdotimigilo kaj diris,
 
-“Venu kun mi, ĉar Oz alvokis vin.” 
+“Venu kun mi, ĉar Oz alvokis vin.”
 
 Do la Birdotimigilo sekvis lin kaj estis permesita
 
@@ -5536,23 +5068,23 @@ tis juvelkovritan kronon. Sur ŝiaj ŝultroj kreskis flugiloj
 
 kolorbelegaj kaj tiom senpezaj ke ili tremis kiam ajn la
 
-plej malforta aermoviĝo atingis ilin. 
+plej malforta aermoviĝo atingis ilin.
 
 Kiam la Birdotimigilo klinis sin, tiom bele kiom
 
 permesis lia pajla enhavo, antaŭ tiu belulino, ŝi rigardis
 
-lin dolĉe kaj diris: 
+lin dolĉe kaj diris:
 
 “Mi estas Oz, la Granda, la Terura. Kiu estas vi, kaj
 
-kial vi serĉas min?” 
+kial vi serĉas min?”
 
 Nu, la Birdotimigilo anticipis vidi la grandan Kapon
 
 pri kiu parolis Doroteo, kaj li multe surpriziĝis; sed li
 
-respondis brave. 
+respondis brave.
 
 “Mi estas nur Birdotimigilo, plenigita per pajlo. Tial
 
@@ -5560,19 +5092,16 @@ mi ne havas cerbon, kaj mi venis al vi petante ke vi metu
 
 cerbon en mian kapon por anstataŭi la pajlon, por ke mi
 
-!(images/000083.jpg)
 
+fariĝu tiom homa kia ĉiu alia persono en via regno.”
 
-
-fariĝu tiom homa kia ĉiu alia persono en via regno.” 
-
-“Kial mi faru tion por vi?” demandis la damo. 
+“Kial mi faru tion por vi?” demandis la damo.
 
 “Ĉar vi estas saĝa kaj potenca, kaj neniu alia povas
 
-helpi min,” respondis la Birdotimigilo. 
+helpi min,” respondis la Birdotimigilo.
 
-“Mi neniam faras komplezon sen ia rekompenco,” 
+“Mi neniam faras komplezon sen ia rekompenco,”
 
 diris Oz; “sed ĉi tion mi promesas. Se vi mortigos por mi
 
@@ -5580,35 +5109,35 @@ la Fian Sorĉistinon de la Okcidento mi donos al vi abun-
 
 dan cerbaĵon, tiel bonan cerbaĵon ke vi estos la plej saĝa
 
-persono en la tuta Lando Oz.” 
+persono en la tuta Lando Oz.”
 
 “Sed mi kredis ke vi jam petis ke Doroteo mortigu
 
-la Sorĉistinon,” diris la Birdotimigilo, surprizite. 
+la Sorĉistinon,” diris la Birdotimigilo, surprizite.
 
-“Tiel estis. Ne gravas al mi kiu mortigos ŝin. 
+“Tiel estis. Ne gravas al mi kiu mortigos ŝin.
 
 Sed antaŭ ol ŝi mortos mi ne plenumos vian
 
 peton. Nun foriru, kaj ne petu revidi min antaŭ
 
-ol vi meritos la cerbon kiun vi tiom deziras.” 
+ol vi meritos la cerbon kiun vi tiom deziras.”
 
 La Birdotimigilo reiris malĝoje al siaj
 
-amikoj kaj diris al ili kion diris Oz; kaj Do- 
+amikoj kaj diris al ili kion diris Oz; kaj Do-
 
 roteon surprizis aŭdi ke la granda
 
 Sorĉisto ne estas Kapo, kia kiam ŝi
 
-vidis lin, sed bela damo. 
+vidis lin, sed bela damo.
 
 “Malgraŭ tio,” diris la Birdo-
 
 timigilo, “ŝi bezonas koron tiom
 
-kiom la Stana Lignohakisto.” 
+kiom la Stana Lignohakisto.”
 
 La sekvan matenon la
 
@@ -5616,15 +5145,12 @@ soldato kun la verda barbo
 
 venis al la Stana Lignohakisto
 
-kaj diris, 
+kaj diris,
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-132
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-“Oz alvokis vin. Sekvu min.” 
+“Oz alvokis vin. Sekvu min.”
 
 Do la Stana Lignohakisto sekvis lin kaj atingis la
 
@@ -5640,7 +5166,7 @@ koron kaj tial ne povas senti kun mi. Sed se li estos la
 
 bela damo mi petegos koron, ĉar oni diras ke ĉiuj damoj
 
-mem estas bonkoraj.” 
+mem estas bonkoraj.”
 
 Sed kiam la Stana Lignohakisto eniris la grandan
 
@@ -5652,7 +5178,7 @@ preskaŭ granda kiel elefanto, kaj la verda trono ŝajnis
 
 apenaŭ sufiĉe fortika por ĝia pezo. La Bruto havis kapon
 
-kia tiu de rinocero, sed estis kvin okuloj en ĝia vizaĝo. 
+kia tiu de rinocero, sed estis kvin okuloj en ĝia vizaĝo.
 
 Kvin longaj brakoj kreskis el ĝia korpo kaj ĝi ankaŭ havis
 
@@ -5664,43 +5190,37 @@ imagebla. Feliĉe la Stana Lignohakisto ne havis koron
 
 tiutempe, ĉar ĝi bategus laŭte kaj rapide pro teruriĝo. Sed
 
-ĉar li estis el nur stano, la Hakisto tute ne timis, 
+ĉar li estis el nur stano, la Hakisto tute ne timis,
 
-kvankam li estis multe senesperiĝinta. 
+kvankam li estis multe senesperiĝinta.
 
 “Mi estas Oz, la Granda, la Terura,” parolis la
 
 Bruto, per voĉo kiu estis unusola grandega muĝo. “Kiu
 
-estas vi, kaj kial vi serĉas min?” 
+estas vi, kaj kial vi serĉas min?”
 
 “Mi estas Hakisto, kaj konsistas el stano. Tial mi ne
 
 havas koron, kaj ne povas ami. Mi petas ke vi donu al mi
 
-!(images/000142.jpg)
 
-!(images/000095.jpg)
-
+LA MIRINDA SORĈISTO DE OZ.
 
 
-LA MIRINDA SORĈISTO DE OZ. 
+koron por ke mi estu kiaj la aliaj homoj.”
 
-133
-
-koron por ke mi estu kiaj la aliaj homoj.” 
-
-“Kial mi faru tion?” demandis la Bruto. 
+“Kial mi faru tion?” demandis la Bruto.
 
 “Ĉar mi petas, kaj nur vi povas plenumi mian
 
-peton,” respondis la Hakisto. 
+peton,” respondis la Hakisto.
 
-Oz iomete muĝis je tio, sed diris, raŭke, 
+Oz iomete muĝis je tio, sed diris, raŭke,
 
-“Se vi efektive deziras koron, vi devos meriti ĝin.” 
+“Se vi efektive deziras koron, vi devos meriti ĝin.”
 
-“Kiel?” demandis la Hakisto. 
+“Kiel?” demandis la Hakisto.
 
 “Helpu Doroteon mortigi la Fian Sorĉistinon de la
 
@@ -5710,17 +5230,17 @@ morta, venu al mi, kaj mi tiam donos al vi la plej
 
 grandan kaj plej afablan kaj plej ameman koron en la
 
-tuta Lando Oz.” 
+tuta Lando Oz.”
 
 Do la Stana Lignohakisto devis reiri malĝoje al siaj
 
-amikoj kaj informi ilin pri la terura Bruto kiun li vidis. 
+amikoj kaj informi ilin pri la terura Bruto kiun li vidis.
 
 Ili ĉiuj miregis pro la multaj formoj kiujn donis al si la
 
-Granda Sorĉisto, kaj la Leono diris, 
+Granda Sorĉisto, kaj la Leono diris,
 
-“Se li estos bruto kiam mi vidos lin, 
+“Se li estos bruto kiam mi vidos lin,
 
 mi kiel eble plej laŭte muĝegos kaj tiom
 
@@ -5738,23 +5258,18 @@ volos; ĉar mi rulos la Kapon tra la tuta
 
 ĉambro ĝis li promesos doni al ni kion ni
 
-deziras. Do estu bonesperaj, miaj amikoj, 
+deziras. Do estu bonesperaj, miaj amikoj,
 
-ĉar ja ĉio rezultos bone.” 
-
-!(images/000096.jpg)
+ĉar ja ĉio rezultos bone.”
 
 
-
-134
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 La sekvan matenon la soldato kun la verda barbo
 
 kondukis la Leonon al la granda Tronoĉambro kaj petis
 
-lin eniri al Oz. 
+lin eniri al Oz.
 
 La Leono tuj trairis la pordon, kaj ĉirkaŭrigardante
 
@@ -5766,13 +5281,13 @@ Fajro, tiom feroca kaj arda ke li apenaŭ kuraĝis rigardi
 
 konsumiĝas; sed kiam li provis proksimiĝi, la varmego
 
-estis tiom intensa ke ĝi komencis bruligi liajn lipharojn, 
+estis tiom intensa ke ĝi komencis bruligi liajn lipharojn,
 
 kaj li retrorampis tremante al pozicio pli proksima al la
 
-pordo. 
+pordo.
 
-Venis malalta, trankvila voĉo el la Globo de Fajro, 
+Venis malalta, trankvila voĉo el la Globo de Fajro,
 
 kaj ĉi tiujn vortojn ĝi parolis:
 
@@ -5782,9 +5297,9 @@ Terura. Kiu estas vi, kaj kial vi
 
 serĉas min?” Kaj la Leono respond-
 
-is, 
+is,
 
-“Mi estas Malkuraĝa Leono, 
+“Mi estas Malkuraĝa Leono,
 
 mi timas ĉion. Mi venis al vi por
 
@@ -5792,35 +5307,33 @@ peti ke vi donu al mi kuraĝon, por
 
 ke mi reale fariĝu la Reĝo de
 
-Bestoj, kiel min oni nomas.” 
+Bestoj, kiel min oni nomas.”
 
-“Kial mi donu al vi kuraĝon?” 
+“Kial mi donu al vi kuraĝon?”
 
-demandis Oz. 
+demandis Oz.
 
 Ĉar el ĉiuj Sorĉistoj vi ests la
 
 plej granda, kaj nur vi havas
 
-kapablon plenumi mian peton, 
+kapablon plenumi mian peton,
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-135
+respondis la Leono.
 
-respondis la Leono. 
+La Globo de Fajro brulis feroce dum kelka tempo,
 
-La Globo de Fajro brulis feroce dum kelka tempo, 
-
-kaj la voĉo diris, 
+kaj la voĉo diris,
 
 “Portu al mi pruvon ke mortis la Fia Sorĉistino, kaj
 
 tuj tiam mi donos al vi kuraĝon. Sed dum vivos la
 
-Sorĉistino vi devos resti malkuraĝa.” 
+Sorĉistino vi devos resti malkuraĝa.”
 
 La Leono koleris pro tiu parolo, sed li povis
 
@@ -5832,65 +5345,61 @@ nis sin kaj kiel eble plej rapide kuris el la ĉambro. Li
 
 ĝoje trovis siajn amikojn atendantaj lin, kaj li informis
 
-ilin pri la timiga intervjuo kun la Sorĉisto. 
+ilin pri la timiga intervjuo kun la Sorĉisto.
 
-“Kion ni faru nun?” demandis Doroteo malĝoje. 
+“Kion ni faru nun?” demandis Doroteo malĝoje.
 
-“Nur unu afero estas farebla,” respondis la Leono, 
+“Nur unu afero estas farebla,” respondis la Leono,
 
 “ni devos iri al la Lando de la Palpbrumoj, elserĉi la Fian
 
-Sorĉistinon, kaj detrui ŝin.” 
+Sorĉistinon, kaj detrui ŝin.”
 
-“Sed eble ni ne povos,” diris la knabino. 
+“Sed eble ni ne povos,” diris la knabino.
 
 “Tiukaze mi neniam ricevos kuraĝon,” deklaris la
 
-Leono. 
+Leono.
 
 “Kaj mi neniam ricevos cerbon,” diris la Birdotim-
 
-igilo. 
+igilo.
 
 “Kaj mi neniam ricevos koron,” parolis la Stana
 
-Lignohakisto. 
+Lignohakisto.
 
 “Kaj mi neniam revidos Onklinon Emon kaj
 
-Onklon Henrikon,“ diris Doroteo, komencante plori. 
+Onklon Henrikon,“ diris Doroteo, komencante plori.
 
-“Atentu\!” kriis la verda knabino. “La larmoj falos
+“Atentu!” kriis la verda knabino. “La larmoj falos
 
-sur vian verdan silkan robon kaj makulos ĝin.” 
+sur vian verdan silkan robon kaj makulos ĝin.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-136
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-Do Doroteo sekigis siajn okulojn kaj diris, 
+Do Doroteo sekigis siajn okulojn kaj diris,
 
 “Mi supozas ke ni devos provi; sed mi nepre ne
 
-deziras mortigi, eĉ se tio helpus revidi Onklinon Emon.” 
+deziras mortigi, eĉ se tio helpus revidi Onklinon Emon.”
 
 “Mi akompanos vin; sed mi estas tro malkuraĝa kaj
 
-ne povus mortigi la Sorĉistinon,” diris la Leono. 
+ne povus mortigi la Sorĉistinon,” diris la Leono.
 
 “Ankaŭ mi kuniros,” deklaris la Birdotimigilo; “sed
 
-mi ne estos granda helpo por vi, ĉar mi estas tro stulta.” 
+mi ne estos granda helpo por vi, ĉar mi estas tro stulta.”
 
 
-
-“Mi estas tro senkora por damaĝi eĉ Sorĉistinon,” 
+“Mi estas tro senkora por damaĝi eĉ Sorĉistinon,”
 
 komentis la Stana Lignohakisto; “sed se vi iros mi certe
 
-akompanos vin.” 
+akompanos vin.”
 
 Tial ili decidis komenci sian marŝon jam sek-
 
@@ -5906,7 +5415,7 @@ verda knabino, kiu estis tre afabla, plenigis la korbon de
 
 Doroteo per plaĉaj manĝaĵoj, kaj ligis sonorileton ĉirkaŭ
 
-la kolon de Toto per verda rubando. 
+la kolon de Toto per verda rubando.
 
 Ili enlitiĝis tre frue kaj profunde dormis ĝis la taglu-
 
@@ -5914,33 +5423,21 @@ miĝo, kiam ilin vekis la kokerikado de verda koko kiu
 
 loĝis en la malantaŭa korto de la palaco, kaj la kriado de
 
-kokino kiu demetis verdan ovon. 
+kokino kiu demetis verdan ovon.
 
-!(images/000098.jpg)
-
-* *
 
 *“La Okuloj rigardis ŝin penseme.” *
 
-!(images/000103.jpg)
 
-
-
-Ĉapitro XII. 
+Ĉapitro XII.
 
 Serĉante la
 
 Fian Sorĉistinon
 
-!(images/000105.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-139
 
 LA STRATOJ DE LA SME-
 
@@ -5958,35 +5455,30 @@ grandan keston, kaj post tio li afable
 
 malfermis la pordegon por niaj
 
-amikoj. 
+amikoj.
 
 “Kiu vojo iras al la Fia Sorĉistino de la Okci-
 
-dento?” demandis Doroteo. 
+dento?” demandis Doroteo.
 
 “Neniu vojo,” respondis la Pordogardisto. “Neniam
 
-iu deziras iri tien.” 
+iu deziras iri tien.”
 
-“Kiel, do, ni trovos ŝin?” demandis la knabino. 
-
-!(images/000106.jpg)
+“Kiel, do, ni trovos ŝin?” demandis la knabino.
 
 
-
-140
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Estos facile,” respondis la viro, “ĉar kiam ŝi sci-
 
 iĝos ke vi estas en la Lando de la Palpbrumoj ŝi trovos
 
-vin, kaj sklavigos vin ĉiujn.” 
+vin, kaj sklavigos vin ĉiujn.”
 
 “Eble ne,” diris la Birdotimigilo, “ĉar ni intencas
 
-detrui ŝin.” 
+detrui ŝin.”
 
 “Nu, jen io tute alia,” diris la Pordogardisto. “Neniu
 
@@ -6000,7 +5492,7 @@ kaj feroca, kaj eble ŝi ne permesos ke vi
 
 detruu ŝin. Iru Okcidenten, sunsubiren, kaj
 
-vi nepre trovos ŝin.” 
+vi nepre trovos ŝin.”
 
 Ili dankis lin kaj adiaŭis lin, kaj tur-
 
@@ -6020,7 +5512,7 @@ blanka. La rubando ĉirkaŭ la kolo de Toto
 
 ankaŭ perdis sian verdan koloron kaj estis
 
-blanka kiel la robo de Doroteo. 
+blanka kiel la robo de Doroteo.
 
 La Smeralda Urbo baldaŭ estis longe
 
@@ -6033,12 +5525,10 @@ tetoplena, ĉar ekzistis nek farmoj nek
 domoj en tiu lando de la Okcidento, kaj la
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-141
-
-tero ne estis kultivata. 
+tero ne estis kultivata.
 
 Posttagmeze la suno varmege brilis sur iliajn viza-
 
@@ -6048,7 +5538,7 @@ antaŭ noktiĝo Doroteo kaj Toto kaj la Leono laciĝis, kaj
 
 kuŝiĝis sur la herbaro kaj endormiĝis, dum la Hakisto kaj
 
-la Birdotimigilo gardadis. 
+la Birdotimigilo gardadis.
 
 Nu, la Fia Sorĉistino de la Okcidento havis nur unu
 
@@ -6056,25 +5546,25 @@ okulon, tamen tiu estis vidkapabla kiel teleskopo, kaj
 
 povis vidi ĉien. Do, dum ŝi sidis ĉe la pordo de sia
 
-kastelo, ŝi ĉirkaŭrigardis kaj vidis Doroteon dormantan, 
+kastelo, ŝi ĉirkaŭrigardis kaj vidis Doroteon dormantan,
 
 ĉirkaŭatan de siaj amikoj. Ili estis tre for, sed la Fia
 
 Sorĉistino koleris ke ili estas en ŝia regno; do ŝi blovis per
 
-arĝenta fajfilo kiu pendis de ĉeno ĉirkaŭ ŝia kolo. 
+arĝenta fajfilo kiu pendis de ĉeno ĉirkaŭ ŝia kolo.
 
-Tuj kuris al ŝi el ĉiu direkto aro da grandaj vulpoj. 
+Tuj kuris al ŝi el ĉiu direkto aro da grandaj vulpoj.
 
 Ili havis longajn krurojn kaj ferocajn okulojn kaj akrajn
 
-dentojn. 
+dentojn.
 
 “Iru al tiuj uloj,” diris la Sorĉistino, “kaj disŝiru
 
-ilin.” 
+ilin.”
 
-“Ĉu vi ne sklavigos ilin?” demandis la Vulpestro. 
+“Ĉu vi ne sklavigos ilin?” demandis la Vulpestro.
 
 “Ne,” ŝi respondis, “unu estas el stano, kaj unu el
 
@@ -6082,27 +5572,22 @@ pajlo; unu estas knabino kaj alia estas Leono. Neniu el ili
 
 taŭgas por laborado, do vi rajtas ŝire dispecetigi ilin
 
-laŭvole.” 
+laŭvole.”
 
 “Bone,” diris la vulpo, kaj li forkuris kiel eble plej
 
-rapide, sekvate de la aliaj. 
+rapide, sekvate de la aliaj.
 
 Bonfortune la Birdotimigilo kaj la Hakisto estis
 
-plene vekaj kaj aŭdis la vulpojn veni. 
-
-!(images/000107.jpg)
+plene vekaj kaj aŭdis la vulpojn veni.
 
 
-
-142
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Jen mia batalo,” diris la Stana Lignohakisto; “do
 
-restu malantaŭ mi kaj mi renkontos ilin dum ili alvenas.” 
+restu malantaŭ mi kaj mi renkontos ilin dum ili alvenas.”
 
 Li prenis sian hakilon, kiun li jam akrigis, kaj kiam
 
@@ -6118,19 +5603,19 @@ rando de la armo de la Stana Lignohakisto. Venis
 
 kvardek vulpoj, kaj kvardekfoje po unu vulpo mortis, tiel
 
-ke fine ili ĉiuj kuŝis mortaj en amaso antaŭ la Hakisto. 
+ke fine ili ĉiuj kuŝis mortaj en amaso antaŭ la Hakisto.
 
 Li remetis sian hakilon sur la teron kaj sidiĝis apud
 
-la Birdotimigilo, kiu diris, 
+la Birdotimigilo, kiu diris,
 
-“Bona batalo, amiko.” 
+“Bona batalo, amiko.”
 
-Ili atendis ĝis Doroteo vekiĝis la sekvan matenon. 
+Ili atendis ĝis Doroteo vekiĝis la sekvan matenon.
 
 La malgrandan knabinon multe timigis vidi la grandan
 
-amason da vilaj vulpoj, 
+amason da vilaj vulpoj,
 
 sed la Stana Lignohak
 
@@ -6142,7 +5627,7 @@ pro savi ilin kaj sidiĝis
 
 por manĝi, kaj post tio
 
-ili rekomencis marŝi. 
+ili rekomencis marŝi.
 
 Tiun saman maten-
 
@@ -6155,38 +5640,36 @@ kaj elrigardis per sia
 unu okulo
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-143
 
 povis tre malproksimen vidi. Ŝi vidis ĉiujn siajn lupojn
 
-mortaj, kaj la fremdulojn ankoraŭ marŝantaj tra ŝia lando. 
+mortaj, kaj la fremdulojn ankoraŭ marŝantaj tra ŝia lando.
 
 Tio des pli kolerigis ŝin, kaj ŝi dufoje blovis sian arĝen-
 
-tan fajfilon. 
+tan fajfilon.
 
 Tuj granda aro da sovaĝaj korvoj flugis al ŝi, sufiĉaj
 
 por senlumigi la ĉielon. Kaj la Fia Sorĉistino diris al la
 
-Korvoreĝo: 
+Korvoreĝo:
 
 “Flugu tuj al la fremduloj; elpiku iliajn okulojn kaj
 
-disŝiru ilin.” 
+disŝiru ilin.”
 
 La sovaĝaj korvoj flugis kiel unu arego cele Dorote-
 
 on kaj ŝiajn akompanantojn. Kiam la malgranda knabino
 
-vidis ilin venantaj ŝi timis. Sed la Birdotimigilo diris, 
+vidis ilin venantaj ŝi timis. Sed la Birdotimigilo diris,
 
 “Jen mia batalo, do kuŝiĝu apud mi kaj vi ne sper-
 
-tos damaĝon.” 
+tos damaĝon.”
 
 Do ĉiuj kuŝis sur la tero escepte de la Birdotimig-
 
@@ -6194,28 +5677,25 @@ ilo, kaj li staris kun la brakoj etenditaj. Kaj kiam la
 
 korvoj vidis lin ili ektimis, kiel ĉiam okazas kiam tiaj bir-
 
-doj vidas birdotimigilojn, kaj ne kuraĝis pliproksimiĝi. 
+doj vidas birdotimigilojn, kaj ne kuraĝis pliproksimiĝi.
 
-Sed la Korvoreĝo diris, 
+Sed la Korvoreĝo diris,
 
-“Estas nur pajla homo. Mi elpikos liajn okulojn.” 
+“Estas nur pajla homo. Mi elpikos liajn okulojn.”
 
 La Korvoreĝo flugis kontraŭ la Birdotimigilon, kiu
 
-kaptis ĝin per la kapo kaj tordis ĝian kolon ĝis ĝi mortis. 
+kaptis ĝin per la kapo kaj tordis ĝian kolon ĝis ĝi mortis.
 
 Kaj post tio alia korvo flugis kontraŭ lin, kaj la Birdo-
 
-timigilo tordis ankaŭ ĝian kolon. Kvardek korvoj venis, 
+timigilo tordis ankaŭ ĝian kolon. Kvardek korvoj venis,
 
 kaj kvardekfoje la Birdotimigilo tordis kolon, ĝis fine ĉiuj
 
 kuŝis mortaj apud li. Post tio li vokis al siaj akompanan-
 
-toj ke ili leviĝu, kaj ili rekomencis marŝi. 
-
-!(images/000111.jpg)
-
+toj ke ili leviĝu, kaj ili rekomencis marŝi.
 
 
 Kiam la Fia Sorĉistino denove elrigardis
@@ -6224,13 +5704,13 @@ kaj vidis ĉiujn siajn korvojn kuŝantajn en
 
 amaso, ŝi furiozegis, kaj trifoje blovis sian ar-
 
-ĝentan fajfilon. 
+ĝentan fajfilon.
 
 Tuj aŭdiĝis laŭta zumado en la aero, kaj aro da
 
-nigraj abeloj venis flugante cele ŝin. 
+nigraj abeloj venis flugante cele ŝin.
 
-“Iru al la fremduloj kaj mortpiku ilin\!” ordonis la
+“Iru al la fremduloj kaj mortpiku ilin!” ordonis la
 
 Sorĉistino, kaj la abeloj turnis sin kaj rapide flugis ĝis
 
@@ -6238,19 +5718,19 @@ la loko kie marŝadis Doroteo kaj ŝiaj amikoj. Sed la
 
 Hakisto vidis ilin venantaj kaj la Birdotimigilo jam
 
-decidis kion fari. 
+decidis kion fari.
 
 “Elprenu mian pajlon kaj disŝutu ĝin sur la mal-
 
 grandan knabinon kaj la hundon kaj la leonon,” li
 
-diris al la Hakisto, “tiel la abeloj ne povos piki ilin.” 
+diris al la Hakisto, “tiel la abeloj ne povos piki ilin.”
 
 Tion la Hakisto faris, kaj dum Doroteo kuŝis apud la
 
 Leono tenante Toton en siaj brakoj, la
 
-pajlo tute kovris ilin. 
+pajlo tute kovris ilin.
 
 La abeloj venis kaj trovis pikebla
 
@@ -6266,23 +5746,19 @@ rompiĝis, tiel finiĝis la nigraj abeloj, kaj ili
 
 kuŝis dise en densa amaso ĉirkaŭ la Hak-
 
-isto, kvazaŭ amasetoj da fajnaj karberoj. 
+isto, kvazaŭ amasetoj da fajnaj karberoj.
 
-Post tio Doroteo kaj la Leono stariĝis, 
+Post tio Doroteo kaj la Leono stariĝis,
 
 kaj la knabino helpis la Stanan Lignohak-
 
-!(images/000113.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-145
 
 iston remeti la pajlon en la Birdotimigilon, ĝis li estis tiel
 
-bona kiel antaŭe. Do ili rekomencis sian marŝadon. 
+bona kiel antaŭe. Do ili rekomencis sian marŝadon.
 
 La Fia Sorĉistino tiom koleris kiam ŝi vidis siajn
 
@@ -6296,7 +5772,7 @@ da siaj sklavoj, kiuj estis Palpbrumoj, kaj donis al ili akre-
 
 pintajn lancojn, ordonante ke ili iru al la fremduloj kaj
 
-detruu ilin. 
+detruu ilin.
 
 La Palpbrumoj ne estis kuraĝa popolo, sed ili devis
 
@@ -6306,7 +5782,7 @@ teo. Tiam la Leono muĝegis kaj saltis kontraŭ ilin, kaj la
 
 kompatindaj Palpbrumoj tiom timiĝis ke ili retrokuris kiel
 
-eble plej rapide. 
+eble plej rapide.
 
 Kiam ili estis revenintaj al la kastelo la Fia
 
@@ -6320,7 +5796,7 @@ detrui la fremdulojn; sed ŝi estis potenca Sorĉistino, kiel
 
 ankaŭ fia sorĉistino, do ŝi baldaŭ faris decidon pri kion
 
-fari. 
+fari.
 
 Estis, en ŝia ŝranko, Ora Ĉapo, ĉirkaŭ kiu estis cir-
 
@@ -6334,15 +5810,10 @@ ordonon kiun la posedanto faros al ili. Sed neniu perso-
 
 no rajtis komandi tiujn strangajn ulojn pli ol trifoje. Jam
 
-!(images/000087.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-146
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-dufoje la Fia Sorĉistino estis uzinta la sorĉon de la Ĉapo. 
+dufoje la Fia Sorĉistino estis uzinta la sorĉon de la Ĉapo.
 
 La unua fojo estis kiam ŝi sklavigis la Palpbrumojn por
 
@@ -6368,7 +5839,7 @@ la Malkuraĝa Leono, kaj ŝi komprenis ke ekzis-
 
 tas nun nur unu rimedo por detrui Doroteon
 
-kaj ŝiajn amikojn. 
+kaj ŝiajn amikojn.
 
 Do la Fia Sorĉistino prenis la Oran
 
@@ -6376,39 +5847,35 @@ Do la Fia Sorĉistino prenis la Oran
 
 kapon. Post tio, starante per nur la mal-
 
-dekstra piedo ŝi diris, malrapide, 
+dekstra piedo ŝi diris, malrapide,
 
-“Ep-pe, pep-pe, kak-ke\!” 
+“Ep-pe, pep-pe, kak-ke!”
 
 Post tio ŝi staris per nur la dekstra
 
-piedo kaj diris, 
+piedo kaj diris,
 
-“Hil-lo, hol-lo, hal-lo\!” 
+“Hil-lo, hol-lo, hal-lo!”
 
 Post tio ŝi staris per
 
-am-baŭ 
+am-baŭ
 
-piedoj 
+piedoj
 
-kaj 
+kaj
 
 ŝi
 
-laŭtavoĉe kriis, 
+laŭtavoĉe kriis,
 
-“Ziz-zi, zuz-zi, zik\!” 
+“Ziz-zi, zuz-zi, zik!”
 
 Nun la sorĉo komencis
 
-!(images/000079.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-147
 
 funkcii. La ĉielo senlumiĝis, kaj malaltatona zuma sono
 
@@ -6420,23 +5887,23 @@ el la senluma ĉielo montrante la Fian Sorĉistinon
 
 ĉirkaŭatan de amaso da simioj, el kiuj ĉiu havis paron da
 
-gigantaj kaj potencaj flugiloj sur siaj ŝultroj. 
+gigantaj kaj potencaj flugiloj sur siaj ŝultroj.
 
 Unu, multe pli granda ol la aliaj, ŝajne estis ilia
 
-estro. Li flugis apud la Sorĉistinon kaj diris, 
+estro. Li flugis apud la Sorĉistinon kaj diris,
 
 “Vi alvokis nin la trian kaj lastan fojon. Kion vi
 
-ordonas?” 
+ordonas?”
 
 “Iru al la fremduloj kiuj estas en mia regno kaj
 
-detruu ĉiujn escepte de la Leono,” diris la Fia Sorĉistino. 
+detruu ĉiujn escepte de la Leono,” diris la Fia Sorĉistino.
 
 “Portu tiun beston al mi, ĉar mi planas jungi lin kiel
 
-ĉevalon, kaj laborigi lin.” 
+ĉevalon, kaj laborigi lin.”
 
 “Viaj ordonoj estos obeitaj,” diris la estro; kaj post
 
@@ -6444,13 +5911,10 @@ tio kun tre multa babilado kaj multa bruo, la Flugantaj
 
 Simioj forflugis al la loko kie marŝas Doroteo kaj ŝiaj
 
-amikoj. 
+amikoj.
 
 
-
-148
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Kelkaj el la Simioj kaptis la Stanan Lignohakiston
 
@@ -6462,7 +5926,7 @@ Hakiston, kiu falis longan distancon al la rokoj, kaj tie li
 
 kuŝis tiom disbatita kaj kavetigita ke li ne povis movi sin
 
-nek ĝemi. 
+nek ĝemi.
 
 Aliaj el la Simioj kaptis la Birdotimigilon, kaj per
 
@@ -6472,7 +5936,7 @@ vestoj kaj kapo. Ili kunrulis liajn ĉapelon kaj botojn kaj
 
 vestaĵojn kaj ĵetis ilin inter la plejsuprajn branĉojn de alta
 
-arbo. 
+arbo.
 
 La ceteraj Simioj ĵetis pecojn de dika ŝnurego ĉirkaŭ
 
@@ -6486,7 +5950,7 @@ lin al la kastelo de la Sorĉistino, kie ili metis li en
 
 korteton ĉirkaŭ kiu estis alta fera barilo, tiel ke li ne
 
-povos eskapi. 
+povos eskapi.
 
 Sed Doroteon ili tute ne damaĝis. Ŝi staris, kun
 
@@ -6502,23 +5966,19 @@ vizaĝo; sed li vidis la markon de la kiso de la Bona
 
 Sorĉistino sur ŝia frunto kaj ekhaltis, kaj gestis al la aliaj
 
-ke ili ne tuŝu ŝin. 
+ke ili ne tuŝu ŝin.
 
-“Ni ne aŭdacu atenci ĉi knabineton,” li diris al ili, 
-
-!(images/000110.jpg)
+“Ni ne aŭdacu atenci ĉi knabineton,” li diris al ili,
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-149
 
 “ĉar ŝin protektas la Potenco de Bono, kaj tio estas pli
 
 forta ol la Potenco de Malbono. Ni nur povas porti ŝin al
 
-la kastelo de la Fia Sorĉistino kaj lasi ŝin tie.” 
+la kastelo de la Fia Sorĉistino kaj lasi ŝin tie.”
 
 Do, zorgoplene kaj delikate, ili levis Doroteon per
 
@@ -6526,41 +5986,38 @@ siaj brakoj kaj rapide portis ŝin tra la aero ĝis ili atingis
 
 la kastelon, kie ili demetis ŝin sur la antaŭan sojlon. Post
 
-tio la estro diris al la Sorĉistino, 
+tio la estro diris al la Sorĉistino,
 
 “Ni obeis vin laŭeble. La Stana Lignohakisto kaj la
 
 Birdotimigilo estas detruitaj; la Leono estas ligita en via
 
-korteto. La malgrandan knabinon ni ne aŭdacas damaĝi, 
+korteto. La malgrandan knabinon ni ne aŭdacas damaĝi,
 
 nek la hundon kiun ŝi portas per siaj brakoj. Via rajto
 
-estri nin nun finiĝis kaj vi neniam revidos nin.” 
+estri nin nun finiĝis kaj vi neniam revidos nin.”
 
 Kaj ĉiuj Flugantaj Simioj, forte ridante kaj babi-
 
 lante kaj bruante, flugis en la aeron kaj baldaŭ ne plu
 
-estis videblaj. 
+estis videblaj.
 
 La Fian Sorĉistinon surprizis kaj ĉagrenis vidi la
 
 markon sur la frunto de Doroteo, ĉar ŝi bone konsciis ke
 
 
-
-150
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 nek la Flugantaj Simioj nek ŝi mem aŭdacos iel ajn dam-
 
 aĝi la knabinon. Ŝi rigardis la piedojn de Doroteo, kaj
 
-vidante la Arĝentajn Ŝuojn, ŝi komencis tremi pro timo, 
+vidante la Arĝentajn Ŝuojn, ŝi komencis tremi pro timo,
 
-ĉar ŝi sciis pri la potenca sorĉo kiu apartenas al ili. 
+ĉar ŝi sciis pri la potenca sorĉo kiu apartenas al ili.
 
 Unue la Sorĉistino pensis forkuri de Doroteo; sed
 
@@ -6576,13 +6033,13 @@ ridis kaj pensis, “Mi ankoraŭ povas sklavigi ŝin, ĉar ŝi ne
 
 scias uzi sian potencon.” Ŝi diris al Doroteo, krude kaj
 
-severe, 
+severe,
 
-“Venu kun mi; kaj atentu obei kion ajn mi ordonos, 
+“Venu kun mi; kaj atentu obei kion ajn mi ordonos,
 
 ĉar se ne, mi detruos vin same kiel mi detruis la Stanan
 
-Lignohakiston kaj la Birdotimigilon.” 
+Lignohakiston kaj la Birdotimigilon.”
 
 Doroteo sekvis ŝin tra multaj el la belaj ĉambroj en
 
@@ -6590,13 +6047,13 @@ la kastelo ĝis ili atingis la kuirejon, kie la Sorĉistino ordo-
 
 nis ke ŝi purigu la potojn kaj kuirilojn kaj balau la
 
-plankon kaj metadu lignon en la fajron. 
+plankon kaj metadu lignon en la fajron.
 
 Doroteo obeeme komencis labori, decidinte kiel eble
 
 plej diligente labori; ĉar ŝin feliĉigis ke la Fia Sorĉistino
 
-decidis ne mortigi ŝin. 
+decidis ne mortigi ŝin.
 
 Dum Doroteo diligente laboradis la Sorĉistino pla-
 
@@ -6609,32 +6066,30 @@ kiel ĉevalon; amuzos ŝin, ŝi certis, devigi lin tiri ŝian
 don la Leono muĝegis kaj saltis kontraŭ ŝin tiom feroce
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-151
 
 ke la Sorĉistino ektimis, kaj elkuris kaj refermis la
 
-pordon. 
+pordon.
 
 “Se mi ne povos jungi vin,” diris la Sorĉistino al la
 
 Leono, parolante inter la bariloj de la pordo, “mi povos
 
-malsatigi vin. Vi manĝos nenion ĝis vi obeos min.” 
+malsatigi vin. Vi manĝos nenion ĝis vi obeos min.”
 
 Do post tiam ŝi ne portis manĝon al la enkarcerig-
 
 ita Leono; sed ĉiutage ŝi venis al la pordo je la tagmezo
 
-kaj demandis, 
+kaj demandis,
 
-“Ĉu vi pretas esti jungita kiel ĉevalo?” 
+“Ĉu vi pretas esti jungita kiel ĉevalo?”
 
 Kaj la Leono respondis, “Ne. Se vi eniros ĉi tiun
 
-korteton mi mordos vin.” 
+korteton mi mordos vin.”
 
 La kialo ke la Leono ne obeis la ordonon de la
 
@@ -6648,13 +6103,13 @@ sian kapon per lia mola, longa kolhararo, dum ili parolis
 
 pri siaj problemoj kaj klopodis plani eskapon. Sed ili ne
 
-povis elpensi metodon eliri la kastelon, ĉar ĝin konstante
+povis elpensi metodon eliri la kastelon, ĉar ĝnstante
 
 gardadis la flavaj Palpbrumoj, kiuj estis sklavoj de la Fia
 
 Sorĉistino kaj timis ŝin tiom ke ili obeis ĉiun ŝian
 
-ordonon. 
+ordonon.
 
 La knabino devis laboregi dum la tagoj, kaj ofte la
 
@@ -6669,16 +6124,13 @@ infano ne sciis tion, kaj timegis por si kaj por Toto. Unu-
 foje la Sorĉistino batis Toton per sia ombrelo kaj la
 
 
-
-152
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 kuraĝa hundeto kuregis al ŝi kaj mordis ŝian kruron. La
 
 Sorĉistino ne sangis pro la mordo, ĉar ŝi estis tiom fia ke
 
-la sango en ŝi jam antaŭ multaj jaroj sekiĝis. 
+la sango en ŝi jam antaŭ multaj jaroj sekiĝis.
 
 La vivo de Doroteo fariĝis tre malfeliĉa dum ŝi kon-
 
@@ -6686,7 +6138,7 @@ sciiĝis ke estos eĉ malpli facile reiri al Kansas kaj
 
 Onklino Em. Kelkfoje ŝi ploradis amare dum horoj, dum
 
-Toto sidis ĉe ŝiaj piedoj kaj rigardadis ŝian vizaĝon, 
+Toto sidis ĉe ŝiaj piedoj kaj rigardadis ŝian vizaĝon,
 
 ploretante malgaje por indiki kiom li kompatas sian mas-
 
@@ -6696,7 +6148,7 @@ aŭ la Lando Oz se Doroteo estas kun li; sed li sciis ke la
 
 malgranda knabino estas malfeliĉa, kaj tio malfeliĉigis
 
-ankaŭ lin. 
+ankaŭ lin.
 
 Nu, la Fia Sorĉistino sopiregis posedi la Arĝentajn
 
@@ -6726,15 +6178,11 @@ proksimiĝis dum Doroteo banis sin. Efektive, la maljuna
 
 Sorĉistino neniam tuŝis akvon, nek permesis ke akvo iel
 
-tuŝu ŝin. 
-
-!(images/000100.jpg)
+tuŝu ŝin.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-153
 
 Sed la fiulino estis tre ruza, kaj ŝi finfine elpensis
 
@@ -6754,7 +6202,7 @@ defalis, kaj antaŭ ol ŝi povis atingi ĝin la Sorĉistino
 
 forkaptis ĝin kaj metis ĝin sur sian propran maldikan
 
-piedon. 
+piedon.
 
 Al la fia virino multe plaĉis la sukceso de ŝia
 
@@ -6762,85 +6210,82 @@ trompo, ĉar dum ŝi havos unu el la ŝuoj ŝi posedos
 
 duonon de la potenco de ilia sorĉo, kaj Doroteo ne povos
 
-uzi ĝin kontraŭ ŝin, eĉ se ŝi scius uzi ĝin. 
+uzi ĝntraŭ ŝin, eĉ se ŝi scius uzi ĝin.
 
-La 
+La
 
-malgranda 
+malgranda
 
-knabino, 
+knabino,
 
 vidante ke ŝi perdis unu el siaj
 
 belaj ŝuoj, koleriĝis, kaj diris al la
 
-Sorĉistino, 
+Sorĉistino,
 
-“Redonu al mi mian ŝuon\!” 
+“Redonu al mi mian ŝuon!”
 
-“Ne\!” respondis la Sorĉ-
+“Ne!” respondis la Sorĉ-
 
 istino. “Nun ĝi estas mia ŝuo, ne
 
-via.” 
+via.”
 
-“Vi estas fiulino\!” kriis Dor-
+“Vi estas fiulino!” kriis Dor-
 
 oteo. “Vi ne rajtas forpreni de mi
 
-mian ŝuon.” 
+mian ŝuon.”
 
 “Tamen mi retenos ĝin,” diris la
 
-Sorĉistino, ridante pro ŝi, 
+Sorĉistino, ridante pro ŝi,
 
 
-
-154
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 kaj iun tagon mi sukcesos forpreni de vi ankaŭ la ali-
 
-an ŝuon.” 
+an ŝuon.”
 
 Tio kolerigis Doroteon tiom ke ŝi prenis la sitelon
 
 da akvo kiu staris proksime kaj verŝis ĝin sur la Sorĉisti-
 
-non, malsekigante ŝin de la kapo ĝis la piedoj. 
+non, malsekigante ŝin de la kapo ĝis la piedoj.
 
 Tuj la fiulino ekkriegis pro timo, kaj, dum Doroteo
 
 mirante rigardis, la Sorĉistino komencis forŝrumpi kaj
 
-plene malestiĝi. 
+plene malestiĝi.
 
-“Vidu kion vi faris\!” ŝi kriis. “Post minuto mi estos
+“Vidu kion vi faris!” ŝi kriis. “Post minuto mi estos
 
-tute degelinta\!” 
+tute degelinta!”
 
 “Vere mi bedaŭras,” diris Doroteo, kiu ja timis
 
 vidante la Sorĉistinon fandiĝi kvazaŭ bruna sukero antaŭ
 
-ŝi. 
+ŝi.
 
 “Ĉu vi ne sciis ke akvo detruos min?” demandis la
 
-Sorĉistino, per ploranta, senespera voĉo. 
+Sorĉistino, per ploranta, senespera voĉo.
 
 “Kompreneble ke ne,” respondis Doroteo. “Kiel mi
 
-scius?” 
+scius?”
 
-“Nu, post kelkaj minutoj mi estos plene degelinta, 
+“Nu, post kelkaj minutoj mi estos plene degelinta,
 
 kaj la kastelo estos via. Mi agis fie dum mia vivo, sed mi
 
 neniam supozis ke malgranda knabino kia vi povus dege-
 
-ligi min kaj ĉesigi miajn fian agadon. Jen — mi finiĝas.” 
+ligi min kaj ĉesigi miajn fian agadon. Jen — mi finiĝas.”
 
 Dirante tion la Sorĉistino fariĝis bruna, fandita, sen-
 
@@ -6854,13 +6299,9 @@ neniiĝis degele, Doroteo replenigis la sitelon per akvo kaj
 
 don. Preninte la Arĝentan Ŝuon, la sola restaĵo de la
 
-!(images/000040.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-155
 
 maljunulino, ŝi purigis kaj sekigis ĝin per tuko, kaj reme-
 
@@ -6870,24 +6311,15 @@ laŭvole, ŝi elkuris al la korteto por informi la Leonon ke
 
 la Fia Sorĉistino de la Okcidento finiĝis, kaj ke ili ne plu
 
-estas kaptitoj en fremda lando. 
+estas kaptitoj en fremda lando.
 
-!(images/000119.jpg)
-
-* *
 
 *“La simioj volvis multaj ŝnurojn ĉirkaŭ lian korpon.” *
 
-!(images/000126.jpg)
 
-
-
-Ĉapitro XIII. 
+Ĉapitro XIII.
 
 La savo
-
-!(images/000128.jpg)
-
 
 
 MULTE PLAĈIS AL LA
@@ -6898,7 +6330,7 @@ Fia Sorĉistino degelis pro sitelo
 
 da akvo, kaj Doroteo tuj malŝlosis la
 
-pordon de lia karcero kaj liberigis lin. 
+pordon de lia karcero kaj liberigis lin.
 
 Kune ili eniris la kastelon, kie la
 
@@ -6906,41 +6338,38 @@ unua ago de Doroteo estis kunvoki ĉi-
 
 ujn Palpbrumojn kaj informi ilin ke ili ne plu estas
 
-sklavoj. 
+sklavoj.
 
 Estis tre multa ĝojo inter la flavaj Palpbrumoj, ĉar
 
-ili devis laboregadi dum multaj jaroj por la Fia Sorĉistino, 
+ili devis laboregadi dum multaj jaroj por la Fia Sorĉistino,
 
 kiu ĉiam tre kruele traktis ilin. Ili feriigis tiun tagon, tiam
 
 kaj ĉiam poste, kaj pasigis la tempon festenante kaj
 
-dancante. 
+dancante.
 
 “Se niaj amikoj, la Birdotimigilo kaj la Stana
 
 
-
-160
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Lignohakisto estus kun ni,” diris la Leono, “mi estus
 
-estus plene feliĉa.” 
+estus plene feliĉa.”
 
-“Ĉu eble ni povus savi ilin?” demandis la knabino, 
+“Ĉu eble ni povus savi ilin?” demandis la knabino,
 
-esperoplene. 
+esperoplene.
 
-“Ni povos provi,” respondis la Leono. 
+“Ni povos provi,” respondis la Leono.
 
 Do ili alvokis la flavajn Palpbrumojn kaj demandis
 
 al ili ĉu ili helpos savi iliajn amikojn, kaj la Palpebrumoj
 
-diris ke ili volonte plej eble strebos komplezi Doroteon, 
+diris ke ili volonte plej eble strebos komplezi Doroteon,
 
 kiu ja liberigis ilin. Do ŝi elektis aron da Palpbrumoj kiuj
 
@@ -6952,7 +6381,7 @@ dis ebenaĵon kie kuŝis la Stana Lignohakisto, disbatita kaj
 
 kavetigita. Lia hakilo kuŝis apud li, sed la klingo estis
 
-rusta kaj la tenilo rompita. 
+rusta kaj la tenilo rompita.
 
 La Palpbrumoj levis lin ameme per siaj brakoj, kaj
 
@@ -6960,35 +6389,33 @@ reportis lin al la Flava Kastelo, dum Doroteo larmis pro
 
 la mizero de sia malnova amiko, kaj la Leono aspektis
 
-sobra kaj bedaŭroplena. 
+sobra kaj bedaŭroplena.
 
 Kiam ili atingis la kastelon Doroteo diris al la
 
-Palpbrumoj, 
+Palpbrumoj,
 
-“Ĉu estas stanistoj inter via popolo?” 
+“Ĉu estas stanistoj inter via popolo?”
 
 “Ho, jes; kelkaj el ni estas tre bonaj stanistoj,” ili
 
-diris al ŝi. 
+diris al ŝi.
 
 “Do venigu ilin al mi,” ŝi diris. Kaj kiam la stanis-
 
 toj venis, kunportante ĉiujn siajn ilojn en korbo, ŝi
 
-demandis, 
+demandis,
 
 “Ĉu vi povos rektigi tiujn misbataĵojn en la Stana
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-161
 
 Lignohakisto, kaj reĝustigi la formon, kaj reluti lin kie li
 
-rompiĝis?” 
+rompiĝis?”
 
 La stanistoj ekzamenis la Hakiston tre zorge kaj
 
@@ -7008,11 +6435,11 @@ isto, ĝis fine li regajnis sian malnovan formon, kaj liaj
 
 artikoj funkciis egale bone kiel antaŭe. Estas vere ke ili
 
-devis surmeti plurajn flikojn, sed la stanistoj bone laboris, 
+devis surmeti plurajn flikojn, sed la stanistoj bone laboris,
 
 kaj ĉar la Hakisto ne estis vantema al li tute ne ĝenis lin
 
-la flikoj. 
+la flikoj.
 
 Kiam, fine, li marŝis en la ĉambron de Doroteo kaj
 
@@ -7032,21 +6459,18 @@ siajn larmojn tiom ofte per la pinto de sia vosto ke ĝi
 
 tute malsekiĝis, kaj li devis eliri en la korton kaj teni ĝin
 
-en la sunlumo ĝis ĝi sekiĝis. 
+en la sunlumo ĝis ĝi sekiĝis.
 
-“Se nur ni denove havus la Birdotimigilon kun ni,” 
+“Se nur ni denove havus la Birdotimigilon kun ni,”
 
 diris la Stana Lignohakisto, kiam Doroteo finis sian rak-
 
-onton pri ĉio okazinta, “mi estus vere feliĉa.” 
+onton pri ĉio okazinta, “mi estus vere feliĉa.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-162
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-“Ni devas provi trovi lin,” diris la knabino. 
+“Ni devas provi trovi lin,” diris la knabino.
 
 Do ŝi vokis la Palpbrumojn por ke ili helpu ŝin, kaj
 
@@ -7054,15 +6478,15 @@ ili marŝis dum tiu tuta tago kaj parto de la sekva ĝis ili
 
 atingis la altan arbon en kies branĉojn la Flugantaj
 
-Simioj estis ĵetintaj la vestojn de la Birdotimigilo. 
+Simioj estis ĵetintaj la vestojn de la Birdotimigilo.
 
 Ĝi estis tre alta arbo, kaj la trunko estis tiom glata
 
-ke neniu povis grimpi ĝin; sed la Hakisto diris tuj, 
+ke neniu povis grimpi ĝin; sed la Hakisto diris tuj,
 
 “Mi hakos por faligi ĝin, kaj tiel ni povos atingi la
 
-vestojn de la Birdotimigilo.” 
+vestojn de la Birdotimigilo.”
 
 Nu, dum la stanistoj laboradis por ripari la Haki-
 
@@ -7070,11 +6494,11 @@ ston mem, alia Palpbrumo, kiu estis oristo, faris tenilon el
 
 solida oro por la hakilo kaj fiksis ĝin al la hakilo de la
 
-Hakisto, por anstataŭi la malnovan rompitan tenilon. 
+Hakisto, por anstataŭi la malnovan rompitan tenilon.
 
 Aliaj poluris la klingon ĝis la rusto estis tute forigita kaj
 
-ĝi brilis kiel frotita arĝento. 
+ĝi brilis kiel frotita arĝento.
 
 Tuj post tiu diro, la Stana Lignohakisto tuj komen-
 
@@ -7082,15 +6506,15 @@ cis haki, kaj post nelonge la arbo falis bruege, kaj la
 
 vestoj de la Birdotimigilo falis el la branĉoj kaj ruliĝis sur
 
-la teron. 
+la teron.
 
 Doroteo prenis ilin kaj petis la Palpbrumojn reporti
 
-ilin al la kastelo, kie ili plenigis ilin per bona, pura pajlo; 
+ilin al la kastelo, kie ili plenigis ilin per bona, pura pajlo;
 
-kaj jen\! refariĝis la Birdotimigilo, tute renovigita, ripete
+kaj jen! refariĝis la Birdotimigilo, tute renovigita, ripete
 
-dankanta ilin ĉar ili savis lin. 
+dankanta ilin ĉar ili savis lin.
 
 Nun rekunigite, Doroteo kaj ŝiaj amikoj pasigis plu-
 
@@ -7098,35 +6522,31 @@ rajn feliĉajn tagojn en la Flava Kastelo, kie ili trovis ĉion
 
 bezonatan por esti komfortaj. Sed unu tagon la knabino
 
-pensis pri Onklino Em, kaj diris, 
-
-!(images/000132.jpg)
+pensis pri Onklino Em, kaj diris,
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-163
-
-“Ni devas reiri al Oz, kaj plenumigi lian promeson.” 
+“Ni devas reiri al Oz, kaj plenumigi lian promeson.”
 
 “Jes,” diris la Hakisto, kaj fine mi ricevos mian
 
-koron.” 
+koron.”
 
 “Kaj mi ricevos mian cerbon,” diris la Birdotimigilo
 
-ĝoje. 
+ĝoje.
 
 “Kaj mi ricevos mian kuraĝon,” diris la Leono
 
-penseme. 
+penseme.
 
 “Kaj mi reiros al Kansas,” kriis Doroteo, kunfra-
 
 pante la manojn. “Ho, ni ekiru al la Smeralda Urbo
 
-morgaŭ\!” 
+morgaŭ!”
 
 Ili decidis fari tion. La sekvan tagon ili kunvokis la
 
@@ -7153,10 +6573,7 @@ braceleton, inkrustitan per dia-
 mantoj; kaj al la Birtotimigilo ili
 
 
-
-164
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 donis orkapan marŝbastonon, por helpi lin marŝadi sen
 
@@ -7164,13 +6581,13 @@ stumbli; kaj al la Stana Lignohakisto ili proponis arĝen-
 
 tan oleujon, inkrustitan per oro kaj ornamitan per valoraj
 
-gemoj. 
+gemoj.
 
 Ĉiu el la marŝontoj bele parolis responde al la kun-
 
 venintaj Palpbrumoj, kaj ĉiuj premis la manon de ĉiu el
 
-ili ĝis iliaj brakoj doloris. 
+ili ĝis iliaj brakoj doloris.
 
 Doroteo iris al la ŝranko de la Sorĉistino por plenigi
 
@@ -7184,34 +6601,25 @@ sciis pri la sorĉo de la Ora Ĉapo, sed ŝi vidis ke ĝi estas
 
 bela, do ŝi decidis surporti ĝin kaj porti sian sunkufon en
 
-la korbo. 
+la korbo.
 
 Tiam, preparite por la marŝado, ili ekmarŝis cele la
 
 la Smeraldan Urbon; kaj la Palpbrumoj trifoje hurais kaj
 
-donis al ili multajn bonajn dezirojn kiujn ili kunportu. 
+donis al ili multajn bonajn dezirojn kiujn ili kunportu.
 
-kun si. 
+kun si.
 
-!(images/000134.jpg)
-
-* *
 
 *“La Stanistoj laboris dum tri tagoj kaj kvar noktoj.” *
 
-!(images/000137.jpg)
 
-
-
-Ĉapitro XIV, 
+Ĉapitro XIV,
 
 La Flugantaj
 
 Simioj
-
-!(images/000143.jpg)
-
 
 
 MemoruKEne
@@ -7234,7 +6642,7 @@ grandaj kampoj da lekantetoj kaj flavaj ranunkoloj ol esti
 
 portata. Ili sciis, kompreneble, ke ili devas iri rekte Ori-
 
-enten, direkte al la leviĝanta suno, kaj ili komencis ĝuste. 
+enten, direkte al la leviĝanta suno, kaj ili komencis ĝuste.
 
 Sed je la tagmezo, kiam la suno estis rekte super la
 
@@ -7244,15 +6652,10 @@ to kaj
 
 tial ili perdiĝis en la grandaj kampoj. Ili
 
-!(images/000145.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-168
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 plu marŝadis, tamen, kaj nokte la luno aperis kaj brilis
 
@@ -7260,163 +6663,163 @@ hele. Do ili kuŝiĝis inter la dolĉodoraj flavaj floroj kaj
 
 profunde dormis ĝis la mateno — escepte de la Birdo-
 
-timigilo kaj la Stana Lignohakisto. 
+timigilo kaj la Stana Lignohakisto.
 
-La sekvan 
+La sekvan
 
-La 
+La
 
-matenon 
+matenon
 
-sekvan 
+sekvan
 
-la suno 
+la suno
 
-matenon la estis 
+matenon la estis
 
 s
 
-malantaŭ 
+malantaŭ
 
-uno estis 
+uno estis
 
-nubo, 
+nubo,
 
 malantaŭ sed ili
 
-nubo, 
+nubo,
 
-komencis marŝadi, kvazaŭ certaj laŭ kiu direkto ili iras. 
+komencis marŝadi, kvazaŭ certaj laŭ kiu direkto ili iras.
 
 sed ili komencis marŝadi, kvazaŭ certaj laŭ kiu direkto ili
 
-“Se 
+“Se
 
 iras. ni sufiĉe marŝos,” diris Doroteo, “ni atigos iun
 
-lokon, mi certas.” 
+lokon, mi certas.”
 
 “Se ni sufiĉe marŝos,” diris Doroteo, “ni atingos iun
 
-Sed tago post tago 
+Sed tago post tago
 
-lokon, mi certas.” 
+lokon, mi certas.”
 
 pasis, kaj ili ankoraŭ vidis antaŭ si
 
-nur la flavajn 
+nur la flavajn
 
-Sed tago kampojn. 
+Sed tago kampojn.
 
-post tago La Birdotimigilo 
+post tago La Birdotimigilo
 
-pasis, kaj ili 
+pasis, kaj ili
 
-komencis 
+komencis
 
 ankoraŭ vidis iom
 
 antaŭ
 
-plendi. 
+plendi.
 
 si nur la flavajn kampojn. La Birdotimigilo komencis iom
 
 “Certe ni perdis la vojon,” li diris, “kaj se ni ne re
 
-plendi. 
+plendi.
 
 trovos
 
-ĝin sufiĉatempe 
+ĝin sufiĉatempe
 
-“Certe ni 
+“Certe ni
 
-por 
+por
 
-perdis atingi 
+perdis atingi
 
-la 
+la
 
-la 
+la
 
-vojon,” Smeraldan 
+vojon,” Smeraldan
 
-li diris, 
+li diris,
 
-Urbon 
+Urbon
 
 “kaj se ni mi
 
 ne
 
-neniam ricevos mian cerbon.” 
+neniam ricevos mian cerbon.”
 
 retrovos ĝin sufiĉatempe por atingi la Smeraldan Urbon
 
-“Nek mi mian koron,” deklaris 
+“Nek mi mian koron,” deklaris
 
-mi neniam ricevos mian cerbon.” la Stana Lignohakisto. 
+mi neniam ricevos mian cerbon.” la Stana Lignohakisto.
 
 “Ŝajnas al mi ke mi apenaŭ povas atendi atingi Ozon, kaj
 
 “Nek mi mian koron,” deklaris la Stana Lignohak-
 
-nepre vi konfesus ke ni marŝas tre longe.” 
+nepre vi konfesus ke ni marŝas tre longe.”
 
 isto. “Ŝajnas al mi ke mi apenaŭ povas atendi atingi
 
 “Komprenu,” diris la Malkuraĝa Leono, kun ploreta
 
-Ozon, kaj nepre vi konfesus ke ni marŝas tre longe.” 
+Ozon, kaj nepre vi konfesus ke ni marŝas tre longe.”
 
-sono, “ mi ne kuraĝas 
+sono, “ mi ne kuraĝas
 
-“Komprenu,” 
+“Komprenu,”
 
 e
 
-diris terne 
+diris terne
 
-la M marŝadi 
+la M marŝadi
 
-alkuraĝa kaj neniam 
+alkuraĝa kaj neniam
 
 Leono, kun atingi
 
 ploreta
 
-iun ajn lokon.” 
+iun ajn lokon.”
 
 sono, “ mi ne kuraĝas eterne marŝadi kaj neniam atingi
 
-Kaj Doroteo perdis 
+Kaj Doroteo perdis
 
-iun ajn lokon.” 
+iun ajn lokon.”
 
 esperon. Ŝi sidiĝis sur la herbaro kaj
 
 rigardis siajn akompanantojn, kaj
 
-Kaj Doroteo perdis 
+Kaj Doroteo perdis
 
-ili 
+ili
 
-esperon. Ŝi sidiĝis kaj 
+esperon. Ŝi sidiĝis kaj
 
 sur rigardis
 
 la herb-
 
-ŝin, 
+ŝin,
 
-aro kaj Toto trovis 
+aro kaj Toto trovis
 
-rigardis 
+rigardis
 
-unuafoje 
+unuafoje
 
-siajn 
+siajn
 
 en sia vi
 
@@ -7434,45 +6837,41 @@ por ĉasi papilion kiu preterflugis lian kapon; do li elpuŝis
 
 rigardis ŝin, kaj Toto trovis unuafoje en sia vivo ke li tro
 
-sian langon kaj anhelegis 
+sian langon kaj anhelegis
 
-lacas por ĉasi kaj rigardis 
+lacas por ĉasi kaj rigardis
 
-papilion 
+papilion
 
-Doroteon 
+Doroteon
 
-kiu 
+kiu
 
 kvazaŭ
 
 preterflugis lian
 
-demandante kion ili nun faru. 
+demandante kion ili nun faru.
 
 kapon; do li elpuŝis sian langon kaj anhel-
 
-“Eble ni alvoku la Kampomusojn,” ŝi proponis. 
+“Eble ni alvoku la Kampomusojn,” ŝi proponis.
 
 egis kaj rigardis Doroteon kvazaŭ demand-
 
-ante kion ili nun faru. 
-
-!(images/000149.jpg)
+ante kion ili nun faru.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-169
+“Eble ni alvoku la Kampomusojn,” ŝi proponis.
 
-“Eble ni alvoku la Kampomusojn,” ŝi proponis. 
-
-“Verŝajne ili povos diri al ni la vojon al la Smeralda Urbo.” 
+“Verŝajne ili povos diri al ni la vojon al la Smeralda Urbo.”
 
 “Certe ili povos,” kriis la Birdotimigilo; “kial ni ne elpen-
 
-sis tion jam antaŭ nun?” 
+sis tion jam antaŭ nun?”
 
 Doroteo blovis la malgrandan fajfilon kiun ŝi ĉiam
 
@@ -7482,15 +6881,15 @@ donis ĝin al ŝi. Post kelkaj minutoj ili aŭdis la
 
 klakadon de piedetoj, kaj multaj el la malgrandaj grizaj
 
-musoj venis kurante al ŝi. Inter ili estis la Reĝino mem, 
+musoj venis kurante al ŝi. Inter ili estis la Reĝino mem,
 
-kiu demandis, per sia alta voĉeto, 
+kiu demandis, per sia alta voĉeto,
 
-“Kion mi povas fari por miaj amikoj?” 
+“Kion mi povas fari por miaj amikoj?”
 
 “Ni perdis la vojon,” diris Doroteo. “Ĉu vi povas
 
-diri al ni kie estas la Smeralda Urbo?” 
+diri al ni kie estas la Smeralda Urbo?”
 
 “Certe,” respondis la Reĝino; “sed ĝi
 
@@ -7498,23 +6897,20 @@ estas multedistanca, ĉar vi ĝis nun ĉiam tenis
 
 ĝin malantaŭ vi.” Ŝi ekrimar-
 
-kis la Oran Ĉapon de Doroteo, 
+kis la Oran Ĉapon de Doroteo,
 
 kaj diris, “Kial ne uzi la sorĉon
 
 
-
-170
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 de la Ĉapo kaj alvoki la Flugantajn Simiojn al vi? Ili
 
-portos vin al la Urbo de Oz en malpli ol horo.” 
+portos vin al la Urbo de Oz en malpli ol horo.”
 
 “Mi ne sciis ke estas sorĉo,” respondis Doroteo sur-
 
-prizite. “Kio ĝi estas?” 
+prizite. “Kio ĝi estas?”
 
 “Ĝi estas skribita interne de la Ora Ĉapo,” respon-
 
@@ -7522,39 +6918,39 @@ dis la Reĝino de la Musoj; “sed se vi alvokos la
 
 Flugantajn Simiojn ni nepre forkuru, ĉar ili estas tre
 
-petolemaj kaj ilin multe amuzas ĉasi nin.” 
+petolemaj kaj ilin multe amuzas ĉasi nin.”
 
 “Ĉu ili do damaĝos min?” demandis la knabino
 
-timoplene. 
+timoplene.
 
-“Ho, ne; ili devas obei la portanton de la Ĉapo. 
+“Ho, ne; ili devas obei la portanton de la Ĉapo.
 
-Adiaŭ\!” Kaj ŝi forkuris, kaj ĉiuj musoj hastis sekvi ŝin. 
+Adiaŭ!” Kaj ŝi forkuris, kaj ĉiuj musoj hastis sekvi ŝin.
 
 Doroteo rigardis la internon de la Ora Ĉapo kaj
 
-vidis kelkajn vortojn skribitajn sur la tegaĵo. Ili sendube, 
+vidis kelkajn vortojn skribitajn sur la tegaĵo. Ili sendube,
 
 ŝi pensis, estas la sorĉo, do ŝi legis la instrukciojn zorge
 
-kaj metis la Ĉapon sur sian kapon. 
+kaj metis la Ĉapon sur sian kapon.
 
-“Ep-pe, pep-pe, kak-ke\!” ŝi diris, starante per nur la
+“Ep-pe, pep-pe, kak-ke!” ŝi diris, starante per nur la
 
-maldekstra piedo. 
+maldekstra piedo.
 
 “Kion vi diris?” demandis la Birdotimigilo, kiu ne
 
-sciis kion ŝi faras. 
+sciis kion ŝi faras.
 
-“Hil-lo, hol-lo, hal-lo\!” ŝi pludiris starante, per nur
+“Hil-lo, hol-lo, hal-lo!” ŝi pludiris starante, per nur
 
-la dekstra piedo. 
+la dekstra piedo.
 
-“Ha lo\!” respondis la Stana Lignohakisto, trankvile. 
+“Ha lo!” respondis la Stana Lignohakisto, trankvile.
 
-“Ziz-zi, zuz-zi, zik\!” diris Doroteo, kiu nun staris
+“Ziz-zi, zuz-zi, zik!” diris Doroteo, kiu nun staris
 
 per ambaŭ piedoj. Per tio la sorĉo estis plene dirita, kaj
 
@@ -7563,18 +6959,16 @@ ili aŭdis laŭtan babiladon kaj batadon de flugiloj, dum la
 bando de Flugantaj Simioj flugis al ili. La Reĝo klinis sin
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-171
+malalten antaŭ Doroteo, kaj demandis,
 
-malalten antaŭ Doroteo, kaj demandis, 
+“Kion vi ordonas?”
 
-“Kion vi ordonas?” 
+“Ni volas iri al la Smeralda Urbo,” diris la infano,
 
-“Ni volas iri al la Smeralda Urbo,” diris la infano, 
-
-“kaj ni perdis la vojon.” 
+“kaj ni perdis la vojon.”
 
 “Ni portos vin,” respondis la Reĝo, kaj tuj kiam li
 
@@ -7586,7 +6980,7 @@ iston kaj la Leonon, kaj unu malgranda Simio kaptis
 
 Toton kaj fluge sekvis ilin, kvankam la hundo strebis
 
-mordi lin. 
+mordi lin.
 
 La Birdotimigilo kaj la Stana Lignohakisto unue
 
@@ -7598,7 +6992,7 @@ intencata, do ili rajdis tra la aero tute feliĉe, kaj multe
 
 ĝuis rigardi la belajn ĝardenojn kaj arbarojn tre distance
 
-sube. 
+sube.
 
 Doroteo trovis sin rajdanta facile inter du el la plej
 
@@ -7606,27 +7000,24 @@ grandaj Simioj, unu el ili estis la Reĝo mem. Ili estis for-
 
 mintaj seĝon per siaj manoj kaj ili tre zorgis ne damaĝi
 
-ŝin. 
+ŝin.
 
 “Kial vi devas obei la sorĉon de la Ora Ĉapo?” ŝi
 
-demandis. 
+demandis.
 
 “La rakonto estas longa,” respondis la Reĝo, kun
 
 rido; “sed ĉar ni devos longe flugi estos distre rakonti al
 
-vi pri ĝi, se vi deziras.” 
+vi pri ĝi, se vi deziras.”
 
-“Mi volonte aŭskultos,” ŝi respondis. 
+“Mi volonte aŭskultos,” ŝi respondis.
 
-“Iam,” komencis la estro, “ni estis libera popolo, 
+“Iam,” komencis la estro, “ni estis libera popolo,
 
 
-
-172
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 loĝanta feliĉe en la granda arbaro, flugante de arbo al
 
@@ -7640,11 +7031,11 @@ senflugilaj bestoj, ĉasante birdojn, kaj ĵetante nuksojn je la
 
 homoj marŝantaj en la arbaro. Sed ni estis sen zorgoj kaj
 
-feliĉaj kaj amuzoplenaj, kaj ĝuis ĉiun minuton de la tago. 
+feliĉaj kaj amuzoplenaj, kaj ĝuis ĉiun minuton de la tago.
 
 Tio okazis antaŭ multaj jaroj, longe antaŭ ol Oz venis el
 
-la nuboj por regi ĉi tiun landon. 
+la nuboj por regi ĉi tiun landon.
 
 “Ĉi tie vivis tiam, en la malproksima Nordo, bela
 
@@ -7670,7 +7061,7 @@ fariĝos viro ŝi edzigos lin, do ŝi prenis lin al sia rubena
 
 palaco kaj uzis sian magion por fortigi kaj bonigi kaj
 
-beligi lin kiom povus virino deziri. Kiam li maturiĝis, 
+beligi lin kiom povus virino deziri. Kiam li maturiĝis,
 
 Kelala, tiel li nomiĝis, laŭdire estis la plej bona kaj plej
 
@@ -7678,17 +7069,13 @@ saĝa viro en la tuta lando, kaj lia vira beleco estis tiom
 
 granda ke Gajelet amegis lin, kaj ŝi rapidis pretigi ĉion
 
-por la geeziĝo. 
+por la geeziĝo.
 
 “Mia avo estis tiutempe la Reĝo de la Flugantaj
 
-!(images/000153.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-173
 
 Simioj kiuj loĝis en la arbaro proksime al la palaco de
 
@@ -7706,81 +7093,81 @@ ordono la bando malsupren flugis kaj kaptis Kelalan, por-
 
 tis lin per siaj brakoj ĝis ili estis is super la mezo de la
 
-rivero, kaj faligis lin en la akvon. 
+rivero, kaj faligis lin en la akvon.
 
 “Elnaĝu, bela knabo,” kriis mia avo, “konstatu ĉu
 
-la akvo makulis viajn vestojn\!” Kelala estis tro saĝa por
+la akvo makulis viajn vestojn!” Kelala estis tro saĝa por
 
-ne do li naĝis, 
+ne do li naĝis,
 
-naĝi, kaj 
+naĝi, kaj
 
-kaj 
+kaj
 
-li 
+li
 
-li 
+li
 
-tute neniel 
+tute neniel
 
-ne 
+ne
 
-aplombis 
+aplombis
 
-estis tro 
+estis tro
 
-pro sia 
+pro sia
 
-dolortita 
+dolortita
 
-bona 
+bona
 
 de sia for-
 
 bona
 
-tuno. Li 
+tuno. Li
 
-fortuno. ridis, 
+fortuno. ridis,
 
-Li 
+Li
 
-kiam 
+kiam
 
-ridis, 
+ridis,
 
-li 
+li
 
-kiam revenis 
+kiam revenis
 
-li 
+li
 
-al 
+al
 
-revenis la 
+revenis la
 
-al l supro 
+al l supro
 
-a 
+a
 
-de 
+de
 
-supro 
+supro
 
-la 
+la
 
-de 
+de
 
-akvo, 
+akvo,
 
-la 
+la
 
-kaj naĝis al la 
+kaj naĝis al la
 
 l
 
-bordo. Sed kiam Gajelet 
+bordo. Sed kiam Gajelet
 
 G
 
@@ -7788,27 +7175,27 @@ kuris al li ŝi
 
 trovis ke liaj silkaĵoj kaj veluraĵoj e
 
-veluraĵoj stis 
+veluraĵoj stis
 
 e
 
-tute 
+tute
 
-stis 
+stis
 
 r
 
-tute uinigitaj 
+tute uinigitaj
 
 r
 
 de
 
-uinigitaj 
+uinigitaj
 
-la rivero. 
+la rivero.
 
-“La princino tre koleris, kaj ŝi sciis, kompreneble, 
+“La princino tre koleris, kaj ŝi sciis, kompreneble,
 
 kiuj kulpis. Ŝi venigis ĉiujn Flugantajn Simiojn antaŭ
 
@@ -7831,10 +7218,7 @@ posedanto de la Ora Ĉapo. Tiu Ĉapo estis farita kiel
 edziĝa donaco al Kelala, kaj laŭdire ĝi kostis al la prin-
 
 
-
-174
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 cino duonon de ŝia regno. Kompreneble mia avo kaj ĉiuj
 
@@ -7842,11 +7226,11 @@ aliaj Simioj tuj akceptis la postulon, kaj tial ni estas tri-
 
 foje sklavoj de la posedantoj de la Ora Ĉapo, negrave kiu
 
-estas tiu posedanto.” 
+estas tiu posedanto.”
 
 “Kaj kio okazis al ili?” demandis Doroteo, kiun tre
 
-interesis la rakonto. 
+interesis la rakonto.
 
 “Ĉar Kelala estis la unua posedanto de la Ora
 
@@ -7856,9 +7240,9 @@ ordonojn. Ĉar lia novedzino ne toleris vidi nin, li vokis
 
 nin ĉiujn al si en la arbaro post la geedziĝo kaj ordonis
 
-ke ni ĉiam restu kie ŝi neniam revidos Flugantan Simion, 
+ke ni ĉiam restu kie ŝi neniam revidos Flugantan Simion,
 
-kaj ni volonte obeis lin, ĉar ni ĉiuj timis ŝin.” 
+kaj ni volonte obeis lin, ĉar ni ĉiuj timis ŝin.”
 
 “Neniun alian taskon ni devis fari ĝis la Oran
 
@@ -7868,7 +7252,7 @@ dento, kiu devigis nin sklavigi la Palpbrumojn, kaj poste
 
 peli Ozon mem el la Lando de la Okcidento. Nun la
 
-Ora Ĉapo apartenas al vi, kaj trifoje vi rajtas ordoni nin.” 
+Ora Ĉapo apartenas al vi, kaj trifoje vi rajtas ordoni nin.”
 
 Dum la Simireĝo finis sian rakonton Doroteo mal-
 
@@ -7882,49 +7266,34 @@ bestoj zorge metis la veturintojn antaŭ la pordegon de la
 
 Urbo, la Reĝo klinis sin malalten antaŭ Doroteo, kaj post
 
-tio li forflugis rapide, sekvate de sia tuta bando. 
+tio li forflugis rapide, sekvate de sia tuta bando.
 
-“Ni tre bone veturis,” diris la malgranda knabino. 
+“Ni tre bone veturis,” diris la malgranda knabino.
 
 “Jes, kaj ni trovis tre rapidan vojon el niaj prob-
 
 lemoj,” respondis la Leono. “Kiom bonfortune estis ke vi
 
-!(images/000155.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
+kunportis tiun mirindan Ĉapon!”
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-175
-
-kunportis tiun mirindan Ĉapon\!” 
-
-!(images/000158.jpg)
-
-* *
 
 *La Simioj kaptis Doroteon per siaj brakoj kaj forflugis kun ŝi.” *
 
-!(images/000162.jpg)
 
-
-
-Ĉapitro XV. 
+Ĉapitro XV.
 
 Ili malmaskas
 
 Ozon, la Teruran
 
-!(images/000123.jpg)
 
+la
 
-
-
-
-la 
-
-kvar 
+kvar
 
 veturintoj
 
@@ -7938,49 +7307,46 @@ igis la sonorilon. Post plurobla sonig-
 
 ado ĝin malfermis la sama Pordogardisto
 
-kiun ili antaŭe renkontis. 
+kiun ili antaŭe renkontis.
 
-“Kion\! Ĉu vi revenis?” li demandis, 
+“Kion! Ĉu vi revenis?” li demandis,
 
-surprizite. 
+surprizite.
 
-“Ĉu vi ne vidas nin?” demandis la Birdotimigilo. 
+“Ĉu vi ne vidas nin?” demandis la Birdotimigilo.
 
 “Sed mi supozis ke vi intencis viziti la Fian Sorĉisti-
 
-non de la Okcidento.” 
+non de la Okcidento.”
 
-“Ni ja vizitis ŝin,” diris la Birdotimigilo. 
+“Ni ja vizitis ŝin,” diris la Birdotimigilo.
 
-“Kaj ŝi lasis vin foriri?” demandis la viro, miroplene. 
+“Kaj ŝi lasis vin foriri?” demandis la viro, miroplene.
 
-“Ŝi ne povis malpermesi, ĉar ŝi estas degeligita,” 
+“Ŝi ne povis malpermesi, ĉar ŝi estas degeligita,”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-180
+klarigis la Birdotimigilo.
 
-LA MIRINDA SORĈISTO DE OZ. 
+“Degeligita! Nu, jen tre plaĉa informo,” diris la viro.
 
-klarigis la Birdotimigilo. 
+“Kiu degeligis ŝin?”
 
-“Degeligita\! Nu, jen tre plaĉa informo,” diris la viro. 
+“Doroteo,” diris la Leono solene.
 
-“Kiu degeligis ŝin?” 
+“Mirige!” krietis la viro, kaj li klinis sin vere tre
 
-“Doroteo,” diris la Leono solene. 
-
-“Mirige\!” krietis la viro, kaj li klinis sin vere tre
-
-malalten antaŭ ŝi. 
+malalten antaŭ ŝi.
 
 Post tio li kondukis ilin en sian malgrandan
 
-ĉambron kaj prenis la okulvitrojn el la granda kesto, 
+ĉambron kaj prenis la okulvitrojn el la granda kesto,
 
 metis ilin sur iliajn okulojn, kaj ŝlosis ilin, same kiel
 
-antaŭe. Poste ili trairis la pordon en la Smeraldan Urbon, 
+antaŭe. Poste ili trairis la pordon en la Smeraldan Urbon,
 
 kaj kiam la popolo sciiĝis per la Pordogardisto ke ili fan-
 
@@ -7988,7 +7354,7 @@ dis la Fian Sorĉistinon de la Okcidento ili ĉiuj grupiĝis
 
 ĉirkaŭ la veturintojn kaj sekvis ilin en granda amaso al la
 
-Palaco de Oz. 
+Palaco de Oz.
 
 La Soldato kun la Verdaj Lipharoj ankoraŭ gardis la
 
@@ -7998,7 +7364,7 @@ bela verda knabino, kiu tuj kondukis ĉiun el ili al ties
 
 antaŭa ĉambro, por ke ili ripozu ĝis la Potenca Oz pre-
 
-tos akcepti ilin. 
+tos akcepti ilin.
 
 La Soldato komunikigis la informon rekte al Oz ke
 
@@ -8016,13 +7382,9 @@ enuiga kaj teda, kaj fine ilin ĉagrenis ke Oz tiel mistrak-
 
 tas ilin, post sia postulo kiu suferigis kaj sklavigis ilin. Do
 
-!(images/000146.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-181
 
 la Birdotimigilo fine petis ke la verda knabino portu
 
@@ -8038,125 +7400,118 @@ ordonon ke ili venu al la Tronĉambro je kvar minutoj
 
 post la naŭa horo la sekvan matenon. Li unufoje renkon-
 
-tis la Flugantajn Simiojn en la Lando de la Okcidento, 
+tis la Flugantajn Simiojn en la Lando de la Okcidento,
 
-kaj li ne volis rerenkonti ilin. 
+kaj li ne volis rerenkonti ilin.
 
 La kvar veturintoj maldormis tiunokte, ĉar ĉiu prip-
 
 ensis la donacon kiun Oz laŭ sia promeso donos. Doroteo
 
-endormiĝis nur unufoje, kaj sonĝis ke ŝi estas en Kansas, 
+endormiĝis nur unufoje, kaj sonĝis ke ŝi estas en Kansas,
 
 kie Onklino Em diras al ŝi sian ĝojon ke la knabineto
 
-denove estas hejme. 
+denove estas hejme.
 
 Akurate je la naŭa horo la sekvan matenon la ver-
 
 dliphara soldato renkontis ilin, kaj post kvar minutoj ili
 
-ĉiuj eniris la Tronĉambron de la Potenca Oz. 
+ĉiuj eniris la Tronĉambron de la Potenca Oz.
 
 Kompreneble ĉiu el ili anticipis vidi la Sorĉiston en la
 
 formo kiun li antaŭe havis, kaj ĉiun multe surprizis serĉis
 
-kiam ili ĉirkaŭrigardis kaj vidis tute neniun en la ĉambro. 
+kiam ili ĉirkaŭrigardis kaj vidis tute neniun en la ĉambro.
 
 Ili restis proksime al la pordo kaj eĉ pli proksime unu al
 
 la alia, ĉar la silento en la malplena ĉambro timigis pli ol
 
-ĉiu formo de Oz kiun ili antaŭe vidis. 
+ĉiu formo de Oz kiun ili antaŭe vidis.
 
 Baldaŭ ili aŭdis Voĉon, kiu ŝajnis veni el loko ie
 
-proksima al la supro de la granda kupolo, kaj ĝi diris, 
+proksima al la supro de la granda kupolo, kaj ĝi diris,
 
-solene. 
+solene.
 
 “Mi estas Oz, la Potenca kaj la Terura. Kial vi
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-182
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-serĉas min?” 
+serĉas min?”
 
 Ili rerigardis al ĉiu parto de la ĉambro, kaj, vidinte
 
-neniun, Doroteo diris, 
+neniun, Doroteo diris,
 
-“Kie vi estas?” 
+“Kie vi estas?”
 
 “Mi estas ĉie,” respondis la Voĉo, “sed por la oku-
 
 loj de ordinaraj mortemuloj mi estas nevidebla. Mi nun
 
-sidiĝos sur mian tronon, por ke vi konversaciu kun mi.” 
+sidiĝos sur mian tronon, por ke vi konversaciu kun mi.”
 
 Vere, la Voĉo ŝajnis ĝuste tiam soni rekte el la trono
 
 mem; do ili marŝis tien kaj staris en vico dum Doroteo
 
-diris: 
+diris:
 
 “Oz, ni venis por peti la plenumiĝon de la
 
-promeso.” 
+promeso.”
 
-“De kiu promeso?” demandis Oz. 
+“De kiu promeso?” demandis Oz.
 
 “Vi promesis resendi min al Kansas kiam la Fia
 
-Sorĉistino estos detruita,” diris la knabino. 
+Sorĉistino estos detruita,” diris la knabino.
 
 “Kaj vi promesis doni al mi cerbon,” diris la
 
-Birdotimigilo. 
+Birdotimigilo.
 
 “Kaj vi promesis doni al mi koron,” diris la Stana
 
-Lignohakisto. 
+Lignohakisto.
 
 “Kaj vi promesis doni al mi kuraĝon,” diris la
 
-Malkuraĝa Leono. 
+Malkuraĝa Leono.
 
 “Ĉu la Fia Sorĉistino vere estas detruita?” deman-
 
-dis la Voĉo, kaj Doroteo kredis ke ĝi iomete tremas. 
+dis la Voĉo, kaj Doroteo kredis ke ĝi iomete tremas.
 
 “Jes,” ŝi respondis, “mi degelgis ŝin per sitelo da
 
-akvo.” 
+akvo.”
 
-“Nu\!” diris la Voĉo, “tio okazis subite\! Nu, revenu
+“Nu!” diris la Voĉo, “tio okazis subite! Nu, revenu
 
 al mi morgaŭ, ĉar mi bezonas tempon por pripensi la
 
-!(images/000138.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-183
-
-aferon.” 
+aferon.”
 
 “Vi jam havis multan tempon,” diris la Stana Ligno-
 
-hakisto, kolere. 
+hakisto, kolere.
 
 “Ni rifuzas atendi eĉ unu tagon pli,” diris la
 
-Birdotimigilo. 
+Birdotimigilo.
 
-“Plenumu viajn promesojn\!” krietis Doroteo. 
+“Plenumu viajn promesojn!” krietis Doroteo.
 
 La Leono opiniis ke taŭgos timigi la Sorĉiston, do li laŭte
 
@@ -8176,107 +7531,102 @@ maljunulon, kun kalva kapo kaj sulketoplena vizaĝo, kiu
 
 isto, levinte sian hakilon, kuris al la vireto kaj estas estas
 
-kriis, 
+kriis,
 
-“Kiu vi estas?” 
+“Kiu vi estas?”
 
-“Mi estas Oz, la Potenca kaj la Terura,” 
+“Mi estas Oz, la Potenca kaj la Terura,”
 
-diris la malgranda viro, 
+diris la malgranda viro,
 
 per tremanta voĉo, “sed
 
-ne batu min—mi petas, 
+ne batu min—mi petas,
 
 ne batu—mi faros kion
 
-ajn vi volos.” 
+ajn vi volos.”
 
 Niaj amikoj rigar-
 
 dis lin surprizite kaj
 
-senesperigite. 
+senesperigite.
 
 “Mi kredis ke Oz
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-184
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-granda Kapo,” diris Doroteo. 
+granda Kapo,” diris Doroteo.
 
 “Kaj mi kredis ke Oz estas bela Damo,” diris la
 
-Birdotimigilo. 
+Birdotimigilo.
 
 “Kaj mi kredis ke Oz estas terura Besto,” diris la
 
-Stana Lignohakisto. 
+Stana Lignohakisto.
 
 “Kaj mi kredis ke Oz estas Globo de Fajro,” kriis la
 
-Leono. 
+Leono.
 
-“Ne; vi ĉiuj eraris,” diris la malgranda viro humile. 
+“Ne; vi ĉiuj eraris,” diris la malgranda viro humile.
 
-“Mi nur ŝajnigis tion.” 
+“Mi nur ŝajnigis tion.”
 
-“Ŝajnigis\!” kriis Doroteo. “Ĉu vi ne estas Potenca
+“Ŝajnigis!” kriis Doroteo. “Ĉu vi ne estas Potenca
 
-Sorĉisto?” 
+Sorĉisto?”
 
 “Ĉit, karulino,” li diris; “ne tiom laŭte parolu, ĉar
 
 oni aŭdos vin—kaj mi perdus ĉion. Oni kredas min
 
-Potenca Sorĉisto.” 
+Potenca Sorĉisto.”
 
-“Sed vi ja estas, ĉu ne?” 
+“Sed vi ja estas, ĉu ne?”
 
-“Tute ne, karulino; mi estas nur ordinara homo.” 
+“Tute ne, karulino; mi estas nur ordinara homo.”
 
-“Eĉ pli,” diris la Birdotimigilo, per doloroplena voĉo, 
+“Eĉ pli,” diris la Birdotimigilo, per doloroplena voĉo,
 
-“vi estas ĉarlatano.” 
+“vi estas ĉarlatano.”
 
-“Ĝuste tiel\!” deklaris la malgranda viro, kunfrotante
+“Ĝuste tiel!” deklaris la malgranda viro, kunfrotante
 
 siajn manojn kvazaŭ la akuzo plaĉis al li; “Mi estas
 
-ĉarlatano.” 
+ĉarlatano.”
 
-“Sed ve\!” diris la Stana Lignohakisto, “do kiel mi
+“Sed ve!” diris la Stana Lignohakisto, “do kiel mi
 
-akiros mian koron?” 
+akiros mian koron?”
 
-“Kaj mi mian kuraĝon?” demandis la Leono. 
+“Kaj mi mian kuraĝon?” demandis la Leono.
 
-“Kaj mi mian cerbon?” ploris la Birdotimigilo, 
+“Kaj mi mian cerbon?” ploris la Birdotimigilo,
 
 viŝante la larmojn el siaj okuloj per la maniko de sia
 
-jako. 
+jako.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-185
 
 “Miaj karaj amikoj,” diris Oz, “bonvolu ne paroli pri
 
 tiaj malgravaĵoj. Konsideru min, kaj mian malfeliĉan situ-
 
-acion pro mia senmaskiĝo.” 
+acion pro mia senmaskiĝo.”
 
 “Ĉu neniu alia scias pri via fraŭdo?” demandis
 
-Doroteo. 
+Doroteo.
 
-“Neniu, nur vi kvar—kaj mi mem,” respondis Oz. 
+“Neniu, nur vi kvar—kaj mi mem,” respondis Oz.
 
 “Mi trompis ĉiun dum tiom da tempo ke mi supozis ke
 
@@ -8284,15 +7634,15 @@ oni neniam sciiĝos. Mi eraregis kiam mi decidis permesi
 
 ke vi eniru la Tronoĉambron. Kutime mi rifuzas vdi eĉ al
 
-miajn regatojn, kaj tial ili kredas min terura.” 
+miajn regatojn, kaj tial ili kredas min terura.”
 
-“Sed, mi ne komprenas,” diris Doroteo, konfuzite. 
+“Sed, mi ne komprenas,” diris Doroteo, konfuzite.
 
-“Kiel vi povis aspekti granda Kapo al mi?” 
+“Kiel vi povis aspekti granda Kapo al mi?”
 
 “Tio estis nur trompo,” respondis Oz. “Bonvolu
 
-sekvi min, kaj mi klarigos ĉion al vi.” 
+sekvi min, kaj mi klarigos ĉion al vi.”
 
 Li kondukis ilin en malgrandan ĉambron malantaŭ
 
@@ -8300,15 +7650,15 @@ la Tronoĉambro, kaj ili ĉiuj sekvis lin. Li gestis al unu
 
 angulo, en kiu kuŝis la Granda Kapo, el multaj tavoloj de
 
-papero, kaj kun zorge pentrita vizaĝo. 
+papero, kaj kun zorge pentrita vizaĝo.
 
-“Mi pendigis tion de la plafono per drato,” diris Oz; 
+“Mi pendigis tion de la plafono per drato,” diris Oz;
 
 “mi staris malantaŭ la ekrano kaj tiris fadenon, por ke la
 
-okuloj moviĝu kaj la buŝo malfermiĝu.” 
+okuloj moviĝu kaj la buŝo malfermiĝu.”
 
-“Sed kiel vi faris la voĉon?” ŝi demandis. 
+“Sed kiel vi faris la voĉon?” ŝi demandis.
 
 “Nu, mi estas ventroparolisto,” diris la malgranda
 
@@ -8321,10 +7671,7 @@ aliaj trompiloj.” Li montris al la Birdotimigilo la robon
 kaj la maskon per kiu li vestis sin kiam li aspektis bela
 
 
-
-186
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Damo, kaj la Stana Lignohakisto vidis ke la terura Besto
 
@@ -8336,33 +7683,33 @@ Pseŭdosorĉisto ankaŭ pendigis tion de la plafono. Efek-
 
 tive ĝi estis globo de kotono, sed kiam oleo estis surverŝita
 
-la globo brulis feroce. 
+la globo brulis feroce.
 
 “Vere,” diris la Birdotimigilo, “vi hontu ke vi estas
 
-tia ĉarlatano.” 
+tia ĉarlatano.”
 
 “Mi hontas — certe mi hontas,” respondis la mal-
 
-granda viro malgaje; “sed mi povis fari nenion alian. 
+granda viro malgaje; “sed mi povis fari nenion alian.
 
 Bonvolu sidiĝi, troviĝas multaj seĝoj; kaj mi rakontos al
 
-vi mian historion.” 
+vi mian historion.”
 
-Do ili sidiĝis kaj aŭskultis dum li rakontis ĉi tiel: 
+Do ili sidiĝis kaj aŭskultis dum li rakontis ĉi tiel:
 
-“Mi naskiĝis en Omaha—” 
+“Mi naskiĝis en Omaha—”
 
-“Sed, tio estas ne malproksime de Kansas\!” kriis
+“Sed, tio estas ne malproksime de Kansas!” kriis
 
-Doroteo, ekscitite. 
+Doroteo, ekscitite.
 
-“Vi pravas; sed pli malproksime de ĉi tie,” li diris, 
+“Vi pravas; sed pli malproksime de ĉi tie,” li diris,
 
 malgaje skuante sian kapon je ŝi. “Kiam mi plenkreskis
 
-mi fariĝis ventroparolisto, kaj trejnis min tre lerta majstro. 
+mi fariĝis ventroparolisto, kaj trejnis min tre lerta majstro.
 
 Mi povas imiti ĉian birdon kaj beston.” Li miaŭis tiel
 
@@ -8370,209 +7717,203 @@ precize kiel katido ke Toton ekatentis kaj ekrigardis
 
 ĉiudirekten por trovi ŝi estas. “Post iom da tempo,” pludi-
 
-ris Oz, “tio tedis min, do mi fariĝis balonisto.” 
+ris Oz, “tio tedis min, do mi fariĝis balonisto.”
 
-“Kio estas tio?” demandis Doroteo. 
+“Kio estas tio?” demandis Doroteo.
 
 “Persono kiu supreniras en balono ĉe cirko, por
 
 instigi homojn alveni kaj pagi por vidi la cirkon,” li
 
-klarigis. 
-
-!(images/000007.jpg)
+klarigis.
 
 
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
-187
 
-187
-
-“Ho,” ŝi diris, “mi komprenas.” 
+“Ho,” ŝi diris, “mi komprenas.”
 
 “Nu, unu tagon mi supren-
 
-iris “Nu, 
+iris “Nu,
 
-en 
+en
 
-unu 
+unu
 
-balono 
+balono
 
-tagon 
+tagon
 
-kaj la 
+kaj la
 
-mi 
+mi
 
-ŝnuroj siupreniris 
+ŝnuroj siupreniris
 
 nter-
 
 en balono kaj la
 
-ŝnuroj implikiĝis 
+ŝnuroj implikiĝis
 
-implikiĝis, tiel 
+implikiĝis, tiel
 
-tiel 
+tiel
 
-ke 
+ke
 
-ke 
+ke
 
-mi 
+mi
 
-mi 
+mi
 
-ne 
+ne
 
-ne 
+ne
 
 povis povis malsupreniri. Ĝi
 
-flugis super 
+flugis super
 
-denove 
+denove
 
-la nubojn, 
+la nubojn,
 
-malsupreniri. 
+malsupreniri.
 
-tiom 
+tiom
 
-Ĝi iris alten 
+Ĝi iris alten
 
 tre
 
 ke aerfluo kaptis ĝin
 
-kkaj nokto 
+kkaj nokto
 
-alten 
+alten
 
-mi 
+mi
 
-super la veturis tra 
+super la veturis tra
 
-nubojn, 
+nubojn,
 
-la 
+la
 
-tiom aero, 
+tiom aero,
 
 alten kaj je la mateno de la
 
-dua 
+dua
 
-ke tago mi vekiĝis 
+ke tago mi vekiĝis
 
-aerkurento trafis kaj 
+aerkurento trafis kaj
 
-ĝin trovis 
+ĝin trovis
 
-kaj 
+kaj
 
-ke 
+ke
 
 por- la balono flosas super
 
-nekonata bela lando. 
+nekonata bela lando.
 
 tis ĝin multajn, multajn kilometr-
 
-ojn “Ĝi 
+ojn “Ĝi
 
-for. surteriĝis 
+for. surteriĝis
 
-Dum 
+Dum
 
-iom 
+iom
 
-tago kaj post iom, 
+tago kaj post iom,
 
 nokto mi kaj mi tute ne suferis
 
-pro tio. 
+pro tio.
 
-veturis Sed 
+veturis Sed
 
-tra mi 
+tra mi
 
-la trovis 
+la trovis
 
-aero, min 
+aero, min
 
-kaj inter 
+kaj inter
 
-en 
+en
 
-fremda 
+fremda
 
 la
 
 popolo, kiu, vid-
 
-inte min veni el la nuboj, kredis 
+inte min veni el la nuboj, kredis
 
 mateno de la dua tago mi vekiĝis
 
 ke mi estas potenca
 
-Sorĉisto. 
+Sorĉisto.
 
-kaj 
+kaj
 
-Kompreneble, 
+Kompreneble,
 
-trovis ke la 
+trovis ke la
 
 m
 
-balono i lasis 
+balono i lasis
 
-flosas ke 
+flosas ke
 
 s
 
-ili 
+ili
 
-uper kredu tion, 
+uper kredu tion,
 
-nekonata 
+nekonata
 
-ĉar 
+ĉar
 
-kaj 
+kaj
 
 ili
 
 bela
 
-timis min kaj promesis fari kion ajn mi volas. 
+timis min kaj promesis fari kion ajn mi volas.
 
-lando. 
+lando.
 
-“Nur 
+“Nur
 
-Ĝi m por distri min, 
+Ĝi m por distri min,
 
-alsupreniris 
+alsupreniris
 
 kaj l
 
-nerapide, aborigi 
+nerapide, aborigi
 
 kaj mi la a
 
-tute fablan 
+tute fablan
 
-ne 
+ne
 
 popo-
 
@@ -8580,229 +7921,229 @@ estis dam-
 
 lon, m
 
-aĝita. i ordonis 
+aĝita. i ordonis
 
-Sed mi ke ili 
+Sed mi ke ili
 
-trovis konstruu 
+trovis konstruu
 
-min 
+min
 
-ĉi 
+ĉi
 
-inter tiun Urbon, 
+inter tiun Urbon,
 
-nekonata 
+nekonata
 
 kaj m
 
 popolo, ian
 
-kiu, 
+kiu,
 
-Palacon; 
+Palacon;
 
-vidante kaj 
+vidante kaj
 
-min ili volonte 
+min ili volonte
 
-veni el la kaj bone 
+veni el la kaj bone
 
-nuboj, 
+nuboj,
 
-faris 
+faris
 
-kredis tion. 
+kredis tion.
 
-ke mi Post 
+ke mi Post
 
 e
 
-tio, 
+tio,
 
-stas 
+stas
 
 mi
 
 granda
 
-decidis, ĉar 
+decidis, ĉar
 
-Sorĉisto. 
+Sorĉisto.
 
-la lando 
+la lando
 
-Kompreneble estas 
+Kompreneble estas
 
 mi l
 
-tiel 
+tiel
 
-asis 
+asis
 
-verda 
+verda
 
 ilin k
 
-kaj 
+kaj
 
-redi 
+redi
 
-bela, 
+bela,
 
-tion, ĉar ke 
+tion, ĉar ke
 
 ili mi
 
 timis
 
-nomos ĝin la Smeralda Urbo, kaj por 
+nomos ĝin la Smeralda Urbo, kaj por
 
 min, kaj promesis fari kion mi volas. plitaŭgigi la nomon
 
-mi metis verdajn 
+mi metis verdajn
 
-“Simple 
+“Simple
 
-okulvitrojn 
+okulvitrojn
 
-por distri 
+por distri
 
 s
 
-min, ur ĉiujn 
+min, ur ĉiujn
 
-kaj 
+kaj
 
-personojn, 
+personojn,
 
-okupi la 
+okupi la
 
-tiel 
+tiel
 
-bonan 
+bonan
 
 ke
 
 popo-
 
-ili vidis ĉion verda.” 
+ili vidis ĉion verda.”
 
 lon, mi ordonis ke ili konstruu ĉi tiun Urbon, kaj mian
 
-“Sed 
+“Sed
 
-palacon; 
+palacon;
 
-ĉu 
+ĉu
 
-kaj 
+kaj
 
-ne 
+ne
 
-ili 
+ili
 
-estas 
+estas
 
-faris tion ĉio ĉi 
+faris tion ĉio ĉi
 
-volonte tie 
+volonte tie
 
-kaj verda?” 
+kaj verda?”
 
-bone. 
+bone.
 
 demandis
 
 Post tio mi
 
-Doroteo. 
+Doroteo.
 
 pensis, ĉar la lando estis tiel verda kaj bela, ke mi nomos
 
-ĝin “Ne 
+ĝin “Ne
 
-la S pli ol 
+la S pli ol
 
-meralda en ĉiu 
+meralda en ĉiu
 
-Urbo, alia 
+Urbo, alia
 
-kaj 
+kaj
 
-urbo,” 
+urbo,”
 
-por ke 
+por ke
 
-respondis 
+respondis
 
-la nomo 
+la nomo
 
-Oz; 
+Oz;
 
-pli 
+pli
 
 “sed
 
 konvenu
 
-kiam 
+kiam
 
-mi m vi surhavas 
+mi m vi surhavas
 
-etis verdajn verdajn okulvitrojn, 
+etis verdajn verdajn okulvitrojn,
 
-okulvitrojn sur 
+okulvitrojn sur
 
-nu 
+nu
 
-ĉiujn 
+ĉiujn
 
-kompreneble 
+kompreneble
 
-popolanojn, 
+popolanojn,
 
 ĉio
 
 tiel ke
 
-vidata aspektas verda. La 
+vidata aspektas verda. La
 
 ĉio kion ili vidis estis verda. Smeralda Urbo konstruiĝis
 
 antaŭ tre m
 
-“Sed ultaj 
+“Sed ultaj
 
-ĉu jaroj, 
+ĉu jaroj,
 
-ĉio 
+ĉio
 
-ĉar 
+ĉar
 
-ĉi 
+ĉi
 
-mi 
+mi
 
-tie 
+tie
 
-estis 
+estis
 
-ne 
+ne
 
-junulo 
+junulo
 
-estas 
+estas
 
-kiam 
+kiam
 
 verda?” la balono
 
 demandis
 
-portis min 
+portis min
 
-Doroteo. 
+Doroteo.
 
 ĉi tien, kaj mi estas tre maljuna nun. Sed mia
 
@@ -8811,10 +8152,7 @@ popolo jam de longe portas verdajn okulvitrojn sur la oni
 “Ne pli ol en ĉiu alia urbo,” respondis Oz; sed kiam
 
 
-
-188
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 vi surhavas verdajn okulvitrojn, nu, kompreneble ĉio kion
 
@@ -8828,15 +8166,15 @@ nun. Sed mia popolo surportas verdajn okulvitrojn sur la
 
 okuloj de tiom longe ke la plej multaj el ili kredas ke ĝi
 
-vere estas Smeralda Urbo, kaj certe ĝi ja estas bela loko, 
+vere estas Smeralda Urbo, kaj certe ĝi ja estas bela loko,
 
 abundas juveloj kaj valoraj metaloj, kaj ĉio bona por
 
-feliĉigi onin. Mi ame regas la popolon, kaj ili amas min; 
+feliĉigi onin. Mi ame regas la popolon, kaj ili amas min;
 
 sed ekde kiam ĉi tiu Palaco estis konstruita mi enfermas
 
-min kaj rifuzis vidi tiun el ili. 
+min kaj rifuzis vidi tiun el ili.
 
 “Unu el miaj plej grandaj timoj estis pro la Sorĉisti-
 
@@ -8844,7 +8182,7 @@ noj, ĉar kvankam mi mem havas tute nenian magian
 
 potencon mi baldaŭ trovis ke la Sorĉistinoj vere kapablas
 
-fari mirindaĵojn. Kvar Sorĉistinoj ekzistis en ĉi tiu lando, 
+fari mirindaĵojn. Kvar Sorĉistinoj ekzistis en ĉi tiu lando,
 
 kaj ili regis la popolojn kiuj loĝas en la Nordo kaj Sudo
 
@@ -8868,41 +8206,37 @@ al mi mi volonte promesus ĉion ajn por ke vi neniigu la
 
 alian Sorĉistinon; sed mi devas honte diri ke nun, post
 
-ŝia degelo, mi ne povas plenumi miajn promesojn.” 
-
-!(images/000012.jpg)
+ŝia degelo, mi ne povas plenumi miajn promesojn.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-189
 
 “Laŭ mia opinio vi estas tre malbona persono,” diris
 
-Doroteo. 
+Doroteo.
 
 “Ho ne, karulino; mi estas tre bona persono; sed mi
 
-konfestas ke mi estas tre malkompetenta Sorĉisto.” 
+konfestas ke mi estas tre malkompetenta Sorĉisto.”
 
 “Ĉu vi ne povas doni al mi cerbon?” demandis la
 
-Birdotimigilo. 
+Birdotimigilo.
 
-“Vi ne bezonas ĝin. Vi lernas ion novan ĉiutage. 
+“Vi ne bezonas ĝin. Vi lernas ion novan ĉiutage.
 
 Bebo havas cerbon, sed ĝi malmulton scias. Nur sperto
 
 donas scion, kaj ju pli longe vi vivos, des pli multe vi
 
-nepre spertos.” 
+nepre spertos.”
 
 “Eble,” diris la Birdotimigilo, “sed mi restos tre mal-
 
-feliĉa se vi ne donos al mi cerbon.” 
+feliĉa se vi ne donos al mi cerbon.”
 
-La falsa sorĉisto atente rigardis lin. 
+La falsa sorĉisto atente rigardis lin.
 
 “Nu,” li diris ĝemante, “mi ne estas lerta magiisto, mi
 
@@ -8910,101 +8244,90 @@ jam diris tion al vi; sed se vi venos al mi morgaŭ Ne
 
 matene, mi plenigos vian kapon per cerbo. Tamen mi ne
 
-povas instrui vin ĝin uzi; vi mem devos eltrovi tion.” 
+povas instrui vin ĝin uzi; vi mem devos eltrovi tion.”
 
-“Ho, dankon—dankon\!” kriis la Birdotimigilo. 
+“Ho, dankon—dankon!” kriis la Birdotimigilo.
 
 “Mi eltrovos kiel uzi ĝin, tute
 
-certe\!” 
+certe!”
 
-“Sed 
+“Sed
 
-kion 
+kion
 
-pri 
+pri
 
 mia
 
 kuraĝo?” demandis la Leono
 
-maltrankvile. 
+maltrankvile.
 
 “Vi havas multan kuraĝ-
 
-on, mi certas,” respondis Oz. 
+on, mi certas,” respondis Oz.
 
-“Vi nur bezonas memfidon. 
-
-!(images/000020.jpg)
+“Vi nur bezonas memfidon.
 
 
-
-190
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 ekzistas vivanto kiu ne timas kiam okazas danĝero. Vera
 
 kuraĝo signifas fronti la danĝeron kiam vi timas, kaj tian
 
-kuraĝon vi jam abunde posedas.” 
+kuraĝon vi jam abunde posedas.”
 
-“Eble, tamen malgraŭe mi timas,” diris la Leono. 
+“Eble, tamen malgraŭe mi timas,” diris la Leono.
 
 “Mi estos tre malfeliĉa krom se vi ne donos al mi tian
 
-kuraĝon kiu forgesigas pri timo.” 
+kuraĝon kiu forgesigas pri timo.”
 
-“Nu, bone; mi donos al vi tian kuraĝon morgaŭ,” 
+“Nu, bone; mi donos al vi tian kuraĝon morgaŭ,”
 
-respondis Oz. 
+respondis Oz.
 
 “Kion pri mia koro?” demandis la Stana
 
-Lignohakisto. 
+Lignohakisto.
 
 “Nu, rilate al tio,” respondis Oz, “laŭ mi vi malpra-
 
-vas pro via deziro havi koron. Koro plejofte malfeliĉigas. 
+vas pro via deziro havi koron. Koro plejofte malfeliĉigas.
 
 Plej bone estus ke vi komprenu ke al vi tre bonsorte
 
-mankas koro.” 
+mankas koro.”
 
 “Pri tio vi kaj mi malsimile opinias,” diris la Stana
 
 Lignohakisto. “Laŭ mia prefero, mi akceptos ĉian mal-
 
-feliĉon senproteste, se vi donos al mi koron.” 
+feliĉon senproteste, se vi donos al mi koron.”
 
 “Bone,” respondis Oz humile. “Venu al mi
 
 morgaŭ kaj vi ricevos koron. Mi ludis esti Sorĉisto
 
-dum tiom da jaroj ke mi povos iomete pli ludi.” 
+dum tiom da jaroj ke mi povos iomete pli ludi.”
 
 “Kaj nun,” diris Doroteo, “kiel
 
-mi reiros al Kansas?” 
+mi reiros al Kansas?”
 
 “Ni devos pripensi tion,” respon-
 
-dis la malgranda viro. “Lasu min
-
-konsideri la problemon dum du aŭ tri
+dis la malgranda viro. “Lasu mnsideri la problemon dum du aŭ tri
 
 tagoj kaj mi klopodos elpensi mani-
 
-eron transporti vin super la dezerton. 
-
-!(images/000025.jpg)
+eron transporti vin super la dezerton.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-191
 
 Intertempe vi estos miaj bonvenaj gastoj, kaj dum vi loĝos
 
@@ -9014,7 +8337,7 @@ deziron eĉ la plej malgrandan. Mi petas nur unu reko-
 
 mpencon pro mia helpo — kiom ajn malgranda. Kaŝu
 
-mian sekreton kaj diru al neniu ke mi estas ĉarlatano.” 
+mian sekreton kaj diru al neniu ke mi estas ĉarlatano.”
 
 Ili akceptis informi neniun pri tio kion ili trovis, kaj
 
@@ -9024,37 +8347,26 @@ reiris al siaj ĉambroj kun esperoj. Eĉ Doroteo esperis ke
 
 por li, trovos metodon resendi ŝin al Kansas, kaj se li
 
-sukcesos ŝi pretis pardoni al li ĉion. 
+sukcesos ŝi pretis pardoni al li ĉion.
 
 
-
-!(images/000033.jpg)
-
-* *
-
-*“Ĝuste tiel\! Mi estas ĉarlatano.” *
-
-!(images/000037.jpg)
+*“Ĝuste tiel! Mi estas ĉarlatano.” *
 
 
-
-Ĉapitro XVI. 
+Ĉapitro XVI.
 
 La magia arto
 
-de la 
+de la
 
-Granda Ĉarlatano. 
-
-!(images/000043.jpg)
-
+Granda Ĉarlatano.
 
 
 uLA SEKVAN MATENON
 
 la Birdotimigilo diris al siaj
 
-amikoj: 
+amikoj:
 
 “Gratulu min. Mi finfine
 
@@ -9062,13 +8374,13 @@ ricevos mian cerbon de Oz. Kiam
 
 mi revenos mi estos kiaj estas aliaj
 
-homoj.” 
+homoj.”
 
 “Mi ĉiam ŝatis vin kia vi
 
-estas,” diris Doroteo simple. 
+estas,” diris Doroteo simple.
 
-“Vi afablas ŝatante Birdotimigilon,” li respondis. 
+“Vi afablas ŝatante Birdotimigilon,” li respondis.
 
 “Sed certe vi pli alte estimos min kiam vi aŭdos la bele-
 
@@ -9076,37 +8388,34 @@ gajn pensojn kiujn produktos mia nova cerbo.” La
 
 Birdotimigilo diris adiaŭ al ili per feliĉa voĉo kaj iris al
 
-la Tronoĉambro, kie li frapis sur la pordon. 
+la Tronoĉambro, kie li frapis sur la pordon.
 
-“Envenu,” diris Oz. 
+“Envenu,” diris Oz.
 
 
-
-196
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 La Birdotimigilo eniris kaj trovis la malgrandan
 
-viron sidanta apud la fenestro, profunde pensanta. 
+viron sidanta apud la fenestro, profunde pensanta.
 
 “Mi venis por mia cerbo,” komentis la Birdotimig-
 
-ilo, iom malkviete. 
+ilo, iom malkviete.
 
 “Ho, jes, sidiĝu en tiu seĝo, mi petas,” respondis
 
-Oz. “Mi bezonas forpreni vian kapon, bonvolu pardoni, 
+Oz. “Mi bezonas forpreni vian kapon, bonvolu pardoni,
 
 sed tio estas necesa por povi meti vian cerbon en la
 
-ĝustan lokon.” 
+ĝustan lokon.”
 
 “Nepardonpetinde,” diris la Birdotimigilo. “Volonte
 
 vi deprenu mian kapon, se ĝi estos pli bona kiam vi
 
-resurmetos ĝin.” 
+resurmetos ĝin.”
 
 Do la Sorĉisto malfiksis lian kapon kaj elprenis la
 
@@ -9118,67 +8427,63 @@ metis ankaŭ pinglojn kaj kudrilojn. Forte skuinte ĝin, li
 
 metis ĝin en la supron de la kapo de la Birdotimigilo kaj
 
-plenigis la vakan spacon per pajlo, por firme teni ĝin. 
+plenigis la vakan spacon per pajlo, por firme teni ĝin.
 
 Kiam li finis refiksi la kapon de la Birdotimigilo sur lian
 
-kapon li diris al li, 
+kapon li diris al li,
 
 “Ekde nun vi estos vere pensamanta homo, ĉar mi
 
-donis al vi cerbamikan menson.” 
+donis al vi cerbamikan menson.”
 
 La Birdotimigilo estis kaj plaĉita kaj fiera pro la ple-
 
 numiĝo de lia plej granda deziro, kaj varme dankinte
 
-Ozon li reiris al siaj amikoj. 
+Ozon li reiris al siaj amikoj.
 
 Doroteo rigardis lin scivole. Lia kapo ŝvelis pro la
 
-cerbo. 
+cerbo.
 
-“Kiel vi vin sentas?” ŝi demandis. 
-
-!(images/000047.jpg)
+“Kiel vi vin sentas?” ŝi demandis.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-197
 
 “Tre saĝa, efektive” li respondis fervore. “Kiam mi
 
-kutimiĝos al mia cerbo mi scios ĉion.” 
+kutimiĝos al mia cerbo mi scios ĉion.”
 
 “Kial tiuj kudriloj kaj pingloj elpuŝas sin tra la
 
-flankon de via kapo?” demandis la Stana Lignohakisto. 
+flankon de via kapo?” demandis la Stana Lignohakisto.
 
 “Tio pruvas ke lia menso estas akra,” komentis la
 
-Leono. 
+Leono.
 
-“Nu, mi devas iri al Oz por ricevi mian koron,” 
+“Nu, mi devas iri al Oz por ricevi mian koron,”
 
-diris la Stana Lignohakisto. Do li marŝis al la Tronoĉam- 
+diris la Stana Lignohakisto. Do li marŝis al la Tronoĉam-
 
-bro kaj frapis sur la pordon. 
+bro kaj frapis sur la pordon.
 
-“Envenu,” vokis Oz, kaj la Hakisto envenis kaj diris, 
+“Envenu,” vokis Oz, kaj la Hakisto envenis kaj diris,
 
-“Mi venis por mia koro.” 
+“Mi venis por mia koro.”
 
 “Bone,” respondis la malgranda viro. “Sed mi devos
 
 tondi truon en via brusto, por meti vian koron en la
 
-ĝustan lokon. Mi esperas ke tio ne dolorigos vin.” 
+ĝustan lokon. Mi esperas ke tio ne dolorigos vin.”
 
 “Ho, ne,” respondis la Hakisto. “Mi tute ne sentos
 
-ĝin.” 
+ĝin.”
 
 Do Oz elprenis tondilon de stanisto kaj tondis mal-
 
@@ -9192,83 +8497,78 @@ Lignohakisto. Post tio, li
 
 iris al ŝranko de tirkestoj
 
-kaj elprenis belan koron, 
+kaj elprenis belan koron,
 
 tute el silko kaj plenigi-
 
-tan per segeroj. 
+tan per segeroj.
 
 “Vere bela, ĉu ne? li
 
-demandis. 
-
-!(images/000053.jpg)
+demandis.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-198
+“Jes, ja!” respondis la Hakisto, al kiu ĝi multe
 
-LA MIRINDA SORĈISTO DE OZ. 
+plaĉis. “Sed ĝi estas ĉu amema koro?”
 
-“Jes, ja\!” respondis la Hakisto, al kiu ĝi multe
-
-plaĉis. “Sed ĝi estas ĉu amema koro?” 
-
-“Nepre jes\!” respondis Oz. Li metis la koron en la
+“Nepre jes!” respondis Oz. Li metis la koron en la
 
 bruston de la Hakisto kaj post tio li remetis la kvadraton
 
-el stano, lutante ĝin nete kie ĝi estis eltondita. 
+el stano, lutante ĝin nete kie ĝi estis eltondita.
 
 “Finite” diris li; “nun vi havas koron kiu fierigus
 
 ĉiun ajn homon. Mi bedaŭras ke mi devis fliki vian brus-
 
-ton, sed vere tio estis necesa.” 
+ton, sed vere tio estis necesa.”
 
 “Ne ĝenas min la fliko,” fervore diris la feliĉa Hak-
 
 isto. “Mi dankegas vin, kaj mi neniam forgesos vian kom-
 
-plezon.” 
+plezon.”
 
-“Ne menciinde,” respondis Oz. 
+“Ne menciinde,” respondis Oz.
 
 Post tio la Stana Lignohakisto reiris al siaj
 
 amikoj, kiuj deziris al li ĉian ĝojon pro lia bona
 
-fortuno. 
+fortuno.
 
 Nun la Leono marŝis al la
 
-Tronoĉambro kaj frapis sur la pordon. 
+Tronoĉambro kaj frapis sur la pordon.
 
-“Envenu,” diris Oz. 
+“Envenu,” diris Oz.
 
 “Mi venis por mia kuraĝo,” anon-
 
-cis la Leono, enirante la ĉambron. 
+cis la Leono, enirante la ĉambron.
 
-“Bone,” 
+“Bone,”
 
-respondis 
+respondis
 
 la
 
 malgranda viro. “Mi portos
 
-ĝin al vi.” 
+ĝin al vi.”
 
-Li 
+Li
 
-iris 
+iris
 
 al
 
-ŝranko 
+ŝranko
 
-kaj 
+kaj
 
 etendinte
 
@@ -9279,20 +8579,18 @@ breto li deprenis kvadra-
 Kuraĝo
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-199
 
 tan verdan botelon, kies enhavon li verŝis en verd-oran
 
 teleron, bele ĉizitan. Metinte tion antaŭ la Malkuraĝan
 
-Leonon, kiu flaris ĝin kvazaŭ malŝate, la Sorĉisto diris: 
+Leonon, kiu flaris ĝin kvazaŭ malŝate, la Sorĉisto diris:
 
-“Trinku.” 
+“Trinku.”
 
-“Kio ĝi estas?” demandis la Leono. 
+“Kio ĝi estas?” demandis la Leono.
 
 “Nu,” respondis Oz, “se ĝi estus en vi, ĝi estus
 
@@ -9302,17 +8600,17 @@ interna; do oni ne povas nomi ĉi tion kuraĝo antaŭ ol vi
 
 glutis ĝin. Tial mi konsilas al vi trinki ĝin kiel eble plej
 
-baldaŭ.” 
+baldaŭ.”
 
 La Leono ne plu hezitis, sed trinkis ĝis la telero
 
-estis malplena. 
+estis malplena.
 
-“Kiel vi sentas vin nun?” demandis Oz. 
+“Kiel vi sentas vin nun?” demandis Oz.
 
 “Plena de kuraĝo,” respondis la Leono, kiu reiris
 
-ĝoje al siaj amikoj por informi ilin pri sia bona fortuno. 
+ĝoje al siaj amikoj por informi ilin pri sia bona fortuno.
 
 Oz, nun sola, ridetis al si pro sia sukceso doni al la
 
@@ -9322,7 +8620,7 @@ precize tion kion ili kredis deziri. “Kiel mi ne povas esti
 
 ĉarlatano?” li diris, “kiam tiom da personoj devigas min
 
-fari tion, kio tute ne estas farebla, kiel scias ĉiu homo? 
+fari tion, kio tute ne estas farebla, kiel scias ĉiu homo?
 
 Estis facile feliĉigi la Birdotimigilon kaj la Leonon kaj la
 
@@ -9330,26 +8628,17 @@ Hakiston ĉar ili imagis ke mi povas fari ĉion ajn. Sed
 
 bezonata estos pli ol imago por reporti Doroteon al Kan-
 
-sas, kaj mi certas ke mi ne scias kiel fari tion.” 
+sas, kaj mi certas ke mi ne scias kiel fari tion.”
 
-!(images/000057.jpg)
-
-* *
 
 *“‘Mi sentas min tre saĝa,’ diris la Birdotimigilo.” *
 
-!(images/000065.jpg)
 
-
-
-Ĉapitro XVII. 
+Ĉapitro XVII.
 
 Kiel la balono
 
-estis lanĉita. 
-
-!(images/000076.jpg)
-
+estis lanĉita.
 
 
 orpasis
@@ -9364,7 +8653,7 @@ feliĉaj kaj kontentaj. La Birdotimigilo diris al ili
 
 ke estas bonegaj pensoj en lia kapo; sed li rifuzis
 
-diri ilin ĉar li sciis ke nur li mem povas kompreni ilin. 
+diri ilin ĉar li sciis ke nur li mem povas kompreni ilin.
 
 Kiam la Stana Lignohakisto marŝadis li sentis sian koron
 
@@ -9376,29 +8665,26 @@ konsistis el karno. La Leono deklaris ke li timas nenion
 
 sur la tero, kaj li volonte frontus armeon aŭ dekduon da
 
-ferocaj Kolizuloj. 
+ferocaj Kolizuloj.
 
 
-
-204
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Tiel ĉiu en la grupeto estis kontenta escepte de
 
-Doroteo, kiu sopiris eĉ pli ol iam antaŭe reiri al Kansas. 
+Doroteo, kiu sopiris eĉ pli ol iam antaŭe reiri al Kansas.
 
 La kvan tagon, ĝojigante ŝin, Oz ordonis ke ŝi ree-
 
 niru la Tronĉambron, kaj kiam ŝi eniris li diris afable al
 
-ŝi: 
+ŝi:
 
 “Sidiĝu, karulino; mi kredas ke mi trovis metodon
 
-forveturigi vin el ĉi tiu lando.” 
+forveturigi vin el ĉi tiu lando.”
 
-“Al Kansas?” ŝi demandis fervore. 
+“Al Kansas?” ŝi demandis fervore.
 
 “Nu, mi ne certas pri Kansas,” diris Oz, “ĉar mi ne
 
@@ -9406,11 +8692,11 @@ povas eĉ konjekti pri ĝia direkto. Sed la unua tasko estas
 
 transiri la dezerton, kaj post tio verŝajne estos facile trovi
 
-vian vojon hejmen.” 
+vian vojon hejmen.”
 
-“Kiel mi povos transiri la dezerton?” ŝi demandis. 
+“Kiel mi povos transiri la dezerton?” ŝi demandis.
 
-“Nu, jen mia penso,” diris la malgranda viro. 
+“Nu, jen mia penso,” diris la malgranda viro.
 
 “Komprenu, kiam mi venis al ĉi tiu lando mi flugis en
 
@@ -9422,9 +8708,9 @@ peraera. Nu, mi tute ne kapablas krei ciklonon; sed mi
 
 pripensadis la eblecojn, kaj mi kredas ke mi povos fari
 
-balonon.” 
+balonon.”
 
-“Kiel?” demandis Doroteo. 
+“Kiel?” demandis Doroteo.
 
 “Balono,” diris Oz, “estas el silko, sur kiu estas
 
@@ -9434,19 +8720,15 @@ silkon en ĉi tiu palaco, do tute ne estos malfacile fari la
 
 balonon. Sed en la tuta lando ne estas gaso por plenigi la
 
-balonon, por ke ĝi flugu.” 
+balonon, por ke ĝi flugu.”
 
 “Se ĝi ne flugos,” komentis Doroteo, “ĝi estos senu-
 
-!(images/000080.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-205
-
-tila.” 
+tila.”
 
 “Vere,” respondis Oz. “Sed ekzistas alia rimedo por
 
@@ -9454,9 +8736,9 @@ flugigi ĝin, nome plenigi ĝin per varmega aero. Varmega
 
 aero ne estas egale bona kiel gaso, ĉar se la aero malva-
 
-rmiĝus la balono falus en la dezerton, kaj ni perdiĝus.” 
+rmiĝus la balono falus en la dezerton, kaj ni perdiĝus.”
 
-“Ni\!” kriis la knabino. “Ĉu vi akompanos min?” 
+“Ni!” kriis la knabino. “Ĉu vi akompanos min?”
 
 “Jes, certe,” respondis Oz. “Min enuigas esti ĉarla-
 
@@ -9468,17 +8750,17 @@ mi trompis ilin. “Do mi devas resti fermita en ĉi tiujn
 
 ĉambrojn tuttage, kaj estas tre tede. Mi multe preferus
 
-reiri al Kansas kun vi kaj reesti en cirko.” 
+reiri al Kansas kun vi kaj reesti en cirko.”
 
-“Mi ĝuos vian kuneston,” diris Doroteo. 
+“Mi ĝuos vian kuneston,” diris Doroteo.
 
-“Dankon,” 
+“Dankon,”
 
 “Dankon,” li respondis. “Nun, se vi
 
 helpos min kunkudri la silkon, ni komencu
 
-labori pri la balono.” 
+labori pri la balono.”
 
 Do Doroteo prenis kudrilon, kaj tuj
 
@@ -9500,19 +8782,16 @@ ili. Tri tagoj necesis por kunkudri
 
 ili havis grandan sakon el verda silko
 
-pli ol ses metrojn longa. 
+pli ol ses metrojn longa.
 
 
-
-206
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Post tio, Oz ŝmiris ĝian internon per tavolo de
 
 maldensa gluo, por ke ĝi rezistu aerlikadon, kaj post tio li
 
-anoncis ke la balono estas preta. 
+anoncis ke la balono estas preta.
 
 “Sed ni devos havi korbon en kiu ni veturos,” li
 
@@ -9520,7 +8799,7 @@ diris. Do li ordonis ke la Soldato kun la Verdaj Lipharoj
 
 alportu grandan korbon por lavotaj vestaĵoj, kiun li fiksis
 
-al la malsupro de la balono per ŝnuregoj. 
+al la malsupro de la balono per ŝnuregoj.
 
 Kiam ĝi estis tute preta, Oz disanoncigis inter sia
 
@@ -9528,7 +8807,7 @@ popolo ke li vizitos grandan fratan Sorĉiston kiu loĝas en
 
 la nuboj. La informo disvastiĝis rapide tra la urbo kaj ĉiu
 
-venis por rigardi la mirindaĵon. 
+venis por rigardi la mirindaĵon.
 
 Oz ordonis ke la balono estu portita antaŭ la Pala-
 
@@ -9544,17 +8823,17 @@ de la fajro plenigos la silkan sakon. Iom post iom la
 
 balono ŝveliĝis kaj enaeriĝis, ĝis fine la korbo preskaŭ ne
 
-plu tuŝis la teron. 
+plu tuŝis la teron.
 
 Post tio, Oz eniris la korbon kaj diris al la tuta
 
-popolo per laŭta voĉo: 
+popolo per laŭta voĉo:
 
 “Mi nun foriros por viziti. Dum mi forestos la Bir-
 
 dotimigilo regos vin. Mi ordonas ke vi obeu lin kiel vi
 
-obeus min.” 
+obeus min.”
 
 La balono jam tiris forte por eskapi de la ŝnurego
 
@@ -9562,21 +8841,17 @@ kiu ligis ĝin al la tero, ĉar la aero en ĝi estis varmega, kaj
 
 tio faris ĝin tiom malpli peza ol la aero ekster la
 
-!(images/000088.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-207
 
 balono
 
-balono ke ĝi tiregis klopodante alteniri en la ĉielon. 
+balono ke ĝi tiregis klopodante alteniri en la ĉielon.
 
-“Venu, Doroteo\!” kriis la Sorĉisto. “Rapidu por ke la
+“Venu, Doroteo!” kriis la Sorĉisto. “Rapidu por ke la
 
-balono ne forflugu sen vi\!” 
+balono ne forflugu sen vi!”
 
 “Mi tute ne trovas Toton ie ajn,” respondis Doro-
 
@@ -9584,23 +8859,23 @@ teo, kiu ne volis forlasi sian hundon. Toto estis kurinta
 
 inter la homamasonpor boji kontraŭ katideton, kaj fine
 
-Doroteo trovis lin. Ŝi prenis lin kaj kuris cele la balonon. 
+Doroteo trovis lin. Ŝi prenis lin kaj kuris cele la balonon.
 
 Ŝi estis nur kelkajn paŝojn for de ĝi, kaj
 
 Oz etendis siajn manojn por helpi ŝin eniri la
 
-korbon, kiam krak\! la ŝnuregoj rompiĝis kaj la
+korbon, kiam krak! la ŝnuregoj rompiĝis kaj la
 
-balono leviĝis en la aeron sen ŝi. 
+balono leviĝis en la aeron sen ŝi.
 
-“Revenu\!” ŝi kriegis. “Mi volas kuniri\!” 
+“Revenu!” ŝi kriegis. “Mi volas kuniri!”
 
 “Mi ne povas reveni, karulino,” vokis Oz
 
-el la korbo. “Adiaŭ\!” 
+el la korbo. “Adiaŭ!”
 
-“Adiaŭ\!” kriis
+“Adiaŭ!” kriis
 
 ĉiu, kaj ĉies okuloj
 
@@ -9608,15 +8883,15 @@ turniĝis supren al
 
 kie la Sorĉisto ve–
 
-turas en la korbo, 
+turas en la korbo,
 
-altiĝanta 
+altiĝanta
 
 ĉiumo-
 
 mente eĉ pli en la
 
-ĉielon. 
+ĉielon.
 
 Kaj de tiam
 
@@ -9624,23 +8899,20 @@ neniu revidis Oz-
 
 on, la Mirindan
 
-Sorĉiston, 
+Sorĉiston,
 
 kvan-
 
 kam eble li ja
 
 
-
-208
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 atingis Omahan sekure kaj tie estas nun, sed tion ni ne
 
 scias. Sed la popolo ame memoris lin, kaj diris unu al la
 
-alia, 
+alia,
 
 “Oz estis ĉiam nia amiko. Kiam li estis ĉi tie li kon-
 
@@ -9648,33 +8920,27 @@ struis por ni ĉi tiun belan Smeraldan Urbon, kaj nun
 
 dum lia foresto li lasis por ni la Saĝan Birdotimigilon por
 
-regi nin.” 
+regi nin.”
 
 Tamen, dum multaj tagoj ili lamentis la perdiĝon
 
-de la Mirinda Sorĉisto, kaj ne estis konsoleblaj. 
-
-!(images/000136.jpg)
+de la Mirinda Sorĉisto, kaj ne estis konsoleblaj.
 
 
-
-Ĉapitro XVIII. 
+Ĉapitro XVIII.
 
 For al la Sudo
-
-!(images/000082.jpg)
-
 
 
 or
 
-ploris 
+ploris
 
 o
 
 amare t e
 
-pro la 
+pro la
 
 o
 
@@ -9688,9 +8954,9 @@ adis la aferon zorge, ŝi ĝojis ne
 
 esti suprenirinta en balono. Tamen ŝi lamentis la perdon
 
-de Oz, kaj ankaŭ lamentis ŝiaj akompanantoj. 
+de Oz, kaj ankaŭ lamentis ŝiaj akompanantoj.
 
-La Stana Lignohakisto venis al ŝi kaj diris, 
+La Stana Lignohakisto venis al ŝi kaj diris,
 
 “Vere mi estus nedankema se mi ne lamentus la
 
@@ -9698,15 +8964,12 @@ viron kiu donis al mi mian belan koron. Mi volas iom
 
 plori pro la foriro de Oz, se vi bonvolos forviŝi miajn lar-
 
-mojn, por ke mi ne rustu.” 
+mojn, por ke mi ne rustu.”
 
 “Volonte,” ŝi respondis, kaj ŝi tuj
 
 
-
-212
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 alportis tukon. La Stana Lignohakisto ploris dum pluraj
 
@@ -9716,7 +8979,7 @@ per la tuko. Kiam li ne plu ploris li forte dankis ŝin kaj
 
 oleumis sin zorge per sia juvelkovrita oleujo, por mal-
 
-ebligi ruston. 
+ebligi ruston.
 
 La Birdotimigilo nun estis la reganto de la Smer-
 
@@ -9726,7 +8989,7 @@ fieris pri li. “Ĉar,” ili diris, “en la tuta mondo ne ekzis-
 
 tas alia urbo regata de pajloplenigita viro.” Kaj se ili ne
 
-eraris, ili pravis. 
+eraris, ili pravis.
 
 La matenon post la leviĝo de la balono kun Oz la
 
@@ -9734,7 +8997,7 @@ kvar marŝintoj kuniĝis en la Tronoĉambro kaj diskutis. La
 
 Birdotimigilo sidis sur la granda trono kaj la aliaj staris
 
-respektoplene antaŭ li. 
+respektoplene antaŭ li.
 
 “Nia sorto efektive estis feliĉiga,” diris la nova
 
@@ -9746,53 +9009,51 @@ mi memoras ke antaŭ nelonge mi estis sur stango en
 
 maizkampo de kultivisto, kaj ke nun mi estas la reganto
 
-de ĉi tiu bela Urbo, mi vere kontentas pri mia sorto.” 
+de ĉi tiu bela Urbo, mi vere kontentas pri mia sorto.”
 
 “Ankaŭ mi,” diris la Stana Lignohakisto, “multe
 
 kontentas pri mia nova koro; kaj, efektive, nur tion mi
 
-volis en la tuta mondo.” 
+volis en la tuta mondo.”
 
 “Rilate al mi, mi kontentas sciante ke mi estas egale
 
 kuraĝa kiel ĉiu alia besto dum la tuta historio, kaj eble
 
-pli kuraĝa,” diris la Leono modeste. 
+pli kuraĝa,” diris la Leono modeste.
 
 “Se Doroteo nur kontentus loĝante en la Smeralda
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-213
 
 Urbo,” pludiris la Birdotimigilo, “eble ni ĉiuj kontentus
 
-kune.” 
+kune.”
 
 “Sed mi ne volas loĝi ĉi tie,” kriis Doroteo. “Mi
 
 volas iri al Kansas, kaj loĝi kun Onklino Em kaj Onklo
 
-Henriko.” 
+Henriko.”
 
-“Nu, do, kio estas farebla?” demandis la Hakisto. 
+“Nu, do, kio estas farebla?” demandis la Hakisto.
 
 La Birdotimigilo decidis pensi, kaj li tiom forte pen-
 
 sis ke la pingloj kaj kudriloj komencis puŝi sin el lia
 
-kapo. Fine li diris: 
+kapo. Fine li diris:
 
 “Kial ne alvoki la Flugantajn Simiojn, kaj peti ilin
 
-porti vin trans la dezerton?” 
+porti vin trans la dezerton?”
 
-“Min tute ne trafis tiu ideo\!” diris Doroteo ĝoje. 
+“Min tute ne trafis tiu ideo!” diris Doroteo ĝoje.
 
-“Jen la solvo\! Mi tuj alportos la Oran Ĉapon.” 
+“Jen la solvo! Mi tuj alportos la Oran Ĉapon.”
 
 Kiam ŝi estis alportinta ĝin en la Tronoĉambron ŝi
 
@@ -9800,19 +9061,19 @@ parolis la magiajn vortojn, kaj baldaŭ la bando de
 
 Flugantaj Simioj flugis tra la malferman fenestron kaj
 
-stariĝis antaŭ ŝi. 
+stariĝis antaŭ ŝi.
 
 “Nun jam la duan fojon vi alvokis nin,” diris la
 
 Simireĝo, klinante sin antaŭ la knabino. “Kion vi
 
-deziras?” 
+deziras?”
 
 “Mi deziras ke vi flugportu min al Kansas,” diris
 
-Doroteo. 
+Doroteo.
 
-Sed la Simireĝo kapneis. 
+Sed la Simireĝo kapneis.
 
 “Tio ne estas farebla,” li diris. “Ni apartenas al nur ĉi
 
@@ -9822,49 +9083,44 @@ Simioj en Kansas, kaj mi kredas ke neniam estos, ĉar ne
 
 taŭgas ke ili estu tie. Ni volonte servos vin laŭ nia
 
-!(images/000035.jpg)
 
-
-
-214214
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
-povo, 
+povo,
 
-povo se iel eble, sed ni ne povas transiri la dezerton. 
+povo se iel eble, sed ni ne povas transiri la dezerton.
 
-Adiaŭ.” 
+Adiaŭ.”
 
 Kaj denove klininte sin la Simireĝo etendis siajn
 
 flugilojn kaj forflugis tra la fenestron, sekvate de sia
 
-tuta bando. 
+tuta bando.
 
 Doroteo estis preskaŭ ploronta pro sia sen-
 
-esperiĝo. 
+esperiĝo.
 
 “Mi malŝparis la sorĉon de la Ora Ĉapo
 
 senefike,” ŝi diris, “ĉar la Flugantaj Simioj ne povas
 
-helpi min.” 
+helpi min.”
 
-“Estas tute vere tre domaĝe\!” diris la bonkora
+“Estas tute vere tre domaĝe!” diris la bonkora
 
-Hakisto. 
+Hakisto.
 
 La Birdotimigilo denove pensadis, kaj lia kapo
 
-tiom terure ŝvelis ke Doroteo timis ke ĝi krevos. 
+tiom terure ŝvelis ke Doroteo timis ke ĝi krevos.
 
-“Ni alvoku la Soldaton kun la Verdaj Lipharoj,” 
+“Ni alvoku la Soldaton kun la Verdaj Lipharoj,”
 
-li diris, “kaj petu ke li konsilu nin.” 
+li diris, “kaj petu ke li konsilu nin.”
 
 Do la Soldato estis alvo-
 
@@ -9874,33 +9130,31 @@ kita kaj eniris la Trono-
 
 vivis li neniam ricevis perme-
 
-son trairi la pordon. 
+son trairi la pordon.
 
 “Ĉi tiu knabineto,” diris la Birdotimigilo al la
 
 Soldato, “volas transiri la dezerton. Kiel ŝi povos fari
 
-tion?” 
+tion?”
 
 “Mi ne scias,” respondis la Soldato; “ĉar neniu
 
 iam transiris la dezerton, krom se eble Oz mem faris
 
-tion.” 
+tion.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-215
 
 “Ĉu ekzistas neniu kiu povas helpi min?” deman-
 
-dis Doroteo fervore. 
+dis Doroteo fervore.
 
-“Eble Glinda,” li sugestis. 
+“Eble Glinda,” li sugestis.
 
-“Kiu estas Glinda?” demandis la Birdotimigilo. 
+“Kiu estas Glinda?” demandis la Birdotimigilo.
 
 “La Sorĉistino de la Sudo. ŝi estas la plej potenca
 
@@ -9908,11 +9162,11 @@ Sorĉistino, kaj regas la Kvelulojn. Krome, ŝia kastelo
 
 staras apud la dezerto, do eble ŝi scias metodon transiri
 
-ĝin.” 
+ĝin.”
 
 “Glinda estas bona Sorĉistino, ĉu ne?” demandis la
 
-infano. 
+infano.
 
 “La Kveluloj opinias ke ŝi estas bona,” diris la Sol-
 
@@ -9920,15 +9174,15 @@ dato, “kaj ŝi estas afabla al ĉiu. Mi aŭdis ke Glinda estas
 
 bela virino, kiu scias resti juna eĉ kvankam ŝi jam vivis
 
-multegajn jarojn.” 
+multegajn jarojn.”
 
 “Kiel mi povos atingi ŝian kastelon?” demandis
 
-Doroteo. 
+Doroteo.
 
 “La vojo al la Sudo estas rekta,” li respondis, “sed
 
-oni diras ke ĝi estas plena de danĝeroj por marŝantoj. 
+oni diras ke ĝi estas plena de danĝeroj por marŝantoj.
 
 Sovaĝaj bestoj loĝas en la arbaro, kaj raso de strangaj
 
@@ -9936,9 +9190,9 @@ homoj kiuj ne volas ke fremduloj trairu ilian landon. Pro
 
 tio neniu Kvelulo ĝis nun iam venis al la Smeralda
 
-Urbo.” 
+Urbo.”
 
-La Soldato tiam foriris kaj la Birdotimigilo diris, 
+La Soldato tiam foriris kaj la Birdotimigilo diris,
 
 “Ŝajnas ke malgraŭ la danĝeroj, plejbone estos ke
 
@@ -9946,39 +9200,34 @@ Doroteo marŝu al la Lando de la Sudo kaj petu ke
 
 Glinda helpu ŝin. Ĉar, kompreneble, se Doroteo restos ĉi
 
-tie ŝi neniam reiros al Kansas.” 
-
-!(images/000092.jpg)
+tie ŝi neniam reiros al Kansas.”
 
 
-
-216
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Evidente vi denove pensis,” komentis la Stana
 
-Lignohakisto. 
+Lignohakisto.
 
-“Jes ja,” diris la Birdotimigilo. 
+“Jes ja,” diris la Birdotimigilo.
 
 “Mi akompanos Doroteon,” deklaris la Leono, “ĉar
 
 mi enuas pro via urbo kaj sopiras la arbaron kaj la kamp-
 
-aron. Mi efektive estas sovaĝa besto, sciu. Ankaŭe, 
+aron. Mi efektive estas sovaĝa besto, sciu. Ankaŭe,
 
-Doroteo bezonos protektanton.” 
+Doroteo bezonos protektanton.”
 
 “Vi pravas,” akordis la Hakisto. “Mia hakilo eble
 
 povos helpi ŝin; do ankaŭ mi akompanos ŝin al la Lando
 
-de la Sudo. 
+de la Sudo.
 
-“Kiam do ni ekiros?” demandis la Birdotimigilo. 
+“Kiam do ni ekiros?” demandis la Birdotimigilo.
 
-“Ĉu vi kuniros?” ili demandis, surprizite. 
+“Ĉu vi kuniros?” ili demandis, surprizite.
 
 “Certe. Sen Doroteo mi ne havus cerbon. ŝi levis
 
@@ -9988,11 +9237,11 @@ Smeralda Urbo. Do mia bona sorto ŝuldiĝas al ŝi, kaj mi
 
 neniam apartiĝos de ŝi antaŭ ol ŝi finfine reiros al
 
-Kansas.” 
+Kansas.”
 
 “Dankon,” diris Doro-
 
-teo, kortuŝite. 
+teo, kortuŝite.
 
 “Vi ĉiuj estas vere afablegaj
 
@@ -10000,7 +9249,7 @@ al mi. Sed mi
 
 deziras komenci kiel eble
 
-plej baldaŭ.” 
+plej baldaŭ.”
 
 “ N i e k i r o s m o r g a ŭ
 
@@ -10012,30 +9261,19 @@ ni ĉiuj pretigu
 
 nin, ĉar la marŝado estos
 
-longa.” 
-
-!(images/000016.jpg)
-
-* *
-
+longa.”
 
 
 *“La Birdotimigilo sidis sur la *
 
 *granda trono.” *
 
-!(images/000002.jpg)
 
-
-
-Ĉapitro XIX. 
+Ĉapitro XIX.
 
 Ilin atakas la
 
-Batalantaj Arboj. 
-
-!(images/000044.jpg)
-
+Batalantaj Arboj.
 
 
 uj la sekvan matenon Doroteo
@@ -10054,37 +9292,34 @@ ardisto revidis ilin li miregis ke ili volas
 
 foriri el la bela Urbo por renkonti nov-
 
-novajn problemojn. Sed li tuj malŝlosis iliajn okulvitrojn, 
+novajn problemojn. Sed li tuj malŝlosis iliajn okulvitrojn,
 
 kiujn li remetis en la verdan keston, kaj donis al ili mul-
 
-tajn bondezirojn por kunporti kun si. 
+tajn bondezirojn por kunporti kun si.
 
 “Vi nun estas nia reganto,” li diris al la Birdotimig-
 
-ilo, “do nepre vi devos reveni al ni kiel eble plej baldaŭ.” 
+ilo, “do nepre vi devos reveni al ni kiel eble plej baldaŭ.”
 
 “Mi certe revenos se mi povos,” la Birdotimigilo
 
 
-
-220
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 respondis; “sed unue mi devas helpi Doroteon reiri al sia
 
-hejmo.” 
+hejmo.”
 
 Dum Doroteo lastafoje adiaŭis la bonhumoran
 
-Gardiston ŝi diris: 
+Gardiston ŝi diris:
 
 “Oni tre afablis al mi en via belo Urbo, kaj ĉiu estis
 
 tre ĝentila al mi. Mi ne povas esprimi kiom dankema mi
 
-estas.” 
+estas.”
 
 “Ne provu, karulino,” li respondis. “Ni volonte
 
@@ -10094,7 +9329,7 @@ mi esperas ke vi trovos rimedon.” Li malfermis la por-
 
 don de la ekstera muro kaj ili eliris kaj komencis sian
 
-marŝadon. 
+marŝadon.
 
 La suno brilegis dum niaj amikoj turnis siajn viza-
 
@@ -10114,7 +9349,7 @@ zure kaj balancis sian voston de flanko al flanko pro pura
 
 ĉirkaŭ ilin kaj ĉasis la tineojn kaj papiliojn, tutdume gaje
 
-bojante. 
+bojante.
 
 “Urboloĝado tute ne konvenas por mi,” komentis la
 
@@ -10124,13 +9359,11 @@ mia karno ekde kiam mi ĉesis loĝis tie, kaj nun mi fervo-
 
 ras trovi oportunon montri al la aliaj bestoj kiom kuraĝa
 
-mi fariĝis.” 
+mi fariĝis.”
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-221
 
 Ili nun turnis sin kaj lastafoje rigardis la Smeraldan
 
@@ -10138,21 +9371,21 @@ Urbon. Ili vidis nur amason da turoj malantaŭ la verdaj
 
 muroj, kaj alte super ĉio estis la pintoj kaj kupolo de la
 
-Palaco de Oz. 
+Palaco de Oz.
 
 “Oz ja ne estis malbona Sorĉisto,” diris la Stana
 
 Lignohakisto, dum li sentis sian koron frapadi la flankojn
 
-de lia brusto. 
+de lia brusto.
 
-“Li sciis doni al mi cerbon, vere tre bonan cerbon,” 
+“Li sciis doni al mi cerbon, vere tre bonan cerbon,”
 
-diris la Birdotimigilo. 
+diris la Birdotimigilo.
 
 “Se Oz trinkus dozon de la sama kuraĝo kiun li
 
-donis al mi,” aldonis la Leono, “li estus kuraĝa persono.” 
+donis al mi,” aldonis la Leono, “li estus kuraĝa persono.”
 
 Doroteo diris nenion. Oz ne plenumis sian prome-
 
@@ -10160,7 +9393,7 @@ son al ŝi, sed li ja klopodis, do ŝi pardonis lin. Ĉar, kiel li
 
 diris, li estas bona persono, kvankam li estas malkompe-
 
-tenta Sorĉisto. 
+tenta Sorĉisto.
 
 La marŝado dum la unua tago trairis la verdajn
 
@@ -10170,7 +9403,7 @@ alda Urbo ĉiuflanke. Ili dormis tiun nokton sur la
 
 herbaro, kun nur la steloj super si; kaj ili tre bone
 
-ripozis. 
+ripozis.
 
 En la mateno ili plue marŝadis ĝis ili atingis den-
 
@@ -10182,23 +9415,19 @@ ter ilia vidpovo; kaj, krome, ili ne volis riski ŝanĝi sian
 
 direkton ĉar ili timis ke ili perdiĝus. Do ili serĉis tiun
 
-lokon kie estos plej facile eniri la arbaron. 
+lokon kie estos plej facile eniri la arbaron.
 
 La Birdotimigilo, kiu estis la unua en la vico, fine
-
-!(images/000054.jpg)
-
 
 
 LA MIRINDA SORĈISTO DE OZ
 
-222
 
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 trovis grandan arbon kiu havis sufiĉe larĝetendajn
 
-branĉojn ke estis sufiĉa spaco por ke ili povu marŝi sube. 
+branĉojn ke estis sufiĉa spaco por ke ili povu marŝi sube.
 
 Do li antaŭenmarŝis al la arbo, sed tuj kiam li subiris la
 
@@ -10206,13 +9435,13 @@ unuajn branĉojn ili klinis sin kaj ĉirkaŭvolvis lin, kaj la
 
 sekvan minuton li trovis sin levita super la tero kaj ĵetita
 
-kapantaŭen inter siajn kunmarŝantojn. 
+kapantaŭen inter siajn kunmarŝantojn.
 
 Tio ne damaĝis la Birdotimigilon, sed ĝi surprizis
 
-lin, kaj li aspektis iom konfuzita kiam Doroteo levis lin. 
+lin, kaj li aspektis iom konfuzita kiam Doroteo levis lin.
 
-“Jen alia spaco inter la arboj,” vokis la Leono. 
+“Jen alia spaco inter la arboj,” vokis la Leono.
 
 “Mi la unua provu ĝin,” diris la Birdotimigilo, “ĉar
 
@@ -10222,27 +9451,27 @@ arbo, dum li parolis, sed ĝiaj branĉoj tuj kaptis lin kaj
 
 reĵetis
 
-“Estas 
+“Estas
 
-tre 
+tre
 
-strange,” 
+strange,”
 
 kriis Doroteo; “kion ni
 
-faru?” 
+faru?”
 
 “Ŝajnas ke la arboj
 
 decidis batali kontraŭ nin
 
-kaj haltigi nian marŝadon,” 
+kaj haltigi nian marŝadon,”
 
-komentis la Leono. 
+komentis la Leono.
 
-“Mi 
+“Mi
 
-intencas 
+intencas
 
 mem
 
@@ -10254,35 +9483,33 @@ marŝis al la unua arbo kiu
 
 tiom mistraktis la Birdot-
 
-imigilon. 
+imigilon.
 
-Kiam 
+Kiam
 
 granda
 
 branĉo kliniĝis por kapti lin
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-223
 
 la Hakisto hakis ĝin tiom feroce ke li duonigis ĝin. Tuj
 
-la arbo komencis skuadi siajn branĉojn kvazaŭ pro doloro, 
+la arbo komencis skuadi siajn branĉojn kvazaŭ pro doloro,
 
-kaj la Stana Lignohakisto submarŝis sendanĝere. 
+kaj la Stana Lignohakisto submarŝis sendanĝere.
 
-“Venu\!” li kriis al la aliaj. “Rapide\!” 
+“Venu!” li kriis al la aliaj. “Rapide!”
 
-Ĉiuj antaŭen kuris kaj subiris la arbon sen damaĝo, 
+Ĉiuj antaŭen kuris kaj subiris la arbon sen damaĝo,
 
 escepte de Toto, kiun kaptis malgranda branĉo kaj skuis
 
 ĝis li hurlis. Sed la Hakisto tuj dehakis la branĉon kaj
 
-liberigis la hundeton. 
+liberigis la hundeton.
 
 La aliaj arboj de la arbaro tute nenion faris por bari
 
@@ -10292,42 +9519,33 @@ fleksi siajn branĉojn, kaj ke verŝajne tiuj arboj estas la
 
 policistoj de la arbaro, kaj havas tiun mirigan kapablon
 
-por forteni fremdulojn. 
+por forteni fremdulojn.
 
 La kvar marŝantoj facile marŝis inter la arboj ĝis
 
-atingi la plej foran randon de la arbaro. Tie, surprizate, 
+atingi la plej foran randon de la arbaro. Tie, surprizate,
 
 ili trovis antaŭ si altan muron el, ŝajne, blanka porcel-
 
 ano. Ĝi estis glata, kiel la surfaco de telero, kaj pli alta ol
 
-iliaj kapoj. 
+iliaj kapoj.
 
-“Kion ni faru nun?” demandis Doroteo. 
+“Kion ni faru nun?” demandis Doroteo.
 
 “Mi faros eskalon,” diris la Stana Lignohakisto, “ĉar
 
-evidente ni devos transgrimpi la muron.” 
+evidente ni devos transgrimpi la muron.”
 
-!(images/000066.jpg)
-
-* *
 
 *“La branĉoj klinis sin kaj ĉirkaŭvolvis lin.” *
 
-!(images/000081.jpg)
 
-
-
-Ĉapitro XX. 
+Ĉapitro XX.
 
 La delikata
 
-Porcelana Lando. 
-
-!(images/000089.jpg)
-
+Porcelana Lando.
 
 
 DUMla Hakisto faris
@@ -10344,27 +9562,24 @@ longa marŝado. La Leono ankaŭ
 
 kunrulis sin por dormi kaj Toto
 
-kuŝiĝis apud li. 
+kuŝiĝis apud li.
 
 La Birdotimigilo rigardis la Hakiston
 
-labori, kaj diris al li: 
+labori, kaj diris al li:
 
-“Mi ne povas kompreni kial tiu muro estas ĉi tie, 
+“Mi ne povas kompreni kial tiu muro estas ĉi tie,
 
-nek el kio ĝi konsistas.” 
+nek el kio ĝi konsistas.”
 
-“Ripozigu vian cerbon kaj ne ĝenu ĝin pri la muro,” 
+“Ripozigu vian cerbon kaj ne ĝenu ĝin pri la muro,”
 
 respondis la Hakisto; “grimpinte ĝin ni scios kio estas
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-228
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-aliflanke.” 
+aliflanke.”
 
 Post iom da tempo la eskalo estis finita. Ĝi aspektis
 
@@ -10380,33 +9595,33 @@ eskalon, sed li estis tiom mallerta ke Doroteo devis tuj
 
 sekvi lin por neebligi ke li falos. Kiam li metis sian
 
-kapon trans la supron de la muro la Birdotimigilo diris, 
+kapon trans la supron de la muro la Birdotimigilo diris,
 
-“Nekredeble\!” 
+“Nekredeble!”
 
-“Plu grimpu,” kriis Doroteo. 
+“Plu grimpu,” kriis Doroteo.
 
 Do la Birdotimigilo grimpis pli kaj sidiĝis sur la
 
 supron de la muro, kaj Doroteo puŝis sian kapon trans la
 
-muron kaj kriis, 
+muron kaj kriis,
 
-“Nekredeble\!” tute same kiel 1a Birdotimigilo. 
+“Nekredeble!” tute same kiel 1a Birdotimigilo.
 
 Toto sekvis, kaj tuj komencis boji, sed Doroteo
 
-silentigis lin. 
+silentigis lin.
 
 Post li la Leono grimpis la eskalon, kaj la Stana
 
 Lignohakisto estis la lasta; sed ambaŭ kriis, “Nekrede-
 
-ble\!” tuj kiam ili rigardis trans la muron. Kiam ili ĉiuj
+ble!” tuj kiam ili rigardis trans la muron. Kiam ili ĉiuj
 
 sidis en vico sur la supro de la muro ili malsuprenrigar-
 
-dis kaj vidis ion tre strangan. 
+dis kaj vidis ion tre strangan.
 
 Antaŭ ili estis grande etendiĝanta lando kies planko
 
@@ -10416,21 +9631,19 @@ granda telero. Dise staris multaj domoj tute el porcelano
 
 kaj brilkoloraj. Tiuj domoj estis tre malgrandaj, la plej
 
-granda atingis nur la altecon de la talio de Doroteo. 
+granda atingis nur la altecon de la talio de Doroteo.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-229
 
 Ankaŭ vidiĝis belaj malgrandaj brutodomoj, kiujn ĉirkaŭis
 
 porcelanaj bariloj; kaj multaj bovinoj kaj ŝafoj kaj ĉevaloj
 
-kaj porkoj kaj gekokoj, ĉiuj konsistantaj el porcelano, 
+kaj porkoj kaj gekokoj, ĉiuj konsistantaj el porcelano,
 
-staris en grupoj. 
+staris en grupoj.
 
 Sed plej strangaj estis la homoj loĝantaj en tiu kuri-
 
@@ -10442,7 +9655,7 @@ robojn; kaj princinoj kun plej belaj roboj el arĝento kaj
 
 oro kaj purpuro; kaj ŝafistoj vestitaj per ĝisgenuaj kulotoj
 
-kiujn ornamis vertikalaj ruĝetaj kaj flavaj kaj bluaj strioj, 
+kiujn ornamis vertikalaj ruĝetaj kaj flavaj kaj bluaj strioj,
 
 kaj oraj bukoj sur la ŝuoj; kaj princoj kun juvelkovritaj
 
@@ -10450,13 +9663,13 @@ kronoj sur la kapoj, kaj ili surportis ermenajn robojn kaj
 
 satenajn manteletojn; kaj komikaj klaŭnoj kun krisphavaj
 
-roboj, kaj rondaj ruĝaj makuloj sur la vangoj kaj altaj, 
+roboj, kaj rondaj ruĝaj makuloj sur la vangoj kaj altaj,
 
 pintaj ĉapoj. Kaj plej strange, la homoj ĉiuj konsistis el
 
 porcelano, eĉ iliaj vestoj, kaj ili estis tiel malgrandaj ke la
 
-plej alta elili ne estis pli alta ol genuo de Doroteo. 
+plej alta elili ne estis pli alta ol genuo de Doroteo.
 
 Unue neniu eĉ rigardis la alvenintojn, escepte de
 
@@ -10464,9 +9677,9 @@ unu malgranda purpura porcelana hundo kun tre granda
 
 kapo, kiu iris al la muro kaj bojis je ili per voĉeto, kaj tuj
 
-poste forkuris. 
+poste forkuris.
 
-“Kiel ni malsupreniros?” demandis Doroteo. 
+“Kiel ni malsupreniros?” demandis Doroteo.
 
 Ili trovis la eskalon tro peza tiel ke ili ne povis
 
@@ -10476,37 +9689,34 @@ kaj la aliaj saltis sur lin por ke la malmola planko ne
 
 damaĝu iliajn piedojn. Kompreneble ili zorgis ne fali sur
 
-lian kapon por ke la pingloj ne penetru iliajn piedojn. 
+lian kapon por ke la pingloj ne penetru iliajn piedojn.
 
 
-
-230
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Kiam ĉiu jam malsupreniĝis sekure ili levis la Birdotimig-
 
 ilon, kies korpo nun estis tre plata, kaj per frapetoj
 
-reĝustigis lian pajlon. 
+reĝustigis lian pajlon.
 
 “Ni devos transiri ĉi tiun strangan lokon por atingi
 
 la alian flankon,” diris Doroteo; “ĉar estus malsaĝe iri ali-
 
-direkte ol rekte Suden.” 
+direkte ol rekte Suden.”
 
 Ili komencis marŝi tra la lando de la porcelana
 
 popolo, kaj jam tuj ili proksimiĝis al porcelana melkis-
 
-tino melkanta porcelanan bovinon. Dum ili proksimiĝis, 
+tino melkanta porcelanan bovinon. Dum ili proksimiĝis,
 
 la bovino subite piedfrapis kaj renversis la tabureton, la
 
 sitelon, kaj eĉ la melkistinon mem, kiuj ĉiuj falis sur la
 
-porcelanan teron tre brue. 
+porcelanan teron tre brue.
 
 Doroteon ŝokis vidi ke kruro de la bovino estis
 
@@ -10514,41 +9724,37 @@ derompita, kaj ke la sitelo kuŝis multe dispecigita, kaj la
 
 maldekstra kubuto de la kompatinda melkistino estis
 
-noĉita. 
+noĉita.
 
-“Jen\!” kriis la melkistino kolere. “Vidu kion vi faris\! 
+“Jen!” kriis la melkistino kolere. “Vidu kion vi faris!
 
 La kruro de mia bovino estas rompita, kaj mi devos kon-
 
 duki ŝin al la riparisto por surgluigi ĝin. Pro kio vi venis
 
-ĉi tien kaj timigis mian bovinon?” 
+ĉi tien kaj timigis mian bovinon?”
 
 “Mi multe bedaŭras,” respondis Doroteo, “bonvolu
 
-pardoni nin.” 
+pardoni nin.”
 
 Sed la bela melkistineto estis multe tro ĉagrenita por
 
 respondi. ŝi prenis la kruron paŭte kaj forkondukis sian
 
-bovinon, la kompatinda besto lamis sur siaj tri kruroj. 
+bovinon, la kompatinda besto lamis sur siaj tri kruroj.
 
 Forirante la melkistino riproĉege transrigardis sian ŝul-
 
 tron al la mallertaj fremduloj, premante sian noĉitan
 
-!(images/000061.jpg)
+
+LA MIRINDA SORĈISTO DE OZ.
 
 
+kubuton al sia flanko.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-231
-
-kubuton al sia flanko. 
-
-Doroteo multe malĝojis pro tiu akcidento. 
+Doroteo multe malĝojis pro tiu akcidento.
 
 “Ni devos esti zorgoplenaj,” diris la
 
@@ -10556,61 +9762,58 @@ bonkora Hakisto, “por ke ni ne damaĝu tiom
 
 ĉi tiujn belajn hometojn ke ili neniam
 
-reĝustiĝos.” 
+reĝustiĝos.”
 
 Iom poste Doroteo renkontis vere belege
 
 vestitan junan princinon, kiu ekhaltis tuj kiam
 
-ŝi vidis la fremdulojn kaj komencis forkuri. 
+ŝi vidis la fremdulojn kaj komencis forkuri.
 
-Doroteo volis pli detale vidi la princinon, 
+Doroteo volis pli detale vidi la princinon,
 
 do ŝi kure sekvis ŝin; sed la porcelana knabino
 
-kriis, 
+kriis,
 
-“Ne ĉasu min\! Ne ĉasu min\!” 
+“Ne ĉasu min! Ne ĉasu min!”
 
 Ŝia voĉeto estis tiom timoplena ke Doro-
 
-teo ekhaltis kaj diris, 
+teo ekhaltis kaj diris,
 
-“Sed kial?” 
+“Sed kial?”
 
 “Ĉar,” respondis la princino, ankaŭ
 
 haltinte, el sendanĝera malproksimo, “se mi
 
-kuros mi eble falos kaj rompiĝos.” 
+kuros mi eble falos kaj rompiĝos.”
 
 “Sed ĉu ne eblus ripari vin?” diris la
 
-knabino. 
+knabino.
 
 “Ho, jes; sed oni neniam estas egale
 
 bela post ripariĝo, komprenu,” respondis la
 
-princino. 
+princino.
 
-“Verŝajne ne,” diris Doroteo. 
+“Verŝajne ne,” diris Doroteo.
 
 “Pripensu S-ron Ŝerciston, unu el niaj
 
 klaŭnoj,” pludiris la porcelanulino. “Li ĉiam
 
 
-
-232
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 klopodas stari surkape. Li tiom ofte rompis sin ke cent
 
-partoj de li estas riparitaj, kaj li tute ne plu estas bela. 
+partoj de li estas riparitaj, kaj li tute ne plu estas bela.
 
-Jen, li venas jam nun, vidu mem.” 
+Jen, li venas jam nun, vidu mem.”
 
 Efektive, gaja malgranda klaŭno nun venis marŝante
 
@@ -10620,7 +9823,7 @@ vestoj el ruĝo kaj flavo kaj verdo lin tute kovris fendetoj
 
 ĉiudirekten irantaj kiuj klare montris ke li estis multparte
 
-riparita. 
+riparita.
 
 La Klaŭno metis siajn manojn en siajn poŝojn, kaj
 
@@ -10628,31 +9831,31 @@ La Klaŭno metis siajn manojn en siajn poŝojn, kaj
 
 kte li diris:
 
-“Mia kara dam’, 
+“Mia kara dam’,
 
-Pro kio jam 
+Pro kio jam
 
-Okulo tre rigida? 
+Okulo tre rigida?
 
-Kvazaŭ estas vi 
+Kvazaŭ estas vi
 
-Nenio pli 
+Nenio pli
 
-Ol fajrŝovil’ ridiga\!” 
+Ol fajrŝovil’ ridiga!”
 
-“Silentu, sinjoro\!” diris la Princino; “jen fremduloj
+“Silentu, sinjoro!” diris la Princino; “jen fremduloj
 
-respektendaj\!” 
+respektendaj!”
 
-“Mi venis ek’, do jen respekt’” deklaris la Klaŭno, 
+“Mi venis ek’, do jen respekt’” deklaris la Klaŭno,
 
-kaj tuj li surkapen stariĝis. 
+kaj tuj li surkapen stariĝis.
 
 “Ne ĝenu vin S-ro Ŝercisto,” diris la Princino al
 
 Doroteo; “lia kapo estas multe fendita, kaj tio malsaĝigas
 
-lin.” 
+lin.”
 
 “Li tute ne ĝenas min,” diris Doroteo. “Sed vi estas
 
@@ -10660,21 +9863,17 @@ belega,” ŝi pludiris, “certe mi amegus vin. Ĉu vi perme-
 
 sos ke mi reportu vin al Kansas, kaj metu vin sur la
 
-!(images/000115.jpg)
 
-
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 LA MIRINDA SORĈISTO DE OZ
 
-233
 
 kamenbreton de Onklino
 
 Em? Mi povus porti vin
 
-en mia korbo.” 
+en mia korbo.”
 
 “Tio tre malfeliĉ-
 
@@ -10688,7 +9887,7 @@ loĝas kontente, kaj
 
 ni povas paroli kaj
 
-ĉirkaŭmoviĝi 
+ĉirkaŭmoviĝi
 
 laŭ-
 
@@ -10706,33 +9905,30 @@ belaspektas. Kom-
 
 preneble oni ne
 
-volas 
+volas
 
-ion 
+ion
 
 alian
 
 kiam ni estas sur
 
-kamenbretoj 
+kamenbretoj
 
 kaj
 
 
-
-234
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 ŝrankoj kaj salontabloj, sed niaj vivoj estas multe pli agra-
 
-blaj ĉi tie en nia propra lando.” 
+blaj ĉi tie en nia propra lando.”
 
-“Mi neniel volus malfeliĉigi vin\!” krietis Doroteo. 
+“Mi neniel volus malfeliĉigi vin!” krietis Doroteo.
 
-“Do mi nur diros adiaŭ.” 
+“Do mi nur diros adiaŭ.”
 
-“Adiaŭ” respondis la princino. 
+“Adiaŭ” respondis la princino.
 
 Ili zorgoplene marŝis tra la porcelana lando. La
 
@@ -10742,7 +9938,7 @@ fremduloj rompos ilin, kaj post proksimume horo la
 
 marŝantoj atingis la alian flankon de la lando kaj la por-
 
-celanan muron. 
+celanan muron.
 
 Ĝi estis malpli alta ol la unua, tamen, kaj starante
 
@@ -10752,7 +9948,7 @@ supro. Post tio la Leono kuntiris siajn krurojn kaj saltis
 
 sur la muron; sed ĝuste kiam li saltis li renversis por-
 
-celanan preĝejon per sia vosto kaj plene disfrakasis ĝin. 
+celanan preĝejon per sia vosto kaj plene disfrakasis ĝin.
 
 “Domaĝe,” diris Doroteo, “sed mi vere kredas ke
 
@@ -10760,34 +9956,25 @@ nur tre bonŝance ni ne pli damaĝis tiujn hometojn ol per
 
 rompo de kruro de bovino kaj de preĝejo. Ili estas tiom
 
-rompeblaj\!” 
+rompeblaj!”
 
 “Tiel ja estas,” diris la Birdotimigilo, “kaj mi dank-
 
-emas ĉar mi konsistas el pajlo kaj ne estas facile rompata. 
+emas ĉar mi konsistas el pajlo kaj ne estas facile rompata.
 
 Oni povas sperti multon pli malbonan en la mondo ol
 
-esti Birdotimigilo.” 
+esti Birdotimigilo.”
 
-!(images/000120.jpg)
-
-* *
 
 *“La homoj ĉiuj konsistis el porcelano.” *
-
-!(images/000049.jpg)
-
 
 
 Ĉapitro 25
 
 La Leono fariĝas
 
-la Reĝo de la Bestoj. 
-
-!(images/000129.jpg)
-
+la Reĝo de la Bestoj.
 
 
 tinginte
@@ -10804,7 +9991,7 @@ kaj kovrita de alta fiherbaro. Estis
 
 malfacile marŝi longe sen fali en koto-
 
-plenajn truojn, ĉar la herbaro estis densega kaj kaŝis ilin. 
+plenajn truojn, ĉar la herbaro estis densega kaj kaŝis ilin.
 
 Tamen, zorgante pri sia marŝado ili sukcesis sekure atingi
 
@@ -10817,18 +10004,15 @@ eniris alian arbaron, kie la arboj estis pli
 grandaj kaj pli malnovaj ol ĉiuj kiujn ili ĝis
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-238
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-tiam vidis. 
+tiam vidis.
 
 “Jen arbaro vere belega,” deklaris la Leono, ĉirkaŭ-
 
-rigardante ĝojoplene; “neniam mi vidis pli belan lokon.” 
+rigardante ĝojoplene; “neniam mi vidis pli belan lokon.”
 
-“Iom deprima,” diris la Birdotimigilo. 
+“Iom deprima,” diris la Birdotimigilo.
 
 “Tute ne,” respondis la Leono; mi volonte loĝus ĉi
 
@@ -10838,23 +10022,23 @@ folioj sub la piedoj kaj la riĉecon kaj verdecon de la
 
 musko kroĉiĝinta al la malnovaj arboj. Certe neniu sovaĝa
 
-besto povus deziri pli plaĉan hejmon.” 
+besto povus deziri pli plaĉan hejmon.”
 
 “Eble nun estas sovaĝaj bestoj en la arbaro,” diris
 
-Doroteo. 
+Doroteo.
 
 “Verŝajne jes,” respondis la Leono; “kvankam mi
 
-neniun vidas ĉirkaŭmarŝanta.” 
+neniun vidas ĉirkaŭmarŝanta.”
 
 Ili marŝis tra la arbaro ĝis fariĝis tro mallume por
 
 plia marŝado. Doroteo kaj Toto kaj la Leono kuŝiĝis por
 
-dormi, dum la Hakisto kaj la Birdotimigilo gardis ilin, 
+dormi, dum la Hakisto kaj la Birdotimigilo gardis ilin,
 
-kiel kutime. 
+kiel kutime.
 
 Post la mateniĝo ili rekomencis marŝi. Antaŭ ol ili
 
@@ -10874,41 +10058,37 @@ vulpoj kaj lupoj kaj ĉiu alia ebla besto, kaj dummomente
 
 Doroteo timis. Sed la Leono klarigis ke la bestoj disku-
 
-tas, kaj laŭ ilia kriado kaj muĝado li supozas ke ili sentas 
-
-!(images/000133.jpg)
+tas, kaj laŭ ilia kriado kaj muĝado li supozas ke ili sentas
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-239
-
-gravan minacon. 
+gravan minacon.
 
 Dum li parolis pluraj bestoj ekrimarkis lin, kaj tuj la
 
 tuta bestaro eksilentis kvazaŭ pro magio. La plej granda
 
-tigro venis al la Leono kaj klinis sin, dirante, 
+tigro venis al la Leono kaj klinis sin, dirante,
 
-“Bonvenon, Reĝo de Bestoj\! Vi venis bontempe por
+“Bonvenon, Reĝo de Bestoj! Vi venis bontempe por
 
 batali kontraŭ nian malamikon kaj revenigi pacon al ĉiuj
 
-bestoj de la arbaro.” 
+bestoj de la arbaro.”
 
 “Kio ĝenas vin?” de-
 
-mandis la Leono trankvile. 
+mandis la Leono trankvile.
 
 “Nin ĉiujn
 
-minacas,” 
+minacas,”
 
 res-
 
-pondis la tigro, 
+pondis la tigro,
 
 “feroca malami-
 
@@ -10918,13 +10098,13 @@ pe venis en ĉi
 
 tiun arbaron. Ĝi
 
-estas 
+estas
 
 giganta
 
 monstro, kvazaŭ
 
-granda araneo, 
+granda araneo,
 
 kun korpo tiel
 
@@ -10934,9 +10114,9 @@ elefanto kaj kru-
 
 roj longaj kiel
 
-de 
+de
 
-arbotrunko. 
+arbotrunko.
 
 Ĝi havas ok ti-
 
@@ -10945,10 +10125,7 @@ ajn longajn kru-
 rojn, kaj dum la
 
 
-
-240
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 monstro rampas tra la arbaro li kaptas beston per kruro
 
@@ -10958,59 +10135,57 @@ neo manĝas muŝon. Neniu el ni estas sekura dum tiu
 
 feroca besto vivas, kaj ni okazigis kunvenon por decidi
 
-kiel prizorgi nin kiam vi venis inter nin.” 
+kiel prizorgi nin kiam vi venis inter nin.”
 
-La Leono pensis dummomente. 
+La Leono pensis dummomente.
 
 “Ĉu loĝas aliaj leonoj en ĉi tiu arbaro?” li
 
-demandis. 
+demandis.
 
 “Ne; ja ekzistis kelkaj, sed la monstro manĝis ilin
 
 ĉiujn. Kaj, krome, estis neniu inter ili eĉ iomete tiom
 
-granda kaj brava kiel vi.” 
+granda kaj brava kiel vi.”
 
 “Se mi senvivigos vian malamikon ĉu vi klinos vin
 
-antaŭ mi kaj obeos min kiel la Reĝon de la Arbaro?” 
+antaŭ mi kaj obeos min kiel la Reĝon de la Arbaro?”
 
-demandis la Leono. 
+demandis la Leono.
 
 “Volonte ni faros tion,” respondis la tigro, kaj ĉiuj
 
-aliaj bestoj tie muĝegis per forta voĉo: “Nepre jes\!” 
+aliaj bestoj tie muĝegis per forta voĉo: “Nepre jes!”
 
 “Kie estas tiu granda araneo via nun?” demandis la
 
-Leono. 
+Leono.
 
 “Tie for, inter la kverkarboj,” diris la tigro, indi-
 
-kante per sia antaŭpiedo. 
+kante per sia antaŭpiedo.
 
 “Bone prizorgu ĉi tiujn amikojn miajn,” diris la
 
-Leono, “kaj mi tuj iros kontraŭbatali la monstron.” 
+Leono, “kaj mi tuj iros kontraŭbatali la monstron.”
 
 Li diris “Ĝis revido” al siaj kamaradoj kaj kaj for-
 
-marŝis fiere por kontraŭbatali la malamikon. 
+marŝis fiere por kontraŭbatali la malamikon.
 
-La granda araneo dormis kiam la Leono trovis ĝin, 
+La granda araneo dormis kiam la Leono trovis ĝin,
 
 kaj ĝi aspektis tiom malbela ke ĝia malamiko suprentur-
 
 nis sian nazon naŭzite. Ĝiaj kruroj ja estis longegaj kiel
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-241
-
-diris la tigro, kaj ĝia korpo kovrita de densa nigra hararo. 
+diris la tigro, kaj ĝia korpo kovrita de densa nigra hararo.
 
 Ĝi havis grandan buŝon, kun aro da akraj dentoj duonan
 
@@ -11022,40 +10197,34 @@ plej bonan manieron ataki la beston, kaj ĉar li sciis ke
 
 estas pli facile ataki ĝin kiam ĝi dormas ol dum ĝi estas
 
-veka, li saltegis kaj rekte trafis la dorson de la monstro. 
+veka, li saltegis kaj rekte trafis la dorson de la monstro.
 
-Per unu batego de sia peza piedo, armita per akraj ungoj, 
+Per unu batego de sia peza piedo, armita per akraj ungoj,
 
 li batis la aranekapon de ĝia korpo. Desaltinte, li rigardis
 
 ĝis la longaj kruroj ĉesis moviĝadi, kaj li sciis ke nun ĝi
 
-estas tute morta. 
+estas tute morta.
 
 La Leono reiris al la malfermaĵo kie la bestoj de la
 
-arbaro atendas lin kaj diris fiere, 
+arbaro atendas lin kaj diris fiere,
 
-“Vi ne plu bezonas timi vian malamikon.” 
+“Vi ne plu bezonas timi vian malamikon.”
 
 Ĉiuj bestoj klinis sin antaŭ la Leono, nomante lin
 
 Reĝo, kaj li promesis reveni kaj regi ilin tuj kiam Doro-
 
-teo estos definitive veturanta al Kansas. 
-
-!(images/000141.jpg)
+teo estos definitive veturanta al Kansas.
 
 
-
-ĈAPITRO XXII. 
+ĈAPITRO XXII.
 
 La Lando de
 
 la Kveluloj
-
-!(images/000026.jpg)
-
 
 
 la ceteron de la arbaro pasis
@@ -11064,65 +10233,62 @@ ra la marŝantoj sekure, kaj kiam
 
 ili venis el ĝia mallumo ili vidis
 
-antaŭ si krutan monteton, kovritan, 
+antaŭ si krutan monteton, kovritan,
 
 de la supro ĝis la malsupro, de grandaj
 
-pecoj de rokoj. 
+pecoj de rokoj.
 
-“Estos malfacile grimpi,” diris la Birdotimigilo, 
+“Estos malfacile grimpi,” diris la Birdotimigilo,
 
-“tamen necesas transiri la monteton.” 
+“tamen necesas transiri la monteton.”
 
 Do li kondukis kaj la aliaj sekvis. Ili estis preskaŭ
 
 atingintaj la unuan rokon kiam ili aŭdis raŭkan voĉon
 
-krii, 
+krii,
 
-“Fortenu vin\!” 
+“Fortenu vin!”
 
 “Kiu vi estas?” demandis la Birdotimigilo. Kapo
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-246
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-montris sin super la roko kaj la sama voĉo diris, 
+montris sin super la roko kaj la sama voĉo diris,
 
 “Ĉi tiu monteto apartenas al ni, kaj ni ne permesas
 
-ke oni transiru ĝin.” 
+ke oni transiru ĝin.”
 
 “Sed ni devas transiri,” diris la Birdotimigilo. “Ni
 
-iras al la Lando de la Kveluloj.” 
+iras al la Lando de la Kveluloj.”
 
-“Tamen ne\!” respondis la voĉo, kaj venis el mal-
+“Tamen ne!” respondis la voĉo, kaj venis el mal-
 
 antaŭ la roko la plej stranga homo kiun iam vidis la
 
-marŝantoj. 
+marŝantoj.
 
 Li estis tre malalta kaj dika kaj havis grandan
 
 kapon, kiu estis supre plata kaj ĝin subtenis dika kolo
 
-plena de faldomarkoj. Sed li tute ne havis brakojn, kaj, 
+plena de faldomarkoj. Sed li tute ne havis brakojn, kaj,
 
 vidante tion, la Birdotimigilo ne kredis ke tia senhelpa
 
 ulo povus malebligi ke ili grimpu la monteton. Do li
 
-diris, 
+diris,
 
 “Mi bedaŭras ne plenumi vian volon, sed ni devas
 
-transiri vian monteton negrave ĉu aŭ ne tio plaĉas al vi,” 
+transiri vian monteton negrave ĉu aŭ ne tio plaĉas al vi,”
 
-kaj li aŭdace antaŭenmarŝis. 
+kaj li aŭdace antaŭenmarŝis.
 
 Rapide kiel fulmo la kapo de la viro pafiĝis antaŭen
 
@@ -11134,67 +10300,65 @@ kap-super-kapen laŭ la deklivo. Preskaŭ same rapide kiel
 
 ĝi venis, la kapo reiris al la korpo, kaj la viro raŭke ridis
 
-dirante, 
+dirante,
 
-“Malpli facile ol vi supozas\!” 
+“Malpli facile ol vi supozas!”
 
 Ĥoro de laŭta ridado sonis de la aliaj rokoj, kaj
 
 Doroteo vidis centojn da senbrakaj Martelkapuloj sur la
 
-monteto, ĉiu malantaŭ roko. 
+monteto, ĉiu malantaŭ roko.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-247
 
 La Leono forte koleriĝis pro la ridado kaŭzita de la
 
 misfortuno de la Birdotimigilo, kaj laŭte muĝante li ton-
 
-dre suprenkuris la monteton. 
+dre suprenkuris la monteton.
 
 Denove kapo rapide elpafiĝis, kaj la granda Leono
 
 ruliĝis malsupren laŭ la deklivo kvazaŭ trafita de
 
-kanonobuso. 
+kanonobuso.
 
 Doroteo malsupren kuris por helpi la Birdotimig-
 
 ilon surpiediĝi, kaj la Leono iris al ŝi, iom kontuzita kaj
 
-dolorigita, kaj diris, 
+dolorigita, kaj diris,
 
 “Estas senutile batali kontraŭ homojn kun pafiĝan-
 
-taj kapoj; neniu povas venki ilin.” 
+taj kapoj; neniu povas venki ilin.”
 
-“Kion do ni povas fari?” 
+“Kion do ni povas fari?”
 
 “Alvoku la Flugantajn Simiojn,” proponis la Stana
 
 Lignohakisto; “vi ankoraŭ rajtas ordoni al ili unu fojon
 
-pli.” 
+pli.”
 
 “Bone,” ŝi respondis, kaj surmetinte la Oran Ĉapon
 
-ŝi parolis la magiajn vortojn. La Simioj, kiel kutime, tujis, 
+ŝi parolis la magiajn vortojn. La Simioj, kiel kutime, tujis,
 
 kaj post malmultaj momentoj la tuta bando staris antaŭ
 
-ŝi. 
+ŝi.
 
-“Kion vi ordonas?” demandis la Reĝo de la Simioj, 
+“Kion vi ordonas?” demandis la Reĝo de la Simioj,
 
-malalten klinante sin. 
+malalten klinante sin.
 
 “Portu nin trans la monteton al la Lando de la Kve-
 
-luloj,” respondis la knabino. 
+luloj,” respondis la knabino.
 
 “Tiel estos,” diris la Reĝo, kaj tuj la Flugantaj
 
@@ -11205,10 +10369,7 @@ koj kaj fluge forportis ilin. Dum ili transflugis la
 monteton la Martelkapuloj kriegis ĉagrenite, kaj pafis
 
 
-
-248
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 siajn kapojn altenaeren, sed ili ne povis trafi la Flugan-
 
@@ -11216,19 +10377,19 @@ tajn Simiojn, kiuj portis Doroteon kaj ŝiajn kamaradojn
 
 sekure trans la monteton kaj surterigis ilin en la bela
 
-Lando de la Kveluloj. 
+Lando de la Kveluloj.
 
 “Nun la lastan fojon vi povis alvoki nin,” diris la
 
-estro al Doroteo; “do adiaŭ kaj bonfortunon al vi.” 
+estro al Doroteo; “do adiaŭ kaj bonfortunon al vi.”
 
 “Adiaŭ, kaj tre grandan dankon,” respondis la
 
 knabino; kaj la Simioj alteniris en la aero kaj post mal-
 
-pli ol momento ili estis jam for de vidpovo. 
+pli ol momento ili estis jam for de vidpovo.
 
-La Lando de la Kveluloj aspektis riĉa kaj feliĉa. 
+La Lando de la Kveluloj aspektis riĉa kaj feliĉa.
 
 Estis nenombreblaj kampoj de maturiĝanta greno, kaj
 
@@ -11242,39 +10403,35 @@ Lando de la Palpbrumoj ili estis flavaj, kaj bluaj en la
 
 Lando de la Manĝtuloj. La Kveluloj mem, malaltaj kaj
 
-dikaj, kompaktaj kaj afablaj estis plene vestitaj per ruĝo, 
+dikaj, kompaktaj kaj afablaj estis plene vestitaj per ruĝo,
 
 kiu brilis kontraŭ la fono de verda herbaro kaj flaviĝanta
 
-greno. 
+greno.
 
-La Simioj surterigis ilin proksime al kampodomo, 
+La Simioj surterigis ilin proksime al kampodomo,
 
-kaj la kvar marŝantoj iris al ĝi kaj frapis sur la pordon. 
+kaj la kvar marŝantoj iris al ĝi kaj frapis sur la pordon.
 
 Ĝin malfermis la edzino de la kultivisto, kaj kiam Doro-
 
-teo petis manĝaĵon la virino bone manĝigis ilin ĉiujn, 
+teo petis manĝaĵon la virino bone manĝigis ilin ĉiujn,
 
 donante tri specojn de kukoj kaj kvar specojn de dolĉaj
 
-biskvitoj, kaj teleron da lakto al Toto. 
+biskvitoj, kaj teleron da lakto al Toto.
 
 “Kiom distanca estas la Kastelo de Glinda,” deman-
 
-dis la infano. 
-
-!(images/000099.jpg)
+dis la infano.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
-
-249
 
 “Ne tre distanca,” respondis la edzino de la kultiv-
 
-isto. “Laŭiru la vojon Suden kaj vi baldaŭ atingos ĝin.” 
+isto. “Laŭiru la vojon Suden kaj vi baldaŭ atingos ĝin.”
 
 Dankinte la afablan virinon, ili rekomencis marŝi laŭ
 
@@ -11286,13 +10443,13 @@ inoj, vestitaj per belaj ruĝaj uniformoj ornamitaj per ora
 
 pasamento; kaj kiam Doroteo proksimiĝis unu el ili diris
 
-al ŝi, 
+al ŝi,
 
-“Kial vi venis al la Suda Lando?” 
+“Kial vi venis al la Suda Lando?”
 
-“Por konsulti la Bonan Sorĉistinon loĝantan ĉi tie,” 
+“Por konsulti la Bonan Sorĉistinon loĝantan ĉi tie,”
 
-ŝi respondis. “Ĉu vi bonvolos konduki min al ŝi?” 
+ŝi respondis. “Ĉu vi bonvolos konduki min al ŝi?”
 
 “Diru al mi vian nomon kaj mi demandos al
 
@@ -11300,32 +10457,21 @@ Glinda ĉu ŝi akceptos vin.” Ili diris siajn nomojn, kaj la
 
 soldatino eniris la Kastelon. Post kelkaj momentoj ŝi
 
-revenis por diri ke Doroteo kaj la aliaj tuj eniru. 
+revenis por diri ke Doroteo kaj la aliaj tuj eniru.
 
-!(images/000131.jpg)
-
-* *
 
 *“La Kapo pafiĝus antaŭen kaj batis la Birdotimigilon.” *
 
-!(images/000154.jpg)
 
-
-
-Ĉapitro XXIII. 
+Ĉapitro XXIII.
 
 La Bona Sorĉistino
 
-plenumas la deziron 
+plenumas la deziron
 
 de
 
 Doroteo
-
-!(images/000150.jpg)
-
-!(images/000156.jpg)
-
 
 
 onvole
@@ -11344,19 +10490,16 @@ hararo, kaj la Birdotimigilo perfrape
 
 plej belaranĝis sin, kaj la Hakisto poluris sian
 
-stanon kaj oleumis siajn artikojn. 
+stanon kaj oleumis siajn artikojn.
 
 Kiam ili ĉiuj estis bonaspektaj ili sekvis la soldat-
 
 inon al granda ĉambro kie la Sorĉistino Glinda sidis sur
 
-rubena trono. 
+rubena trono.
 
 
-
-254
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 Ŝi aspektis al ili kaj bela kaj juna. ŝia hararo estis
 
@@ -11364,67 +10507,65 @@ riĉe ruĝkolora kaj pendis bukle sur ŝiajn ŝultrojn. ŝia robo
 
 estis purablanka sed ŝiaj okuloj estis bluaj, kaj ili afable
 
-rigardis la malgrandan knabinon. 
+rigardis la malgrandan knabinon.
 
 “Kion mi povas fari por vi, mia infano?” Ŝi deman-
 
-dis. 
+dis.
 
 Doroteo rakontis al la Sorĉistino pri si: pri kiel la
 
 ciklono portis ŝin al la Lando Oz, kiel ŝi trovis siajn ako-
 
-mpanantojn, kaj pri la mirindaj aventuroj kiujn ili spertis. 
+mpanantojn, kaj pri la mirindaj aventuroj kiujn ili spertis.
 
-“Mi plej deziras nun,” ŝi pludiris, “reiri al Kansas, 
+“Mi plej deziras nun,” ŝi pludiris, “reiri al Kansas,
 
-ĉar Onklino Em nepre kredas ke katastrofo detruis min, 
+ĉar Onklino Em nepre kredas ke katastrofo detruis min,
 
 kaj tial ŝi surmetos funebrajn vestojn; kaj krom se la
 
 rikolto estos pli bona ĉijare ol pasintajare, mi certas ke
 
-Onklo Henriko ne havas sufiĉan monon por tio.” 
+Onklo Henriko ne havas sufiĉan monon por tio.”
 
 Glinda antaŭenklinis sin kaj kisis la dolĉan, supren-
 
-levitan vizaĝon de la amema malgranda knabino. 
+levitan vizaĝon de la amema malgranda knabino.
 
 “Benita estu via kara koro,” ŝi diris, “certe mi povos
 
-diri al vi kiel reiri al Kansas.” Post tio ŝi diris, 
+diri al vi kiel reiri al Kansas.” Post tio ŝi diris,
 
 “Sed se mi faros tion, vi devos doni al mi la Oran
 
-Ĉapon.” 
+Ĉapon.”
 
-“Volonte\!” krietis Doroteo; “ĝi ja ne plu utilas al
+“Volonte!” krietis Doroteo; “ĝi ja ne plu utilas al
 
 mi, kaj havante ĝin vi rajtos trifoje ordoni al la Flugan-
 
-taj Simioj.” 
+taj Simioj.”
 
 “Kaj mi kredas ke mi bezonos ilian servon precize
 
-trifoje,” respondis Glinda ridetante. 
+trifoje,” respondis Glinda ridetante.
 
 Doroteo tiam donis al ŝi la Oran Ĉapon, kaj la
 
-Sorĉistino diris al la Birdotimigilo, 
+Sorĉistino diris al la Birdotimigilo,
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-255
-
-“Kion vi faros post la foriro de Doroteo?” 
+“Kion vi faros post la foriro de Doroteo?”
 
 “Mi reiros al la Smeralda Urbo,” li respondis, “ĉar
 
 Oz reĝigis min kaj la popolo amas min. Nur mi dubas
 
-ĉu mi sukcesos transiri la monteton de la Martelkapuloj.” 
+ĉu mi sukcesos transiri la monteton de la Martelkapuloj.”
 
 “Per la Ora Ĉapo mi ordonos ke la Flugantaj Simi-
 
@@ -11432,21 +10573,21 @@ ojportu vin al la pordo de la Smeralda Urbo,” diris
 
 Glinda, “ĉar estus domaĝe forpreni de la popolo tiom
 
-mirindan reganton.” 
+mirindan reganton.”
 
 “Ĉu mi vere estas mirinda” demandis la
 
-Birdotimigilo. 
+Birdotimigilo.
 
-“Vi estas nekutima,” respondis Glinda. 
+“Vi estas nekutima,” respondis Glinda.
 
-Turninte sin al la Stana Lignohakisto ŝi demandis: 
+Turninte sin al la Stana Lignohakisto ŝi demandis:
 
-“Kion okazos al vi post la foriro de Doroteo?” 
+“Kion okazos al vi post la foriro de Doroteo?”
 
 Li apogis sin per sia hakilo kaj pensis dum
 
-momento. Post tio li diris, 
+momento. Post tio li diris,
 
 “La Palpbrumoj estis tre afablaj kaj petis ke mi regu
 
@@ -11454,7 +10595,7 @@ ilin post la morto de la Fia Sorĉistino. Mi amas la Palp-
 
 brumojn, kaj se mi povus reiri al ilia lando, mi plej
 
-volonte regus ilin por ĉiam.” 
+volonte regus ilin por ĉiam.”
 
 “Mia dua ordono al la Flugantaj Simioj,” diris
 
@@ -11466,23 +10607,18 @@ tiu de la Birdotimigilo, sed certe vi brilas pli ol li—kiam
 
 oni bone poluris vin—kaj mi certas ke vi regos la Palp-
 
-brumojn saĝe kaj bone.” 
+brumojn saĝe kaj bone.”
 
 Post tio la Sorĉistino rigardis la grandan, vilan
 
-Leonon kaj demandis, 
-
-!(images/000159.jpg)
+Leonon kaj demandis,
 
 
-
-256
-
-LA MIRINDA SORĈISTO DE OZ. 
+LA MIRINDA SORĈISTO DE OZ.
 
 “Post la reiro de Doroteo al sia propra hejmo kion
 
-vi faros?” 
+vi faros?”
 
 “Aliflanke de la monteto de la Martelkapuloj,” li
 
@@ -11490,7 +10626,7 @@ respondis, “estas granda arbaro, kaj ĉiuj bestoj loĝantaj en
 
 ĝi reĝigis min. Se mi nur povus reiri al tiu arbaro mi tre
 
-feliĉe vivus mian vivon tie.” 
+feliĉe vivus mian vivon tie.”
 
 “Mia tria ordono al la Flugantaj Simioj,” diris
 
@@ -11500,49 +10636,47 @@ eluzis ĉiujn povojn de la Ora Ĉapo, mi donos ĝin al la
 
 Reĝo de la Simioj, por ke li kaj lia bando eterne estu
 
-liberaj.” 
+liberaj.”
 
 La Birdotimigilo kaj la Stana Lignohakisto kaj la
 
 Leono nun dankis la Bonan Sorĉistinon pro ŝia kompl-
 
-ezo, kaj Doroteo krietis, 
+ezo, kaj Doroteo krietis,
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-257
+“Certe vi estas egale bona kiel bela! Sed vi ankoraŭ
 
-“Certe vi estas egale bona kiel bela\! Sed vi ankoraŭ
+ne informis min kiel reiri al Kansas.”
 
-ne informis min kiel reiri al Kansas.” 
-
-“Viaj Arĝentaj ŝuoj portos vin trans la dezerton,” 
+“Viaj Arĝentaj ŝuoj portos vin trans la dezerton,”
 
 respondis Glinda. “Konante ilian potencon vi povus jam
 
 la unuan tagon kiam vi venis al ĉi tiu lando reiri al via
 
-Onklino Em.” 
+Onklino Em.”
 
-“Sed tiuokaze mi ne havus mian mirindan cerbon\!” 
+“Sed tiuokaze mi ne havus mian mirindan cerbon!”
 
 kriis la Birdotimigilo. Kaj eble mia tuta vivo forpasus en
 
-la maizkampo de la kultivisto.” 
+la maizkampo de la kultivisto.”
 
 “Kaj mi ne havus mian belan koron,” diris la Stana
 
 Lignohakisto. “Mi eble starus rustiĝante en la arbaro ĝis
 
-la fino de la mondo.” 
+la fino de la mondo.”
 
 “Kaj mi por ĉiam estus malkuraĝa,” deklaris la
 
 Leono, “kaj neniu besto en la tuta arbaro bonkore paro-
 
-lus al mi.” 
+lus al mi.”
 
 “Ĉio ĉi estas vera,” diris Doroteo, “kaj plezurigas
 
@@ -11552,7 +10686,7 @@ el ili havas kion li plej deziris, kaj ĉiu el ili estas feliĉa
 
 havante regnon en kiu li povos regi, mi kredas ke mi
 
-deziras reiri al Kansas.” 
+deziras reiri al Kansas.”
 
 “La Arĝentaj ŝuoj,” diris la Bona Sorĉistino, “havas
 
@@ -11560,67 +10694,53 @@ mirindajn kapablojn. Kaj unu el iliaj plej kuriozaj aspek-
 
 toj estas ke ili povas porti vin al iu ajn loko en la mondo
 
-per tri paŝoj, kaj ĉiu paŝo estos farita dum palpebrumeto. 
+per tri paŝoj, kaj ĉiu paŝo estos farita dum palpebrumeto.
 
 Vi nur devas kunfrapi la kalkanumojn trifoje kaj ordoni
 
-ke la ŝuoj portu vin kien vi deziras iri.” 
+ke la ŝuoj portu vin kien vi deziras iri.”
 
 “Se estas tiel,” diris la infano ĝojoplene, “mi tuj
 
-!(images/000109.jpg)
 
+LA MIRINDA SORĈISTO DE OZ.
 
+petos ke ili portu min al Kansas!”
 
-258
-
-LA MIRINDA SORĈISTO DE OZ. 
-
-petos ke ili portu min al Kansas\!” 
-
-Ŝi ĉirkaŭbrakumis la kolon de la Leono kaj kisis lin, 
+Ŝi ĉirkaŭbrakumis la kolon de la Leono kaj kisis lin,
 
 ame frapetante lian kapon. Post tio ŝi kisis la Stanan
 
 Lignohakiston, kiu ploradis kaj per tio multe endanĝer-
 
-igis siajn artikojn. Sed ŝi ĉirkaŭpremis al si la molan, 
+igis siajn artikojn. Sed ŝi ĉirkaŭpremis al si la molan,
 
 pajlopenan korpon de la Birdotimigilo anstataŭ kisi lian
 
 pentritan vizaĝon, kaj trovis sin mem ploranta pro ĉi tiu
 
-bedaŭroplena foriro for de siaj amantaj kamaradoj. 
+bedaŭroplena foriro for de siaj amantaj kamaradoj.
 
 Glinda la Bona malsuprenpaŝis de sia rubia trono
 
 por adiaŭkisi la malgrandan knabinon, kaj Doroteo dankis
 
-ŝin pro la komplezoj faritaj al ŝiaj amikoj kaj ŝi mem. 
+ŝin pro la komplezoj faritaj al ŝiaj amikoj kaj ŝi mem.
 
-Nun Doroteo prenis Toton sobre en siajn brakojn, 
+Nun Doroteo prenis Toton sobre en siajn brakojn,
 
 kaj lastafoje dirinte adiaŭ, ŝi kunfrapis trifoje la kalkanu-
 
-mojn de siaj ŝuoj, dirante, 
+mojn de siaj ŝuoj, dirante,
 
-“Portu min hejmen al Onklino Em\!” 
+“Portu min hejmen al Onklino Em!”
 
-\*
-
-\*
-
-\*
-
-\*
-
-\*
 
 Tuj ŝi flugadis tra la aero, tiom
 
 rapide ke ŝi povis vidi kaj senti nur la ven-
 
-ton pasantan ŝiajn orelojn. 
+ton pasantan ŝiajn orelojn.
 
 La Arĝentaj ŝuoj nur trifoje paŝis, kaj
 
@@ -11628,17 +10748,15 @@ post tio ŝi haltis tiom subite ke ŝi ruliĝis
 
 plurfoje sur la herbaro antaŭ ol scii kie ŝi
 
-estas. 
+estas.
 
 
+LA MIRINDA SORĈISTO DE OZ.
 
-LA MIRINDA SORĈISTO DE OZ. 
 
-259
+Fine ŝi sidiĝis kaj ĉirkaŭrigardis.
 
-Fine ŝi sidiĝis kaj ĉirkaŭrigardis. 
-
-“Nekredeble\!” ŝi kriis. 
+“Nekredeble!” ŝi kriis.
 
 Ĉar ŝi sidas sur la larĝa ebenaĵo de Kansas, kaj tuj
 
@@ -11650,45 +10768,38 @@ ciklono. Onklo Henriko melkadis la bovinojn en la bon-
 
 vinkampo, kaj Toto saltis de ŝiaj brakoj kaj kuris al la
 
-brutejo ĝoje bojante. 
+brutejo ĝoje bojante.
 
 Doroteo stariĝis kaj trovis sin staranta en nur
 
 siaj ŝtrumpoj. Ĉar la Arĝentaj ŝuoj forfalis de ŝi dum la
 
-flugo tra la aero, kaj perdiĝis por ĉiam en la dezerto. 
+flugo tra la aero, kaj perdiĝis por ĉiam en la dezerto.
 
-!(images/000114.jpg)
-
-* *
 
 *“Vi devos doni al mi la Oran Ĉapon.” *
 
-!(images/000121.jpg)
 
+Ĉapitro XXIV.
 
+Denove hejme.
 
-Ĉapitro XXIV. 
-
-Denove hejme. 
-
-KVUMONTE LA BRASIKOJN, 
+KVUMONTE LA BRASIKOJN,
 
 Onklino Em estis ĵus veninta el
 
 la domo. ŝi suprenrigardis kaj
 
-vidis Doroteon kuranta al ŝi. 
+vidis Doroteon kuranta al ŝi.
 
-“Mia amata infano\!” ŝi kriis, prenegante la mal-
+“Mia amata infano!” ŝi kriis, prenegante la mal-
 
 grandan knabinon en siajn brakojn kaj kovrante ŝian
 
-vizaĝon per kisoj. “El kie vi venis?” 
+vizaĝon per kisoj. “El kie vi venis?”
 
 “El la Lando Oz,” diris Doroteo, sobre. “Kaj ankaŭ
 
 revenis Toto. Kaj ho, Onklino Em, mi ĝojegas reesti
 
-hejme\!”
-
+hejme!”

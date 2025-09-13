@@ -1,110 +1,76 @@
-% Sveda poemaro
-% Magda Carlsson
-
-SVEDA POEMARO
-
-
-eLIBRO
-
-eLIBRO
-
 Magda Carlsson
 
 Sveda
 
 poemaro
 
-I N K O
-
-1
-
-SVEDA POEMARO
-
-eLIBRO
 
 Magda carlsson
 
 SVEDA POEMARO
 
-eLIBRO
 
-Aranĝis: Franko Luin
+@omnibus.se
 
-ISBN 91-7303-072-4
+·
 
-inko@omnibus.se
-
-INKO · SE-13542 TYRESÖ · SVEDIO
-
-http://www.omnibus.se/inko
-
-JANUARO 2001
-
-2
 
 SVEDA POEMARO
 
-eLIBRO
 
 Antaŭvortoj de la tradukintino
 
 Kun ĝojo mi kaptas la okazon, ĉi tie esprimi mian plej var-man kaj humilan dankon al la Estraro de Eldona Societo Esperanto, Stockholm, kaj ĝa eksprezidanto, S-ro Bern-hard Eriksson, Stockholm, al D-ro John Stenström, Jönkö-
 
-ping, kaj Akademiano, D-ro F. Szilágyi, Borås, kiuj per bon-volaj intereso, apogo kaj valoraj konsiloj ebligis la eldonon de ĉi tiu poemkolekto. 
 
-Cetere mi deziras aldoni, ke la Leganto nur en kelkaj kazoj, sed ne ĝenerale povas fari konkludojn pri la literatura signi-fo de la diversaj aŭtoroj laŭ la nombro de iliaj poemoj en ĉi tiu libro. Multaj meritplenaj verkistoj ne estas reprezentitaj, dum enestas kelkaj poemoj de malpli konataj. La elekton de tradukotaj poemoj mi ne faris laŭ ia plano, sed pro inspiraj amo kaj intereso al la koncerna poemo en aktuala horo. 
+Cetere mi deziras aldoni, ke la Leganto nur en kelkaj kazoj, sed ne ĝenerale povas fari konkludojn pri la literatura signi-fo de la diversaj aŭtoroj laŭ la nombro de iliaj poemoj en ĉi tiu libro. Multaj meritplenaj verkistoj ne estas reprezentitaj, dum enestas kelkaj poemoj de malpli konataj. La elekton de tradukotaj poemoj mi ne faris laŭ ia plano, sed pro inspiraj amo kaj intereso al la koncerna poemo en aktuala horo.
 
-Traduki poezion estas ja delikata afero, kiu tre ofte nece-sigas doloran kompromison inter la postuloj de enhavo kaj formo. Se ĉi tiuj poemoj en esperanta traduko povus doni iom da dolĉa aŭ akre spica aromo de la originaloj, la libreto eble tamen povus aspiri lokon en la esperanta literaturo. 
+Traduki poezion estas ja delikata afero, kiu tre ofte nece-sigas doloran kompromison inter la postuloj de enhavo kaj formo. Se ĉi tiuj poemoj en esperanta traduko povus doni iom da dolĉa aŭ akre spica aromo de la originaloj, la libreto eble tamen povus aspiri lokon en la esperanta literaturo.
 
-\[1954\]
+[1954]
 
 Magda Carlsson
 
-3
 
 SVEDA POEMARO
 
-eLIBRO
 
 Enkonduko
 
-SVEDA POEMARO\! Oni povus skribi nun multe pri la mankoj de la kulturekonomio kaj lingva demokratio, kiam nacia lingvo trudas, aŭ provas trudi sin en la rolon de universala lingvo. Tion oni speciale sentas, kiam temas pri kulturaj ĝemoj de malgrandaj nacioj. Por vi, kiu legas tiun ĉi libron oni ne devas paroli multe pri la diferenco, kiam nia lingvo estas peranto de grandaj kulturvaloroj de ĉiuj litera-turoj. 
+SVEDA POEMARO! Oni povus skribi nun multe pri la mankoj de la kulturekonomio kaj lingva demokratio, kiam nacia lingvo trudas, aŭ provas trudi sin en la rolon de universala lingvo. Tion oni speciale sentas, kiam temas pri kulturaj ĝemoj de malgrandaj nacioj. Por vi, kiu legas tiun ĉi libron oni ne devas paroli multe pri la diferenco, kiam nia lingvo estas peranto de grandaj kulturvaloroj de ĉiuj litera-turoj.
 
-La nomo de Magda Carlsson estas konata ne nur en la Nordo, sed en ĉiuj regionoj, kie oni ŝatas kaj altetaksas nian literaturon. ŝia neordinara talento vekis atenton jam en la dua, brila periodo de Literatura Mondo. \(Tiu periodo komenciĝis en 1931 kaj finiĝis kun la milito.\)
+La nomo de Magda Carlsson estas konata ne nur en la Nordo, sed en ĉiuj regionoj, kie oni ŝatas kaj altetaksas nian literaturon. ŝia neordinara talento vekis atenton jam en la dua, brila periodo de Literatura Mondo. (Tiu periodo komenciĝis en 1931 kaj finiĝis kun la milito.)
 
 En tiu altnivela kaj kun manksento rememorata revuo oni vidis ofte la nomon de Magda Carlsson kaj mi bone scias, ke ŝi apartenis al tiuj kunlaborantoj, kiuj ne devis longe atendi la aperon de siaj kontribuaĵoj. Kiam antaŭ iom da tempo aperis la ”Evangelia Kantaro” en kiu la leona parto de la tradukoj reprezentis ŝian tradukarton, certe multaj, eĉ recenzistoj, ne donis tiom da atento al tiuj tradukoj, kiom ili vere meri-tas. Ili ne estis nuraj kantotradukoj kun nenaturaj trudsolvoj de poeziaj kaj prozodiaj problemoj, sed reprezentaj verketoj de granda kaj — ĝuste tial — humila talento. En recenzo mi kuraĝis tiam — kaj certe ne senrajte — paroli pri literatura 4
 
 SVEDA POEMARO
 
-eLIBRO
 
-sensacio. Nun tiu ĉi literatura sensacio eĉ pligraviĝas: en la Sveda Poemaro la multfaceta talento de la tradukistino brilas eĉ en pli multaj koloroj de ŝia poezia prismo. Magda Carlsson estas pia animo, kiun logas la altaj sferoj de la kredo, sed ŝi ne rifuzas la arton ekster la religia mondo. ŝi ne vivas nur en la mondo de la psalmoj kaj himnoj; ŝi amas la poezion mem, la arton, kaj konsideras la veran arton sankta, di-benita. 
+sensacio. Nun tiu ĉi literatura sensacio eĉ pligraviĝas: en la Sveda Poemaro la multfaceta talento de la tradukistino brilas eĉ en pli multaj koloroj de ŝia poezia prismo. Magda Carlsson estas pia animo, kiun logas la altaj sferoj de la kredo, sed ŝi ne rifuzas la arton ekster la religia mondo. ŝi ne vivas nur en la mondo de la psalmoj kaj himnoj; ŝi amas la poezion mem, la arton, kaj konsideras la veran arton sankta, di-benita.
 
-Tial ne estas kontraŭdiro, ke la horizonto de la Poemaro estas vasta kaj varia, kaj ke la kapablo de Magda Carlsson sol-vas kun ne malpli da entuziasmo problemojn, taskojn, kiuj estas longe de la religia kampo. Pensu ekz. pri la virtuoza traduko de ”Exit Isidoro Filén”, kiun tute hazarde mi ellevis el tiuj multaj, kiujn oni povus mencii por pruvi tiun ĉi aserton. 
+Tial ne estas kontraŭdiro, ke la horizonto de la Poemaro estas vasta kaj varia, kaj ke la kapablo de Magda Carlsson sol-vas kun ne malpli da entuziasmo problemojn, taskojn, kiuj estas longe de la religia kampo. Pensu ekz. pri la virtuoza traduko de ”Exit Isidoro Filén”, kiun tute hazarde mi ellevis el tiuj multaj, kiujn oni povus mencii por pruvi tiun ĉi aserton.
 
-ŝi estas plena de konscio kaj konscienco. Antaŭ ol ŝi tradukas la poemojn, ŝi penetras ĝis ilia kerno. Certe longaj studoj an-taŭas la veran laboron. Sed kiam ŝi sentas, ke ŝi estas preta, ŝia arto estas certa, ŝi vivas jam en la poemo, ŝia animo sentas la ritmon de la poema animo, ŝi travivas la tradukotan verkon kaj reverkas ĝin kun suverena arto. Iam mi skribis en recenzo, ke ŝi estas pastrino de la kredo kaj arto; ke ŝi amas kaj majstras nian lingvon. Tion mi volonte ripetas ankaŭ ĉi-loke. ŝi similas al ĝardenistino milda kaj komprenema, kiu amas siajn florojn kaj vidas en ili individuojn. 
+ŝi estas plena de konscio kaj konscienco. Antaŭ ol ŝi tradukas la poemojn, ŝi penetras ĝis ilia kerno. Certe longaj studoj an-taŭas la veran laboron. Sed kiam ŝi sentas, ke ŝi estas preta, ŝia arto estas certa, ŝi vivas jam en la poemo, ŝia animo sentas la ritmon de la poema animo, ŝi travivas la tradukotan verkon kaj reverkas ĝin kun suverena arto. Iam mi skribis en recenzo, ke ŝi estas pastrino de la kredo kaj arto; ke ŝi amas kaj majstras nian lingvon. Tion mi volonte ripetas ankaŭ ĉi-loke. ŝi similas al ĝardenistino milda kaj komprenema, kiu amas siajn florojn kaj vidas en ili individuojn.
 
-Kun plezuro mi rekomendas la SVEDA POEMARO-n en la atenton de ĉiu esperantisto, kiun interesas la kulturo, la animo de Svedlando, pri kiu digne atestas tiu ĉi libro. 
+Kun plezuro mi rekomendas la SVEDA POEMARO-n en la atenton de ĉiu esperantisto, kiun interesas la kulturo, la animo de Svedlando, pri kiu digne atestas tiu ĉi libro.
 
-D-ro F. Szilägyi, Ak. 
+D-ro F. Szilägyi, Ak.
 
-5
 
 SVEDA POEMARO
 
-eLIBRO
 
-Johan Olof Wallin \(1779-1839\)
+Johan Olof Wallin (1779-1839)
 
 Amikon karan
 
-Amikon karan mi serĉadi iras. 
+Amikon karan mi serĉadi iras.
 
-De la tagiĝ’ mi ĉiam pli sopiras, 
+De la tagiĝ’ mi ĉiam pli sopiras,
 
 sed lin ne trovis ĝis vespera horo
 
-la arda koro. 
+la arda koro.
 
 Mi vidas spuron, kie spiko plena
 
@@ -112,55 +78,53 @@ sin mole klinas, kie flor’ ĝardena
 
 parfumas venton. Eĉ en spiro mia
 
-la amo lia. 
+la amo lia.
 
-Mi aŭdas lin en la susur’ somera, 
+Mi aŭdas lin en la susur’ somera,
 
-arbara himno kaj la flor’ rivera. 
+arbara himno kaj la flor’ rivera.
 
 Plej dolĉe li en mia kor’ parolas
 
-kaj min konsolas. 
+kaj mnsolas.
 
-Sed ve, lin kaŝas for de mi nebulo, 
+Sed ve, lin kaŝas for de mi nebulo,
 
-atingas preĝo lin, sed ne okulo. 
+atingas preĝo lin, sed ne okulo.
 
 Ke mi lin vidu, metu koron mian
 
-sur bruston lian\! 
+sur bruston lian!
 
 Ho, se belegas tiel ĉiu guto
 
-de l’tera vivo, de l’kreita tuto, 
+de l’tera vivo, de l’kreita tuto,
 
-do kiel bela fonto senkompara, 
+do kiel bela fonto senkompara,
 
-eterne klara\! 
+eterne klara!
 
-6
 
 SVEDA POEMARO
 
-eLIBRO
 
 Johan Olof Wallin
 
 Kristnaska mateno
 
-Saluton, glora frumaten’, 
+Saluton, glora frumaten’,
 
 al kies veno, kies ben’
 
-profetoj nin invitis\! 
+profetoj nin invitis!
 
-Ho granda tag’, 
+Ho granda tag’,
 
-mirinda tag’, 
+mirinda tag’,
 
 en kiu Dia favorag’
 
-la teron re-vizitis\! 
+la teron re-vizitis!
 
 Juno kantas
 
@@ -170,63 +134,59 @@ en komuno:
 
 teraj preĝoj
 
-al plej granda el la reĝoj. 
+al plej granda el la reĝoj.
 
-Li ploros, same kiel ni. 
+Li ploros, same kiel ni.
 
-En la mizer’ komprenos li, 
+En la mizer’ komprenos li,
 
-helpanto senkompara. 
+helpanto senkompara.
 
 Nin donos scion pri Di-voI’
 
 kaj dolĉon mildan de konsol’
 
-por la kalik’ amara. 
+por la kalik’ amara.
 
 Luktos, larmos
 
-pro doloro, 
+pro doloro,
 
 ke l’homkoro
 
-paci povu, 
+paci povu,
 
-hejmon malfermitan trovu. 
+hejmon malfermitan trovu.
 
-7
 
 SVEDA POEMARO
 
-eLIBRO
 
-Li venas, nia savo, pac’, 
+Li venas, nia savo, pac’,
 
 ke sun’ ekluma de la grac’
 
-neniam plu sin kaŝu. 
+neniam plu sin kaŝu.
 
-Paŝtisto nia estos li, 
+Paŝtisto nia estos li,
 
 ke liaj restu ĉiam ni
 
-kaj liavoje paŝu. 
+kaj liavoje paŝu.
 
-Kore, fore, 
+Kore, fore,
 
 alimonde
 
 beatronde
 
-ni jubilos, 
+ni jubilos,
 
-glorigite lin similos. 
+glorigite lin similos.
 
-8
 
 SVEDA POEMARO
 
-eLIBRO
 
 Johan Olof Wallin
 
@@ -234,75 +194,71 @@ En la ĉielira tago
 
 Al lando de l’eterna glor’
 
-mi vidas Vin reiri, 
+mi vidas Vin reiri,
 
 sed mi ankoraŭ kun dolor’
 
-nur povas ĝin sopiri. 
+nur povas ĝin sopiri.
 
 For de la hejm’, sur fremda voj’ —
 
-akompanadas min malĝoj’. 
+akompanadas min malĝoj’.
 
-Ho, supre estas nokto for, 
+Ho, supre estas nokto for,
 
-neniam sonas ploro, 
+neniam sonas ploro,
 
 kaj tie, kie la trezor’
 
-ja estu mia koro. 
+ja estu mia koro.
 
 Mi ĉiam havu kun fidel’
 
-mian kunecon en ĉiel’. 
+mian kunecon en ĉiel’.
 
-Kaj kiel iris, same Vi, 
+Kaj kiel iris, same Vi,
 
-Jesuo, venos ree. 
+Jesuo, venos ree.
 
-Laŭ Via volo vivos mi, 
+Laŭ Via volo vivos mi,
 
-preĝante kaj obee; 
+preĝante kaj obee;
 
-ne scias horon de l’reven’, 
+ne scias horon de l’reven’,
 
-sed Vin atendos ĝis maten’. 
+sed Vin atendos ĝis maten’.
 
-Feliĉa estas la servant’, 
+Feliĉa estas la servant’,
 
-se tia Vi lin trovos; 
+se tia Vi lin trovos;
 
-9
 
 SVEDA POEMARO
 
-eLIBRO
 
-ĉe la reveno, ho Savant’, 
+ĉe la reveno, ho Savant’,
 
-Vi lin konduki volos
+Vi lnduki volos
 
 al Via Patro laŭ promes’ —
 
-al gloro kaj al senmortec’. 
+al gloro kaj al senmortec’.
 
-10
 
 SVEDA POEMARO
 
-eLIBRO
 
 Johan Olof Wallin
 
-El ”Anĝelo de l’morto”. 
+El ”Anĝelo de l’morto”.
 
 Vi, Adamidoj, el ter’ devenas
 
-kaj iros reen al sama ter’\! 
+kaj iros reen al sama ter’!
 
 Vi estas miaj, vi apartenas
 
-post pek’ unua al mortsufer’. 
+post pek’ unua al mortsufer’.
 
 El oriento
 
@@ -310,45 +266,43 @@ mi prenatingas
 
 al okcidento
 
-kaj vin estingas. 
+kaj vin estingas.
 
-Di-vorton portas mi de la ter’, 
+Di-vorton portas mi de la ter’,
 
-de maro, fajro kaj de l’aer. 
+de maro, fajro kaj de l’aer.
 
-Vi nestojn faras pasersimile. 
+Vi nestojn faras pasersimile.
 
 En verda bosko de la printemp’
 
 birdetoj kantis la ĝojon trile
 
-sub kron’ folia en varma temp’. 
+sub kron’ folia en varma temp’.
 
 Sed birdonestoj
 
-kun vent’ batalis, 
+kun vent’ batalis,
 
 kun pluv’, tempestoj
 
-kaj teren falis. 
+kaj teren falis.
 
 Ne plu revenis pasinta ĝoj’
 
-jam trilis ili por lasta foj. 
+jam trilis ili por lasta foj.
 
-Por tag’ morgaŭa vi maltrankvile, 
+Por tag’ morgaŭa vi maltrankvile,
 
-kun timo ĝemas kiel kolomb’, 
+kun timo ĝemas kiel kolomb’,
 
-11
 
 SVEDA POEMARO
 
-eLIBRO
 
 sed sub piedoj, klapokaptile
 
-por vi malfermas sin via tomb’. 
+por vi malfermas sin via tomb’.
 
 Senlunan horon
 
@@ -356,39 +310,39 @@ vi malaperas
 
 kaj la memoron
 
-la temp’ konkeras; 
+la temp’ konkeras;
 
 novluno vidas el nubarĝent’
 
-alvenon — svenon de nova gent’. 
+alvenon — svenon de nova gent’.
 
-Vi ŝvebas flirte en danc-deliro, 
+Vi ŝvebas flirte en danc-deliro,
 
-en rond’ plezura petolas vi, 
+en rond’ plezura petolas vi,
 
-kaj floras mirto kaj sonas liro, 
+kaj floras mirto kaj sonas liro,
 
 sed trans la sojlon enpaŝas mi:
 
 mallaŭtas sono
 
-ĉe l’dancofino, 
+ĉe l’dancofino,
 
 ekpalas krono
 
 kaj fianĉino …
 
-Malĝojo, Skribo instruis nin, 
+Malĝojo, Skribo instruis nin,
 
-de ĝojo estas la certa fin’. 
+de ĝojo estas la certa fin’.
 
-Mi ĉion regas, ĝis Li estonte, 
+Mi ĉion regas, ĝis Li estonte,
 
-pli forta, venos en fulmobril’; 
+pli forta, venos en fulmobril’;
 
 profunde ŝakte, ŝvebante monte
 
-sibladas mia glacia spir’. 
+sibladas mia glacia spir’.
 
 La landosarka
 
@@ -400,45 +354,43 @@ ekpafa gesto
 
 viktimojn trafas. En ĉi batal’
 
-ne ŝirmas muroj, nek ŝilda ŝtal’. 
+ne ŝirmas muroj, nek ŝilda ŝtal’.
 
-12
 
 SVEDA POEMARO
 
-eLIBRO
 
-Flugilon volvas mi ĉirkaŭ ŝtormon, 
+Flugilon volvas mi ĉirkaŭ ŝtormon,
 
-marondon rulas al ĝia cel’, 
+marondon rulas al ĝia cel’,
 
 de l’ŝtatsistemoj frakasas formon …
 
-elmane falas tiranmartel’. 
+elmane falas tiranmartel’.
 
 Por mi jarcentoj
 
-nur estas horo, 
+nur estas horo,
 
 kaj homogentoj
 
 kaj homlaboro
 
-al mi ondadas el vasta mond’, 
+al mi ondadas el vasta mond’,
 
-ĝis fine dormos la lasta ond’. 
+ĝis fine dormos la lasta ond’.
 
-Mansignas mi, kaj vivantoj krie, 
+Mansignas mi, kaj vivantoj krie,
 
-balae flugas al tiu lok’, 
+balae flugas al tiu lok’,
 
 en kiu nomo ne sonas, kie
 
-ne lang’ respondas al via vok’. 
+ne lang’ respondas al via vok’.
 
 Mi plezurvagas —
 
-renversas tronojn, 
+renversas tronojn,
 
 ensarkofagas
 
@@ -446,177 +398,170 @@ Napoleonojn …
 
 ĵus potenculo kaj suveren’
 
-kaj nun da polvo nur manopren’. 
+kaj nun da polvo nur manopren’.
 
-Vi venis — iros. Restado gasta. 
+Vi venis — iros. Restado gasta.
 
-Vi hejmon havas nur por la nun’. 
+Vi hejmon havas nur por la nun’.
 
-Vi loĝos poste en lok’ malvasta, 
+Vi loĝos poste en lok’ malvasta,
 
-en ĝin ne lumas la brila sun’; 
+en ĝin ne lumas la brila sun’;
 
 En ĝia pordo
 
-blazon’ ekpalas, 
+blazon’ ekpalas,
 
 en ĝia korto
 
-en la jugo falas; 
+en la jugo falas;
 
-13
 
 SVEDA POEMARO
 
-eLIBRO
 
 katen’, korligo samkiel kan’
 
-ŝiriĝas tie pro sama man’. 
+ŝiriĝas tie pro sama man’.
 
-Do, celojn viajn, mortul’, esploru, 
+Do, celojn viajn, mortul’, esploru,
 
-dezirojn pesu kun sankta tim’\! 
+dezirojn pesu kun sankta tim’!
 
-Man’, koro puraj al Li fervoru, 
+Man’, koro puraj al Li fervoru,
 
-al kiu nudas la homanim’\! 
+al kiu nudas la homanim’!
 
 Tra tiu pordo
 
-vi ĉiuj lamos, 
+vi ĉiuj lamos,
 
 sur kiu vorto
 
-eterne flamos, 
+eterne flamos,
 
-sensanga vorto de Dio: ”Ve, 
+sensanga vorto de Dio: ”Ve,
 
-eniras ĉiu, neniu re\!” 
+eniras ĉiu, neniu re!”
 
-Sed Di’ vin amas. Ho, tima tremo, 
+Sed Di’ vin amas. Ho, tima tremo,
 
-do trankviliĝu\! Esperu, kor’\! 
+do trankviliĝu! Esperu, kor’!
 
 El la en teron metita semo
 
-ekĝermos bene rikolta or’. 
+ekĝermos bene rikolta or’.
 
 Ho, kion cedis
 
-vi tre dolore, 
+vi tre dolore,
 
 ho, kion metis
 
-vi tombon plore, 
+vi tombon plore,
 
-ne tie restas, ne iĝis nul, 
+ne tie restas, ne iĝis nul,
 
-ĉe li ja estas, ĉe Eternul’. 
+ĉe li ja estas, ĉe Eternul’.
 
-\(ĉi tiu poemo gajnis la duan premion en la branĉo ”Traduka Poezio” 
+(ĉi tiu poemo gajnis la duan premion en la branĉo ”Traduka Poezio”
 
-de Belarta Konkurso de Universala Esperanto Asocio, 1954.\) 14
+de Belarta Konkurso de Universala Esperanto Asocio, 1954.) 14
 
 SVEDA POEMARO
 
-eLIBRO
 
-Esaias Tegnér \(1782-1846\)
+Esaias Tegnér (1782-1846)
 
 Tio, kio eternas
 
-Ja formas fortul’ sian mondon per glav’, 
+Ja formas fortul’ sian mondon per glav’,
 
-ja flugas lia fam’ kiel aglo, 
+ja flugas lia fam’ kiel aglo,
 
 sed iam la glavo rompiĝos sen sav’
 
-kaj aglo mortfalos pro kuglo. 
+kaj aglo mortfalos pro kuglo.
 
 Kion kreas perforto, minacas necert’ —
 
-ĝi mortas kiel ŝtormo en la dezert’. 
+ĝi mortas kiel ŝtormo en la dezert’.
 
 Sed vivas la vero. ĉe glav’, gilotin’
 
-ĝi staras kun frunto radia. 
+ĝi staras kun frunto radia.
 
 Tra nokta la mondo ĝi gvidas, ĝis fin’
 
-montrante al mondo alia. 
+montrante al mondo alia.
 
 La vero eternas. Tra ter’, firmament’
 
-ties vortoj resonas de gento al gent’. 
+ties vortoj resonas de gento al gent’.
 
 La justo eternas. Ne trafos eksterm’
 
-ĉi piedpremitan lilion. 
+ĉi piedpremitan lilion.
 
-Se venkos malbono la mondon ĝis kern’, 
+Se venkos malbono la mondon ĝis kern’,
 
-konservos vi justokonscion. 
+konservos vi justokonscion.
 
-Se ĝin persekutos la ruzo, armil’, 
+Se ĝin persekutos la ruzo, armil’,
 
-ja restos por ĝi via brusto azil’. 
+ja restos por ĝi via brusto azil’.
 
-Kaj volo, flamanta en brusta karcer’, 
+Kaj volo, flamanta en brusta karcer’,
 
 karniĝas por ago subite:
 
 la just’ havas brakon kaj voĉon la ver’ —
 
-15
 
 SVEDA POEMARO
 
-eLIBRO
 
-popoloj leviĝas ßanĝite. 
+popoloj leviĝas ßanĝite.
 
 Kaj viaj oferoj kaj via danĝer’
 
-kiel steloj sin levas el Lethe-river’. 
+kiel steloj sin levas el Lethe-river’.
 
 Poezi’ ne forflugas kiel flora odor’
 
-aŭ bunta arkponto ĉiela. 
+aŭ bunta arkponto ĉiela.
 
-Se belon vi formas, ĝi ne pasos for, 
+Se belon vi formas, ĝi ne pasos for,
 
-ĝin tempo eĉ faros pli bela. 
+ĝin tempo eĉ faros pli bela.
 
 La belo eternas. Kun arda tener’
 
-ni kribras ĉi oron el temporiver’. 
+ni kribras ĉi oron el temporiver’.
 
-Por ver’: nia amo, por justo: atent’. 
+Por ver’: nia amo, por justo: atent’.
 
-Pri belo kun ĝoj’ fantaziu\! 
+Pri belo kun ĝoj’ fantaziu!
 
-ĉi trio ne mortos el inter homgent’, 
+ĉi trio ne mortos el inter homgent’,
 
-al ili ni apelaciu. 
+al ili ni apelaciu.
 
-Kion temp’ al vi donis, redonos vi, 
+Kion temp’ al vi donis, redonos vi,
 
-se nestos en vi la eternaj tri. 
+se nestos en vi la eternaj tri.
 
-16
 
 SVEDA POEMARO
 
-eLIBRO
 
-J. L. Runeberg \(1804-I877\)
+J. L. Runeberg (1804-I877)
 
 Himno
 
 Ho, dolĉas la alveno
 
-al templokort’ de Di’\! 
+al templokort’ de Di’!
 
 Sub lia ŝirma beno
 
@@ -624,11 +569,11 @@ floradas la lili’:
 
 petaloj de l’fidela
 
-anim’ malfermas sin, 
+anim’ malfermas sin,
 
 kaj forton ros’ ĉiela
 
-aspergas super ĝin. 
+aspergas super ĝin.
 
 Ho, kiel dolĉe vidi
 
@@ -636,81 +581,79 @@ fidelajn de Sinjor’
 
 kun korpureco fidi
 
-kaj servi kun fervor’\! 
+kaj servi kun fervor’!
 
 Jes, kiam laŭd’ Spirite
 
-sin levas en konkord’, 
+sin levas en konkord’,
 
 ho, kiu do hezite
 
-restadus ekster pord’? 
+restadus ekster pord’?
 
-Eniru\! Vidu, sentu, 
+Eniru! Vidu, sentu,
 
-ke dolĉas la Sinjor’; 
+ke dolĉas la Sinjor’;
 
 en fratkunec’ atendu
 
-kun preĝo kaj ador’\! 
+kun preĝo kaj ador’!
 
 Ekstere: vanta rondo
 
-sen ĝojo por la hom’. 
+sen ĝojo por la hom’.
 
 Ne multe donas mondo —
 
-trezorojn Dia dom’. 
+trezorojn Dia dom’.
 
-17
 
 SVEDA POEMARO
 
-eLIBRO
 
-Lina Sandell-Berg \(1832-1903\)
+Lina Sandell-Berg (1832-1903)
 
 Tagon nur, momenton nur
 
-Tagon nur, momenton nur, mi prenas, 
+Tagon nur, momenton nur, mi prenas,
 
-kio ajn okazas, jen konsol’. 
+kio ajn okazas, jen konsol’.
 
-ĉion ja la Patro mane tenas, 
+ĉion ja la Patro mane tenas,
 
-ĉu mi timu do por lia vol’? 
+ĉu mi timu do por lia vol’?
 
-Li, havante por mi patran koron, 
+Li, havante por mi patran koron,
 
 donas — jen saĝeco trans imag’ —
 
 ĝojon kaj ripozon kaj doloron
 
-ĉiufoje nur por unu tag’. 
+ĉiufoje nur por unu tag’.
 
-Mem li akompanas min ĉiame, 
+Mem li akompanas min ĉiame,
 
-en aparta temp’ kun ties grac’. 
+en aparta temp’ kun ties grac’.
 
-Mian ŝarĝon Tiu portas ame, 
+Mian ŝarĝon Tiu portas ame,
 
-kies nomoj estas Fort’, Sagac’. 
+kies nomoj estas Fort’, Sagac’.
 
-Gardi sian karan dum la plago, 
+Gardi sian karan dum la plago,
 
-tiun zorgon metis li sur sin. 
+tiun zorgon metis li sur sin.
 
-’’Via fort’ sufiĉos por la tago”, 
+’’Via fort’ sufiĉos por la tago”,
 
-ĉi promeso konsoladas min. 
+ĉi promeso konsoladas min.
 
 Helpu min do resti kaj kvieti
 
-ĉe promesoj viaj, kara Di’, 
+ĉe promesoj viaj, kara Di’,
 
-ne konsolon de la fid’ forĵeti, 
+ne konsolon de la fid’ forĵeti,
 
-kiun ĉerpu el la Skribo ni. 
+kiun ĉerpu el la Skribo ni.
 
 Helpu, Di’, ke ĉiucirkonstance
 
@@ -718,411 +661,389 @@ prenu mi el via patra man’
 
 tagon nur, momenton, ĝis mi transe
 
-vidos ĝoje bonan landon jam. 
+vidos ĝoje bonan landon jam.
 
-18
 
 SVEDA POEMARO
 
-eLIBRO
 
 Lina Sandell-Berg
 
 Sekureco
 
-Tiel ne sekuras io, 
+Tiel ne sekuras io,
 
-kiel infanar’ de Dio, 
+kiel infanar’ de Dio,
 
-ne la stel’ sur firmamento, 
+ne la stel’ sur firmamento,
 
-nek la bird’ en nestsilento. 
+nek la bird’ en nestsilento.
 
 Mem li zorgas pri la bono
 
-de la siaj en Ciono. 
+de la siaj en Ciono.
 
-Li kompatas ja ĉiame, 
+Li kompatas ja ĉiame,
 
-brake portas ilin ame. 
+brake portas ilin ame.
 
-¯oj’, mizero venos, iros, 
+oj’, mizero venos, iros,
 
-sed nin ne de li forŝiros. 
+sed nin ne de li forŝiros.
 
 El amikoj plej amika
 
-scias li pri viv’ tragika. 
+scias li pri viv’ tragika.
 
-¯oju, infanaro eta, 
+oju, infanaro eta,
 
-Di’ vin gardi estas preta. 
+Di’ vin gardi estas preta.
 
-Kiuj kontraŭ li batalas, 
+Kiuj kontraŭ li batalas,
 
-senkondiĉe teren falas. 
+senkondiĉe teren falas.
 
-ĉu li prenas, ĉu li donas, 
+ĉu li prenas, ĉu li donas,
 
-Patro tamen same bonas, 
+Patro tamen same bonas,
 
 kaj la cel’ de lia amo
 
-estas bono de l’infano. 
+estas bono de l’infano.
 
-19
 
 SVEDA POEMARO
 
-eLIBRO
 
 Lina Sandell-Berg
 
 Trankvilas ĉe Jesua kor’
 
-Trankvilas ĉe Jesua kor’, 
+Trankvilas ĉe Jesua kor’,
 
-dum sur la ter’ tempestas. 
+dum sur la ter’ tempestas.
 
-Se foje pezas mia hor’, 
+Se foje pezas mia hor’,
 
-li mia paco restas. 
+li mia paco restas.
 
-Abismoj muĝas tie ĉi, 
+Abismoj muĝas tie ĉi,
 
-sed trans abismojn portas li. 
+sed trans abismojn portas li.
 
-Trankvilas ĉe Jesua kor’, 
+Trankvilas ĉe Jesua kor’,
 
-dum sur la ter’ tempestas. 
+dum sur la ter’ tempestas.
 
 ĉi tere timas la migrant’
 
-pereon ja survoje. 
+pereon ja survoje.
 
-Sin miksas ĝem’ kun mia kant’, 
+Sin miksas ĝem’ kun mia kant’,
 
-Jesuo, multafoje. 
+Jesuo, multafoje.
 
 Sed ĉe amanta via kor’
 
-mis-sonoj mondaj mortas for, 
+mis-sonoj mondaj mortas for,
 
 eĉ se minacas al migrant’
 
-pereo jen survoje. 
+pereo jen survoje.
 
 Kolombo via volas for
 
-el ĉi dezert’ kaj veo. 
+el ĉi dezert’ kaj veo.
 
-Do venu porti ĝin, Sinjor’, 
+Do venu porti ĝin, Sinjor’,
 
-la lacan, al arkeo\! 
+la lacan, al arkeo!
 
 Sopiras ĝi de l’uragan’
 
-al ĝoj’ sur via dekstra man. 
+al ĝoj’ sur via dekstra man.
 
-Do portu hejmen, ho Sinjor’, 
+Do portu hejmen, ho Sinjor’,
 
-kolombon al arkeo\! 
+kolombon al arkeo!
 
-20
 
 SVEDA POEMARO
 
-eLIBRO
 
-Carl David af Wirsén \(1842-1912\)
+Carl David af Wirsén (1842-1912)
 
 Sankta vendredo
 
-Silento. Venis do la fin’. 
+Silento. Venis do la fin’.
 
-Sufer’ kruela lasis lin, 
+Sufer’ kruela lasis lin,
 
-la moko ne plu dornas. 
+la moko ne plu dornas.
 
 En roka tombo post sufer’
 
 simile ondon en vesper’
 
-la Kruc-heroo dormas. 
+la Kruc-heroo dormas.
 
-Silente, por la lasta foj’, 
+Silente, por la lasta foj’,
 
 vizite venis la malĝoj’
 
-kun mirho, blanka tolo. 
+kun mirho, blanka tolo.
 
 Nun same volas meti mi
 
 la mirhon de la am’ al vi
 
-en paca vespermolo. 
+en paca vespermolo.
 
-Silentas li en morta mut’. 
+Silentas li en morta mut’.
 
 Sed malgraŭ nokto, roka krut’
 
-ne pensas mi pri fuĝo. 
+ne pensas mi pri fuĝo.
 
-Ne trafos Filon la pere’, 
+Ne trafos Filon la pere’,
 
 mi scias, li leviĝos je
 
-la tria matenruĝo. 
+la tria matenruĝo.
 
-Silent’ atingos ankaŭ min. 
+Silent’ atingos ankaŭ min.
 
 Profunde en la tombosin’
 
-ripozos mi estonte. 
+ripozos mi estonte.
 
-21
 
 SVEDA POEMARO
 
-eLIBRO
 
-Sed morto ne timigas plu, 
+Sed morto ne timigas plu,
 
 ĉar mi en fido al Jesu’
 
-leviĝos, lin renkonte. 
+leviĝos, lin renkonte.
 
-22
 
 SVEDA POEMARO
 
-eLIBRO
 
-Selma Sundelius-Lagerström \(1859-1927\)
-
-Sinjoro, blovu ventoj de l’Spirito
+Selma Sundelius-Lagerström (1859-1927)
 
 Sinjoro, blovu ventoj de l’Spirito
 
-denove inter ni kun forta plen’, 
+Sinjoro, blovu ventoj de l’Spirito
+
+denove inter ni kun forta plen’,
 
 ke la dormantoj el la pek’ vekiĝu
 
-kaj falu for de ili la katen’\! 
+kaj falu for de ili la katen’!
 
-Ho — ili vidu la preditan hejmon, 
+Ho — ili vidu la preditan hejmon,
 
-la vojon de la vivo kaj de l’bon’, 
+la vojon de la vivo kaj de l’bon’,
 
 purigon trovu de faritaj pekoj:
 
-la klaran, freŝan fonton de Cion’\! 
+la klaran, freŝan fonton de Cion’!
 
-Kaj kiujn vi jam gajnis por la Regno, 
+Kaj kiujn vi jam gajnis por la Regno,
 
-Jesuo , ĉiam gvidu via man’, 
+Jesuo , ĉiam gvidu via man’,
 
 ĉar tra dezertoj, tra danĝeraj retoj
 
-en lando fremda migras la kristan’. 
+en lando fremda migras la kristan’.
 
-Ho, Lum’ de l’mond’, radioj viaj brilu, 
+Ho, Lum’ de l’mond’, radioj viaj brilu,
 
-ke ni ne palpu en la noktmalplen’; 
+ke ni ne palpu en la noktmalplen’;
 
-Nin al la tuta vero paŝe gvidu, 
+Nin al la tuta vero paŝe gvidu,
 
-ĝis estos plena fine la kompren’\! 
+ĝis estos plena fine la kompren’!
 
-23
 
 SVEDA POEMARO
 
-eLIBRO
 
-Verner von Heidenstam \(1859–1940\)
+Verner von Heidenstam (1859–1940)
 
 La nokto
 
 Vi min demandas, kial lum’
 
-sub mia pord’ rubandas. 
+sub mia pord’ rubandas.
 
 En ĉiu nokt’, promene, kun
 
-hezito vi demandas. 
+hezito vi demandas.
 
-Jen la sekret’ de mia kor’, 
+Jen la sekret’ de mia kor’,
 
 fabel’, de kiu irus
 
-for la diskreta bonodor’, 
+for la diskreta bonodor’,
 
-se mi al vi ĝin dirus. 
+se mi al vi ĝin dirus.
 
-ŝanĝiĝis mia mondkonstru’. 
+ŝanĝiĝis mia mondkonstru’.
 
-Jam tiu aĝ’ proksimas, 
+Jam tiu aĝ’ proksimas,
 
 en kiu ni la homojn plu
 
-ne amas aŭ estimas. 
+ne amas aŭ estimas.
 
 Rigardu — jen la lernosum’ —
 
-ne Kainidojn fide\! 
+ne Kainidojn fide!
 
 Sin al plialto turnas nun
 
-la koro malrapide. 
+la koro malrapide.
 
 Novicsimile iras mi
 
-por iun sekvi ane; 
+por iun sekvi ane;
 
-nun la sekreton scias vi, 
+nun la sekreton scias vi,
 
-kaj mi ĝin kaŝis vane. 
+kaj mi ĝin kaŝis vane.
 
 Sub noktĉiela, frosta lun’
 
 mi faras al mi diojn
 
-24
 
 SVEDA POEMARO
 
-eLIBRO
 
 por fidi, kiam kantas jun’
 
-la tombomelodiojn. 
+la tombomelodiojn.
 
-Sed kiam dormas strato, plac’, 
+Sed kiam dormas strato, plac’,
 
 ne venu al la pordo:
 
 je ĉiu bruo en la pac’
 
-mutiĝas la divorto. 
+mutiĝas la divorto.
 
 La dian voĉon aŭdis mi
 
-nur en silent’, malfrue, 
+nur en silent’, malfrue,
 
 se kun soleca korokri’
 
-mi ploris surgenue. 
+mi ploris surgenue.
 
-25
 
 SVEDA POEMARO
 
-eLIBRO
 
-Gustaf Fröding \(I860-1911\)
+Gustaf Fröding (I860-1911)
 
-Kio estas vero? 
+Kio estas vero?
 
-Pilato diris: ”Kio estas vero?” 
+Pilato diris: ”Kio estas vero?”
 
-Respondis e˛o — la profeto ne. 
+Respondis e˛o — la profeto ne.
 
 Enigmosolvon post fermitaj lipoj
 
-al mortoregno portis la hebre’. 
+al mortoregno portis la hebre’.
 
-Sed, dank’ al Dio\! Estas profesoroj, 
+Sed, dank’ al Dio! Estas profesoroj,
 
-al kiuj tute klaras jam la ver’\! 
+al kiuj tute klaras jam la ver’!
 
 Kaj multaj — ili nombras je legio —
 
-respondis al Pilato pri l’afer’. 
+respondis al Pilato pri l’afer’.
 
 Sed ĉu ne strange? De la sola vero
 
-koloron ŝanĝas jen magi-asperg’, 
+koloron ŝanĝas jen magi-asperg’,
 
-ĉar kio veras en Berlin’ aŭ Jena, 
+ĉar kio veras en Berlin’ aŭ Jena,
 
-nur estas stulta ŝerc’ en Heidelberg. 
+nur estas stulta ŝerc’ en Heidelberg.
 
-26
 
 SVEDA POEMARO
 
-eLIBRO
 
 Gustaf Fröding
 
 Sigelo de Salomono
 
-Al mi, vi diras, mankas karakter’, 
+Al mi, vi diras, mankas karakter’,
 
-logika rezonpov’, bonordaj vivprincipoj, 
+logika rezonpov’, bonordaj vivprincipoj,
 
 neŝancelebla kred’ kaj la ceter’ —
 
-por tiel diri: spino por la agoripoj. 
+por tiel diri: spino por la agoripoj.
 
-Rakontos mi sekreton de l’magi’, 
+Rakontos mi sekreton de l’magi’,
 
-misteron pri sigel’ de Salomono. 
+misteron pri sigel’ de Salomono.
 
 Legion da spiritoj kaptis li —
 
 okazis en Damaska regiono
 
-\(aŭ en Jerusalem’?\) — aŭskultu la fabelon\! 
+(aŭ en Jerusalem’?) — aŭskultu la fabelon!
 
-Kaj ĉiun metis li atente en botelon. 
+Kaj ĉiun metis li atente en botelon.
 
-La truojn ŝtopi tuj ordonis li, 
+La truojn ŝtopi tuj ordonis li,
 
-sigelis mem kun zorga energi’. 
+sigelis mem kun zorga energi’.
 
 Ne venkos brak’, atak’ al tiu ĉeI’ spirita —
 
-jes, ĉel’ el bona spec’, fortika, altkvalita. 
+jes, ĉel’ el bona spec’, fortika, altkvalita.
 
 Nun, gesinjoroj, konfidenca dir’:
 
-Vi estas la spiritoj tie en karcero, 
+Vi estas la spiritoj tie en karcero,
 
-malhelpas korkoj vin ĉe la elir’, 
+malhelpas korkoj vin ĉe la elir’,
 
-se foje volas vi eksteren — al libero. 
+se foje volas vi eksteren — al libero.
 
-En cindron bruli mi preferus mem, 
+En cindron bruli mi preferus mem,
 
-ol ke botelon oni min enfermus. 
+ol ke botelon oni min enfermus.
 
 Se Salomono de Jerusalem’
 
-27
 
 SVEDA POEMARO
 
-eLIBRO
 
 de sep provincoj la impostojn sternus
 
 je sia dekstra flank’ por tiuj, kiuj kline
 
-kaj sklave donos sin al malliber’ anime, 
+kaj sklave donos sin al malliber’ anime,
 
-maldekstre la baston’ de ĉifonul’, 
+maldekstre la baston’ de ĉifonul’,
 
-kaj dirus: ”Nun elektu\! Jen postul’\!” —
+kaj dirus: ”Nun elektu! Jen postul’!” —
 
-bastonon sen hezit’ mi prenus, kaj post danko fiere irus mi al la maldekstra flanko. 
+bastonon sen hezit’ mi prenus, kaj post danko fiere irus mi al la maldekstra flanko.
 
-28
 
 SVEDA POEMARO
 
-eLIBRO
 
 Gustaf Fröding
 
@@ -1130,75 +1051,71 @@ Idealismo kaj realismo
 
 Ektedas min la nuna skism’:
 
-la tero kontraŭ steloj. 
+la tero kontraŭ steloj.
 
-Idealism’ aŭ realism’? 
+Idealism’ aŭ realism’?
 
-Fendiĝas cerboĉeloj. 
+Fendiĝas cerboĉeloj.
 
 Nur portretitan gruzon vi
 
-belarto konsideras. 
+belarto konsideras.
 
 Sed aerhela nubvizi’
 
-ĉu ne vizie veras? 
+ĉu ne vizie veras?
 
 Jes, eĉ en pure ora tas’
 
-la feĉo — feĉo estas, 
+la feĉo — feĉo estas,
 
 kaj rozoj en fendita vaz’
 
-ja ĉiam rozoj restas. 
+ja ĉiam rozoj restas.
 
-29
 
 SVEDA POEMARO
 
-eLIBRO
 
 Gustaf Fröding
 
 Maja kanteto
 
-Printempo … Nun birdoj kantas pri nov’, 
+Printempo … Nun birdoj kantas pri nov’,
 
-esperon revekas jubiloj. 
+esperon revekas jubiloj.
 
 Mi ree en pordo — ho, milda blov’ —
 
-sed plore malklaras pupiloj. 
+sed plore malklaras pupiloj.
 
 Nun mondo ekfloras, nun ŝvebas somer’
 
-sur kamp’ kiel verda lum-ondo. 
+sur kamp’ kiel verda lum-ondo.
 
-Ho, bela la mondo, mia la ter’, 
+Ho, bela la mondo, mia la ter’,
 
-kaj mi estas filo de l’mondo\! 
+kaj mi estas filo de l’mondo!
 
-Kaj roze brilas la nub’ de maten’, 
+Kaj roze brilas la nub’ de maten’,
 
-kaj noktaj nebuloj sin levas. 
+kaj noktaj nebuloj sin levas.
 
 La mondo juniĝas pro nova ben’ —
 
-singulti en ploro mi devas. 
+singulti en ploro mi devas.
 
-Alvenas tagiĝo tro klare al mi, 
+Alvenas tagiĝo tro klare al mi,
 
-tro freŝas pro roso petalo, 
+tro freŝas pro roso petalo,
 
 tro hele vi brilas, blindiga radi’:
 
-tro ĵus mi en ombra mortvalo. 
+tro ĵus mi en ombra mortvalo.
 
-30
 
 SVEDA POEMARO
 
-eLIBRO
 
 Gustaf Fröding
 
@@ -1206,271 +1123,259 @@ Al Salem
 
 Mia koro sopiras el valo
 
-trans montojn kun nuba tegment’. 
+trans montojn kun nuba tegment’.
 
 Ho, al Salem, al reĝa tronhalo
 
-Salomona — kun aglo kaj vent’. 
+Salomona — kun aglo kaj vent’.
 
-Noktenigra kaj reĝa li estis, 
+Noktenigra kaj reĝa li estis,
 
-kun reĝeca kaj milda okul’. 
+kun reĝeca kaj milda okul’.
 
 Kiel grandaj marakvoj majestis
 
-lia voĉ’ en malhela modul’. 
+lia voĉ’ en malhela modul’.
 
 Kiel steloj ame enardis
 
-de la alto en valon, al vant’, 
+de la alto en valon, al vant’,
 
-tiel li min, sklavinon, rigardis. 
+tiel li min, sklavinon, rigardis.
 
-Ho, jes, tiel rigardas amant’. 
+Ho, jes, tiel rigardas amant’.
 
-Kaj li diris: ”Al mia animo, 
+Kaj li diris: ”Al mia animo,
 
-Matenroso, tre plaĉas ja vi, 
+Matenroso, tre plaĉas ja vi,
 
 do tuj venu al Salem sen timo
 
-kaj vivadu en Salem ĉe mi\!” 
+kaj vivadu en Salem ĉe mi!”
 
-Kaj li diris: ”Lilio en valo, 
+Kaj li diris: ”Lilio en valo,
 
-ĉu kuraĝas vi esti kun mi? 
+ĉu kuraĝas vi esti kun mi?
 
 Inter pompo kaj bril’ en tronhalo
 
-pli sentiĝas la melankoli’.” 
+pli sentiĝas la melankoli’.”
 
-31
 
 SVEDA POEMARO
 
-eLIBRO
 
-”¯is piedoj eksangos survoje, 
+”is piedoj eksangos survoje,
 
 sub tagmeza sunbrul’, tra la ŝtorm’
 
 mi iros, irados korĝoje
 
-kaj malofte ripozos en dorm’. 
+kaj malofte ripozos en dorm’.
 
 Tra dezert’, kie rabon disŝiras
 
-en kaverno la forta leon’, 
+en kaverno la forta leon’,
 
 ho, feliĉe kaj dance mi iras —
 
-volas esti ĉe vi, Salomon’\!” 
+volas esti ĉe vi, Salomon’!”
 
 Salem = Jerusalemo
 
-32
 
 SVEDA POEMARO
 
-eLIBRO
 
 Gustaf Fröding
 
 Elekto — aflikto
 
-Maljunulo kaj vidvo li estas kaj kurba, 
+Maljunulo kaj vidvo li estas kaj kurba,
 
-la servistojn li premas. Li knaras, avaras; 
+la servistojn li premas. Li knaras, avaras;
 
-se mi iĝus la lia, mi estus ja turba. 
+se mi iĝus la lia, mi estus ja turba.
 
-Kaj fi, avarulo\! Kaj fi — vi senharas …
+Kaj fi, avarulo! Kaj fi — vi senharas …
 
-Kaj infanojn li havas, ho ve\! 
+Kaj infanojn li havas, ho ve!
 
-Edziniĝi al li? Tute ne. 
+Edziniĝi al li? Tute ne.
 
-Sed se tamen mi pensas pri korto kaj greno, 
+Sed se tamen mi pensas pri korto kaj greno,
 
-pri la porkoj dikventraj, plenmamaj bovinoj, 
+pri la porkoj dikventraj, plenmamaj bovinoj,
 
-kaj pensas pri ĉiuj penego, ĉagreno, 
+kaj pensas pri ĉiuj penego, ĉagreno,
 
 kiujn havas pro vestoj kaj ŝuoj virinoj —
 
 mi cerbumas en mia mizer’:
 
-pripensinda, ĉi tiu afer’. 
+pripensinda, ĉi tiu afer’.
 
 Al alia, tre vere, mi iam promesis
 
-iĝi lia, tuj kiam li venos de l’maro. 
+iĝi lia, tuj kiam li venos de l’maro.
 
-Ho, rektdorsa li estis, ĉar riĉo ne pezis. 
+Ho, rektdorsa li estis, ĉar riĉo ne pezis.
 
 Kia juno floranta, kia bukla hararo …
 
 Mi lin amus per tuta anim’
 
-se mi havus lin en la proksim’. 
+se mi havus lin en la proksim’.
 
 Sed ne povas mi tamen ne iom pripensi
 
 la kaldronojn brilantajn, el kupra metalo
 
-— ĉu toleri viraĉon, pri li pacienci? 
+— ĉu toleri viraĉon, pri li pacienci?
 
-33
 
 SVEDA POEMARO
 
-eLIBRO
 
 Tre kaduka li estas: vidvina vualo …
 
-jes, pri tiom rezigni ja estus domaĝ’, 
+jes, pri tiom rezigni ja estus domaĝ’,
 
-vera peko, ridinda malsaĝ’. 
+vera peko, ridinda malsaĝ’.
 
 Sed pli grandas la peko, min trompe fortiri
 
-de amato fidanta, al kiu mi jesis, 
+de amato fidanta, al kiu mi jesis,
 
-kvazaŭ ŝtofon tre molan kaj karan disŝiri. 
+kvazaŭ ŝtofon tre molan kaj karan disŝiri.
 
 Mia kapo turniĝas, haltante forgesis
 
-mia kor’ sian devon pro li, 
+mia kor’ sian devon pro li,
 
 kaj plorige nun estas al mi …
 
-Hm, ĉi tiu kurbulo kun siaj teleroj. 
+Hm, ĉi tiu kurbulo kun siaj teleroj.
 
-Litkusenoj nubŝvelas, plenplenas la ŝrankoj. 
+Litkusenoj nubŝvelas, plenplenas la ŝrankoj.
 
-ŝatas ludi la pens’ per arĝentaj kuleroj, 
+ŝatas ludi la pens’ per arĝentaj kuleroj,
 
-per bovinoj kaj porkoj kaj mono en bankoj. 
+per bovinoj kaj porkoj kaj mono en bankoj.
 
-Hm, mi kredas, ke jes … Ho, mi kredas, ke jes, eĉ se estus infanoj dekses\! 
+Hm, mi kredas, ke jes … Ho, mi kredas, ke jes, eĉ se estus infanoj dekses!
 
-34
 
 SVEDA POEMARO
 
-eLIBRO
 
-Oscar Levertin \(I862-I9o6\)
+Oscar Levertin (I862-I9o6)
 
 Novjara kanteto mezepoka
 
 Staffan al ĉevaloj kvin
 
-donas trinki en jarfin’. 
+donas trinki en jarfin’.
 
-Klare jam vesperas. 
+Klare jam vesperas.
 
-Ja ordonis lin Jesu’, 
+Ja ordonis lin Jesu’,
 
 kaj surkorte akvoflu’
 
-de la Viv’ aperas. 
+de la Viv’ aperas.
 
 Noktomeze al la kort’
 
 kvin ĉevaloj de la sort’
 
-el la stalo iras. 
+el la stalo iras.
 
-Froste blua ĉielbril’. 
+Froste blua ĉielbril’.
 
 Inter etaj steloj mil
 
-luntelero brilas. 
+luntelero brilas.
 
-Jen de Amo junĉeval’, 
+Jen de Amo junĉeval’,
 
-brila kiel sun’ sur val’. 
+brila kiel sun’ sur val’.
 
-Festaj bridrimenoj\! 
+Festaj bridrimenoj!
 
-¯in ornamas florgirland’, 
+in ornamas florgirland’,
 
-selon bordas rozorand’, 
+selon bordas rozorand’,
 
-ligas orfadenoj\! 
+ligas orfadenoj!
 
 Gaje henas ĉevalin’
 
 de Feliĉo. Vestas ĝin
 
-bridoj, hufoj oraj. 
+bridoj, hufoj oraj.
 
-Revas ĝi pri fremda land’, 
+Revas ĝi pri fremda land’,
 
-35
 
 SVEDA POEMARO
 
-eLIBRO
 
 kie flamas super strand’
 
-sunoj loge foraj. 
+sunoj loge foraj.
 
 Aĉe flava, kun katen’
 
 pene, trene lamas jen
 
-la ĉeval’ Mizero. 
+la ĉeval’ Mizero.
 
 Kompatinda bestokul’
 
 lace, tra malsat-nebul’
 
-serĉas por pajlero. 
+serĉas por pajlero.
 
 Apud nuda plorsalik’
 
 la ĉevalo de Tragik’:
 
-kvara el la kvino. 
+kvara el la kvino.
 
 ŝtonrigarde, sub la drap’
 
 pendas ĝia nigra kap’
 
-en malĝoja klino. 
+en malĝoja klino.
 
 Laste — besto kun harar’
 
 griza kiel trena jar’
 
-de mizera sorto. 
+de mizera sorto.
 
 Kiel ĉerkon falas ter’
 
 premobtuze, sen esper’
 
-batas huf’ de Morto. 
+batas huf’ de Morto.
 
 Staffan al ĉevaloj kvin
 
-donas trinki en jarfin’. 
+donas trinki en jarfin’.
 
-Dolĉas akvo klara. 
+Dolĉas akvo klara.
 
 Sub ĉiela ilumin’
 
 Krist’ indulga helpu nin
 
-en la nokt’ novjara. 
+en la nokt’ novjara.
 
-36
 
 SVEDA POEMARO
 
-eLIBRO
 
 Oscar Levertin
 
@@ -1478,135 +1383,131 @@ En la juda tombejo de Praha
 
 Ne florojn metu, nek rubandojn
 
-por ostoj, lacaj pro tortur’. 
+por ostoj, lacaj pro tortur’.
 
-La vivo donis ne girlandojn, 
+La vivo donis ne girlandojn,
 
-sed ŝtonojn. — ŝtonojn metu nur\! 
+sed ŝtonojn. — ŝtonojn metu nur!
 
 Praavoj same … Ilin lasis
 
-ne kruda man’, nek vunda vort’, 
+ne kruda man’, nek vunda vort’,
 
 dum la jarcentoj ombre pasis
 
-en ŝlima, judkvartala sort’. 
+en ŝlima, judkvartala sort’.
 
-Ho, kie hom’ post vago dorna, 
+Ho, kie hom’ post vago dorna,
 
 senhejma, peza de dolor’
 
 ripozas en mortpaco dorma
 
-post akra moko, multa plor’, 
+post akra moko, multa plor’,
 
-ho, tie estus flor’ — profano; 
+ho, tie estus flor’ — profano;
 
-ne moku pacon bela tromp’. 
+ne moku pacon bela tromp’.
 
-Ne florojn metu ama mano, 
+Ne florojn metu ama mano,
 
-sed ŝtonojn. ŝtonojn al la tomb’\! 
+sed ŝtonojn. ŝtonojn al la tomb’!
 
-37
 
 SVEDA POEMARO
 
-eLIBRO
 
 Oscar Levertin
 
 Sonĝo pri tero kaj ventoj
 
-\(El ”Reĝo Salomono kaj MoroIf”\)
+(El ”Reĝo Salomono kaj MoroIf”)
 
-Levu ĉielen min, ventoj\! 
+Levu ĉielen min, ventoj!
 
 Peza sonĝo. La palpebra
 
-ŝarĝo estas tro giganta. 
+ŝarĝo estas tro giganta.
 
 Salomon’ en tol’ funebra
 
-venis el la vivo vanta. 
+venis el la vivo vanta.
 
-Tero fine ĉion prenas, 
+Tero fine ĉion prenas,
 
-tere kreskis ĉies ĝermoj. 
+tere kreskis ĉies ĝermoj.
 
 Evidente mi alvenas
 
-jam dumvive al la vermoj. 
+jam dumvive al la vermoj.
 
-Levu ĉielen min, ventoj\! 
+Levu ĉielen min, ventoj!
 
-El la mallumo min levu\! 
+El la mallumo min levu!
 
 Svenis fingroj, kiuj ŝutis
 
-en la tutsenfundan kribron, 
+en la tutsenfundan kribron,
 
-vivoligoj sin amputis, 
+vivoligoj sin amputis,
 
-perdis mi la ekvilibron. 
+perdis mi la ekvilibron.
 
 Brilkoloroj okulbataj
 
-en morthoro pale nulis, 
+en morthoro pale nulis,
 
 kaj vizaĝoj tre amataj
 
-neniiĝis, fornebulis. 
+neniiĝis, fornebulis.
 
-El la mallumo min levu\! 
+El la mallumo min levu!
 
-38
 
 SVEDA POEMARO
 
-eLIBRO
 
-Portu min, vent’, orienten\! 
+Portu min, vent’, orienten!
 
 El la sunnebulo flava
 
-venis la homgenta ĉeno, 
+venis la homgenta ĉeno,
 
-el mia lando\* Edenrava, 
+el mia lando* Edenrava,
 
-dezertbrula … Sun’\! Mateno\! 
+dezertbrula … Sun’! Mateno!
 
 Tie sin la nokt’ spegulas
 
-en la font’ de l’saĝ-trezoro, 
+en la font’ de l’saĝ-trezoro,
 
 kaj mallumokule brulas
 
-kre-fervoro, kre-doloro. 
+kre-fervoro, kre-doloro.
 
-Portu min, vent’, orienten\! 
+Portu min, vent’, orienten!
 
-Portu min, vent’, okcidenten\! 
+Portu min, vent’, okcidenten!
 
-Lando de l’sopir’. Susura, 
+Lando de l’sopir’. Susura,
 
 kun aera nuancriĉo …
 
-Por la hom’ haven’ sekura, 
+Por la hom’ haven’ sekura,
 
-hejma paco kaj feliĉo. 
+hejma paco kaj feliĉo.
 
-Laŭte sonas, venksignale, 
+Laŭte sonas, venksignale,
 
-vortoj, voloj, voĉohelo. 
+vortoj, voloj, voĉohelo.
 
 Pri estonto brilas ŝtale
 
-okulbluo, mar’, ĉielo. 
+okulbluo, mar’, ĉielo.
 
-Portu min, vent’, okcidenten\! 
+Portu min, vent’, okcidenten!
 
-Montru al mi ree la mondon\! 
+Montru al mi ree la mondon!
 
 Ho, sopiras mi intense
 
@@ -1616,49 +1517,45 @@ Mi adiaŭ ĉiusense
 
 dirus al la bela tuto:
 
-floro, frukt’, virina sino, 
+floro, frukt’, virina sino,
 
-\* La aŭtoro estis de juda deveno. 
+* La aŭtoro estis de juda deveno.
 
-39
 
 SVEDA POEMARO
 
-eLIBRO
 
-de la akvogut’ brileto, 
+de la akvogut’ brileto,
 
-greno en matura klino, 
+greno en matura klino,
 
 altaj arboj en kvieto …
 
-Montru al mi ree la mondon\! 
+Montru al mi ree la mondon!
 
 Poste pretigu denove
 
-por Salomono kameron. 
+por Salomono kameron.
 
 Al deziroj, revoj, pensoj
 
-vi aspergu pezan teron. 
+vi aspergu pezan teron.
 
-Lace dormos miaj sensoj. 
+Lace dormos miaj sensoj.
 
-Tero sur la man’ dolora, 
+Tero sur la man’ dolora,
 
-ne trovinta pacon en la ĝuo tindra. 
+ne trovinta pacon en la ĝuo tindra.
 
-Tero sur okulo plora. 
+Tero sur okulo plora.
 
-Tero sur la koro cindra. 
+Tero sur la koro cindra.
 
-Kovru per tero min, ventoj. 
+Kovru per tero min, ventoj.
 
-40
 
 SVEDA POEMARO
 
-eLIBRO
 
 Oscar Levertin
 
@@ -1670,69 +1567,67 @@ En la malnova ˛orkapel’
 
 tili’ en somermeza bel’
 
-almuras florfolie, 
+almuras florfolie,
 
-ni kuŝas en skulptita griz’, 
+ni kuŝas en skulptita griz’,
 
-mi kun la sole kara, 
+mi kun la sole kara,
 
 ĉe kor’ la kor’, en ŝtona ĉiz’ —
 
-dormeto jam centjara. 
+dormeto jam centjara.
 
-Ni amis, ludis, ŝi kaj mi, 
+Ni amis, ludis, ŝi kaj mi,
 
-rikoltis grenon pace, 
+rikoltis grenon pace,
 
 ĝis iam, marte, sidis ni
 
-kaj sentis aĝon lace. 
+kaj sentis aĝon lace.
 
 Elfluis el la vitra kav’
 
-la sablo de montrilo, 
+la sablo de montrilo,
 
-el mia mano falis glav’, 
+el mia mano falis glav’,
 
-el ŝia la kudrilo. 
+el ŝia la kudrilo.
 
 Ankoraŭ floras en kastel’
 
 — ho, nestis ni sekure —
 
-fenestra balzamin’. Prunel’, 
+fenestra balzamin’. Prunel’,
 
-sambuko ekstermure. 
+sambuko ekstermure.
 
 ĉe nia vojo de amsol’
 
-purpuras la diantoj, 
+purpuras la diantoj,
 
-41
 
 SVEDA POEMARO
 
-eLIBRO
 
 kaj sonas inter la lupol’
 
-ankoraŭ junaj kantoj. 
+ankoraŭ junaj kantoj.
 
-De l’vivobruo, ĝuo for, 
+De l’vivobruo, ĝuo for,
 
-ĉi tie, kar-intime, 
+ĉi tie, kar-intime,
 
 dormetas ni. ĉe mia kor’
 
-la glavo tre proksime. 
+la glavo tre proksime.
 
 Sin klinas al kirasmanik’
 
-rompita ŝildblazono. 
+rompita ŝildblazono.
 
-ŝi — kun la Skribo sur tunik’, 
+ŝi — kun la Skribo sur tunik’,
 
-lilio ĉe la zono. 
+lilio ĉe la zono.
 
 Ke al Kreinto estu laŭd’
 
@@ -1740,153 +1635,147 @@ sub niaj du statuoj
 
 riveras en ĉizita plaŭd’
 
-la Paradizaj fluoj. 
+la Paradizaj fluoj.
 
 Kaj kiel bele el la urn’
 
 elglitas ili kvare:
 
-facila tint’, ludanta turn’, 
+facila tint’, ludanta turn’,
 
-trankvile, somerklare. 
+trankvile, somerklare.
 
 Sed inter ondoj la radik’
 
-de Jiŝaj verdas glore, 
+de Jiŝaj verdas glore,
 
 terglobon ĝia branĉimplik’
 
-priombras tre favore. 
+priombras tre favore.
 
 Folioj oraj, berfeston’:
 
-homsortoj en granito, 
+homsortoj en granito,
 
 kaj ĉiam alten sin la kron’
 
-etendas al zenito. 
+etendas al zenito.
 
-42
 
 SVEDA POEMARO
 
-eLIBRO
 
 Oscar Levertin
 
-El ”La gepatra lingvo” 
+El ”La gepatra lingvo”
 
 Lingvo gepatra, arbsusur’
 
-ĉiam nova, ŝanĝama, 
+ĉiam nova, ŝanĝama,
 
-kanto suntrila, noktmurmur, 
+kanto suntrila, noktmurmur,
 
-tamen unu kaj sama. 
+tamen unu kaj sama.
 
 Movas foliojn de granda kron’
 
-vi por komuna muziko. 
+vi por komuna muziko.
 
 Sentas ili je ĉiu ton’:
 
-unu la nutra radiko. 
+unu la nutra radiko.
 
-De la popolo vivanta spir’, 
+De la popolo vivanta spir’,
 
-varma pro peno, espero, 
+varma pro peno, espero,
 
 ĉeno liganta dum longa ir’
 
-gentojn en ĝojo, sufero. 
+gentojn en ĝojo, sufero.
 
 Post sia morto batas per vi
 
-daŭre koroj plej grandaj. 
+daŭre koroj plej grandaj.
 
-Aŭdu\! Eąs miloble al ni
+Aŭdu! Eąs miloble al ni
 
-tempoj de longe dormantaj. 
+tempoj de longe dormantaj.
 
 Fonto juneca, font’ de mister’ —
 
-onde spegulas sin vanto, 
+onde spegulas sin vanto,
 
 virto, popolkarakter’
 
-ĉie en sveda lando. 
+ĉie en sveda lando.
 
-Lingvo\! Ho, umbilika ligil’
+Lingvo! Ho, umbilika ligil’
 
-funden al tera sino, 
+funden al tera sino,
 
-kant’ unua ĉe la lulil’, 
+kant’ unua ĉe la lulil’,
 
-lasta spir’ en la fino\! 
+lasta spir’ en la fino!
 
-43
 
 SVEDA POEMARO
 
-eLIBRO
 
-Erik Axel Karlfeldt \(1864-1931\)
+Erik Axel Karlfeldt (1864-1931)
 
 Virgulino Maria
 
-ŝi venas tie sur herbej’ en flu’ de bonodor’, dalekarlia junulin’ kun haŭt’ de migdalflor’,\*
+ŝi venas tie sur herbej’ en flu’ de bonodor’, dalekarlia junulin’ kun haŭt’ de migdalflor’,*
 
-jes, kiel roz’ kaj migdalflor’ el iu pura for’, en kiu ne pied’, nek polv’ makulas. 
+jes, kiel roz’ kaj migdalflor’ el iu pura for’, en kiu ne pied’, nek polv’ makulas.
 
-Sur kiu vojo migris vi, ke ne brunigis sun’? 
+Sur kiu vojo migris vi, ke ne brunigis sun’?
 
-Maria, kion revis vi interne dum la jun’, 
+Maria, kion revis vi interne dum la jun’,
 
-ke via sang’ ne kiel nia brulas? 
+ke via sang’ ne kiel nia brulas?
 
-Hararo via lumas de mirinde milda bril’, 
+Hararo via lumas de mirinde milda bril’,
 
-la frunt’ similas arkon de la luno, 
+la frunt’ similas arkon de la luno,
 
-iranta tie super Berg’\*\* kun blanko kaj humil’, dum junarabaron trafluetas lumo. 
+iranta tie super Berg’** kun blanko kaj humil’, dum junarabaron trafluetas lumo.
 
 Nun ludas freŝa vespervent’ kun la akvilegi’
 
-kaj pacan sanktvesperon jen lulsignas la lili’, ne venas bleko de kaprid’, de la ĉeval’ ne kri’, ne eta pepo el birdnesto mola. 
+kaj pacan sanktvesperon jen lulsignas la lili’, ne venas bleko de kaprid’, de la ĉeval’ ne kri’, ne eta pepo el birdnesto mola.
 
-Nun iras en Dalekarli’ junul’ kun junulin’, 
+Nun iras en Dalekarli’ junul’ kun junulin’,
 
 ja elektita estas vi, kaj ĉiuj volas vin:
 
-pri kio do vi pensas tiel sola? 
+pri kio do vi pensas tiel sola?
 
 Vi iras, kvazaŭ junulin’ de l’sankta komuni’: ŝi volas en printempa noktsilento
 
-\* Migdalfloro oni nornas en Svedujo la vegetaĵon Saxifraga granulata. 
+* Migdalfloro oni nornas en Svedujo la vegetaĵon Saxifraga granulata.
 
-\*\* vilaĝo en Dalekarlio. 
+** vilaĝo en Dalekarlio.
 
-44
 
 SVEDA POEMARO
 
-eLIBRO
 
 maldormi, kaj kun trema kor’ mediti volas ŝi
 
-pri sankta vort’, mistera sakramento. 
+pri sankta vort’, mistera sakramento.
 
-Revenu, ho Maria, jam alvenas la vesper’, 
+Revenu, ho Maria, jam alvenas la vesper’,
 
-ĉagrenon sentas la patrin, ŝi timos pri danĝer’. 
+ĉagrenon sentas la patrin, ŝi timos pri danĝer’.
 
-Vi eta, delikata — junsaliko ĉe river’, 
+Vi eta, delikata — junsaliko ĉe river’,
 
-arbare pasas urso sangavida. 
+arbare pasas urso sangavida.
 
-Anĝel’ alportis rozon, kiun tenas vi kun dign’, el sankta bedo venis ĝi por esti la insign’, 
+Anĝel’ alportis rozon, kiun tenas vi kun dign’, el sankta bedo venis ĝi por esti la insign’,
 
-ne vundas dornoj, nek serpent’ insida. 
+ne vundas dornoj, nek serpent’ insida.
 
 Kaj de la vesperruĝa hejm’ la lasta sunradi’
 
@@ -1894,19 +1783,17 @@ jen transas Siljan longe, mire brila —
 
 nun povus iri fianĉin’ al Paradizo vi
 
-sur tiu ponto trema kaj gracila. 
+sur tiu ponto trema kaj gracila.
 
 Klarigo pri la supra kaj sekva poemoj
 
-Por ornami la murojn de siaj ĉambroj, precipe ĉe festaj aranĝoj, la kamparanoj pendigis bildojn pentritajn sur tolo aŭ kartono. La kamparaj pentristoj prenis ĉefe siajn motivojn el bibliaj ilustraĵoj, sed naive translokigis ilin al la hejma pejzaĝo kaj enmetis detalojn el sveda kampara vivo, kio donas tute novan poezian freŝecon al la bildserioj. 
+Por ornami la murojn de siaj ĉambroj, precipe ĉe festaj aranĝoj, la kamparanoj pendigis bildojn pentritajn sur tolo aŭ kartono. La kamparaj pentristoj prenis ĉefe siajn motivojn el bibliaj ilustraĵoj, sed naive translokigis ilin al la hejma pejzaĝo kaj enmetis detalojn el sveda kampara vivo, kio donas tute novan poezian freŝecon al la bildserioj.
 
-Karlfeldt, filo de Dalekarlio, jam de sia infanaĝo lernis ĝuste kompreni kaj ŝati tiun specialan artoformon, kiu inspiris lin al kelkaj plej belaj poemoj. Li sukcesis redoni la naivecon de la religia sento tiel bone, ke la leganto volonte lasas sin kapti de, ekzemple, la grandiozo kaj bonhumoro de Elija ĉielveturo kaj la senlime etera personeco de Virgulino Maria. 
+Karlfeldt, filo de Dalekarlio, jam de sia infanaĝo lernis ĝuste kompreni kaj ŝati tiun specialan artoformon, kiu inspiris lin al kelkaj plej belaj poemoj. Li sukcesis redoni la naivecon de la religia sento tiel bone, ke la leganto volonte lasas sin kapti de, ekzemple, la grandiozo kaj bonhumoro de Elija ĉielveturo kaj la senlime etera personeco de Virgulino Maria.
 
-45
 
 SVEDA POEMARO
 
-eLIBRO
 
 Erik Axel Karlfeldt
 
@@ -1916,109 +1803,106 @@ Jen veturas ja Elija al la regno de l’ĉiel’
 
 — nove brilas la kaleŝo tra la bIu’ —
 
-pelto sure, vip’ en mano kaj festena la ĉapel’, ombrelego sin apogas al genu’. 
+pelto sure, vip’ en mano kaj festena la ĉapel’, ombrelego sin apogas al genu’.
 
 Digna estas la mieno: ja veturas li de l’val’
 
-al plej alta tribunal’ en ĉielland’. 
+al plej alta tribunal’ en ĉielland’.
 
 Lin alvokis la Juĝisto: ”Sidu vi en mia hal’
 
-kiel mia elektita konsilant’.” 
+kiel mia elektita konsilant’.”
 
 ĵus la veturil’ rapidis tra la nuboj kaj aer’
 
-kun sciigo de la Reĝo pri ekir’. 
+kun sciigo de la Reĝo pri ekir’.
 
-”Vaste famas via saĝo. Tuj veturu de la ter’, mi bezonas vin ĉi supre, brava vir’.” 
+”Vaste famas via saĝo. Tuj veturu de la ter’, mi bezonas vin ĉi supre, brava vir’.”
 
 Kaj nun supren la kaleŝo. Trans la veturila rand’
 
-larĝa mano salutsignas al la ter’. 
+larĝa mano salutsignas al la ter’.
 
-Sub la radoj kuŝas parto de l’amata Valaland’, kiu sonĝas sub mantel’ de konifer’. 
+Sub la radoj kuŝas parto de l’amata Valaland’, kiu sonĝas sub mantel’ de konifer’.
 
 Jen ekbrilas grandaj lagoj. Kiel borda garnitur’
 
-buntvestite floras vigla virinar’, 
+buntvestite floras vigla virinar’,
 
 kaj knabetoj gapas supren al la stranga nubvetur’: 46
 
 SVEDA POEMARO
 
-eLIBRO
 
-”Kien hastas najbaronklo per la ĉar’?” 
+”Kien hastas najbaronklo per la ĉar’?”
 
-Jen de Leksand la preĝejo\! En la bulbsimila tur’
+Jen de Leksand la preĝejo! En la bulbsimila tur’
 
-ludas Falu-sonoriloj por solen’,\*
+ludas Falu-sonoriloj por solen’,*
 
 kaj veturas la Sanktulo dum ĉi alta uvertur’
 
-al muziko de eterna la orgen’. 
+al muziko de eterna la orgen’.
 
 Kiam sidos vi, Elija, ĉe la tablo apud Li
 
-super homa misvagado, tera van’, 
+super homa misvagado, tera van’,
 
-en orelon de l’Juĝisto tre mildige flustru vi, ni malsatas — ho petegu Lin pri pan’\! 
+en orelon de l’Juĝisto tre mildige flustru vi, ni malsatas — ho petegu Lin pri pan’!
 
-Suno glitas nun en Siljan\*\*, sed en noktonigra hor’
+Suno glitas nun en Siljan**, sed en noktonigra hor’
 
-la profeto tamen iras kun trankvil’, 
+la profeto tamen iras kun trankvil’,
 
 ĉar amikajn lanternetojn nia bona Di-Sinjor’
 
-metis are pro gastamo kaj ĝentil’. 
+metis are pro gastamo kaj ĝentil’.
 
 Fore en la spac’ dezerta, Hund’ ululas tra silent’
 
-kaj minace embuskadas la Skorpi’, 
+kaj minace embuskadas la Skorpi’,
 
-nestas tie Grand-Ursino kaj Leono kaj Serpent’, sed sekure la ĉevalojn ŝirmas Di’. 
+nestas tie Grand-Ursino kaj Leono kaj Serpent’, sed sekure la ĉevalojn ŝirmas Di’.
 
 Fajro sub la ĉevalhufo — ŝprucas fajr’ el nazotru’ —
 
 kaj galope ili kuras tra la spac’
 
-fine al Stela Vojo, la orarba avenu’, 
+fine al Stela Vojo, la orarba avenu’,
 
-kondukanta al la brila Di-palac’. 
+kondukanta al la brila Di-palac’.
 
 Al ŝtuparo nun elvenas Lia Dia Grandsinjor’:
 
-”Bonvenegon; nun eniru do, profet’\!” 
+”Bonvenegon; nun eniru do, profet’!”
 
 Kaj stalknabo alvokita — jen ruĝvanga pro fervor’
 
-gvidas nun ĉevalojn ŝvitajn al kampet’. 
+gvidas nun ĉevalojn ŝvitajn al kampet’.
 
-\* La kupron por la sonoriloj oni elminis en Falun. 
+* La kupron por la sonoriloj oni elminis en Falun.
 
-\*\* Granda lago en Dalekarlio. 
+** Granda lago en Dalekarlio.
 
-47
 
 SVEDA POEMARO
 
-eLIBRO
 
 Erik Axel Karlfeldt
 
 Temp’ atenda
 
-Temp’ atenda, pleje bona, 
+Temp’ atenda, pleje bona,
 
-tempo ĝerma kaj burĝona, 
+tempo ĝerma kaj burĝona,
 
 ne superas maj’ sundrona
 
-helpromeson de april’. 
+helpromeson de april’.
 
 Iri en arbaro vasta
 
-sur la vojglacio lasta, 
+sur la vojglacio lasta,
 
 senti pluvodorojn mil …
 
@@ -2028,17 +1912,17 @@ mi por eta fruherbero
 
 en deklivo ĉe rivero
 
-kaj l’unua turdotril’. 
+kaj l’unua turdotril’.
 
-Temp’ atenda, temp’ aspira, 
+Temp’ atenda, temp’ aspira,
 
-gefianĉa, vivsopira, 
+gefianĉa, vivsopira,
 
 pli ol la printemp’ jubila
 
-ĉarmas amsekret’ en kor’. 
+ĉarmas amsekret’ en kor’.
 
-Renkontiĝi, tuj disiri, 
+Renkontiĝi, tuj disiri,
 
 al danĝera dolĉ’ sopiri
 
@@ -2046,73 +1930,69 @@ kun timeme trema kor’…
 
 Fruktoj por aliaj oros —
 
-mi en rev’ atendi volos, 
+mi en rev’ atendi volos,
 
 en Eden’ maldorma solos
 
-sub la ekburĝona flor’. 
+sub la ekburĝona flor’.
 
-48
 
 SVEDA POEMARO
 
-eLIBRO
 
 Erik Axel Karlfeldt
 
-Poemo ĉe la soleno de la Sveda Akademio, 
+Poemo ĉe la soleno de la Sveda Akademio,
 
 aŭtune 1929
 
 Peliĝas ŝtormrapide temp’
 
-samkiel nubo, fum’; 
+samkiel nubo, fum’;
 
 ekflamon blondan de l’printemp’
 
-estingas tuj aŭtun’. 
+estingas tuj aŭtun’.
 
 De l’somerflor’ —
 
-nur velka spur’, 
+nur velka spur’,
 
-sed dankas ni, ho jar’, 
+sed dankas ni, ho jar’,
 
 se donis vi eĉ rozon nur
 
-por ĉerko en tombar’. 
+por ĉerko en tombar’.
 
 Psaltero, liro ludu
 
-dum peza penoprem’, 
+dum peza penoprem’,
 
 ĉiame nin apudu
 
-la amo al poem’. 
+la amo al poem’.
 
 Plensonu viv’ fulmkura:
 
-jen vent’ herbejsusura, 
+jen vent’ herbejsusura,
 
-jen mar’ en ŝtorma trem’. 
+jen mar’ en ŝtorma trem’.
 
 En hejmintim’ satigu nin
 
-la bona, simpla pan’. 
+la bona, simpla pan’.
 
 Amanta sin’ konsolu nin
 
-dum sortouragan’. 
+dum sortouragan’.
 
 ĉe vivofin’ kred’ gvidu nin
 
-tra mortoocean’. 
+tra mortoocean’.
 
-49
 
 SVEDA POEMARO
 
-eLIBRO
 
 Erik Axel Karlfeldt
 
@@ -2120,29 +2000,29 @@ Malsano
 
 Glitvelas mi al fora land’
 
-al fora land’. 
+al fora land’.
 
-Lumtur’ ekbrilas al mi. 
+Lumtur’ ekbrilas al mi.
 
-Popolo tie sur la strand’, 
+Popolo tie sur la strand’,
 
-parolas fremde ĝi. 
+parolas fremde ĝi.
 
-Nun oni min gvidas al granda hal’, 
+Nun oni min gvidas al granda hal’,
 
-ornamas ĝin ruĝo kaj or’. 
+ornamas ĝin ruĝo kaj or’.
 
-Sed forte siblas la vent’ tra portal’, 
+Sed forte siblas la vent’ tra portal’,
 
-malvarmas animo kaj kor’. 
+malvarmas animo kaj kor’.
 
 Ho, kial en nokto malfrua
 
-nun lasas min ĉiuj en sol’? 
+nun lasas min ĉiuj en sol’?
 
 Mi kuŝas en timo skua
 
-kaj frostas tra ostoj, medol’. 
+kaj frostas tra ostoj, medol’.
 
 Okuloj lace ektrovas
 
@@ -2150,87 +2030,73 @@ kuŝantan sfinkson: jen
 
 ŝi mole stariĝas … sin ŝovas
 
-katmove al mia kusen’. 
+katmove al mia kusen’.
 
-\* \*
-
-\*
-
-50
 
 SVEDA POEMARO
 
-eLIBRO
 
-Sin kaŝas en brusto sopiro. 
+Sin kaŝas en brusto sopiro.
 
-Sed kio do tiras ĝin? 
+Sed kio do tiras ĝin?
 
-Ne verda hejmlando de l’homoj, 
+Ne verda hejmlando de l’homoj,
 
-nek lando trans nuba lim’. 
+nek lando trans nuba lim’.
 
-Ne logas la vivobruo, 
+Ne logas la vivobruo,
 
-al tombo ne tiras la em’, 
+al tombo ne tiras la em’,
 
 ĝi vagas libere, sengvide:
 
-sopir’ pro sopiro mem. 
+sopir’ pro sopiro mem.
 
-\* \*
 
-\*
+Sur tablo jen keiranto,
 
-Sur tablo jen keiranto, 
-
-kaj blanka azale’. 
+kaj blanka azale’.
 
 ĉe lit’ virina fleganto
 
-maldormatentas tre. 
+maldormatentas tre.
 
 Memoras mi infanaĝon:
 
-Morbilo. Lita mol’. 
+Morbilo. Lita mol’.
 
 Vekiĝi, vidi vizaĝon —
 
-sekuro kaj konsol’. 
+sekuro kaj konsol’.
 
-Nun dormi dolĉe estos, 
+Nun dormi dolĉe estos,
 
-ĝis sunos sur la kort’, 
+ĝis sunos sur la kort’,
 
-Ho, Panjo, vi ja restos. 
+Ho, Panjo, vi ja restos.
 
-Sed — vin ja prenis Mort’? 
+Sed — vin ja prenis Mort’?
 
-ĉiel’ nun falas, tremas ter’, 
+ĉiel’ nun falas, tremas ter’,
 
 sed restas firma fort’:
 
 mi vorton aŭdis de mister’
 
-ĉe la mirinda pord’. 
+ĉe la mirinda pord’.
 
-51
 
 SVEDA POEMARO
 
-eLIBRO
 
 Se dronos en bruo sur viva voj’
 
-la tono el trans la konsci’, 
+la tono el trans la konsci’,
 
-mi tamen memoros ĝis dua foj’, 
+mi tamen memoros ĝis dua foj’,
 
-kiome da amo en ĝi. 
+kiome da amo en ĝi.
 
-\* \*
-
-\*
 
 Muzikas elmonte por mi en la sol’
 
@@ -2240,39 +2106,34 @@ Nun — voĉo klara, kun dolĉa sordin’:
 
 Ho, restu, vi kara, ne lasu nin …
 
-Okulojn malfermis mi lace, kun pen’. 
+Okulojn malfermis mi lace, kun pen’.
 
-Do hejme. Ne fremda pejzaĝ’. 
+Do hejme. Ne fremda pejzaĝ’.
 
 Sonoris ja paskon. ĉe mia kusen’
 
-plortrema infanvizaĝ’. 
+plortrema infanvizaĝ’.
 
-\* \*
 
-\*
+Mi rajtas resti kaj restos vole,
 
-Mi rajtas resti kaj restos vole, 
-
-sed kiom kare mi devas pagi\! 
+sed kiom kare mi devas pagi!
 
 Al mi vidiĝas, ne plu simbole:
 
-jen novaj jaroj por penti, agi. 
+jen novaj jaroj por penti, agi.
 
-Mi ne matura, ne inda estis. 
+Mi ne matura, ne inda estis.
 
-Sufer’ sufiĉis kaj ĝu’ ĝisfunda, 
+Sufer’ sufiĉis kaj ĝu’ ĝisfunda,
 
 sed por pretiĝo afero restis:
 
-feliĉon krei el kulp’ abunda. 
+feliĉon krei el kulp’ abunda.
 
-52
 
 SVEDA POEMARO
 
-eLIBRO
 
 Erik Axel Karlfeldt
 
@@ -2280,11 +2141,11 @@ Nigra Rudolfo
 
 Kaj Nigra Rudolfo nun dancas
 
-kapkline kun gaja mien’. 
+kapkline kun gaja mien’.
 
 Li pensas pri noktoj ebriaj
 
-en la amsterdama haven’. 
+en la amsterdama haven’.
 
 Li revas: knabinoj balancas
 
@@ -2292,15 +2153,15 @@ florkronojn kaj ŝvebas nun
 
 la brunaj piedoj graciaj
 
-sub lumo de Samoa-lun’. 
+sub lumo de Samoa-lun’.
 
-En Roslaga valso flugire, 
+En Roslaga valso flugire,
 
-reveme li klinas sin. 
+reveme li klinas sin.
 
 Li same en bosko suspire
 
-brakumis kun ĉilianin’, 
+brakumis kun ĉilianin’,
 
 kaj tiel la verto krisphara
 
@@ -2308,303 +2169,289 @@ sin klinis en negrovilaĝ’
 
 al eta princin’ dektrijara
 
-kun ebononigra vizag’. 
+kun ebononigra vizag’.
 
 En Málaga dancis li same
 
-sur vinmakulita marbord’. 
+sur vinmakulita marbord’.
 
-Rozvanga knabino nun tremas, 
+Rozvanga knabino nun tremas,
 
-logita, venkita, sen fort’. 
+logita, venkita, sen fort’.
 
 Pro dono kaj preno ŝi ĝemas
 
-brakume de forta la vir’. 
+brakume de forta la vir’.
 
 En foro Baltmara aklame
 
-respondas per muĝa ekspir’. 
+respondas per muĝa ekspir’.
 
-53
 
 SVEDA POEMARO
 
-eLIBRO
 
-Per Hallström \(1866–1960\)
+Per Hallström (1866–1960)
 
 Kanto pri la tero
 
 Maria en Paradizo —
 
-ŝi kantis, kaj tenis sin ĉiu ekspir’, 
+ŝi kantis, kaj tenis sin ĉiu ekspir’,
 
-silentis ravite la gaja ventlud’, 
+silentis ravite la gaja ventlud’,
 
-aŭskultis ĉelipe zefir’. 
+aŭskultis ĉelipe zefir’.
 
 Maria en Paradizo —
 
-ne pasis tie trans sojlon dolor’, 
+ne pasis tie trans sojlon dolor’,
 
 malpezis kiel la luma aer’
 
-pro ĝoj’ ĉiu sankta kor’. 
+pro ĝoj’ ĉiu sankta kor’.
 
 Ne venis timo proksimen:
 
-revemaj anĝeloj gardis ĉe l’mur’. 
+revemaj anĝeloj gardis ĉe l’mur’.
 
 Kaj fruktoj ruĝis sen tuŝo de man’
 
-en pompo de plena matur’. 
+en pompo de plena matur’.
 
 Maria en Paradizo —
 
-la vortoj similis al tinta arĝent’, 
+la vortoj similis al tinta arĝent’,
 
 kiam pri hejmo sur fora la ter’
 
 ŝi kantis tra la silent’:
 
-”Orienten ĝi havis pordon, 
+”Orienten ĝi havis pordon,
 
-tra kiu flamis matena sun’, 
+tra kiu flamis matena sun’,
 
 kaj al okcidento fenestron:
 
-forpalis tie la lum’; 
+forpalis tie la lum’;
 
-54
 
 SVEDA POEMARO
 
-eLIBRO
 
-ĝi havis ujon por fajro, 
+ĝi havis ujon por fajro,
 
-la karboj kunfalis ĉe grila son’; 
+la karboj kunfalis ĉe grila son’;
 
 ĝi havis kuŝejon, sin fermis
 
-okuloj en dorma dron’; 
+okuloj en dorma dron’;
 
-ĝi havis surkorte salikon; 
+ĝi havis surkorte salikon;
 
-printempe ĝin vestis tulo el or’, 
+printempe ĝin vestis tulo el or’,
 
-kiu falis aŭtune kiel mantel’, 
+kiu falis aŭtune kiel mantel’,
 
-revenis maje kun glor’.” 
+revenis maje kun glor’.”
 
 Maria en Paradizo
 
-mallaŭte finis, rigardis kun varm’. 
+mallaŭte finis, rigardis kun varm’.
 
 Kaj en virgulina, beata la rond’
 
-ne estis okulo sen larm’. 
+ne estis okulo sen larm’.
 
 Veronika flustris mallaŭte:
 
-”Mi havis fratinon kun rida tril’.” 
+”Mi havis fratinon kun rida tril’.”
 
 Aŭrélia plektis la manojn:
 
-”Mi havis suferojn mil.” 
+”Mi havis suferojn mil.”
 
 Reveme Margreta memoras:
 
-”Mi — viron … sopire min amis li.” 
+”Mi — viron … sopire min amis li.”
 
 Cecilia en pala ekstazo:
 
-”Mi havis sopiron al Di’.-” 
+”Mi havis sopiron al Di’.-”
 
 Kaj kiel skuas la vento
 
-el heĝo malseka la gutojn for, 
+el heĝo malseka la gutojn for,
 
 nun fluis sur vangojn palajn
 
 kun duboj, demandoj, la plor’:
 
-55
 
 SVEDA POEMARO
 
-eLIBRO
 
 ”ĉu la koro ne flamas plej varme
 
-sur tero — en ĝojo, mizero, malfort’? 
+sur tero — en ĝojo, mizero, malfort’?
 
 ĉu ne pleje brilas la revo
 
-sur fono de nokto kaj mort’? 
+sur fono de nokto kaj mort’?
 
 ĉu peko, ke daŭre ligas
 
-la koron surtera malbel’? 
+la koron surtera malbel’?
 
 ĉu ne la ĉielo en nia sopir’
 
-pli veris ol tiu ĉiel’?” 
+pli veris ol tiu ĉiel’?”
 
 Maria alklinis sin ame —
 
-la vortoj similis al tinta arĝent’, 
+la vortoj similis al tinta arĝent’,
 
-dum lule ŝi kantis pri l’hejmo sur’ ter’, 
+dum lule ŝi kantis pri l’hejmo sur’ ter’,
 
-ke ĉesu ilia lament’. 
+ke ĉesu ilia lament’.
 
-”Sub noktaj steloj,” ŝi kantis, 
+”Sub noktaj steloj,” ŝi kantis,
 
-”ankoraŭ oni revas sur ter’, 
+”ankoraŭ oni revas sur ter’,
 
-kaj floroj svenas aŭtune pro frost’, 
+kaj floroj svenas aŭtune pro frost’,
 
-vekiĝas en maja aer’.” 
+vekiĝas en maja aer’.”
 
-”Sub noktaj steloj,” ŝi kantis, 
+”Sub noktaj steloj,” ŝi kantis,
 
-”povas ĉion brakumi mizera kor’, 
+”povas ĉion brakumi mizera kor’,
 
-kaj aŭdu, kiel belsonas la kord’, 
+kaj aŭdu, kiel belsonas la kord’,
 
-se ludas ĝin morto, dolor’\!” 
+se ludas ĝin morto, dolor’!”
 
-56
 
 SVEDA POEMARO
 
-eLIBRO
 
-Bo Bergman \(1869–1967\)
+Bo Bergman (1869–1967)
 
 Adaĝo
 
-Ond’ moviĝas, vent’ muzikas, 
+Ond’ moviĝas, vent’ muzikas,
 
-ondo, vent’ karesas sin. 
+ondo, vent’ karesas sin.
 
-Post l’arbaro, ornuance, 
+Post l’arbaro, ornuance,
 
 mar’ sekala ondbalance
 
-lulas sin. 
+lulas sin.
 
 Vi nur mankas; kor’ indikas
 
-tion per malema mov’. 
+tion per malema mov’.
 
 Min en dormon enmuzikas
 
-milde mola blov’. 
+milde mola blov’.
 
 Nuboj naĝas jen ventpele:
 
-cignoj sur la ĉiellag’, 
+cignoj sur la ĉiellag’,
 
 sed silentas ili glite:
 
 cignoj kantas nur trafite
 
-de la sag’. 
+de la sag’.
 
-Vundis vojo min kruele, 
+Vundis vojo min kruele,
 
-premas vivotragedi’, 
+premas vivotragedi’,
 
 volus gliti mi ventpele
 
-kun la cign’ al vi. 
+kun la cign’ al vi.
 
-57
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
 La revuloj
 
-Malluma la frunt’ kaj tranca la ir’. 
+Malluma la frunt’ kaj tranca la ir’.
 
-La vestoj ĉifone surpendas, 
+La vestoj ĉifone surpendas,
 
 kaj brakojn ili kun vibra sopir’
 
 al trompa vizio etendas —
 
-jes, iras por stelo, por nub’ aŭ vent’, 
+jes, iras por stelo, por nub’ aŭ vent’,
 
 por fulmo, kapric’, iluzio
 
 kaj premas al lipoj je sakrament’
 
-kalikon kun vin’ Fantazio. 
+kalikon kun vin’ Fantazio.
 
 Ne domon, nek grenon — al fremda cel’
 
-ja logas la fatamorgano. 
+ja logas la fatamorgano.
 
 Se stelojn donus al ili ĉiel’
 
-kaj tutan mondon Satano, 
+kaj tutan mondon Satano,
 
 ne ĉesus ilia soifa brul’:
 
 nur migri, nur serĉi kun reva okul’ —
 
-allogas jam nova incenso. 
+allogas jam nova incenso.
 
-Etiĝas ja tuj la solvita demand’. 
+Etiĝas ja tuj la solvita demand’.
 
-La grando troviĝas post tiu rand’, 
+La grando troviĝas post tiu rand’,
 
-kie svene haltis la penso. 
+kie svene haltis la penso.
 
-58
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
 Kritiko
 
-ĉu estas karnopec’, el brust’ ŝirita, 
+ĉu estas karnopec’, el brust’ ŝirita,
 
-ĉu vorto eĉ, per larm’ aŭ sang’ skribita, 
+ĉu vorto eĉ, per larm’ aŭ sang’ skribita,
 
 ĉu er’, eĉ unu, el la vivo ŝvita
 
 en tiu ĉi bombasta poezi’ —
 
-troornamita arabesk-ebri’? 
+troornamita arabesk-ebri’?
 
-Tre bona, certe, la metia lerto, 
+Tre bona, certe, la metia lerto,
 
 sed venu vir’, virino — ne nur sperto
 
-kaj korp’, animo en la vortriveron\! 
+kaj korp’, animo en la vortriveron!
 
 Ne vort’ pro vort’. Nur tio povas mem
 
-eniĝi unge koron kaj radike teron, 
+eniĝi unge koron kaj radike teron,
 
-en kio kuŝas vere viva sem’. 
+en kio kuŝas vere viva sem’.
 
-59
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
@@ -2616,21 +2463,21 @@ sekfoliaro
 
 pelita vente —
 
-al nia celo, 
+al nia celo,
 
-al tombobaro. 
+al tombobaro.
 
 En ruĝfabelo
 
-ni vivas reve; 
+ni vivas reve;
 
-moviĝas deve, 
+moviĝas deve,
 
 traflugas meve
 
-la maronokton, 
+la maronokton,
 
-kun vent’ batalas. 
+kun vent’ batalas.
 
 Levitaj vente
 
@@ -2638,63 +2485,59 @@ ni ree falas
 
 kaj eksilente
 
-eniras nokton. 
+eniras nokton.
 
-60
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
 Nun iras ŝip’
 
-Nun iras ŝip’ balance al cel’, 
+Nun iras ŝip’ balance al cel’,
 
-ho dance al cel’, plenplenas la vel’. 
+ho dance al cel’, plenplenas la vel’.
 
 Mi flustras ion al via orel’ —
 
-la ŝipa nom’: Feliĉo. 
+la ŝipa nom’: Feliĉo.
 
-Teruraj ondegoj frapas kun bru’, 
+Teruraj ondegoj frapas kun bru’,
 
-jen blankas rifdorsoj en nigra blu’, 
+jen blankas rifdorsoj en nigra blu’,
 
-ŝipestro tamen direktas plu, 
+ŝipestro tamen direktas plu,
 
-ĉar nom’ de l’ŝip’: Feliĉo. 
+ĉar nom’ de l’ŝip’: Feliĉo.
 
-Se ili venas al verda la strand’, 
+Se ili venas al verda la strand’,
 
 ho, verda la strand, kun roza ruband’
 
 knabin’ tie staras, mansignas de l’rand’
 
-al ŝip’ kun nom’ Feliĉo. 
+al ŝip’ kun nom’ Feliĉo.
 
-Hoj-hojas responde de l’mastoj, ŝnurar’, 
+Hoj-hojas responde de l’mastoj, ŝnurar’,
 
-huraas gajuloj sur blua mar’, 
+huraas gajuloj sur blua mar’,
 
 kaj … jen maristo kun bukloj, ĉar
 
-la ŝipa nom’: Feliĉo. 
+la ŝipa nom’: Feliĉo.
 
-Kaj buŝo ruĝa malfermas nun sin, 
+Kaj buŝo ruĝa malfermas nun sin,
 
-malfermas nun sin la buŝ’ de knabin’, 
+malfermas nun sin la buŝ’ de knabin’,
 
 ŝi ĝemas, petegas: kunprenu min
 
-surŝipe de Feliĉo\! 
+surŝipe de Feliĉo!
 
-61
 
 SVEDA POEMARO
 
-eLIBRO
 
 Sed kredu al mi, kun ĉi pasaĝer’
 
@@ -2702,59 +2545,55 @@ la ŝipo pereos; kredu al ver:
 
 knabinoj sur mar’, knabinoj sur ter’
 
-danĝeras al Feliĉo. 
+danĝeras al Feliĉo.
 
-62
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
 Infana kanteto
 
-Koko krias ĉe la stal’, 
+Koko krias ĉe la stal’,
 
-ĉe la stal’. 
+ĉe la stal’.
 
-Krakas fajr’ kamena, 
+Krakas fajr’ kamena,
 
-tremas la foli’ en val’, 
+tremas la foli’ en val’,
 
-verda valo, eta val’. 
+verda valo, eta val’.
 
-Blovas vent’ matena. 
+Blovas vent’ matena.
 
-Jen hirundo en seren’, 
+Jen hirundo en seren’,
 
-en seren. 
+en seren.
 
-Blankas nub’ en supro. 
+Blankas nub’ en supro.
 
 Al diserva frukunven’
 
-bingas-bongas, frukunven’. 
+bingas-bongas, frukunven’.
 
-Nun vekiĝis pupo\! 
+Nun vekiĝis pupo!
 
-Bonan, pup’\! Vin klinu re, 
+Bonan, pup’! Vin klinu re,
 
-klinu re, 
+klinu re,
 
-laŭte ridu, Anjo\! 
+laŭte ridu, Anjo!
 
-Ludas viv’ mallonge tre, 
+Ludas viv’ mallonge tre,
 
-pupo gaja kaj mi tre, 
+pupo gaja kaj mi tre,
 
-gajas pleje Panjo. 
+gajas pleje Panjo.
 
-63
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
@@ -2764,27 +2603,27 @@ Sur aĉa strat’ en kvartalo Kupido
 
 en rond’ de maristoj kaj ĝu-aĉet’
 
-kaj multe, kion ni lasu el vido, 
+kaj multe, kion ni lasu el vido,
 
-loĝadis ŝi do, Matilda Magnet’. 
+loĝadis ŝi do, Matilda Magnet’.
 
 Ne tute bonorde ŝi vivis sur tero:
 
-kun pastro, polico en malharmoni’, 
+kun pastro, polico en malharmoni’,
 
 sed nun estas pura la flor’ de l’mizero —
 
-en Paradizo brilblanka lili’. 
+en Paradizo brilblanka lili’.
 
 La pekoj nur estis fulga makulo
 
-sur vitro anima, lavita per plor’, 
+sur vitro anima, lavita per plor’,
 
 kaj en la kor’ estis ĉambro, angulo
 
-kun multaj aĵoj de alta valor’. 
+kun multaj aĵoj de alta valor’.
 
-Eĉ eta knabino loĝis ja tie, 
+Eĉ eta knabino loĝis ja tie,
 
 perdinta neniam el sia memor’
 
@@ -2792,57 +2631,53 @@ la ravan vekiĝon matensunstrie
 
 ĉe Patro kaj Panjo. Jen: kafodor’
 
-ĉelite. Katido\! Lumridaj tagoj; 
+ĉelite. Katido! Lumridaj tagoj;
 
-anasoj babilis sur suna strand’, 
+anasoj babilis sur suna strand’,
 
-kaj en la ĝardeno logis de fragoj, 
+kaj en la ĝardeno logis de fragoj,
 
-fabele, tre dolĉa kaj ruĝa land’. 
+fabele, tre dolĉa kaj ruĝa land’.
 
-64
 
 SVEDA POEMARO
 
-eLIBRO
 
 Kaj spite al aĉaj, malindaj faroj
 
-la festa ĉambro brilegis de pur’, 
+la festa ĉambro brilegis de pur’,
 
 al truda scivolo de l’gastoj, najbaroj
 
-ŝlosita per ege forta serur’. 
+ŝlosita per ege forta serur’.
 
 Nur foje, en nokta mallum’, okazis
 
-dum akre doloris dorna memor’, 
+dum akre doloris dorna memor’,
 
 ke l’pordo malfermis sin mem kaj lasis
 
-samsortulinon al la trezor’. 
+samsortulinon al la trezor’.
 
-Sed kiam ŝi kuŝis, ĉifono kota, 
+Sed kiam ŝi kuŝis, ĉifono kota,
 
-mortant’ kompatinda, Matilda Magnet’, 
+mortant’ kompatinda, Matilda Magnet’,
 
 sin ĉio malfermis: al voj’ irota
 
-elfluis lumo el la ĉambret’. 
+elfluis lumo el la ĉambret’.
 
 Kaj venis bela anĝel’; ĝi portis
 
-triumfe la etan knabinon al Di’. 
+triumfe la etan knabinon al Di’.
 
 Kaj oni al tombo en ĉerko transportis
 
-l’ alian, kio ne estis ŝi. 
+l’ alian, kio ne estis ŝi.
 
-65
 
 SVEDA POEMARO
 
-eLIBRO
 
 Bo Bergman
 
@@ -2850,63 +2685,61 @@ La lasta stelo
 
 Nuboj fermas mole
 
-pordon de l’ĉiel’. 
+pordon de l’ĉiel’.
 
 Tra la vitro sole
 
-lumas unu stel’. 
+lumas unu stel’.
 
 Baldaŭ Di’ estingos
 
-ankaŭ tiun for. 
+ankaŭ tiun for.
 
-Nokto min atingos, 
+Nokto min atingos,
 
-pezas mia kor’. 
+pezas mia kor’.
 
-66
 
 SVEDA POEMARO
 
-eLIBRO
 
-Karl Erik Forsslund \(1872–1941\)
+Karl Erik Forsslund (1872–1941)
 
 La sorĉito
 
-\(Laŭ malnova fabelo el Dalekarlio\)
+(Laŭ malnova fabelo el Dalekarlio)
 
-ŝi, Rangila en Roberg, 
+ŝi, Rangila en Roberg,
 
 al tiu hom’ nur montras sin
 
-al kiu ne fermiĝis la okulo. 
+al kiu ne fermiĝis la okulo.
 
-Sed Limbo-Erik ŝin renkontis. 
+Sed Limbo-Erik ŝin renkontis.
 
-ŝi diris: ”Venu ami min\!” 
+ŝi diris: ”Venu ami min!”
 
 Abiaj branĉoj vestis ŝin —
 
-ho, sentu nur ilian bonodoron\! 
+ho, sentu nur ilian bonodoron!
 
 Sub fruktoj en purpura brulo
 
 duonvidiĝis blanke delikataj
 
-la ŝultro, brusto, koks’ en loga lulo. 
+la ŝultro, brusto, koks’ en loga lulo.
 
 Plej bela el driadoj tim-amataj
 
-ŝi estis ja, ŝi, Rangila, 
+ŝi estis ja, ŝi, Rangila,
 
-ho, Rangila en Roberg\! 
+ho, Rangila en Roberg!
 
-Li sekvis ŝin en monton, 
+Li sekvis ŝin en monton,
 
 kaj multajn jarojn restis li
 
-sed foje venis hejmen pro malsato, 
+sed foje venis hejmen pro malsato,
 
 malsato … kaj petegis:
 
@@ -2914,111 +2747,106 @@ malsato … kaj petegis:
 
 en la preĝejo jaŭdojn tri
 
-vespere ke ricevu mi liberon\!” 
+vespere ke ricevu mi liberon!”
 
-67
 
 SVEDA POEMARO
 
-eLIBRO
 
 Sed vanas sanktaj sonoj. Sen kompato
 
-lin logas tonoj el la sorĉa monto. 
+lin logas tonoj el la sorĉa monto.
 
-Pli forta ol orgenmurmur’, 
+Pli forta ol orgenmurmur’,
 
 pli milda ol folisusur’
 
-incitas liajn sensojn voĉo dolĉa; 
+incitas liajn sensojn voĉo dolĉa;
 
-lin ravas pli ol birdotril’, 
+lin ravas pli ol birdotril’,
 
-ol la plej juna verdo de printempo. 
+ol la plej juna verdo de printempo.
 
-Ho, Rangila, ho, Rangila\! 
+Ho, Rangila, ho, Rangila!
 
-ŝi flustras, vokas … varma sang’, 
+ŝi flustras, vokas … varma sang’,
 
 lilia brusto, rozovang’ …
 
-Ho, Rangila en Roberg\! 
+Ho, Rangila en Roberg!
 
-Denove en la monton. 
+Denove en la monton.
 
-Dum multaj jaroj restis li, 
+Dum multaj jaroj restis li,
 
-sed venis ree hejmen pro malsato. 
+sed venis ree hejmen pro malsato.
 
 Li diris al amiko:
 
 ”ĉu vidas tiun lumon vi
 
-ĉe Rangila en Roberg? 
+ĉe Rangila en Roberg?
 
 Palacon, kie brilas fajre-ore
 
-tra cent fenestroj flama lum’? 
+tra cent fenestroj flama lum’?
 
 ĉu aŭdas ludon, kanton?” Kaj fervore
 
-li pentras ĉiun riĉon de la ter’. 
+li pentras ĉiun riĉon de la ter’.
 
-L’ amiko miras, Kie ĉi mister’? 
+L’ amiko miras, Kie ĉi mister’?
 
 Li ja nenion vidas, krom nigraj nubobuloj
 
-kaj mont’, arbar’, kovritaj de nebuloj. 
+kaj mont’, arbar’, kovritaj de nebuloj.
 
-La kapon dube skuas la amik’. 
+La kapon dube skuas la amik’.
 
-Jen Erik falas al la tero bruna. 
+Jen Erik falas al la tero bruna.
 
 Lin mortan oni peze portas nun
 
-en domon de la patro, la maljuna. 
+en domon de la patro, la maljuna.
 
 Eksonas voĉo rava. Kante
 
-68
 
 SVEDA POEMARO
 
-eLIBRO
 
-foriĝas ĝi en monton kaj forondas, 
+foriĝas ĝi en monton kaj forondas,
 
 mallaŭte jubilante:
 
-”Ho vi, ho vi\! Vi, Rangila, 
+”Ho vi, ho vi! Vi, Rangila,
 
-ho Rangila en Roberg\!’’
+ho Rangila en Roberg!’’
 
-\(Prezentita kun muzikakompano ĉe U. K. en Stockholm, 1934.\) 69
+(Prezentita kun muzikakompano ĉe U. K. en Stockholm, 1934.) 69
 
 SVEDA POEMARO
 
-eLIBRO
 
-Bertel Gripenberg \(1878-1947\)
+Bertel Gripenberg (1878-1947)
 
 Soleca skispuro
 
 Skispur’, kiu serĉas, sola
 
-por voj’ al arbarprofund’, 
+por voj’ al arbarprofund’,
 
 sinua skispuro mola
 
-trans montojn al valofund’, 
+trans montojn al valofund’,
 
 sur marĉ, kie kirle muĝas
 
 neĝvento kaj kriplas pin’ —
 
-jen mia penso. ¯i fuĝas
+jen mia penso. i fuĝas
 
-solece al malproksim’. 
+solece al malproksim’.
 
 Skispuro frosta forbluas
 
@@ -3026,7 +2854,7 @@ solece en la dezert’ —
 
 homvivo, kiu forfluas
 
-sur vojo de la necert’. 
+sur vojo de la necert’.
 
 Demandojn mi portis bruste
 
@@ -3034,95 +2862,89 @@ en foro sin kaŝis respond’ —
 
 zigzaga spur’ neĝokruste:
 
-jen mia vagad’ tra mond’. 
+jen mia vagad’ tra mond’.
 
-Skispuro sola. ¯in finas
+Skispuro sola. in finas
 
-subite roka ekmut’, 
+subite roka ekmut’,
 
 kie kripla pino sin klinas
 
-trans randon de l’nigra krut. 
+trans randon de l’nigra krut.
 
-Kiel froste la steloj falas, 
+Kiel froste la steloj falas,
 
-kiel ombras la arbomur’, 
+kiel ombras la arbomur’,
 
 kiel neĝo malpeze kristalas
 
-sur mole kovrita spur’\! 
+sur mole kovrita spur’!
 
-70
 
 SVEDA POEMARO
 
-eLIBRO
 
-Jeanna Oterdahl \(1879–1965\)
+Jeanna Oterdahl (1879–1965)
 
 Preĝo
 
-Ho, vi, kiu vidas, ho vi, kiu scias, 
+Ho, vi, kiu vidas, ho vi, kiu scias,
 
-ke ĉiuanime sekreto vekrias, 
+ke ĉiuanime sekreto vekrias,
 
-vi ankaŭ en mi la abismojn ja vidas. 
+vi ankaŭ en mi la abismojn ja vidas.
 
-ĉemane min prenu, danĝero insidas\! 
+ĉemane min prenu, danĝero insidas!
 
-Plenigu per graco l’animon senkernan, 
+Plenigu per graco l’animon senkernan,
 
 per fajro forigu skorion internan
 
-kaj lasu min veni en landon eternan, 
+kaj lasu min veni en landon eternan,
 
-Patro kaj Dio\! 
+Patro kaj Dio!
 
 Se estas la vojo al transa la korto
 
-nur voj’ tra turmento, doloro kaj morto, 
+nur voj’ tra turmento, doloro kaj morto,
 
 mi ĝoje ĝin iru. Vi fleksu la volon
 
-kaj donu al laca animo konsolon. 
+kaj donu al laca animo konsolon.
 
-Al mi donis ”estu” animan esencon, 
+Al mi donis ”estu” animan esencon,
 
-por vivo surtera decidis vi sencon. 
+por vivo surtera decidis vi sencon.
 
-En mi ĝin enskribu — vi havas potencon, 
+En mi ĝin enskribu — vi havas potencon,
 
-Patro kaj Dio\! 
+Patro kaj Dio!
 
 Libera traduko
 
-71
 
 SVEDA POEMARO
 
-eLIBRO
 
-Wilhelm Ekelund \(1880–1949\)
+Wilhelm Ekelund (1880–1949)
 
 Tiam estis helaj la fagoj
 
-Tiam estis helaj la fagoj, tiam la rivero lumis de naĝanta insularo: blankaj ranunkuloj; 
+Tiam estis helaj la fagoj, tiam la rivero lumis de naĝanta insularo: blankaj ranunkuloj;
 
-hele la paduso balancis sian kronon ĉi tie, 
+hele la paduso balancis sian kronon ĉi tie,
 
-kie etulo mi vivis. 
+kie etulo mi vivis.
 
 Nun silente pluvas. La ĉielo pendas malalte
 
-sur nudaj arboj. Ekfajfas. Denove la trajno moviĝas. 
+sur nudaj arboj. Ekfajfas. Denove la trajno moviĝas.
 
-En la nokton malrapide nigriĝantan mi foriras senamika. 
+En la nokton malrapide nigriĝantan mi foriras senamika.
 
-72
 
 SVEDA POEMARO
 
-eLIBRO
 
 Vilhelm Ekelund
 
@@ -3130,25 +2952,23 @@ Kvieto
 
 La tago suferpeza
 
-jam venis al la cel’; 
+jam venis al la cel’;
 
 sub nubo plumbe peza
 
-frostklaras la ĉiel’. 
+frostklaras la ĉiel’.
 
-Trankvilu, pensoj, mio; 
+Trankvilu, pensoj, mio;
 
-kor-kri’, sufoku vin\! 
+kor-kri’, sufoku vin!
 
-Tre baldaŭ dormos ĉio, 
+Tre baldaŭ dormos ĉio,
 
-tre baldaŭ venos fin’. 
+tre baldaŭ venos fin’.
 
-73
 
 SVEDA POEMARO
 
-eLIBRO
 
 Wilhelm Ekelund
 
@@ -3156,101 +2976,97 @@ Adoro
 
 Kiel la maro sub sunvento julia
 
-tiel freŝa, tiel ebriige freŝa estas via korpo. Neĝo, rozoj. 
+tiel freŝa, tiel ebriige freŝa estas via korpo. Neĝo, rozoj.
 
 Padusoj ĉe la fonto, majroso arbara
 
-ne tiel dolĉe odoras kiel viaj lipoj odorantaj. 
+ne tiel dolĉe odoras kiel viaj lipoj odorantaj.
 
-Blindiga belo de homo — ho vidu … la polvon, 
+Blindiga belo de homo — ho vidu … la polvon,
 
-la polvon, sur kiu vi paŝas, kisas balbute, adorante la sklavo. 
+la polvon, sur kiu vi paŝas, kisas balbute, adorante la sklavo.
 
-74
 
 SVEDA POEMARO
 
-eLIBRO
 
-Sigfrid Siwertz \(1882–1970\)
+Sigfrid Siwertz (1882–1970)
 
-El ”Exit Isidoro Filén” 
+El ”Exit Isidoro Filén”
 
-Nun temas pri la sentoj kaj pensoj de Leonardo Isidoro Filén en la vespero an-taŭ ol li konfesis siajn ŝtelojn el la kaso kaj provizo. Filén estis belega viro kun nigra, krispa hararo, pala haŭto, mallumaj, dolĉaj okuloj, nekontraŭstareble kurbaj lipoj kaj longaj, malseketaj manoj, pro la longa uzado de tranĉilo kaj tondilo ofte vigle kaj gracie svingiĝantaj. La virinoj fariĝis lia malfeliĉo. Li oferis al ili ĉion. La virinoj scias pri Isidoro Filén pli ol mi. Sed ili silentas — same kiel la ŝtelhelpantoj. 
+Nun temas pri la sentoj kaj pensoj de Leonardo Isidoro Filén en la vespero an-taŭ ol li konfesis siajn ŝtelojn el la kaso kaj provizo. Filén estis belega viro kun nigra, krispa hararo, pala haŭto, mallumaj, dolĉaj okuloj, nekontraŭstareble kurbaj lipoj kaj longaj, malseketaj manoj, pro la longa uzado de tranĉilo kaj tondilo ofte vigle kaj gracie svingiĝantaj. La virinoj fariĝis lia malfeliĉo. Li oferis al ili ĉion. La virinoj scias pri Isidoro Filén pli ol mi. Sed ili silentas — same kiel la ŝtelhelpantoj.
 
 La lasta fojo, kiam oni vidis Filén en la libera aero, estis ĉe la ĉiusomera balo de la frizista societo en Nacka. Li staris jam tiam, pala kaj rigida, en la ĵetom-bro de la sorto, sed ankaŭ tia, en sia prema malsereno, li ne povis eviti, fari profundan impreson al la belaj frizistinoj. ŝajnis kvazaŭ li farus malgajan kaj solenan finkalkulon pri ĉiuj siaj eksamantinoj. ĉar Filén ĉiam fidele elektis el sia metio, kio ankaŭ, ĉe okazo, estis akcentata kiel iom senkulpiga trajto …
 
-Kaj li do subite foriris en la nokton por reaperi nur en la tribunalaj gazet-notoj. Antaŭ la juĝisto li estis trankvila kaj humila. Ne tro severe prijuĝu lin. 
+Kaj li do subite foriris en la nokton por reaperi nur en la tribunalaj gazet-notoj. Antaŭ la juĝisto li estis trankvila kaj humila. Ne tro severe prijuĝu lin.
 
-Alna gIu’, pinpingla fal’. 
+Alna gIu’, pinpingla fal’.
 
-Zumas jen barbirobal’. 
+Zumas jen barbirobal’.
 
 ĉe piedoj tikla sent’ —
 
-ĉu vin venkos valsotent’? 
+ĉu vin venkos valsotent’?
 
 Kornorkestra tonohajl’ —
 
-kurbus pro ĝi fera najl’\! 
+kurbus pro ĝi fera najl’!
 
-Tubo, korno kaj tambur’, 
+Tubo, korno kaj tambur’,
 
-Créme Ninon kaj Rose d’amour, 
+Créme Ninon kaj Rose d’amour,
 
-solv’ safrana, ambro, mosk’\! 
+solv’ safrana, ambro, mosk’!
 
-75
 
 SVEDA POEMARO
 
-eLIBRO
 
-Dancu gaje en la bosk’\! 
+Dancu gaje en la bosk’!
 
 Kosmetika la parfum’
 
-ŝvebas en la lunolum’. 
+ŝvebas en la lunolum’.
 
 Migdalsap’, lilia lakt’
 
-pinarbaro kaj valstakt’. 
+pinarbaro kaj valstakt’.
 
-Falsharaĵo, bukligil’, 
+Falsharaĵo, bukligil’,
 
-brust’ ĉe brusto — maltrankvil’. 
+brust’ ĉe brusto — maltrankvil’.
 
 Krispaj haroj de virin’
 
-tiklas dolĉe-svene vin, 
+tiklas dolĉe-svene vin,
 
 kaj en arda sangoflu’ —
 
 muta rev’ en kirla glu’…
 
-ĉu, piedo kaj pasi’, 
+ĉu, piedo kaj pasi’,
 
-kontraŭstari povas vi? 
+kontraŭstari povas vi?
 
 Korn’ volupta, amoscen’:
 
-nun endancu, ho Filén\! 
+nun endancu, ho Filén!
 
 Por tiu plu en ter-oaz’
 
-ne floros rozo, revo, 
+ne floros rozo, revo,
 
 kiun tentadis tro la kas’
 
-de lia bona ĉefo. 
+de lia bona ĉefo.
 
-Vi bela Isidor’ Filén, 
+Vi bela Isidor’ Filén,
 
 vi ŝtelis — ho skandalo —
 
 botelon ŝtelis vi sen ĝen’
 
-da Eau de Portugalo. 
+da Eau de Portugalo.
 
 Ho, kiel grilo grincas: iiii
 
@@ -3258,65 +3074,61 @@ Ho, kiel grilo grincas: iiii
 
 senkulpa iam gajis mi
 
-en la razadsalono. 
+en la razadsalono.
 
 Jes, pentu — jam ne eblas fuĝ’:
 
 tondilmakzeloj de la juĝ’
 
-76
 
 SVEDA POEMARO
 
-eLIBRO
 
 oscedas kun malpleno
 
-por via vivfadeno. 
+por via vivfadeno.
 
 ———
 
 Jen, frato, e˛o de la ˛or’
 
-la gajajn voĉojn portas\! 
+la gajajn voĉojn portas!
 
 Sub ombraj arboj en la for’
 
 la lasta valso mortas:
 
-… Mosk’, safrano, rozparfum’, 
+… Mosk’, safrano, rozparfum’,
 
-se vi povas, gaju nun\! 
+se vi povas, gaju nun!
 
 Mankateno, piedĉen’ …
 
-ĉu vin tentas valsrefren’? 
+ĉu vin tentas valsrefren’?
 
 Samfadene koroj sep
 
-amis vin kun kvera pep’. 
+amis vin kun kvera pep’.
 
-Kis’, mensogo, malhonest’, 
+Kis’, mensogo, malhonest’,
 
-man’ en jupo, man’ en kest’. 
+man’ en jupo, man’ en kest’.
 
-La fadenon ŝiris dram’, 
+La fadenon ŝiris dram’,
 
-koroj sep forgesis jam. 
+koroj sep forgesis jam.
 
 Mutu kornoj, nigru scen
 
-Exit Isidor’ Filén. 
+Exit Isidor’ Filén.
 
-Exit = eliras. \(Sceninstrukcio por aktoro.\)
+Exit = eliras. (Sceninstrukcio por aktoro.)
 
-77
 
 SVEDA POEMARO
 
-eLIBRO
 
-Anders Österling \(1884–1981\)
+Anders Österling (1884–1981)
 
 Evangelio
 
@@ -3326,45 +3138,43 @@ en dorm’ atendis, ne glacias tremo
 
 de l’verda viv’. Vekiĝas post dormpezo
 
-solene ni al suno kaj tagmezo. 
+solene ni al suno kaj tagmezo.
 
 Tra ekvinoksaj tempoj grizebluaj
 
-la homo iras dum bataloj bruaj, 
+la homo iras dum bataloj bruaj,
 
-sed foje, ĝoje sentas ii la movon, 
+sed foje, ĝoje sentas ii la movon,
 
-de l’marŝo homa freŝan preterblovon. 
+de l’marŝo homa freŝan preterblovon.
 
 Feliĉa, kiu vidas, ke komuna
 
-kun multaj estas lia sort fratkuna, 
+kun multaj estas lia sort fratkuna,
 
-kaj sur vizaĝoj legas sulkfigurojn, 
+kaj sur vizaĝoj legas sulkfigurojn,
 
-deĉifras de la fruntoj sortgravurojn. 
+deĉifras de la fruntoj sortgravurojn.
 
-Nur vivo donas vivon: diro proza, 
+Nur vivo donas vivon: diro proza,
 
-tre simpla, kaj — sekreto serioza. 
+tre simpla, kaj — sekreto serioza.
 
-Ke ĝia ver’ validas per eterno, 
+Ke ĝia ver’ validas per eterno,
 
-ja multaj scias nur post vunda lerno. 
+ja multaj scias nur post vunda lerno.
 
-Por memkompato, kiu sin priploras, 
+Por memkompato, kiu sin priploras,
 
-evangelio, unu nur, aŭroras; 
+evangelio, unu nur, aŭroras;
 
 el la cerbum’ post egoisma baro
 
-nur unu elirpord’: al la homaro\! 
+nur unu elirpord’: al la homaro!
 
-78
 
 SVEDA POEMARO
 
-eLIBRO
 
 Anders Österling
 
@@ -3372,145 +3182,139 @@ Monokordo
 
 Kampulo nun ludas sur monokord’
 
-ĉe l’forno. Nun foras mizero, 
+ĉe l’forno. Nun foras mizero,
 
 kaj Libanon, Salem kaj Ora la Pord’
 
-belbrilas en griza vespero. 
+belbrilas en griza vespero.
 
-Li palpas krudfingre sur sola kord’, 
+Li palpas krudfingre sur sola kord’,
 
-dum ruĝe ardetas la karboj. 
+dum ruĝe ardetas la karboj.
 
 Kviete enfluas en himnon akord’
 
-de l’marĉoj aŭtunaj kaj arboj. 
+de l’marĉoj aŭtunaj kaj arboj.
 
 ĉu grace el Sferoj alturnas Sinjor’
 
-la orelon al tia mallerto? 
+la orelon al tia mallerto?
 
-Laŭdkanto en simpla vest’ de labor’, 
+Laŭdkanto en simpla vest’ de labor’,
 
-por mond’ ne tre bela koncerto. 
+por mond’ ne tre bela koncerto.
 
 Li kantas — aĝul’ kun modesta rol’
 
 sur tero. Sed se la Zorganto
 
-en tempo malpia suferas pro sol’, 
+en tempo malpia suferas pro sol’,
 
-lin eble ĝojigas la kanto? 
+lin eble ĝojigas la kanto?
 
 Etaĵon grandigas senfina distanc’ —
 
 dum lia kordludo mallerta
 
-la tero ne estas nur pilko en danc’, 
+la tero ne estas nur pilko en danc’,
 
-ŝvebante en spaco dezerta. 
+ŝvebante en spaco dezerta.
 
-79
 
 SVEDA POEMARO
 
-eLIBRO
 
 Anders Österling
 
 Pejzaĝo kun steloj
 
-Malfrusomera nokt’ fajrigas briliantojn; 
+Malfrusomera nokt’ fajrigas briliantojn;
 
-ripozas tero en magia lac’. 
+ripozas tero en magia lac’.
 
 Jen falis ĵus en bluajn la Atlantojn
 
-svenigajn stelo el senfina spac’. 
+svenigajn stelo el senfina spac’.
 
 Sed sub la steloj duonlumo tuŝas
 
 tegmenton etan. En la ombra dens’
 
-birdnestoj kaj knabinalkovoj kuŝas, 
+birdnestoj kaj knabinalkovoj kuŝas,
 
-kaj tien rajtas fuĝi mia pens’. 
+kaj tien rajtas fuĝi mia pens’.
 
-Mi tiun supron mia propra nomas, 
+Mi tiun supron mia propra nomas,
 
-punkteto firma ĉe senlima trans’, 
+punkteto firma ĉe senlima trans’,
 
 kaj miajn paŝojn konas, kiuj domas
 
-post tiu pord’ kun la amika ans’. 
+post tiu pord’ kun la amika ans’.
 
-Se fremda iras mi sub noktaj sunoj, 
+Se fremda iras mi sub noktaj sunoj,
 
-sur ter’ troviĝas jen por mi azil’, 
+sur ter’ troviĝas jen por mi azil’,
 
 ĉe maro, kiu ondas al la dunoj
 
-kaj kortsalikoj kanton pri trankvil’. 
+kaj kortsalikoj kanton pri trankvil’.
 
-80
 
 SVEDA POEMARO
 
-eLIBRO
 
-Ture Nerman \(1886–1969\)
+Ture Nerman (1886–1969)
 
 Karinjo
 
-Eta, gracila, nur dekkvin, 
+Eta, gracila, nur dekkvin,
 
-la haroj — lin’. 
+la haroj — lin’.
 
-Kaj supre blu-bluas ĉielomuslin’. 
+Kaj supre blu-bluas ĉielomuslin’.
 
 Sekvante vin
 
-sin gimnazianoj balancas; 
+sin gimnazianoj balancas;
 
 glacio degelas en vintrofin’
 
-kaj dekdu ventoj dancas. 
+kaj dekdu ventoj dancas.
 
 Sed trista, kun jaroj tridek-tri
 
-ĉeflanke mi, 
+ĉeflanke mi,
 
 la faŭno malbela, ne pensas pli
 
-al melankoli’, 
+al melankoli’,
 
 pro juna ir’, linharoj …
 
 forgesas, ke homoj ridetus pri
 
-la tri kaj tridek jaroj. 
+la tri kaj tridek jaroj.
 
-Ne timu do\! Ne, etulin’\! 
+Ne timu do! Ne, etulin’!
 
-Rigardu min\! 
+Rigardu min!
 
 Ne plue okazos tia krim’:
 
-vidserĉi vin; 
+vidserĉi vin;
 
 nur kiam, plenkreska, iame
 
-sen ĝeno vi scios pri vira inklin’, 
+sen ĝeno vi scios pri vira inklin’,
 
-kiel ĝi fajras flame. 
+kiel ĝi fajras flame.
 
-81
 
 SVEDA POEMARO
 
-eLIBRO
 
-Por mi: matura florĝarden’. 
+Por mi: matura florĝarden’.
 
 Ne mankas jen
 
@@ -3518,11 +3322,11 @@ la formoj kaj flirto kaj ĉirkaŭpren’
 
 por volvi min en
 
-mantelon de ruĝa ebrio. 
+mantelon de ruĝa ebrio.
 
 Por gimnazian’: via flora liptrem’
 
-en iu ŝtupar’ en junio. 
+en iu ŝtupar’ en junio.
 
 Do, iru en rosfreŝa jun’
 
@@ -3532,21 +3336,21 @@ sub marta sun’
 
 surstrate kun
 
-esper’, Feliĉon trovi. 
+esper’, Feliĉon trovi.
 
 L’okulojn fermos la Maljun’
 
-obee. \(Kiel povi?\)
+obee. (Kiel povi?)
 
 Mi ĝemos … ne vidos, tute ne:
 
 memoros, ke
 
-vi estu por mi kiel blua fe’, 
+vi estu por mi kiel blua fe’,
 
-poezi’, rimkre’, 
+poezi’, rimkre’,
 
-kantet’ el senkulp’ kaj harlino, 
+kantet’ el senkulp’ kaj harlino,
 
 infanbalmelodi’, kiu premas ĉe
 
@@ -3556,7 +3360,7 @@ Kaj tiel, dum pasos kun susur’
 
 la tempokur’
 
-kaj vi maturiĝos por rabo, tortur’, 
+kaj vi maturiĝos por rabo, tortur’,
 
 mi staras nur
 
@@ -3564,15 +3368,13 @@ fenestre je martaj gutsonoj
 
 kaj dankas ridlarme al la saĝa natur’
 
-pro ĉiam novaj burĝonoj. 
+pro ĉiam novaj burĝonoj.
 
-82
 
 SVEDA POEMARO
 
-eLIBRO
 
-Harriet Löwenhielm \(I887-1918\)
+Harriet Löwenhielm (I887-1918)
 
 Al la malgranda frat’ de mia koro
 
@@ -3580,313 +3382,295 @@ Al la malgranda frat’ de mia koro
 
 donaci volus mi el trezorkest’
 
-juvelon brilan pli ol Koh-i-nooro. 
+juvelon brilan pli ol Koh-i-nooro.
 
 Mi volus pli —
 
-sed atestvokas Dion, 
+sed atestvokas Dion,
 
-ke mi nenion havas, ve, nenion, 
+ke mi nenion havas, ve, nenion,
 
-sed pri feliĉ’ de l’frato preĝos mi. 
+sed pri feliĉ’ de l’frato preĝos mi.
 
-Surmeti volas mi pilgrimmantelon, 
+Surmeti volas mi pilgrimmantelon,
 
 kaj post senfine longa pilgrimad’
 
-mi genutrenos min en templohelon, 
+mi genutrenos min en templohelon,
 
 sur la marmor’
 
-min klinos ĉealtare, 
+min klinos ĉealtare,
 
-kaj petos mi senĉese, humilkare, 
+kaj petos mi senĉese, humilkare,
 
-ĝis ”Tiel estu\!” diros Di-Sinjor’. 
+ĝis ”Tiel estu!” diros Di-Sinjor’.
 
 Mi frunton premos teren kaj infane
 
-petegos: ”Di-Sinjoro, Cebaot’\! 
+petegos: ”Di-Sinjoro, Cebaot’!
 
-Vi, kiu tenas ĉiun ĝojon mane, 
+Vi, kiu tenas ĉiun ĝojon mane,
 
 vin petas mi:
 
 el via riĉo gemon multfacetan
 
-el ĝoj’ senlima donu, ho, al li\! 
+el ĝoj’ senlima donu, ho, al li!
 
-83
 
 SVEDA POEMARO
 
-eLIBRO
 
 — feliĉon tian, ke ĝi, eĉ sentate
 
-momenton nur, lin ravu ĝis kapturn’, 
+momenton nur, lin ravu ĝis kapturn’,
 
-sed ne permesu, ke ĝi velku sate\! 
+sed ne permesu, ke ĝi velku sate!
 
 Mi petas vin:
 
-Donacu senmezure\! 
+Donacu senmezure!
 
-Sed, Dio, kiam regos li purpure, 
+Sed, Dio, kiam regos li purpure,
 
 ho faru, ke li ne forgesu min …
 
-84
 
 SVEDA POEMARO
 
-eLIBRO
 
-Dan Andersson \(I888–1920\)
+Dan Andersson (I888–1920)
 
 Maristo Janson
 
-Hejo ho, maristo Janson, jam fortiĝas matenvento, lasta nokto forruliĝis, nun Konstanca iros do. 
+Hejo ho, maristo Janson, jam fortiĝas matenvento, lasta nokto forruliĝis, nun Konstanca iros do.
 
-Se patrinon vi brakumis, kisis Stinjon kun lamento, se eltrinkis vi la brandon, kantu hejo ho\! 
+Se patrinon vi brakumis, kisis Stinjon kun lamento, se eltrinkis vi la brandon, kantu hejo ho!
 
-Hejo ho, maristo Janson, ĉu vi timas en ĉi horo, ke l’knabino vin trompados kaj forlasos en malĝoj’? 
+Hejo ho, maristo Janson, ĉu vi timas en ĉi horo, ke l’knabino vin trompados kaj forlasos en malĝoj’?
 
-Kiel matenstelo tremas, tiel batas via koro; 
+Kiel matenstelo tremas, tiel batas via koro;
 
-turnu al la vent’ la nazon, kantu hejo hoj\! 
+turnu al la vent’ la nazon, kantu hejo hoj!
 
-Hejo ho, maristo Janson, eble estos via sorto ne virinoj, sed la ŝarkoj en la sudomara blu’\! 
+Hejo ho, maristo Janson, eble estos via sorto ne virinoj, sed la ŝarkoj en la sudomara blu’!
 
-Eble inter la koraloj embuskadas tie Morto, 
+Eble inter la koraloj embuskadas tie Morto,
 
-la krudmana sed honesta, kantu hejo hu\! 
+la krudmana sed honesta, kantu hejo hu!
 
-Eble sidos vi, maljuna, sur farmej’ en Alabama, dum kribriĝas sur tempiojn griza polv’ de l’vivovoj’. 
+Eble sidos vi, maljuna, sur farmej’ en Alabama, dum kribriĝas sur tempiojn griza polv’ de l’vivovoj’.
 
 Eble vi forgesos Stinjon pro glaset’ en Jokohama —
 
-jes, ne virte, sed tre home, kantu hejo hoj\! 
+jes, ne virte, sed tre home, kantu hejo hoj!
 
-85
 
 SVEDA POEMARO
 
-eLIBRO
 
-Erik Lindorm \(1889-1941\)
+Erik Lindorm (1889-1941)
 
 Posttagmezo
 
 Fajro krakas. Ekster la dom’
 
-aŭtuna pluvo faladas. 
+aŭtuna pluvo faladas.
 
 El kuirejo susura son’:
 
-lia edzino gladas. 
+lia edzino gladas.
 
-Pordbato, bruo, tondro, fulm’\! 
+Pordbato, bruo, tondro, fulm’!
 
-L’infanoj ĉambron lavangas, 
+L’infanoj ĉambron lavangas,
 
 neniu muta, nek sen pulm’
 
-kaj neniu el ili mankas. 
+kaj neniu el ili mankas.
 
-Sed pasas la tago al dorma vesper’, 
+Sed pasas la tago al dorma vesper’,
 
-kaj forne cindro grizblankas. 
+kaj forne cindro grizblankas.
 
 Kaj post nelonge ne estos ver’:
 
-”neniu mankas.” 
+”neniu mankas.”
 
-86
 
 SVEDA POEMARO
 
-eLIBRO
 
 Erik Lindorm
 
 Minuto de feliĉo
 
-ĉu ver’, ke infanon mi premas al kor’, 
+ĉu ver’, ke infanon mi premas al kor’,
 
-min mem rekonas en ĝi, 
+min mem rekonas en ĝi,
 
-ke ter’ estas varma, fajreras marfor’, 
+ke ter’ estas varma, fajreras marfor’,
 
-ĉielo serenas sen stri’? 
+ĉielo serenas sen stri’?
 
-Kiu tempo nun estas? Kaj kiu la jar? 
+Kiu tempo nun estas? Kaj kiu la jar?
 
-Kiu estas mi mem, mia nom’? 
+Kiu estas mi mem, mia nom’?
 
-Vi ridanta vindaĵo kun blonda harar’, 
+Vi ridanta vindaĵo kun blonda harar’,
 
-kiel venis al mia brakum’? 
+kiel venis al mia brakum’?
 
-Mi vivas\! Mi vivas\! La ter’ je dispon’\! 
+Mi vivas! Mi vivas! La ter’ je dispon’!
 
-De kie min portis la vent’? 
+De kie min portis la vent’?
 
 Mi eble atendis dum jarmilion’
 
-por tiu ĉi sola moment’. 
+por tiu ĉi sola moment’.
 
-87
 
 SVEDA POEMARO
 
-eLIBRO
 
-Evert Taube \(I890–1976\)
+Evert Taube (I890–1976)
 
 Marista lulkanto
 
-Lul — lal — lul’, la kaldrono sur brul’, 
+Lul — lal — lul’, la kaldrono sur brul’,
 
-alvenas tri migrantoj survoje, 
+alvenas tri migrantoj survoje,
 
-unua, ve, lamul’, 
+unua, ve, lamul’,
 
-la dua, ho, blindul’, 
+la dua, ho, blindul’,
 
-la tria ne povas paroli. 
+la tria ne povas paroli.
 
-Lul — lal — lul’, la kaldrono sur brul’, 
+Lul — lal — lul’, la kaldrono sur brul’,
 
-ĉiele migradas tri steloj, 
+ĉiele migradas tri steloj,
 
-unua blankas jen, 
+unua blankas jen,
 
-la dua ruĝas jes, 
+la dua ruĝas jes,
 
-la tria estas luno, la flava. 
+la tria estas luno, la flava.
 
-Lul — lal — lul’, la kaldrono sur brul’, 
+Lul — lal — lul’, la kaldrono sur brul’,
 
-blovadas tri ventoj surmare, 
+blovadas tri ventoj surmare,
 
-sur Granda Ocean’, 
+sur Granda Ocean’,
 
 sur eta Skagerak’
 
-kaj longe for en golfo Botnia. 
+kaj longe for en golfo Botnia.
 
-Lul — lal — lul’, la kaldrono sur brul’, 
+Lul — lal — lul’, la kaldrono sur brul’,
 
-veladas tri ŝipoj suronde, 
+veladas tri ŝipoj suronde,
 
-unua estas bark’, 
+unua estas bark’,
 
-la dua estas brig’, 
+la dua estas brig’,
 
-la tria havas velojn ĉifonajn. 
+la tria havas velojn ĉifonajn.
 
-88
 
 SVEDA POEMARO
 
-eLIBRO
 
-Lul — lal — lul’, la kaldrono sur brul’, 
+Lul — lal — lul’, la kaldrono sur brul’,
 
-ŝipkest’ havas tri figuretojn, 
+ŝipkest’ havas tri figuretojn,
 
 unua estas kred’
 
-kaj dua la esper’, 
+kaj dua la esper’,
 
-la tria estas amo, la tre ruĝa. 
+la tria estas amo, la tre ruĝa.
 
-89
 
 SVEDA POEMARO
 
-eLIBRO
 
-Pär Lagerkvist \(1891–1974\)
+Pär Lagerkvist (1891–1974)
 
 Torso
 
-Nur vi nun restas, brust’, 
+Nur vi nun restas, brust’,
 
-vi suferpova, 
+vi suferpova,
 
 vi, kiu sentas sen lament’
 
-dolorprofundon. 
+dolorprofundon.
 
-Polv’ — mia buŝ’, 
+Polv’ — mia buŝ’,
 
-sur fremda ter’ mutanta, 
+sur fremda ter’ mutanta,
 
 la gorĝo: polv’ —
 
-ne povas plu ĝi krii. 
+ne povas plu ĝi krii.
 
-Kaj miaj membroj, ve, 
+Kaj miaj membroj, ve,
 
 rompite, splite kuŝas
 
-por ĉies piedprem’. 
+por ĉies piedprem’.
 
 Ne levas sin la man’
 
-por kapti vantan ĝojon, 
+por kapti vantan ĝojon,
 
 saluti sunon de la tag’
 
-aŭ preni venko-laŭron. 
+aŭ preni venko-laŭron.
 
 Ne levas sin la frunt’
 
 por kun vireca penso
 
-renkonti sian sorton. 
+renkonti sian sorton.
 
 Okul’ ne malfermiĝas
 
 por mondon klare vidi
 
-kaj trovi la certecon. 
+kaj trovi la certecon.
 
-90
 
 SVEDA POEMARO
 
-eLIBRO
 
 Nur mia brust’, nur vi …
 
-L’animon vi katenas, 
+L’animon vi katenas,
 
-stumpitan por sufer’. 
+stumpitan por sufer’.
 
 Nur vi, ho, brust’ —
 
-birdnesto de la viv’, 
+birdnesto de la viv’,
 
 tremanta
 
 ankoraŭ longe, longe
 
-post forflugo de la birdo. 
+post forflugo de la birdo.
 
-Nur vi, ho brust’, 
+Nur vi, ho brust’,
 
-dolorprofundo, 
+dolorprofundo,
 
-estas indulgita. 
+estas indulgita.
 
-91
 
 SVEDA POEMARO
 
-eLIBRO
 
 Pär Lagerkvist
 
@@ -3896,245 +3680,229 @@ En la sangan havenon de mia kor’
 
 nun fremda ŝipo englitas
 
-kun helaj veloj. El kiu for’? 
+kun helaj veloj. El kiu for’?
 
 Kaj kiu vi estas? Silente vi glitas
 
-en min. Enigas la ankron profunden. 
+en min. Enigas la ankron profunden.
 
 Atendas trankvile
 
 ĉi-nokte
 
-en maldormo ĉe la sanga rodo. 
+en maldormo ĉe la sanga rodo.
 
 Neniu salutas vin. Mortas la vent’
 
-en pende malplena velo. 
+en pende malplena velo.
 
 Ne movas la ondoj en la silent’
 
-vian bildon sur sanga malhelo. 
+vian bildon sur sanga malhelo.
 
-De kie vi venas? 
+De kie vi venas?
 
 Mi atendas de la vasta maro ŝipon
 
-kun blankaj veloj. 
+kun blankaj veloj.
 
-Ne vin. 
+Ne vin.
 
-¯i venus tie el la lumo
+i venus tie el la lumo
 
-kun flagrubandoj feste flirtantaj, 
+kun flagrubandoj feste flirtantaj,
 
 ĝia velo estus plena de suno
 
 kaj ĝi englitus ĉi tien —
 
-Kiu vi estas? 
+Kiu vi estas?
 
-Kial kuŝi tiel peze, 
+Kial kuŝi tiel peze,
 
-tiel preme sur la sanganta rodo? 
+tiel preme sur la sanganta rodo?
 
-92
 
 SVEDA POEMARO
 
-eLIBRO
 
-Edit Södergran \(1892-1923\)
+Edit Södergran (1892-1923)
 
 Ni virinoj
 
-Ni virinoj vivas tiel proksime al la bruna tero. 
+Ni virinoj vivas tiel proksime al la bruna tero.
 
-Ni demandas la kukolon, kion donos la printempo, ni brakumas la nudan pinon, 
+Ni demandas la kukolon, kion donos la printempo, ni brakumas la nudan pinon,
 
-ni esploras ĉe la sunsubiro pri aŭguroj, konsiloj. 
+ni esploras ĉe la sunsubiro pri aŭguroj, konsiloj.
 
 Iam viron mi amis, li al nenio kredis …
 
-En frosta tago li venis kun senanimaj okuloj; en peza tago li foriris kun forgesemo sur la frunto. 
+En frosta tago li venis kun senanimaj okuloj; en peza tago li foriris kun forgesemo sur la frunto.
 
 Se mia infano ne vivas, ĝi lia estas …
 
-93
 
 SVEDA POEMARO
 
-eLIBRO
 
 Edit Södergran
 
 Vespero
 
-Venas vespero malvarma. 
+Venas vespero malvarma.
 
-Sorbu el mia mano la varmon, 
+Sorbu el mia mano la varmon,
 
-mia mano havas sangon printempan. 
+mia mano havas sangon printempan.
 
-Mian manon prenu, mian brakon blankan, 
+Mian manon prenu, mian brakon blankan,
 
-prenu la sopiron de miaj junaj ŝultroj. 
+prenu la sopiron de miaj junaj ŝultroj.
 
-Senti, senti nur unu nokton, 
+Senti, senti nur unu nokton,
 
-en nokto kia la nuna, 
+en nokto kia la nuna,
 
 vian pezan kapon sur mia brusto …
 
-94
 
 SVEDA POEMARO
 
-eLIBRO
 
 Edit Södergran
 
 Sen titolo
 
-Degelis kiel neĝo aerkasteloj miaj, 
+Degelis kiel neĝo aerkasteloj miaj,
 
-forfluis kiel akvo la revoj. 
+forfluis kiel akvo la revoj.
 
-El ĉio, kion amis mi, 
+El ĉio, kion amis mi,
 
 ĉielo restas nur
 
-kun kelkaj palaj steloj. 
+kun kelkaj palaj steloj.
 
-\*
 
-Floron vi serĉis, trovis frukton, 
+Floron vi serĉis, trovis frukton,
 
-fonton vi serĉis, trovis maron, 
+fonton vi serĉis, trovis maron,
 
-virinon vi serĉis, trovis animon. 
+virinon vi serĉis, trovis animon.
 
-Malkontenta vi estas. 
+Malkontenta vi estas.
 
-\*
 
 Via amo vian stelon estingas —
 
-en mia vivo luno ekbrilas. 
+en mia vivo luno ekbrilas.
 
-Mia mano ne hejmas en via. 
+Mia mano ne hejmas en via.
 
-Via mano: libido. 
+Via mano: libido.
 
-Mia mano: sopiro. 
+Mia mano: sopiro.
 
-95
 
 SVEDA POEMARO
 
-eLIBRO
 
-Erik Blomberg \(1894–1965\)
+Erik Blomberg (1894–1965)
 
 Patrino
 
 Ripozas vi de l’taglabor’
 
-nun en krepuskbalzamoj. 
+nun en krepuskbalzamoj.
 
 De lakt’ varmeta kaj lipmol’
 
-odoras viaj mamoj. 
+odoras viaj mamoj.
 
 Silentas hejm’. Ridetas vi
 
-dum vesperhor’ trankvilas. 
+dum vesperhor’ trankvilas.
 
 Vi klinas nukon — ĉirkaŭ ĝi
 
-lumringo milde brilas. 
+lumringo milde brilas.
 
 Jen hejmo — for de harpozum’
 
-kaj sankta orrivero, 
+kaj sankta orrivero,
 
 sed de la lampo nimbas lum’
 
-patrinon sur la tero. 
+patrinon sur la tero.
 
-96
 
 SVEDA POEMARO
 
-eLIBRO
 
-Hjalmar Gullberg \(1898–1961\)
+Hjalmar Gullberg (1898–1961)
 
 Enciklopedio de dioj
 
-Amor \(greklingve Eros\), amdio. Malpermesato. 
+Amor (greklingve Eros), amdio. Malpermesato.
 
-Foje vidita hazarde en iu kristana fistrato. 
+Foje vidita hazarde en iu kristana fistrato.
 
-Balder, dio germana, pioniro de l’paca trankvilo. 
+Balder, dio germana, pioniro de l’paca trankvilo.
 
-Prapacifisto. Kondamno: tre longa ekzilo. 
+Prapacifisto. Kondamno: tre longa ekzilo.
 
-Ceres nun spertas, ke grenon ni brule oferas, dum la senpanaj najbaroj malsaton suferas. 
+Ceres nun spertas, ke grenon ni brule oferas, dum la senpanaj najbaroj malsaton suferas.
 
-Demos, di’ de l’popol’, nenaskita pro manko de forto, generita de Marx; post jarcento mortinta \(aborto\). 
+Demos, di’ de l’popol’, nenaskita pro manko de forto, generita de Marx; post jarcento mortinta (aborto).
 
-Eternaj dioj sub G, H kaj N sin antaŭe trovis, dioj fuĝintaj, ĉar ilin kateni ni provis. 
+Eternaj dioj sub G, H kaj N sin antaŭe trovis, dioj fuĝintaj, ĉar ilin kateni ni provis.
 
-Fortaj fulmdioj kaj ¯ojo-diinoj —
+Fortaj fulmdioj kaj ojo-diinoj —
 
-ilin forpelis tiranoj kaj prudaj virinoj. 
+ilin forpelis tiranoj kaj prudaj virinoj.
 
-Inri, surkruca skrib’ de Golgota. 
+Inri, surkruca skrib’ de Golgota.
 
-Jesus el Názaret, Reĝo de l’judoj \(sub J retrovota\). 
+Jesus el Názaret, Reĝo de l’judoj (sub J retrovota).
 
 Jesus, la di’ krucumita, kun tuta la gento
 
-malpermesita en nia dudeka jarcento. 
+malpermesita en nia dudeka jarcento.
 
-97
-
-SVEDA POEMARO
-
-eLIBRO
-
-Kristus \(signifas: sanktoleita je reĝo\). 
-
-”Ilin pardonu, ĉar ili ne scias …” — jen lia preĝo. 
-
-Multaj migrantaj gedioj troviĝis sub L, R, S, T. 
-
-Dia aero nomiĝas libero. La dioj nun fuĝas nin do. 
-
-Pallas Athene, la Inteligento, Racio, 
-
-jam, pro ordono, transiris al nekonata nacio. 
-
-Quo vadis? \(Kien vi iras?\) Al di’ oni faris demandon. 
-
-”Al la ĉiel’. Oni diris: ’Forlasu la landon\!’ ” 
-
-Venus, la ŝaŭmo-devena, nun vivas en granda mizero. 
-
-ŝin pormorala polico hejmensendis de l’tero. 
-
-Xerxes la maron per skurĝoj forte batfendis, 
-
-ĉar de mardioj la greka libero dependis. 
-
-Zeus onidire forestas. La dioj potencaj la homojn fuĝis, post unu alia. Neniu memoras la nomojn. 
-
-98
 
 SVEDA POEMARO
 
-eLIBRO
+
+Kristus (signifas: sanktoleita je reĝo).
+
+”Ilin pardonu, ĉar ili ne scias …” — jen lia preĝo.
+
+Multaj migrantaj gedioj troviĝis sub L, R, S, T.
+
+Dia aero nomiĝas libero. La dioj nun fuĝas nin do.
+
+Pallas Athene, la Inteligento, Racio,
+
+jam, pro ordono, transiris al nekonata nacio.
+
+Quo vadis? (Kien vi iras?) Al di’ oni faris demandon.
+
+”Al la ĉiel’. Oni diris: ’Forlasu la landon!’ ”
+
+Venus, la ŝaŭmo-devena, nun vivas en granda mizero.
+
+ŝin pormorala polico hejmensendis de l’tero.
+
+Xerxes la maron per skurĝoj forte batfendis,
+
+ĉar de mardioj la greka libero dependis.
+
+Zeus onidire forestas. La dioj potencaj la homojn fuĝis, post unu alia. Neniu memoras la nomojn.
+
+
+SVEDA POEMARO
+
 
 Hjalmar Gullberg
 
@@ -4146,7 +3914,7 @@ rondiras kun digna krurlevo
 
 inter literoj de Arabi’
 
-sur ŝalo el Sarajevo. 
+sur ŝalo el Sarajevo.
 
 Tiaj ne estas la ŝtofoj de l’
 
@@ -4154,15 +3922,15 @@ teksistoj el ĉi regiono:
 
 laŭ okcidenta, popola model’
 
-disŝirus la cervon leono. 
+disŝirus la cervon leono.
 
-ŝalon aĉetis la skandinav’, 
+ŝalon aĉetis la skandinav’,
 
-ke ĉesu vendist-oracio. 
+ke ĉesu vendist-oracio.
 
-ŝalo surlita — jen mia elsav’, 
+ŝalo surlita — jen mia elsav’,
 
-spitado al biologio, 
+spitado al biologio,
 
 de orientaj sanktuloj vizi’
 
@@ -4170,13 +3938,11 @@ sur krucoj sub dornokronoj:
 
 land’, kie ludas kun ŝafo besti’
 
-kaj dancas la cerv’ kun leonoj. 
+kaj dancas la cerv’ kun leonoj.
 
-99
 
 SVEDA POEMARO
 
-eLIBRO
 
 Hjalmar Gullberg
 
@@ -4184,81 +3950,77 @@ Parolas la disĉiplo plej amata
 
 ĉi manojn vidu, kiuj la kalikon
 
-al niaj lipoj metis, rompis panojn\! 
+al niaj lipoj metis, rompis panojn!
 
-Por vundoj kaj doloroj resanigon. 
+Por vundoj kaj doloroj resanigon.
 
-ĉe lia kruco laŭdas mi ĉi manojn. 
+ĉe lia kruco laŭdas mi ĉi manojn.
 
-Por beni taŭgis ili kaj donaci, 
+Por beni taŭgis ili kaj donaci,
 
-ne por defendi aŭ perforte preni. 
+ne por defendi aŭ perforte preni.
 
-Vespere, kiam li komencis laci, 
+Vespere, kiam li komencis laci,
 
-en miajn buklojn ili emis veni. 
+en miajn buklojn ili emis veni.
 
-100
 
 SVEDA POEMARO
 
-eLIBRO
 
-Nils Ferlin \(1898–1961\)
+Nils Ferlin (1898–1961)
 
 Tra muro
 
 Kalkulu ĝis mil — aŭ ĝis milo kaj du
 
-aŭ nur unu kaj mil, sinjor’ Johanson’\! 
+aŭ nur unu kaj mil, sinjor’ Johanson’!
 
 Aŭ englutu disketon da bromo. ĉu
 
-ne helpus al vi, sinjor’ Johanson? 
+ne helpus al vi, sinjor’ Johanson?
 
-Sed kiom da bru’ — ĉe vi estas aktor’? 
+Sed kiom da bru’ — ĉe vi estas aktor’?
 
-Tragedi’ aŭ fars’, sinjor’ Johanson? 
+Tragedi’ aŭ fars’, sinjor’ Johanson?
 
-Eble estas kompleks’. Aŭ dentodolor’. 
+Eble estas kompleks’. Aŭ dentodolor’.
 
-Aŭ ĉu estas l’anim’, sinjor’ Johanson’? 
+Aŭ ĉu estas l’anim’, sinjor’ Johanson’?
 
-La animo nur, do. Ho, bonŝance nur ĝi, 
+La animo nur, do. Ho, bonŝance nur ĝi,
 
-nur apendicet’, sinjor’ Johanson\`\! 
+nur apendicet’, sinjor’ Johanson`!
 
-¯in detondas ni tuj, kaj poste al vi
+in detondas ni tuj, kaj poste al vi
 
-venos bona ekdorm’, sinjor’ Johanson’. 
+venos bona ekdorm’, sinjor’ Johanson’.
 
-101
 
 SVEDA POEMARO
 
-eLIBRO
 
 Nils Ferlin
 
 Tute egalas al mi
 
-Kiam la kapo vaporas, 
+Kiam la kapo vaporas,
 
 Mezulo Sved’ estas vir’ —
 
 ne tiel diable tedega
 
-kiel kun sobra elspir’. 
+kiel kun sobra elspir’.
 
-Li povas eĉ ĝui kanteton, 
+Li povas eĉ ĝui kanteton,
 
-legadon de iu strof’, 
+legadon de iu strof’,
 
 kaj ofte dum nokta hejmkrozo
 
-ŝanĝiĝas je filozof’, 
+ŝanĝiĝas je filozof’,
 
-ekstaras, kun kruroj dise, 
+ekstaras, kun kruroj dise,
 
 por malseklipa rezon’
 
@@ -4274,37 +4036,33 @@ kiel musoj en la eter’ …
 
 estas tamen mirinda afer’ …
 
-… jes, Di’ mia, se oni pensas …” 
+… jes, Di’ mia, se oni pensas …”
 
-Ne plue atingas li, 
+Ne plue atingas li,
 
-nur tien eĉ Salomono, 
+nur tien eĉ Salomono,
 
-kaj — tute egalas al mi. 
+kaj — tute egalas al mi.
 
-102
 
 SVEDA POEMARO
 
-eLIBRO
 
 Nils Ferlin
 
 Sen titolo
 
-Solvita mondenigmo\! En la scienca lum’
+Solvita mondenigmo! En la scienca lum’
 
-vaporas for la timo kaj doloro. 
+vaporas for la timo kaj doloro.
 
 Etiĝis la distanco de dom’ al domo, dum
 
-longiĝis tiu inter kor’ kaj koro. 
+longiĝis tiu inter kor’ kaj koro.
 
-103
 
 SVEDA POEMARO
 
-eLIBRO
 
 Nils Ferlin
 
@@ -4316,29 +4074,27 @@ kun ĝemplenda ekkri’
 
 apud sia ofer’
 
-mortfalis al ter’, 
+mortfalis al ter’,
 
 parolis al Kain Di’ en koler’ …
 
-Sed Kain respondis: ”ĉu mi estas gardanto de mia frato?” 
+Sed Kain respondis: ”ĉu mi estas gardanto de mia frato?”
 
 Estas rimarkinde, ke en la mondhistorio neniam troviĝis pli
 
-ĝenerale memorita repliko ol ĉi tiu. 
+ĝenerale memorita repliko ol ĉi tiu.
 
-Tiu de Kain. 
+Tiu de Kain.
 
-104
 
 SVEDA POEMARO
 
-eLIBRO
 
 Nils Ferlin
 
 Ludo
 
-Esi ke, desi ke \! Luda scen’. 
+Esi ke, desi ke ! Luda scen’.
 
 Vivo kalkulas kaj Anderson jen
 
@@ -4346,73 +4102,69 @@ bruste sentas puŝegon — kuŝ’ …
 
 Esi ke, desi ke, pif, paf, puŝ’ —
 
-Peterson svene aspektas. 
+Peterson svene aspektas.
 
-Esi ke, desi ke, for la glor’. 
+Esi ke, desi ke, for la glor’.
 
-Esi ke, desi ke, Lundström for\! 
+Esi ke, desi ke, Lundström for!
 
-Sian vicon neniu suspektas. 
+Sian vicon neniu suspektas.
 
 Ekster la rond’ pacience sinjor’
 
-Morto rastante kolektas. 
+Morto rastante kolektas.
 
-105
 
 SVEDA POEMARO
 
-eLIBRO
 
-Hans Botwid \(1901–1989\)
+Hans Botwid (1901–1989)
 
 Ne tuŝu ĉi tiujn
 
-Malĝojo, 
+Malĝojo,
 
 vi povas eduki
 
-la virojn de la kruela rido. 
+la virojn de la kruela rido.
 
-Malĝojo, 
+Malĝojo,
 
-vi povas mildigi la virinojn de la akra rigardo. 
+vi povas mildigi la virinojn de la akra rigardo.
 
-Malĝojo,, 
+Malĝojo,,
 
-vi povas purigi, 
+vi povas purigi,
 
-hardi, 
+hardi,
 
 nobligi, sed —
 
-ne tuŝu ĉi tiujn\! 
+ne tuŝu ĉi tiujn!
 
 Ilin vi rompus
 
-aŭ, se ne, 
+aŭ, se ne,
 
-ili malmoliĝus, 
+ili malmoliĝus,
 
-kaj sur korojn, 
+kaj sur korojn,
 
-kies sentoj floris printempobluaj, 
+kies sentoj floris printempobluaj,
 
-glacilumo palus. 
+glacilumo palus.
 
 Tera malĝojo
 
-iru al tiuj, 
+iru al tiuj,
 
 kiuj sin hardis
 
-per tera ĝojo. 
+per tera ĝojo.
 
-106
 
 SVEDA POEMARO
 
-eLIBRO
 
 Vera Flygare
 
@@ -4420,67 +4172,65 @@ Bonvensaluto
 
 ŝipoj mare vojon plugas
 
-tra nebul’ aŭ suna klar’, 
+tra nebul’ aŭ suna klar’,
 
 kaj aeroplanoj flugas
 
-super ŝtorma Baltomar’. 
+super ŝtorma Baltomar’.
 
-jen la celo: nia flora, 
+jen la celo: nia flora,
 
-betulverda, sveda strand’. 
+betulverda, sveda strand’.
 
-Nun, fremdul’ el lando fora, 
+Nun, fremdul’ el lando fora,
 
 bonvenigas vin Svedland’:
 
-seriozaj arbaregoj, 
+seriozaj arbaregoj,
 
-flava greno, laga blu’, 
+flava greno, laga blu’,
 
-montoj kun glaciaj tegoj, 
+montoj kun glaciaj tegoj,
 
-insuletoj, riverflu’, 
+insuletoj, riverflu’,
 
-Ostrogotaj la ebenoj, 
+Ostrogotaj la ebenoj,
 
-nordĉiela aŭreol’, 
+nordĉiela aŭreol’,
 
 de Sörmland’ nobelbienoj
 
-kaj noktsuna, sorĉa mol’. 
+kaj noktsuna, sorĉa mol’.
 
-Visby: rozoj kaj ruinoj, 
+Visby: rozoj kaj ruinoj,
 
-mezepoko kaj memor’, 
+mezepoko kaj memor’,
 
 en Snäckgärd-banej’ senfinoj
 
-\(En 1936 Vera Flygare verkis la jenan bonvensaluton de la Sveda Trafik-Asocio al internacia kongreso en Stockholm. La kongresaranĝantoj petis tradukon ankaŭ en Esperanto.\)
+(En 1936 Vera Flygare verkis la jenan bonvensaluton de la Sveda Trafik-Asocio al internacia kongreso en Stockholm. La kongresaranĝantoj petis tradukon ankaŭ en Esperanto.)
 
-107
 
 SVEDA POEMARO
 
-eLIBRO
 
-da salfreŝo kaj sunor’. 
+da salfreŝo kaj sunor’.
 
-Gösta Berling-valo olda, 
+Gösta Berling-valo olda,
 
-Vermland, hejm’ de romantik’\! 
+Vermland, hejm’ de romantik’!
 
 Jen Nils Holgerson, kobolda —
 
-pionir’ de flugtrafik’\! 
+pionir’ de flugtrafik’!
 
-Stockholm\! Melarlag-Reĝino\! 
+Stockholm! Melarlag-Reĝino!
 
-Sonĝe rava fejuvel’\! 
+Sonĝe rava fejuvel’!
 
 Revas en ondlula sino
 
-la Palac’ sub luna hel’. 
+la Palac’ sub luna hel’.
 
 Pardonkisas glor’ praava
 
@@ -4488,15 +4238,15 @@ domojn de la rektlini’
 
 kaj kiel en temp’ Gustava
 
-flirtas Haga papili’. 
+flirtas Haga papili’.
 
 Sur Skaniebeno granda
 
-fluas lakto kaj miel’; 
+fluas lakto kaj miel’;
 
 kaŝas sin en ter’ Nordlanda
 
-ruĝa oro de l’fabel’. 
+ruĝa oro de l’fabel’.
 
 Kaj ankoraŭ ĉe la sonoj
 
@@ -4504,29 +4254,27 @@ de l’martel’, en fumvual’
 
 fandas filoj de valonoj
 
-ercon por la sveda ŝtal’. 
+ercon por la sveda ŝtal’.
 
 En la ŝaum’ torenta saltas
 
-salmoj kun arĝenta bril’, 
+salmoj kun arĝenta bril’,
 
 blanka vel’ fiere altas
 
-kontraŭ ruĝa sunsubir’. 
+kontraŭ ruĝa sunsubir’.
 
-Fojnodoro, somersuno\! 
+Fojnodoro, somersuno!
 
 Violona melodi’ …
 
-108
 
 SVEDA POEMARO
 
-eLIBRO
 
-Aerklaro de l’autuno, 
+Aerklaro de l’autuno,
 
-vigla sporto sur glaci’. 
+vigla sporto sur glaci’.
 
 Mejlojn fulmrapide glutas
 
@@ -4534,322 +4282,303 @@ trajnoj per elektra ir’ —
 
 ripoziga vin salutas
 
-tamen lando de trankvil’. 
+tamen lando de trankvil’.
 
-Ho, fremdul’ el lando fora, 
+Ho, fremdul’ el lando fora,
 
 por adiaŭ ĉe la strand’
 
 estu la donaco flora:
 
-la memoroj el Svedland’. 
+la memoroj el Svedland’.
 
-109
 
 SVEDA POEMARO
 
-eLIBRO
 
 Aŭtoro nekonata
 
 Lulkanto
 
-Dormu, kara mia kor’\! 
+Dormu, kara mia kor’!
 
-Jam la stelo brilas. 
+Jam la stelo brilas.
 
-Nokto sonĝas en la for’, 
+Nokto sonĝas en la for’,
 
-lun’ malkreske iras. 
+lun’ malkreske iras.
 
 Bird’ en sia varma nest’
 
-dormas en kvieto, 
+dormas en kvieto,
 
 same en la mola vest’
 
-dormu infaneto. 
+dormu infaneto.
 
 Via tuta, longa tag’
 
-plenis de ludkuro. 
+plenis de ludkuro.
 
 Nun la elfoj de la lag’
 
-dancas je konkuro. 
+dancas je konkuro.
 
-Dormu, mia korolum’, 
+Dormu, mia korolum’,
 
-en la nokt’ silenta\! 
+en la nokt’ silenta!
 
 Baldaŭ ridos ree sun’
 
-sur river’ arĝenta. 
+sur river’ arĝenta.
 
-110
 
 SVEDA POEMARO
 
-eLIBRO
 
 Sveda popolkanto mezepoka
 
 Sven el Rozĝarden’
 
-Kie estis vi tiom longe, 
+Kie estis vi tiom longe,
 
-ho, Sven el Rozĝarden’? 
+ho, Sven el Rozĝarden’?
 
-— En la stalo mi estis, 
+— En la stalo mi estis,
 
-nia patrinet’\! 
+nia patrinet’!
 
-Atendu malfrue … neniam. 
+Atendu malfrue … neniam.
 
-De kie la sang’ sur ĉemizo, 
+De kie la sang’ sur ĉemizo,
 
-ho, Sven el Rozĝarden’? 
+ho, Sven el Rozĝarden’?
 
-— Mi mortigis la fraton, 
+— Mi mortigis la fraton,
 
-nia patrinet’. 
+nia patrinet’.
 
-Atendu malfrue … neniam. 
+Atendu malfrue … neniam.
 
-Kaj kiel vi vin elsavos, 
+Kaj kiel vi vin elsavos,
 
-ho, Sven el Rozĝarden’? 
+ho, Sven el Rozĝarden’?
 
-— Mi forlasos la landon, 
+— Mi forlasos la landon,
 
-nia patrinet’. 
+nia patrinet’.
 
-Atendu malfrue … neniam. 
+Atendu malfrue … neniam.
 
-111
 
 SVEDA POEMARO
 
-eLIBRO
 
 El la Biblio
 
 Eternulo, grace benu
 
-kaj nin ĉiujn gardu nun\! 
+kaj nin ĉiujn gardu nun!
 
-Kontraŭ ni vizaĝon tenu, 
+Kontraŭ ni vizaĝon tenu,
 
-ke surfluu nin la lum’\! 
+ke surfluu nin la lum’!
 
-Turnu vin al ni kun grac, 
+Turnu vin al ni kun grac,
 
-venu en la koron pac’\! 
+venu en la koron pac’!
 
-Laŭdu danke mi, savito, 
+Laŭdu danke mi, savito,
 
-vin, ho Patro, Fil’, Spirito\! 
+vin, ho Patro, Fil’, Spirito!
 
 Nombroj 6: 24-26
 
-112
 
 SVEDA POEMARO
 
-eLIBRO
 
 El la Biblio
 
 Mi levas la okulojn
 
-preĝante, al la mont’, 
+preĝante, al la mont’,
 
-al Li, la Eternulo, 
+al Li, la Eternulo,
 
-potenca la helpont’. 
+potenca la helpont’.
 
-Ke mi ne piedglitu, 
+Ke mi ne piedglitu,
 
-atentas la rigard’, 
+atentas la rigard’,
 
 ĉar ne dormetas, kiu
 
-sin nomas mia gard’. 
+sin nomas mia gard’.
 
-De lzrael’ ŝirmanto, 
+De lzrael’ ŝirmanto,
 
-neniam dormas li; 
+neniam dormas li;
 
 ĉe mia dekstra flanko
 
-la ombron formas li. 
+la ombron formas li.
 
 De sun’ li ŝirmas tage
 
-kaj nokte de la lun’, 
+kaj nokte de la lun’,
 
-elire kaj enire, 
+elire kaj enire,
 
-eterne kiel nun. 
+eterne kiel nun.
 
 Psalmo 121
 
-113
 
 SVEDA POEMARO
 
-eLIBRO
 
-www.omnibus.se/inko
-
-ISBN 91-7303-072-4
-
-114
-
-
-
-
+www.omnibus.se/
 
 # Document Outline
 
-+ Enhavo  
-	+ Antau'vortoj de la tradukintino 
-	+ Enkonduko 
-	+ Johan Olof Wallin \(1779-1839\)  
-		+ Amikon karan 
-		+ Kristnaska mateno 
-		+ En la c'ielira tago 
-		+ El ”Ang'elo de l’morto”.  
++ Enhavo
++ Antaŭvortoj de la tradukintino
++ Enkonduko
++ Johan Olof Wallin (1779-1839)
++ Amikon karan
++ Kristnaska mateno
++ En la ĉielira tago
++ El ”Anĝelo de l’morto”.
 
-	+ Esaias Tegnér \(1782-1846\)  
-		+ Tio, kio eternas 
++ Esaias Tegnér (1782-1846)
++ Tio, kio eternas
 
-	+ J. L. Runeberg \(1804-I877\)  
-		+ Himno 
++ J. L. Runeberg (1804-I877)
++ Himno
 
-	+ Lina Sandell-Berg \(1832-1903\)  
-		+ Tagon nur, momenton nur 
-		+ Sekureco 
-		+ Trankvilas c'e Jesua kor’ 
++ Lina Sandell-Berg (1832-1903)
++ Tagon nur, momenton nur
++ Sekureco
++ Trankvilas ĉe Jesua kor’
 
-	+ Carl David af Wirsén \(1842-1912\)  
-		+ Sankta vendredo 
-		+ Selma Sundelius-Lagerström \(1859-1927\) 
-		+ Sinjoro, blovu ventoj de l’Spirito 
++ Carl David af Wirsén (1842-1912)
++ Sankta vendredo
++ Selma Sundelius-Lagerström (1859-1927)
++ Sinjoro, blovu ventoj de l’Spirito
 
-	+ Verner von Heidenstam \(1859–1940\)  
-		+ La nokto 
++ Verner von Heidenstam (1859–1940)
++ La nokto
 
-	+ Gustaf Fröding \(I860-1911\)  
-		+ Kio estas vero?  
-		+ Sigelo de Salomono 
-		+ Idealismo kaj realismo 
-		+ Maja kanteto 
-		+ Al Salem 
-		+ Elekto — aflikto 
++ Gustaf Fröding (I860-1911)
++ Kio estas vero?
++ Sigelo de Salomono
++ Idealismo kaj realismo
++ Maja kanteto
++ Al Salem
++ Elekto — aflikto
 
-	+ Oscar Levertin \(I862-I9o6\)  
-		+ Novjara kanteto mezepoka 
-		+ En la juda tombejo de Praha 
-		+ Song'o pri tero kaj ventoj 
-		+ La mortintoj 
-		+ El ”La gepatra lingvo”  
++ Oscar Levertin (I862-I9o6)
++ Novjara kanteto mezepoka
++ En la juda tombejo de Praha
++ Sonĝo pri tero kaj ventoj
++ La mortintoj
++ El ”La gepatra lingvo”
 
-	+ Erik Axel Karlfeldt \(1864-1931\)  
-		+ Virgulino Maria 
-		+ C'ieliro de profeto Elija 
-		+ Temp’ atenda 
-		+ Poemo c'e la soleno de la Sveda Akademio, au'tune 1929 
-		+ Malsano 
-		+ Nigra Rudolfo 
++ Erik Axel Karlfeldt (1864-1931)
++ Virgulino Maria
++ Ĉieliro de profeto Elija
++ Temp’ atenda
++ Poemo ĉe la soleno de la Sveda Akademio, aŭtune 1929
++ Malsano
++ Nigra Rudolfo
 
-	+ Per Hallström \(1866–1960\)  
-		+ Kanto pri la tero 
++ Per Hallström (1866–1960)
++ Kanto pri la tero
 
-	+ Bo Bergman \(1869–1967\)  
-		+ Adag'o 
-		+ La revuloj 
-		+ Kritiko 
-		+ Nia sorto 
-		+ Nun iras s'ip’ 
-		+ Infana kanteto 
-		+ Lilio en Paradizo 
-		+ La lasta stelo 
++ Bo Bergman (1869–1967)
++ Adaĝo
++ La revuloj
++ Kritiko
++ Nia sorto
++ Nun iras ŝip’
++ Infana kanteto
++ Lilio en Paradizo
++ La lasta stelo
 
-	+ Karl Erik Forsslund \(1872–1941\)  
-		+ La sorc'ito 
++ Karl Erik Forsslund (1872–1941)
++ La sorĉito
 
-	+ Bertel Gripenberg \(1878-1947\)  
-		+ Soleca skispuro 
++ Bertel Gripenberg (1878-1947)
++ Soleca skispuro
 
-	+ Jeanna Oterdahl \(1879–1965\)  
-		+ Preg'o 
++ Jeanna Oterdahl (1879–1965)
++ Preĝo
 
-	+ Wilhelm Ekelund \(1880–1949\)  
-		+ Tiam estis helaj la fagoj 
-		+ Kvieto 
-		+ Adoro 
++ Wilhelm Ekelund (1880–1949)
++ Tiam estis helaj la fagoj
++ Kvieto
++ Adoro
 
-	+ Sigfrid Siwertz \(1882–1970\)  
-		+ El ”Exit Isidoro Filén”  
++ Sigfrid Siwertz (1882–1970)
++ El ”Exit Isidoro Filén”
 
-	+ Anders Österling \(1884–1981\)  
-		+ Evangelio 
-		+ Monokordo 
-		+ Pejzag'o kun steloj 
++ Anders Österling (1884–1981)
++ Evangelio
++ Monokordo
++ Pejzaĝo kun steloj
 
-	+ Ture Nerman \(1886–1969\)  
-		+ Karinjo 
++ Ture Nerman (1886–1969)
++ Karinjo
 
-	+ Harriet Löwenhielm \(I887-1918\)  
-		+ Al la malgranda frat’ de mia koro 
++ Harriet Löwenhielm (I887-1918)
++ Al la malgranda frat’ de mia koro
 
-	+ Dan Andersson \(I888–1920\)  
-		+ Maristo Janson 
++ Dan Andersson (I888–1920)
++ Maristo Janson
 
-	+ Erik Lindorm \(1889-1941\)  
-		+ Posttagmezo 
-		+ Minuto de felic'o 
++ Erik Lindorm (1889-1941)
++ Posttagmezo
++ Minuto de feliĉo
 
-	+ Evert Taube \(I890–1976\)  
-		+ Marista lulkanto 
++ Evert Taube (I890–1976)
++ Marista lulkanto
 
-	+ Pär Lagerkvist \(1891–1974\)  
-		+ Torso 
-		+ En la sangan havenon de mia kor’ 
++ Pär Lagerkvist (1891–1974)
++ Torso
++ En la sangan havenon de mia kor’
 
-	+ Edit Södergran \(1892-1923\)  
-		+ Ni virinoj 
-		+ Vespero 
-		+ Sen titolo 
++ Edit Södergran (1892-1923)
++ Ni virinoj
++ Vespero
++ Sen titolo
 
-	+ Erik Blomberg \(1894–1965\)  
-		+ Patrino 
++ Erik Blomberg (1894–1965)
++ Patrino
 
-	+ Hjalmar Gullberg \(1898–1961\)  
-		+ Enciklopedio de dioj 
-		+ La s'alo el Sarajevo 
-		+ Parolas la disc'iplo plej amata 
++ Hjalmar Gullberg (1898–1961)
++ Enciklopedio de dioj
++ La ŝalo el Sarajevo
++ Parolas la disĉiplo plej amata
 
-	+ Nils Ferlin \(1898–1961\)  
-		+ Tra muro 
-		+ Tute egalas al mi 
-		+ Sen titolo 
-		+ Rimarkinde 
-		+ Ludo 
++ Nils Ferlin (1898–1961)
++ Tra muro
++ Tute egalas al mi
++ Sen titolo
++ Rimarkinde
++ Ludo
 
-	+ Hans Botwid \(1901–1989\)  
-		+ Ne tus'u c'i tiujn 
++ Hans Botwid (1901–1989)
++ Ne tuŝu ĉi tiujn
 
-	+ Vera Flygare  
-		+ Bonvensaluto 
++ Vera Flygare
++ Bonvensaluto
 
-	+ Au'toro nekonata  
-		+ Lulkanto 
++ Aŭtoro nekonata
++ Lulkanto
 
-	+ Sveda popolkanto mezepoka  
-		+ Sven el Rozg'arden’ 
++ Sveda popolkanto mezepoka
++ Sven el Rozĝarden’
 
-	+ El la Biblio: Eternulo, grace benu 
-	+ El la Biblio; Mi levas la okulojn
-
++ El la Biblio: Eternulo, grace benu
++ El la Biblio; Mi levas la okulojn

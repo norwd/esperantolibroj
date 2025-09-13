@@ -1,18 +1,5 @@
-% R. U. R_
-% Karel Capek
-
-!(images/000000.jpg)
-
-
-R. U. R. 
-
-eLIBRO
-
-eLIBRO
-
 *Karel Âapek*
 
-**R. U. R. **
 
 Rossumaj
 
@@ -20,13 +7,9 @@ Universal-
 
 Robotoj
 
-I N K O
 
-1
+R. U. R.
 
-R. U. R. 
-
-eLIBRO
 
 *Karel Âapek*
 
@@ -40,29 +23,20 @@ eLIBRO
 
 *Skanis kaj tekstigis Miroslav Malovec*
 
-eLIBRO
 
-*Aranĝis: Franko Luin*
+*@omnibus.se*
 
-**ISBN 91-7303-162-3**
+*http://www.omnibus.se/*
 
-*inko@omnibus.se*
 
-*http://www.omnibus.se/inko*
+R. U. R.
 
-**JULIO 2002**
-
-2
-
-R. U. R. 
-
-eLIBRO
 
 **PERSONOJ**
 
 **HARRY DOMIN**, *centra direktoro de ”Rossumaj* *Universal-Robotoj” *
 
-**IN¯-O FABRY**, *ĝenerala teknika direktoro de R.U.R. *
+**IN-O FABRY**, *ĝenerala teknika direktoro de R.U.R. *
 
 **D-RO GALL**, *estro de la fiziologia kaj esplora departemento de R.U.R. *
 
@@ -96,9 +70,8 @@ eLIBRO
 
 **ROBOTA SERVISTO** *kaj multaj Robotoj* 3
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 DOMIN
 
@@ -126,13 +99,11 @@ ROBOTOJ *estas vestitaj en la antaŭludo kiel homoj. Iliaj* *movoj kaj paroloj e
 
 *rimeno kaj sur la brusto latunan numeron. *
 
-Post la antaŭludo kaj la dua akto paŭzo. 
+Post la antaŭludo kaj la dua akto paŭzo.
 
-4
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **ANTAŭLUDO**
 
@@ -148,9 +119,8 @@ eLIBRO
 
 *Mendu Rossumajn Robotojn”. Plue aliaj geografiaj kartoj, ŝipa hortabelo, tabelo kun tele-grafe indikitaj kurzoj k.t.p. Kontraste al ĉi tiu* *ornamo de muroj kuŝas sur la planko luksa* *turka tapiŝo, dekstre ronda tablo, kanapo,* 5
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *ledaj klubaj apogseĝoj kaj libroŝranko, en kiu* *troviĝas boteloj da vino kaj brandoj anstataŭ* *libroj. Maldekstre kaso. Apud la tablo de Domin skribmaŝino, je kiu skribas la knabino* *SULLA. *
 
@@ -164,25 +134,25 @@ voje difektitaj. Ni atentigis vian ŝipestron
 
 tuj ĉe la enŝipigado, ke la ŝipo ne taŭgas
 
-por transporto de Robotoj —” 
+por transporto de Robotoj —”
 
 *Eksonoras la domtelefono. Domin levas ĝin* *kaj parolas:*
 
 Halo — ĉi tie centra — jes. — Certe. — Nu
 
-jes, kiel ĉiam. — Kompreneble, kablu al ili. 
+jes, kiel ĉiam. — Kompreneble, kablu al ili.
 
-— Bone. 
+— Bone.
 
 *li pendigas la telefonon*
 
-Kie mi ĉesis? 
+Kie mi ĉesis?
 
 **Sulla**
 
 Ni konfirmas la mendon de dek kvin mil
 
-Robotoj. 
+Robotoj.
 
 **Domin**
 
@@ -190,35 +160,33 @@ Robotoj.
 
 Dek kvin mil Robotoj. Dek kvin mil Robo-
 
-toj. 
+toj.
 
 **Marius**
 
 *malfermas la pordon*
 
-Bonvolu, sinjorino. 
+Bonvolu, sinjorino.
 
 *Eniras HELENA GLORY. MARIUS foriras. *
 
-6
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 *ekstaras*
 
-Bonvolu\! 
+Bonvolu!
 
 **Helena**
 
-ĉu la centra direktoro Domin? 
+ĉu la centra direktoro Domin?
 
 **Domin**
 
-Je via dispono. 
+Je via dispono.
 
 **Helena**
 
@@ -228,13 +196,13 @@ Mi venas al vi —
 
 — kun karto de prezidanto Glory. Tio sufi-
 
-ĉas. 
+ĉas.
 
 **Helena**
 
 Prezidanto Glory estas mia patro. Mi estas
 
-Helena Glory. 
+Helena Glory.
 
 **Domin**
 
@@ -244,15 +212,15 @@ noro, ke — ke —
 
 **Helena**
 
-— ke ni ne povas eligi vin tra pordo. 
+— ke ni ne povas eligi vin tra pordo.
 
 **Domin**
 
 — ke ni povas bonvenigi la filinon de la
 
-granda prezidanto. Mi petas, sidiĝu. Sulla, 
+granda prezidanto. Mi petas, sidiĝu. Sulla,
 
-vi povas foriri. 
+vi povas foriri.
 
 *SULLA foriras*
 
@@ -260,7 +228,7 @@ vi povas foriri.
 
 *eksidas*
 
-Per kio mi povas servi, fraŭlino Glory? 
+Per kio mi povas servi, fraŭlino Glory?
 
 **Helena**
 
@@ -268,11 +236,11 @@ Mi venis —
 
 **Domin**
 
-— por rigardi nian fabrikadon de homoj. 
+— por rigardi nian fabrikadon de homoj.
 
-Kiel ĉiuj vizitoj. Tre volonte\! Sen ceremo-
+Kiel ĉiuj vizitoj. Tre volonte! Sen ceremo-
 
-nio\! 
+nio!
 
 **Helena**
 
@@ -284,23 +252,21 @@ Mi pensis, ke estas malpermesite —
 
 venas tien ĉi kun ies vizitkarto, fraŭlino
 
-Glory. 
+Glory.
 
-7
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Kaj — kaj — vi montras al ĉiu … … ? 
+Kaj — kaj — vi montras al ĉiu … … ?
 
 **Domin**
 
-Nur ion. Fabrikado de la artefaritaj homoj, 
+Nur ion. Fabrikado de la artefaritaj homoj,
 
-fraŭlino, estas fabrika sekreto. 
+fraŭlino, estas fabrika sekreto.
 
 **Helena**
 
@@ -310,17 +276,17 @@ Se vi scius, kiel min tio —
 
 — treege interesas. Malnova Eŭropo eĉ ne
 
-parolas pri io alia. 
+parolas pri io alia.
 
 **Helena**
 
-Kial vi ne lasas min finparoli? 
+Kial vi ne lasas min finparoli?
 
 **Domin**
 
 Mi petas pardonon. ĉu vi volis eble diri
 
-ion alian? 
+ion alian?
 
 **Helena**
 
@@ -330,15 +296,15 @@ Mi volis nur demandi —
 
 — ĉu mi ne montrus tute escepte al vi nian
 
-uzinon. Nu certe, fraŭlino Glory. 
+uzinon. Nu certe, fraŭlino Glory.
 
 **Helena**
 
-Kiel vi scias, ke mi volis demandi tion? 
+Kiel vi scias, ke mi volis demandi tion?
 
 **Domin**
 
-ĉiuj demandas pri la samo. 
+ĉiuj demandas pri la samo.
 
 *li ekstaras*
 
@@ -348,7 +314,7 @@ trus al vi pli ol al la aliaj kaj — unuvorte …
 
 **Helena**
 
-Mi dankas vin. 
+Mi dankas vin.
 
 **Domin**
 
@@ -358,27 +324,25 @@ Se vi garantios, ke vi perfidos al neniu eĉ la plej malgravan —
 
 *ekstaras kaj donas al li la manon*
 
-Je mia honoro. 
+Je mia honoro.
 
 **Domin**
 
 Mi dankas. ĉu vi ne volus eble demeti la
 
-vualon? 
+vualon?
 
 **Helena**
 
-A˛ kompreneble, vi volas vidi — Pardonu\! 
+A˛ kompreneble, vi volas vidi — Pardonu!
 
 **Domin**
 
-Kion? 
+Kion?
 
-8
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -388,7 +352,7 @@ Se vi liberigus mian manon …
 
 *liberigas ĝin*
 
-Mi petas, pardonu\! 
+Mi petas, pardonu!
 
 **Helena**
 
@@ -396,25 +360,25 @@ Mi petas, pardonu\!
 
 Vi volas vidi, ĉu mi ne estas spiono. Kiel
 
-singardaj vi estas. 
+singardaj vi estas.
 
 **Domin**
 
 *observas ŝin entuziasme*
 
-Hm — kompreneble — ni — jes. 
+Hm — kompreneble — ni — jes.
 
 **Helena**
 
-ĉu vi ne konfidas al mi? 
+ĉu vi ne konfidas al mi?
 
 **Domin**
 
-Neordinare, fraŭlino Hele- — pardonu, 
+Neordinare, fraŭlino Hele- — pardonu,
 
 fraŭlino Glory. Efektive neordinare ĝojigita
 
-— ĉu vi ŝipveturis agrable? 
+— ĉu vi ŝipveturis agrable?
 
 **Helena**
 
@@ -424,27 +388,27 @@ Jes. Kial —
 
 ĉar — mi opinias — ke vi estas ankoraŭ tre
 
-juna. 
+juna.
 
 **Helena**
 
-ĉu ni iros tuj en la uzinon? 
+ĉu ni iros tuj en la uzinon?
 
 **Domin**
 
-Jes. Mi pensas dudek du, ĉu ne? 
+Jes. Mi pensas dudek du, ĉu ne?
 
 **Helena**
 
-Dudek du kion? 
+Dudek du kion?
 
 **Domin**
 
-Dudek du jarojn. 
+Dudek du jarojn.
 
 **Helena**
 
-Dudek unu. Kial vi volas scii tion? 
+Dudek unu. Kial vi volas scii tion?
 
 **Domin**
 
@@ -452,37 +416,35 @@ Pro tio — ĉar —
 
 *kun entuziasmo*
 
-Vi restos ĉi tie pli longe, ĉu ne? 
+Vi restos ĉi tie pli longe, ĉu ne?
 
 **Helena**
 
 Laŭ tio, kion vi montros al mi el la fabrika-
 
-do. 
+do.
 
-9
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Diabla fabrikado\! Nu certe, fraŭlino Glory, 
+Diabla fabrikado! Nu certe, fraŭlino Glory,
 
-vi vidos ĉion. Mi petas, eksidu\! ĉu intere-
+vi vidos ĉion. Mi petas, eksidu! ĉu intere-
 
-sus vin la historio de la invento? 
+sus vin la historio de la invento?
 
 **Helena**
 
-Jes, mi petas vin. 
+Jes, mi petas vin.
 
 *ŝi eksidas*
 
 **Domin**
 
-Nu do. 
+Nu do.
 
 *li sidiĝas sur la skribtablon, observas ravita* *Helenan kaj rapide kvazaŭrespondas*
 
@@ -508,25 +470,23 @@ kemian konstituon. Tio estis en la jaro
 
 1932, ĝuste kvarcent kvardek jaroj post la
 
-malkovro de Ameriko, uf. 
+malkovro de Ameriko, uf.
 
 **Helena**
 
-ĉu vi scias tion parkere? 
+ĉu vi scias tion parkere?
 
 **Domin**
 
-Jes; fiziologio, fraŭlino Glory, ne estas mia metio. Do, ĉu pluen? 
+Jes; fiziologio, fraŭlino Glory, ne estas mia metio. Do, ĉu pluen?
 
 **Helena**
 
-Nu bone. 
+Nu bone.
 
-10
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
@@ -550,7 +510,7 @@ super eltusaĵo de ia koloida gelo, kiun eĉ
 
 hundo ne estus manĝinta. Imagu al vi lin
 
-sidantan super epruveto kaj pripensantan, 
+sidantan super epruveto kaj pripensantan,
 
 kiel elkreskos el ĝi tuta arbo de vivo, kiel
 
@@ -562,11 +522,11 @@ homo mem. Per homo el alia materio ol ni
 
 estas. Fraŭlino Glory, tio estis momento
 
-giganta\! 
+giganta!
 
 **Helena**
 
-Do pluen. 
+Do pluen.
 
 **Domin**
 
@@ -574,37 +534,35 @@ Pluen? Nun estis la tasko eligi la vivon el la epruveto kaj rapidigi la evoluon 
 
 iajn organojn, ostojn kaj nervojn kaj tion
 
-kaj alion, kaj trovi iajn materiojn, kataliza-torojn, enzimojn, hormonojn kaj tiel plu, 
+kaj alion, kaj trovi iajn materiojn, kataliza-torojn, enzimojn, hormonojn kaj tiel plu,
 
-mallonge, ĉu vi komprenas tion? 
+mallonge, ĉu vi komprenas tion?
 
-11
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 Mi n-n-ne scias. Mi pensas, ke nur mal-
 
-multe. 
+multe.
 
 **Domin**
 
 Mi absolute nenion. Sciu, per tiaj likvaĵoj li kapablis fari, kion li volis. Li kapablus, ekzemple, formi meduzon kun Sokrata cerbo
 
-aŭ lumbrikon longan kvindek metrojn. 
+aŭ lumbrikon longan kvindek metrojn.
 
 Sed, ĉar li posedis nek eron da komik-
 
 sento, li ekintencis fari normalan vertebru-
 
-lon aŭ eble homon. Li do eklaboris. 
+lon aŭ eble homon. Li do eklaboris.
 
 **Helena**
 
-Kion? 
+Kion?
 
 **Domin**
 
@@ -614,11 +572,11 @@ pri tio kaj fine iĝis el tio io kvazaŭ kripli-
 
 ĝinta bovido, kiu mortaĉis post kelkaj
 
-tagoj. Mi montros ĝin al vi en la muzeo. 
+tagoj. Mi montros ĝin al vi en la muzeo.
 
 Kaj poste la maljuna Rossum eklaboris jam
 
-por produkti homon. 
+por produkti homon.
 
 *paŭzo*
 
@@ -626,49 +584,47 @@ por produkti homon.
 
 Kaj ĉu ne estas permesite perfidi ĉi tion al
 
-iu? 
+iu?
 
 **Domin**
 
-Al neniu en la mondo. 
+Al neniu en la mondo.
 
 **Helena**
 
 Domaĝe, ke tio estas jam en ĉiuj lego-li-
 
-broj. 
+broj.
 
 **Domin**
 
-Domaĝe. 
+Domaĝe.
 
 *li desaltas de la tablo kaj eksidas apud*
 
 *Helena*
 
-12
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 Sed ĉu vi scias, kio ne estas en la legoli-
 
-broj? 
+broj?
 
 *li frapetas sian frunton*
 
-Ke maljuna Rossum estis mirinda naivulo. 
+Ke maljuna Rossum estis mirinda naivulo.
 
 Serioze, fraŭlino Glory, sed ĉi tion lasu ĉe
 
 vi. La maljuna ekstremulo volis efektive
 
-produkti homojn. 
+produkti homojn.
 
 **Helena**
 
-Sed vi ja p r o d u k t a s homojn\! 
+Sed vi ja p r o d u k t a s homojn!
 
 **Domin**
 
@@ -678,21 +634,21 @@ Rossum pensis tion laŭvorte. Komprenu, li
 
 intencis kvazaŭ science sentronigi Dion. Li
 
-estis terura materialisto kaj tial li faris ĉion ĉi. Li intencis nenion pli, ol pruvi, ke ia Dio ne estis necesa. Tial li ekhavis fiksan ideon produkti homon precizege tian, kiaj ni estas. ĉu vi konas iomete anatomion? 
+estis terura materialisto kaj tial li faris ĉion ĉi. Li intencis nenion pli, ol pruvi, ke ia Dio ne estis necesa. Tial li ekhavis fiksan ideon produkti homon precizege tian, kiaj ni estas. ĉu vi konas iomete anatomion?
 
 **Helena**
 
-Nur — tro malmulte. 
+Nur — tro malmulte.
 
 **Domin**
 
 Mi ankaŭ. Imagu al vi, ke li encerbigis al si fabriki ĉion ĝis la lasta glando kiel en la
 
-homa korpo. Cekumon, migdalglandojn, 
+homa korpo. Cekumon, migdalglandojn,
 
 umbilikon, nurajn superfluaĵojn. Ja eĉ —
 
-hm — eĉ seksajn glandojn. 
+hm — eĉ seksajn glandojn.
 
 **Helena**
 
@@ -706,15 +662,13 @@ homoj estas industrie fabrikotaj, tiam estas
 
 — hm — neniel necese —
 
-13
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Mi komprenas. 
+Mi komprenas.
 
 **Domin**
 
@@ -724,7 +678,7 @@ fuŝis dum dek jaroj. Tio povus prezenti vi-
 
 ron, ĝi vivis tutajn tri tagojn. Maljuna Ros-
 
-sum ne havis ian belguston. Estis teruraĵo, 
+sum ne havis ian belguston. Estis teruraĵo,
 
 kion li produktis. Sed interne tio havis
 
@@ -744,11 +698,11 @@ sensencaĵo. Se vi ne fabrikados ĝin pli
 
 rapide ol la naturo, tiam lasu la aferon
 
-kuri\!” Kaj li ekstudis anatomion mem. 
+kuri!” Kaj li ekstudis anatomion mem.
 
 **Helena**
 
-En la legolibroj estas skribite alie. 
+En la legolibroj estas skribite alie.
 
 **Domin**
 
@@ -756,13 +710,13 @@ En la legolibroj estas skribite alie.
 
 En la legolibroj estas pagita reklamo, kaj
 
-cetere sensencaĵo. Oni legas tie, ekzemple, 
+cetere sensencaĵo. Oni legas tie, ekzemple,
 
-ke Robotojn inventis la maljuna mastro. 
+ke Robotojn inventis la maljuna mastro.
 
 Sed la maljunulo taŭgis eble por universi-
 
-tato, sed pri fabrikado li ne havis eĉ ideon. 
+tato, sed pri fabrikado li ne havis eĉ ideon.
 
 Li pensis, ke li faros efektivajn homojn, do
 
@@ -772,11 +726,9 @@ idiotojn, ĉu vi komprenas? Kaj nur la juna
 
 Rossum havis la ideon fabriki el tio vivajn
 
-14
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 kaj inteligentajn labormaŝinojn. Kio estas
 
@@ -788,7 +740,7 @@ terure disputaĉis. La maljuna ateisto havis
 
 neniom da kompreno pri industrio, kaj
 
-fine la juna fermis lin en iun laboratorion, 
+fine la juna fermis lin en iun laboratorion,
 
 por ke li tie daŭrigu siajn grandajn abor-
 
@@ -798,15 +750,15 @@ inĝeniera maniero. La maljuna Rossum lin
 
 laŭvorte malbenis kaj ĝis sia morto li fin-
 
-fuŝis ankoraŭ du fiziologiajn monstrojn, 
+fuŝis ankoraŭ du fiziologiajn monstrojn,
 
 ĝis fine oni trovis lin senviva en la labora-
 
-torio. Tio estas la tuta historio. 
+torio. Tio estas la tuta historio.
 
 **Helena**
 
-Kaj la juna? 
+Kaj la juna?
 
 **Domin**
 
@@ -822,19 +774,17 @@ ta pli simplan. Do li komencis transformi
 
 la anatomion kaj eksperimentadis, kion
 
-oni povus forlasi aŭ simpligi — mallonge, 
+oni povus forlasi aŭ simpligi — mallonge,
 
-fraŭlino Glory, ĉu tio ne tedas vin? 
+fraŭlino Glory, ĉu tio ne tedas vin?
 
 **Helena**
 
-Ne, male, tio estas terrrure interesa. 
+Ne, male, tio estas terrrure interesa.
 
-15
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
@@ -846,11 +796,11 @@ violonon, deziras promeni kaj entute bezo-
 
 nas fari amason da aferoj, kiuj — kiuj estas
 
-efektive superfluaj. 
+efektive superfluaj.
 
 **Helena**
 
-Oho\! 
+Oho!
 
 **Domin**
 
@@ -870,13 +820,13 @@ plej simpla kaj la fabrikaĵo praktike plej
 
 bona. Kion vi opinias, kia laboristo estas
 
-praktike plej bona? 
+praktike plej bona?
 
 **Helena**
 
 Plej bona? Eble tiu, kiu — kiu — Se li estas
 
-honesta — kaj sindona. 
+honesta — kaj sindona.
 
 **Domin**
 
@@ -898,11 +848,9 @@ Glory, Robotoj ne estas homoj. Ili estas
 
 mekanike pli perfektaj ol ni, ili posedas
 
-16
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 miregindan intelektan kapablecon, sed ili
 
@@ -910,11 +858,11 @@ ne havas animon. Ho, fraŭlino Glory, la
 
 produkto de la inĝeniero estas teknike pli
 
-preciza ol la produkto de la naturo. 
+preciza ol la produkto de la naturo.
 
 **Helena**
 
-Oni diras, ke la homo estas kreaĵo de Dio. 
+Oni diras, ke la homo estas kreaĵo de Dio.
 
 **Domin**
 
@@ -922,11 +870,11 @@ Des pli malbone. Dio ne havis eĉ ideon pri
 
 moderna tekniko. ĉu vi kredus, ke la mor-
 
-tinta juna Rossum ekludis rolon de Dio? 
+tinta juna Rossum ekludis rolon de Dio?
 
 **Helena**
 
-Kiel, mi petas vin? 
+Kiel, mi petas vin?
 
 **Domin**
 
@@ -936,15 +884,15 @@ gigantojn. Li ekprovis tion per kvarmetraj
 
 staturoj, sed vi ne kredus, kiel tiuj mamu-
 
-toj rompiĝadis. 
+toj rompiĝadis.
 
 **Helena**
 
-Rompiĝadis? 
+Rompiĝadis?
 
 **Domin**
 
-Jes. Pro nenio krevis ilia piedo aŭ io alia. 
+Jes. Pro nenio krevis ilia piedo aŭ io alia.
 
 Nia planedo estas verŝajne iomete mal-
 
@@ -952,7 +900,7 @@ granda por gigantoj. Nun ni fabrikas nur
 
 Robotojn de natura grandeco kaj de tre
 
-konvena homa fasono. 
+konvena homa fasono.
 
 **Helena**
 
@@ -964,27 +912,25 @@ por laboro —
 
 **Domin**
 
-¯i aĉetis ilin, kara fraŭlino. Robotojn oni
+i aĉetis ilin, kara fraŭlino. Robotojn oni
 
-aĉetas. 
+aĉetas.
 
 **Helena**
 
-— ĝi akiris ilin kiel stratbalaistojn. Mi vidis ilin balai. Ili estas tiel strangaj, tiel silentaj. 
+— ĝi akiris ilin kiel stratbalaistojn. Mi vidis ilin balai. Ili estas tiel strangaj, tiel silentaj.
 
-17
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-ĉu vi vidis mian skribistinon? 
+ĉu vi vidis mian skribistinon?
 
 **Helena**
 
-Mi ne atentis. 
+Mi ne atentis.
 
 **Domin**
 
@@ -998,21 +944,21 @@ komercaĵon. Ni havas pli aü malpli kva-
 
 litajn Robotojn. La pli bonaj vivos eble du-
 
-dek jarojn. 
+dek jarojn.
 
 **Helena**
 
-ĉu ili pereas poste? 
+ĉu ili pereas poste?
 
 **Domin**
 
-Jes, ili eluziĝas. 
+Jes, ili eluziĝas.
 
 *eniras SULLA*
 
 **Domin**
 
-Sulla, montru vin al fraŭlino Glory. 
+Sulla, montru vin al fraŭlino Glory.
 
 **Helena**
 
@@ -1022,43 +968,41 @@ Mi estas ĝojigita. Verŝajne estas terure
 
 malgaje al vi tiel malproksime de la mon-
 
-do, ĉu ne? 
+do, ĉu ne?
 
 **Sulla**
 
 Tion mi ne scias, fraŭlino Glory. Bonvolu
 
-sidiĝi, mi petas. 
+sidiĝi, mi petas.
 
 **Helena**
 
 *eksidas*
 
-De kie vi estas, fraŭlino? 
+De kie vi estas, fraŭlino?
 
 **Sulla**
 
-De ĉi tie, el la uzino. 
+De ĉi tie, el la uzino.
 
 **Helena**
 
-A˛, ĉu vi naskiĝis ĉi tie? 
+A˛, ĉu vi naskiĝis ĉi tie?
 
 **Sulla**
 
-Jes, mi estis ĉi tie fabrikita. 
+Jes, mi estis ĉi tie fabrikita.
 
 **Helena**
 
 *eksaltas*
 
-Kio? 
+Kio?
 
-18
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
@@ -1066,7 +1010,7 @@ eLIBRO
 
 Sulla ne estas homo, fraŭlino. Sulla estas
 
-Roboto. 
+Roboto.
 
 **Helena**
 
@@ -1076,129 +1020,127 @@ Mi petas pardonon —
 
 *metas la manon sur la ŝultron de Sulla*
 
-Sulla ne koleras. Rigardu, fraŭlino Glory, 
+Sulla ne koleras. Rigardu, fraŭlino Glory,
 
 kian vizaĝhaŭton ni fabrikas. Palpu ŝian
 
-vangon. 
+vangon.
 
 **Helena**
 
-Ho, ne, ne\! 
+Ho, ne, ne!
 
 **Domin**
 
-Vi ne ekkonus, ke ŝi estas el alia materio, 
+Vi ne ekkonus, ke ŝi estas el alia materio,
 
 ol ni. Atentu, ŝi havas eĉ la tipan lanugon
 
 de blondulinoj. Nur la okuloj estas iomete
 
-— — — Sed des pli la haroj\! Turnu vin, 
+— — — Sed des pli la haroj! Turnu vin,
 
-Sulla\! 
+Sulla!
 
 **Helena**
 
-ĉesu jam\! 
+ĉesu jam!
 
 **Domin**
 
 Parolu iom kun la gasto, Sulla. Estas mal-
 
-ofta vizito. 
+ofta vizito.
 
 **Sulla**
 
-Mi petas, fraŭlino, sidiĝu. 
+Mi petas, fraŭlino, sidiĝu.
 
 *ili sidiĝas*
 
-ĉu vi bone ŝipveturis? 
+ĉu vi bone ŝipveturis?
 
 **Helena**
 
-Jes — ce — certe. 
+Jes — ce — certe.
 
 **Sulla**
 
-Ne veturu reen sur Amelio, fraŭlino Glory. 
+Ne veturu reen sur Amelio, fraŭlino Glory.
 
-La barometro tro malleviĝas, ĝis 705. 
+La barometro tro malleviĝas, ĝis 705.
 
 Atendu Pensilvanion, ĝi estas tre bona, tre
 
-fortika ŝipo. 
+fortika ŝipo.
 
 **Domin**
 
-Kiom? 
+Kiom?
 
-19
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Sulla**
 
 Dudek nodojn en unu horo. ŝarĝkapableco
 
-dek du mil. 
+dek du mil.
 
 **Domin**
 
 *ridas*
 
-Sufiĉe, Sulla, sufiĉe\! Montru al ni, kiel vi
+Sufiĉe, Sulla, sufiĉe! Montru al ni, kiel vi
 
-scipovas la francan? 
+scipovas la francan?
 
 **Helena**
 
-ĉu vi scipovas la francan? 
+ĉu vi scipovas la francan?
 
 **Sulla**
 
 Mi scipovas kvar lingvojn. Mi skribas:
 
-Dear Sir\! Monsieur\! Geehrter Herr\! Esti-
+Dear Sir! Monsieur! Geehrter Herr! Esti-
 
-mata sinjoro\! 
+mata sinjoro!
 
 **Helena**
 
 *eksaltas*
 
-Tio estas trompaĵo\! Vi estas ĉarlatano\! Sul-
+Tio estas trompaĵo! Vi estas ĉarlatano! Sul-
 
 la ne estas Roboto, Sulla estas knabino kiel
 
-mi\! Sulla, tio estas malhonesta\! — Kial vi
+mi! Sulla, tio estas malhonesta! — Kial vi
 
-ludas tian komedion? 
+ludas tian komedion?
 
 **Sulla**
 
-Mi estas Roboto. 
+Mi estas Roboto.
 
 **Helena**
 
-Ne, ne, vi mensogas\! Ho, Sulla, pardonu, 
+Ne, ne, vi mensogas! Ho, Sulla, pardonu,
 
-mi scias — ili devigis vin, por ke vi faru re-klamon al ili\! Sulla, vi estas knabino kiel
+mi scias — ili devigis vin, por ke vi faru re-klamon al ili! Sulla, vi estas knabino kiel
 
-mi, ĉu ne? Diru\! 
+mi, ĉu ne? Diru!
 
 **Domin**
 
 Mi bedaŭras, fraŭlino Glory. Sulla estas
 
-Roboto. 
+Roboto.
 
 **Helena**
 
-Vi mensogas\! 
+Vi mensogas!
 
 **Domin**
 
@@ -1208,195 +1150,189 @@ Kion? —
 
 *li eksonorigas*
 
-20
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 Pardonu, fraŭlino, do mi devas konvinki
 
-vin. 
+vin.
 
 *eniras MARIUS*
 
 **Domin**
 
-Marius, konduku Sullan en la sekcejon, 
+Marius, konduku Sullan en la sekcejon,
 
-por ke oni malfermu ŝin. Rapide\! 
+por ke oni malfermu ŝin. Rapide!
 
 **Helena**
 
-Kien? 
+Kien?
 
 **Domin**
 
 En la sekcejon. Post kiam oni distranĉos
 
-ŝin, vi iros rigardi ŝin. 
+ŝin, vi iros rigardi ŝin.
 
 **Helena**
 
-Mi ne iros\! 
+Mi ne iros!
 
 **Domin**
 
-Pardonu, vi parolis pri mensogo. 
+Pardonu, vi parolis pri mensogo.
 
 **Helena**
 
-ĉu vi volas, ke oni mortigu ŝin? 
+ĉu vi volas, ke oni mortigu ŝin?
 
 **Domin**
 
-Maŝinojn oni ne mortigas. 
+Maŝinojn oni ne mortigas.
 
 **Helena**
 
 *ĉirkaŭbrakas Sullan*
 
-Ne timu, Sulla, mi defendos vin\! Diru, 
+Ne timu, Sulla, mi defendos vin! Diru,
 
 karulino, ĉu ĉiuj estas tiel barbaraj kontraŭ vi? Tion vi ne devas toleri, ĉu vi aŭdas? Vi
 
-ne devas, Sulla\! 
+ne devas, Sulla!
 
 **Sulla**
 
-Mi estas Roboto. 
+Mi estas Roboto.
 
 **Helena**
 
 Estas egale. Robotoj estas same bonaj ho-
 
-moj kiel ni. Sulla, ĉu vi lasus vin distranĉi? 
+moj kiel ni. Sulla, ĉu vi lasus vin distranĉi?
 
 **Sulla**
 
-Jes. 
+Jes.
 
 **Helena**
 
-Ho, ĉu vi ne timas morton? 
+Ho, ĉu vi ne timas morton?
 
 **Sulla**
 
-Mi ne konas ĝin, fraŭlino Glory. 
+Mi ne konas ĝin, fraŭlino Glory.
 
 **Helena**
 
-ĉu vi scias, kio fariĝus kun vi? 
+ĉu vi scias, kio fariĝus kun vi?
 
 **Sulla**
 
-Jes, mi ĉesus movi min. 
+Jes, mi ĉesus movi min.
 
 **Helena**
 
-Tio estas terrrura\! 
+Tio estas terrrura!
 
-21
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Marius, diru al la fraŭlino, kio vi estas. 
+Marius, diru al la fraŭlino, kio vi estas.
 
 **Marius**
 
-Roboto Marius. 
+Roboto Marius.
 
 **Domin**
 
-ĉu vi donus Sullan en la sekcejon? 
+ĉu vi donus Sullan en la sekcejon?
 
 **Marius**
 
-Jes. 
+Jes.
 
 **Domin**
 
-ĉu vi kompatus ŝin? 
+ĉu vi kompatus ŝin?
 
 **Marius**
 
-Tion mi ne konas. 
+Tion mi ne konas.
 
 **Domin**
 
-Kio fariĝus kun ŝi? 
+Kio fariĝus kun ŝi?
 
 **Marius**
 
 ŝi ĉesus movi sin. Oni ĵetus ŝin en pistma-
 
-ŝinon. 
+ŝinon.
 
 **Domin**
 
 Tio estas morto, Marius. ĉu vi timas mor-
 
-ton? 
+ton?
 
 **Marius**
 
-Ne. 
+Ne.
 
 **Domin**
 
 Do vidu, fraŭlino Glory. Robotoj ne ŝate-
 
-gas la vivon. Ili ja ne scias pro kio. Ili ne havas ĝuojn. Ili estas malpli ol herbo. 
+gas la vivon. Ili ja ne scias pro kio. Ili ne havas ĝuojn. Ili estas malpli ol herbo.
 
 **Helena**
 
-Ho, ĉesu\! Sendu ilin almenaŭ for\! 
+Ho, ĉesu! Sendu ilin almenaŭ for!
 
 **Domin**
 
-Marius, Sulla, vi povas foriri. 
+Marius, Sulla, vi povas foriri.
 
 *SULLA kaj MARIUS foriras*
 
 **Helena**
 
-Ili estas terrruraj\! Estas abomene, kion vi
+Ili estas terrruraj! Estas abomene, kion vi
 
-faras\! 
+faras!
 
 **Domin**
 
-Kial abomene? 
+Kial abomene?
 
 **Helena**
 
-Mi ne scias. Kial — kial vi donis al ŝi la nomon Sulla? 
+Mi ne scias. Kial — kial vi donis al ŝi la nomon Sulla?
 
 **Domin**
 
-ĉu malbela nomo? 
+ĉu malbela nomo?
 
 **Helena**
 
 Estas vira nomo. Sulla estis roma arme-
 
-estro. 
+estro.
 
-22
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 Ho, ni pensis, ke Marius kaj Sulla estis ge-
 
-amantoj. 
+amantoj.
 
 **Helena**
 
@@ -1404,25 +1340,25 @@ Ne. Marius kaj Sulla estis armeestroj kaj
 
 kontraŭbatalis reciproke en la jaro — en la
 
-jaro — mi ne plu scias. 
+jaro — mi ne plu scias.
 
 **Domin**
 
-Venu ĉi tien, al la fenestro. Kion vi vidas? 
+Venu ĉi tien, al la fenestro. Kion vi vidas?
 
 **Helena**
 
-Masonistojn. 
+Masonistojn.
 
 **Domin**
 
 Tio estas Robotoj. ĉiuj niaj laboristoj estas Robotoj. Kaj ĉi tie malsupre, ĉu vi vidas
 
-ion? 
+ion?
 
 **Helena**
 
-Ian oficejon. 
+Ian oficejon.
 
 **Domin**
 
@@ -1430,13 +1366,13 @@ La kalkulejo. Kaj en ĝi —
 
 **Helena**
 
-— plene da oficistoj. 
+— plene da oficistoj.
 
 **Domin**
 
 Estas Robotoj. ĉiuj niaj oficistoj estas Ro-
 
-botoj. ¯is kiam vi vidos la uzinon —
+botoj. is kiam vi vidos la uzinon —
 
 *samtempe eksonas la uzinaj fajfiloj kaj*
 
@@ -1448,11 +1384,11 @@ Tagmezo. Robotoj ne scias, kiam ĉesi la la-
 
 boron. Je la dua mi montros al vi knedu-
 
-jojn. 
+jojn.
 
 **Helena**
 
-Kiajn knedujojn? 
+Kiajn knedujojn?
 
 **Domin**
 
@@ -1464,23 +1400,21 @@ samtempe materion por mil Robotoj. Poste
 
 tinojn por hepatoj, cerboj kaj tiel plu. Pos-
 
-23
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 te vi vidos la uzinon por ostoj. Poste mi
 
-montros al vi la ŝpinejon. 
+montros al vi la ŝpinejon.
 
 **Helena**
 
-Kian ŝpinejon? 
+Kian ŝpinejon?
 
 **Domin**
 
-Nervoŝpinejon. Vejnoŝpinejon. ŝpinejon, 
+Nervoŝpinejon. Vejnoŝpinejon. ŝpinejon,
 
 kie oni fabrikas samtempe tutajn kilo-
 
@@ -1490,35 +1424,35 @@ jo, kie oni kunigas ĉion, sciu, kiel aŭtomo-
 
 bilojn. ĉiu laboristo aligas nur unu parton
 
-kaj aŭtomate tio kuras pluen al la dua, tria, senfine. Tio estas la plej interesa spektaklo. 
+kaj aŭtomate tio kuras pluen al la dua, tria, senfine. Tio estas la plej interesa spektaklo.
 
 Poste estas la sekigejo kaj magazenoj, kie
 
-laboras la freŝaj fabrikaĵoj. 
+laboras la freŝaj fabrikaĵoj.
 
 **Helena**
 
-Pro Dio, ĉu tuj ili devas labori? 
+Pro Dio, ĉu tuj ili devas labori?
 
 **Domin**
 
-Pardonu\! Ili laboras tiel, kiel laboras nova
+Pardonu! Ili laboras tiel, kiel laboras nova
 
 meblaro. Ili kutimiĝas al la ekzistado. Ili
 
 kvazaŭ kunkreskas interne, aŭ io alia fari-
 
-ĝas kun ili. Multo nova eĉ kreskas en ili. 
+ĝas kun ili. Multo nova eĉ kreskas en ili.
 
 Sciu, ni devas lasi iom da spaco por natura
 
 evoluo. Kaj dume oni finpretigas la fabri-
 
-kaĵojn. 
+kaĵojn.
 
 **Helena**
 
-Kion tio signifas? 
+Kion tio signifas?
 
 **Domin**
 
@@ -1530,11 +1464,9 @@ ili dudekvoluman enciklopedion, ili ĉion
 
 ripetos al vi. Ion novan ili neniam elpen-
 
-24
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 sos. Ili tute bone povus instrui en universi-
 
@@ -1544,23 +1476,23 @@ enkalkulite ĉiamam percenton da difekti-
 
 taj, kiujn oni ĵetas en pistmaŝinon … kaj
 
-tiel plu kaj tiel plu. 
+tiel plu kaj tiel plu.
 
 **Helena**
 
-ĉu vi koleras je mi? 
+ĉu vi koleras je mi?
 
 **Domin**
 
-A˛, gardu Dio\! Mi pensas nur, ke … ke ni
+A˛, gardu Dio! Mi pensas nur, ke … ke ni
 
 povus paroli pri aliaj aferoj. Ni estas ĉi tie nur kelkaj inter centmiloj da Robotoj, kaj
 
-neniu virino. Ni parolas nur pri fabrikado, 
+neniu virino. Ni parolas nur pri fabrikado,
 
 la tutan tagon, ĉiun tagon. — Ni estas kva-
 
-zaŭ kondamnitaj, fraŭlino Glory. 
+zaŭ kondamnitaj, fraŭlino Glory.
 
 **Helena**
 
@@ -1572,13 +1504,13 @@ vi mensogas —
 
 **Domin**
 
-Eniru, junuloj\! 
+Eniru, junuloj!
 
 *de maldekstre eniras inĝ. FABRY, d-ro GALL,* *d-ro HALLEMEIER, konstruestro ALQUIST*
 
 **D-ro Gall**
 
-Pardonu, ĉu ni ne ĝenas? 
+Pardonu, ĉu ni ne ĝenas?
 
 **Domin**
 
@@ -1586,23 +1518,21 @@ Venu ĉi tien. Fraŭlino Glory, tio estas Al-
 
 quist, Fabry, Gall, Hallemeier. Filino de la
 
-prezidanto Glory. 
+prezidanto Glory.
 
 **Helena**
 
 *embarase*
 
-Bonan tagon. 
+Bonan tagon.
 
 **Fabry**
 
 Ni ne havis eĉ ideon —
 
-25
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
@@ -1610,39 +1540,39 @@ Senfine honorataj —
 
 **Alquist**
 
-Estu bonvena, fraŭlino Glory. 
+Estu bonvena, fraŭlino Glory.
 
 *de dekstre enfalas BUSMAN*
 
 **Busman**
 
-Halo, kion vi havas ĉi tie? 
+Halo, kion vi havas ĉi tie?
 
 **Domin**
 
-ĉi tien, Busman. Tio estas nia Busman, 
+ĉi tien, Busman. Tio estas nia Busman,
 
-fraŭlino. La filino de la prezidanto Glory. 
+fraŭlino. La filino de la prezidanto Glory.
 
 **Helena**
 
-Estas agrable por mi. 
+Estas agrable por mi.
 
 **Busman**
 
-Mia Dio, kia gloro\! Fraŭlino Glory, ĉu vi
+Mia Dio, kia gloro! Fraŭlino Glory, ĉu vi
 
 permesas, ke ni kablu al la ĵurnaloj, ke vi
 
-bonvolis honori nin per via vizito —? 
+bonvolis honori nin per via vizito —?
 
 **Helena**
 
-Ne, ne, mi petas vin\! 
+Ne, ne, mi petas vin!
 
 **Domin**
 
-Mi petas, fraŭlino, sidiĝu. 
+Mi petas, fraŭlino, sidiĝu.
 
 **Busman**
 
@@ -1660,49 +1590,47 @@ Pardonu —
 
 **Alquist**
 
-Fraŭlino Glory, kiel vi vojaĝis? 
+Fraŭlino Glory, kiel vi vojaĝis?
 
 **D-ro Gall**
 
-ĉu vi restos pli longe ĉe ni? 
+ĉu vi restos pli longe ĉe ni?
 
 **Fabry**
 
-Kion vi diras pri la uzino, fraŭlino Glory? 
+Kion vi diras pri la uzino, fraŭlino Glory?
 
-**Hallemeier **ĉu vi alvenis sur Amelio? 
+**Hallemeier **ĉu vi alvenis sur Amelio?
 
 **Domin**
 
-Silentu, lasu paroli fraŭlinon Glory. 
+Silentu, lasu paroli fraŭlinon Glory.
 
 **Helena**
 
 *al Domin*
 
-Pri kio mi parolu kun ili? 
+Pri kio mi parolu kun ili?
 
 **Domin**
 
 *mirigite*
 
-Pri kio vi volas. 
+Pri kio vi volas.
 
-26
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 ĉu mi parolu — ĉu vi permesas, ke mi pa-
 
-rolu tute malkaŝe? 
+rolu tute malkaŝe?
 
 **Domin**
 
-Nu kompreneble. 
+Nu kompreneble.
 
 **Helena**
 
@@ -1710,43 +1638,43 @@ Nu kompreneble.
 
 Diru, ĉu neniam turmentas vin, kiel oni
 
-traktas vin? 
+traktas vin?
 
 **Fabry**
 
-Kiu, mi petas? 
+Kiu, mi petas?
 
 **Helena**
 
-ĉiuj homoj. 
+ĉiuj homoj.
 
 *ĉiuj konsternite rigardas reciproke unu la* *alian*
 
 **Alquist**
 
-ĉu nin? 
+ĉu nin?
 
 **D-ro Gall**
 
-Kial vi pensas? 
+Kial vi pensas?
 
-**Hallemeier **Mil tondroj\! 
+**Hallemeier **Mil tondroj!
 
 **Busman**
 
-A˛, gardu Dio, fraŭlino Glory\! 
+A˛, gardu Dio, fraŭlino Glory!
 
 **Helena**
 
 ĉu vi ne sentas, ke vi povus ekzisti pli
 
-bone? 
+bone?
 
 **D-ro Gall**
 
 Tio estas diskutinda, fraŭlino. Kiel vi pen-
 
-sas tion? 
+sas tion?
 
 **Helena**
 
@@ -1754,9 +1682,9 @@ Mi pensas, ke —
 
 *eksplodas*
 
-— ke tio estas abomenega\! Ke tio estas
+— ke tio estas abomenega! Ke tio estas
 
-terura\! 
+terura!
 
 *ŝi ekstaras*
 
@@ -1764,49 +1692,48 @@ Tuta Eŭropo parolas pri tio, kio okazas ĉi
 
 tie kun vi. Tial mi alvenis, por vidi tion, kaj 27
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-tio estas miloble pli malbona, ol iu pensas\! 
+tio estas miloble pli malbona, ol iu pensas!
 
-Kiel vi kapablas toleri tion? 
+Kiel vi kapablas toleri tion?
 
 **Alquist**
 
-Kion toleri? 
+Kion toleri?
 
 **Helena**
 
-Vian situacion. Pro Dio, vi estas ja homoj, 
+Vian situacion. Pro Dio, vi estas ja homoj,
 
 kiel ni, kiel la tuta Eŭropo, kiel la tuta
 
-mondo\! Estas skandale, estas malinde, kiel
+mondo! Estas skandale, estas malinde, kiel
 
-vi vivas\! 
+vi vivas!
 
 **Busman**
 
-Pro Dio, fraŭlino\! 
+Pro Dio, fraŭlino!
 
 **Fabry**
 
 Ne, junuloj, iomete ŝi estas prava. Ni vivas
 
-ĉi tie efektive kiel Indianoj. 
+ĉi tie efektive kiel Indianoj.
 
 **Helena**
 
-Pli malbone ol Indianoj\! ĉu vi permesas, 
+Pli malbone ol Indianoj! ĉu vi permesas,
 
 ho, ĉu vi permesas, ke mi alparolu vin fra-
 
-toj? 
+toj?
 
 **Busman**
 
-Nu, mia Dio, kial ne? 
+Nu, mia Dio, kial ne?
 
 **Helena**
 
@@ -1820,153 +1747,149 @@ havas jam pli ol ducent mil anojn. Ducent
 
 mil homoj staras post vi kaj disponigas al
 
-vi sian helpon. 
+vi sian helpon.
 
 **Busman**
 
 Ducent mil homoj, verdire, tio estas jam
 
-rimarkinda, tio estas tute bela. 
+rimarkinda, tio estas tute bela.
 
 **Fabry**
 
 Mi diras ĉiam al vi, nenio superas malno-
 
-van Eŭropon. Vidu, ĝi ne forgesis nin. ¯i
+van Eŭropon. Vidu, ĝi ne forgesis nin. i
 
-disponigas al ni helpon. 
+disponigas al ni helpon.
 
 **D-ro Gall**
 
-Kian helpon? ĉu teatron? 
+Kian helpon? ĉu teatron?
 
-28
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-**Hallemeier **ĉu orkestron? 
+**Hallemeier **ĉu orkestron?
 
 **Helena**
 
-Pli ol tio. 
+Pli ol tio.
 
 **Alquist**
 
-ĉu vin mem? 
+ĉu vin mem?
 
 **Helena**
 
-Ho, kio min koncernas\! Mi restos, dum
+Ho, kio mncernas! Mi restos, dum
 
-estos necese. 
+estos necese.
 
 **Busman**
 
-Mia Dio, kia ĝojo\! 
+Mia Dio, kia ĝojo!
 
 **Alquist**
 
 Domin, mi iros prepari por la fraŭlino la
 
-plej bonan ĉambron. 
+plej bonan ĉambron.
 
 **Domin**
 
 Atendu momenton. Mi timas, ke — ke
 
-fraŭlino Glory ankoraŭ ne finparolis. 
+fraŭlino Glory ankoraŭ ne finparolis.
 
 **Helena**
 
 Ne, mi ne finparolis, se vi ne fermos al mi
 
-perforte la buŝon. 
+perforte la buŝon.
 
 **D-ro Gall**
 
-Harry, ne kuraĝu\! 
+Harry, ne kuraĝu!
 
 **Helena**
 
 Mi dankas vin. Mi sciis, ke vi defendos
 
-min. 
+min.
 
 **Domin**
 
 Pardonu, fraŭlino Glory. ĉu vi estas kon-
 
-vinkita, ke vi parolas kun Robotoj? 
+vinkita, ke vi parolas kun Robotoj?
 
 **Helena**
 
 *ekembarasiĝas*
 
-Kun kiu alia? 
+Kun kiu alia?
 
 **Domin**
 
 Mi bedaŭras. ĉi tiuj sinjoroj estas efektive
 
-homoj kiel vi. Kiel la tuta Eŭropo. 
+homoj kiel vi. Kiel la tuta Eŭropo.
 
 **Helena**
 
 *al la ceteraj*
 
-ĉu vi ne estas Robotoj? 
+ĉu vi ne estas Robotoj?
 
 **Busman**
 
 *ridegas*
 
-Dio gardu\! 
+Dio gardu!
 
-29
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Hallemeier ** *dignoplene*
 
-Fi, Robotoj\! 
+Fi, Robotoj!
 
 **G-ro Gall**
 
 *ridas*
 
-Ni dankas kore\! 
+Ni dankas kore!
 
 **Helena**
 
-Sed … tio ne estas ebla\! 
+Sed … tio ne estas ebla!
 
 **Fabry**
 
 Je mia honoro, fraŭlino, ni ne estas Robo-
 
-toj. 
+toj.
 
 **Helena**
 
 *al Domin*
 
-Kial do vi diris al mi, ke ĉiuj viaj oficistoj estas Robotoj? 
+Kial do vi diris al mi, ke ĉiuj viaj oficistoj estas Robotoj?
 
 **Domin**
 
 Jes, la oficistoj. Sed la direktoroj ne. Per-
 
-mesu, fraŭlino Glory: inĝeniero Fabry, 
+mesu, fraŭlino Glory: inĝeniero Fabry,
 
 ĝenerala teknika direktoro de Rossumaj
 
 Universal-Robotoj. Doktoro Gall, estro de
 
-la fiziologia kaj esplora departemento. 
+la fiziologia kaj esplora departemento.
 
 Doktoro Hallemeier, estro de la instituto
 
@@ -1976,25 +1899,23 @@ sulo Busman, ĝenerala komerca direktoro
 
 kaj konstruisto Alquist, konstruestro de
 
-Rossumaj Universal-Robotoj. 
+Rossumaj Universal-Robotoj.
 
 **Helena**
 
 Pardonu, sinjoroj, ke — ke — — Estas
 
-terrrure\! Kion mi faris? 
+terrrure! Kion mi faris?
 
 **Alquist**
 
-A˛, gardu Dio, fraŭlino Glory. Mi petas, 
+A˛, gardu Dio, fraŭlino Glory. Mi petas,
 
-sidiĝu. 
+sidiĝu.
 
-30
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -2002,19 +1923,19 @@ eLIBRO
 
 Mi estas malsaĝa knabino. Nun — nun vi
 
-sendos min per la unua ŝipo reen. 
+sendos min per la unua ŝipo reen.
 
 **D-ro Gall**
 
 Por nenio en la mondo, fraŭlino. Kial ni
 
-sendus vin for? 
+sendus vin for?
 
 **Helena**
 
 ĉar vi jam scias — ĉar — ĉar mi ribeligus
 
-Robotojn kontraŭ vin. 
+Robotojn kontraŭ vin.
 
 **Domin**
 
@@ -2026,17 +1947,17 @@ gas iun. Misiistojn, anarkistojn, Savarm-
 
 eon, ĉion eblan. Estas tre mirinde, kiom da
 
-eklezioj kaj frenezuloj estas sur la mondo. 
+eklezioj kaj frenezuloj estas sur la mondo.
 
 **Helena**
 
 Kaj ĉu vi permesas, ke ili parolu al Robo-
 
-toj? 
+toj?
 
 **Domin**
 
-Kial ne? ¯is nun ĉiuj lasis tion. Robotoj
+Kial ne? is nun ĉiuj lasis tion. Robotoj
 
 memoras ĉion, sed plu nenio. Ili ja eĉ ne
 
@@ -2048,21 +1969,19 @@ vin, kara fraŭlino, mi kondukos vin en la
 
 magazenon de Robotoj. Estas tie eble tri-
 
-cent miloj da ili. 
+cent miloj da ili.
 
 **Busman**
 
-Tricent kvardek sep mil. 
+Tricent kvardek sep mil.
 
 **Domin**
 
-Bone. Vi povas alparoli ilin kiel vi volas. Vi povas tralegi al ili la biblion, logaritmojn, aŭ kio plaĉas al vi. Vi povas prediki al ili eĉ pri homaj rajtoj. 
+Bone. Vi povas alparoli ilin kiel vi volas. Vi povas tralegi al ili la biblion, logaritmojn, aŭ kio plaĉas al vi. Vi povas prediki al ili eĉ pri homaj rajtoj.
 
-31
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -2074,19 +1993,19 @@ iom da amo —
 
 Ne eble, fraŭlino Glory. Nenio estas al la
 
-homo pli fremda ol Roboto. 
+homo pli fremda ol Roboto.
 
 **Helena**
 
-Kial do vi produktas ilin? 
+Kial do vi produktas ilin?
 
 **Busman**
 
 *ridas*
 
-Hahaha, tio estas bona\! Kial oni produktas
+Hahaha, tio estas bona! Kial oni produktas
 
-Robotojn\! 
+Robotojn!
 
 **Fabry**
 
@@ -2096,31 +2015,31 @@ taŭas du kaj duonan laboriston. Homa
 
 maŝino, fraŭlino Glory, estis tro neperfek-
 
-ta. Fine oni devis tamen forigi ĝin. 
+ta. Fine oni devis tamen forigi ĝin.
 
 **Busman**
 
-¯i estis tro multekosta. 
+i estis tro multekosta.
 
 **Fabry**
 
-¯i estis malmulte produktema. Por moder-
+i estis malmulte produktema. Por moder-
 
 na tekniko ĝi ne plu povis sufiĉi. Kaj due —
 
 due — estas granda progreso, ke … par-
 
-donu. 
+donu.
 
 **Helena**
 
-Kion? 
+Kion?
 
 **Fabry**
 
 Mi petas pardonon. Estas granda progreso
 
-naski per maŝino. Tio estas pli facila kaj pli rapida. ĉiu plirapidigo estas progreso, 
+naski per maŝino. Tio estas pli facila kaj pli rapida. ĉiu plirapidigo estas progreso,
 
 fraŭlino. La naturo ne havis eĉ ideon pri
 
@@ -2130,19 +2049,17 @@ infanaĝo estas de teknika vidpunkto pura
 
 sensencaĵo. Vere perdita tempo. Ne daŭri-
 
-32
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-gebla malŝparo de tempo, fraŭlino Glory. 
+gebla malŝparo de tempo, fraŭlino Glory.
 
 Kaj trie —
 
 **Helena**
 
-Ho, ĉesu\! 
+Ho, ĉesu!
 
 **Fabry**
 
@@ -2150,15 +2067,15 @@ Laŭ via plaĉo. Permesu, kion do intencas
 
 verdire tiu via Ligo — Ligo — Ligo de Hu-
 
-maneco? 
+maneco?
 
 **Helena**
 
-¯i speciale — speciale celas defendi Robo-
+i speciale — speciale celas defendi Robo-
 
 tojn kaj — kaj — garantii al ili — bonan
 
-farton. 
+farton.
 
 **Fabry**
 
@@ -2172,43 +2089,41 @@ aĵojn. Mi petas vin, fraŭlino Glory, enskri-
 
 bu nin ĉiujn kiel subtenantojn, kiel ordina-
 
-rajn, kiel fondantajn anojn de tiu via Ligo\! 
+rajn, kiel fondantajn anojn de tiu via Ligo!
 
 **Helena**
 
-Ne, vi ne komprenas min\! Ni volas — pre-
+Ne, vi ne komprenas min! Ni volas — pre-
 
-cipe — ni volas liberigi Robotojn\! 
+cipe — ni volas liberigi Robotojn!
 
-**Hallemeier **Kiamaniere, mi petas vin? 
+**Hallemeier **Kiamaniere, mi petas vin?
 
 **Helena**
 
 Oni traktu ilin … traktu ilin … . kiel ho-
 
-mojn. 
+mojn.
 
-**Hallemeier **Aha\! ĉu ili eble voĉdonu? ĉu ili eble eĉ ricevu salajron? 
-
-**Helena**
-
-Kompreneble, ke jes\! 
-
-**Hallemeier **Ni rigardu\! Kaj kion ili farus kun ĝi, mi petas vin? 
-
-33
-
-R. U. R. 
-
-eLIBRO
+**Hallemeier **Aha! ĉu ili eble voĉdonu? ĉu ili eble eĉ ricevu salajron?
 
 **Helena**
 
-Ili aĉetus … kion ili bezonas … . kio ĝojigus ilin. 
+Kompreneble, ke jes!
 
-**Hallemeier **Tio estas tre bela, fraŭlino; sed Robotojn nenio ĝojigas. Mil tondroj, kion ili aĉetu? 
+**Hallemeier **Ni rigardu! Kaj kion ili farus kun ĝi, mi petas vin?
 
-Vi povas ilin nutri per ananasoj, per pajlo, 
+
+R. U. R.
+
+
+**Helena**
+
+Ili aĉetus … kion ili bezonas … . kio ĝojigus ilin.
+
+**Hallemeier **Tio estas tre bela, fraŭlino; sed Robotojn nenio ĝojigas. Mil tondroj, kion ili aĉetu?
+
+Vi povas ilin nutri per ananasoj, per pajlo,
 
 per kio vi volas; al ili tio estas egala, ili havas tute nenian gustosenton. Ili interesas
 
@@ -2216,19 +2131,19 @@ sin pri nenio, fraŭlino Glory. Diablo, diab-
 
 lo, neniu vidis ankoraŭ, ke Roboto estus
 
-ekridetinta. 
+ekridetinta.
 
 **Helena**
 
-Kial … kial … kial vi ne faras ilin pli feliĉaj? 
+Kial … kial … kial vi ne faras ilin pli feliĉaj?
 
 **Hallemeier **Ne eble, fraŭlino Glory. Ili estas nur Robotoj. Sen propra volo. Sen pasioj. Sen histo-
 
-rio. Sen animo. 
+rio. Sen animo.
 
 **Helena**
 
-ĉu sen amo kaj obstino? 
+ĉu sen amo kaj obstino?
 
 **Hallemeier **Kompreneble. Robotoj amas nenion, eĉ ne sin mem. Kaj ĉu obstino? Mi ne scias; nur
 
@@ -2236,37 +2151,35 @@ malofte, nur de tempo al tempo —
 
 **Helena**
 
-Kio? 
+Kio?
 
-**Hallemeier **Verdire nenio. Iufoje ili kvazaŭ freneziĝas. 
+**Hallemeier **Verdire nenio. Iufoje ili kvazaŭ freneziĝas.
 
-Io kvazaŭ epilepsio, sciu\! Oni nomas ĝin la
+Io kvazaŭ epilepsio, sciu! Oni nomas ĝin la
 
 spasmo de Robotoj. Subite iu forĵetegas
 
-ĉion, kion li tenas en la mano, li staras, 
+ĉion, kion li tenas en la mano, li staras,
 
-grincas per la dentoj — kaj devas esti ĵetita en pistmaŝinon. Verŝajne difekto de orga-nismo. 
+grincas per la dentoj — kaj devas esti ĵetita en pistmaŝinon. Verŝajne difekto de orga-nismo.
 
-34
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Fabrika difekto. 
+Fabrika difekto.
 
 **Helena**
 
-Ne, ne, tio estas la animo\! 
+Ne, ne, tio estas la animo!
 
 **Fabry**
 
 ĉu vi pensas, ke la animo komenciĝas per
 
-dentogrincado? 
+dentogrincado?
 
 **Domin**
 
@@ -2278,11 +2191,11 @@ Gall ĵus faras iajn eksperimentojn —
 
 Kun tio ĉi ne, Domin; nun mi fabrikas ner-
 
-vojn por doloro. 
+vojn por doloro.
 
 **Helena**
 
-Nervojn por doloro? 
+Nervojn por doloro?
 
 **D-ro Gall**
 
@@ -2292,13 +2205,13 @@ ron. Komprenu, mortinta juna Rossum tro
 
 limigis la nervan sistemon. Tio ne montris
 
-sin taŭga: oni devas ilin igi dolorsentemaj. 
+sin taŭga: oni devas ilin igi dolorsentemaj.
 
 **Helena**
 
-Kial — kial — se vi ne donas al ili animon, 
+Kial — kial — se vi ne donas al ili animon,
 
-kial vi volas doni al ili doloron? 
+kial vi volas doni al ili doloron?
 
 **D-ro Gall**
 
@@ -2314,41 +2227,39 @@ kapon, tio estas al ĝi egala. Ni devas doni
 
 doloron al ili; tio estas aŭtomata ŝirmilo
 
-kontraŭ lezo. 
+kontraŭ lezo.
 
 **Helena**
 
-ĉu ili estos pli feliĉaj, se ili sentos doloron? 
+ĉu ili estos pli feliĉaj, se ili sentos doloron?
 
 **D-ro Gall**
 
-Male; sed ili estos teknike pli perfektaj. 
+Male; sed ili estos teknike pli perfektaj.
 
 **Helena**
 
-Kial vi ne kreas animon al ili? 
+Kial vi ne kreas animon al ili?
 
 **D-ro Gall**
 
-Tion ni ne kapablas. 
+Tion ni ne kapablas.
 
-35
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Fabry**
 
-Tio ne estas en nia intereso. 
+Tio ne estas en nia intereso.
 
 **Busman**
 
 Tio plikarigus la fabrikadon. Pro Dio, bela
 
-sinjorino, ni ja faras tion tiel malkare\! Vestita peco po cent dudek dolaroj, kaj antaŭ
+sinjorino, ni ja faras tion tiel malkare! Vestita peco po cent dudek dolaroj, kaj antaŭ
 
-dek kvin jaroj ĝi kostis dek mil\! — Antaŭ
+dek kvin jaroj ĝi kostis dek mil! — Antaŭ
 
 kvin jaroj ni aĉetadis por ili vestaron; ho-
 
@@ -2360,59 +2271,57 @@ kare ol aliaj uzinoj. Mi petas vin, fraŭlino
 
 Glory, kiom vi pagas por unu metro da
 
-tolo? 
+tolo?
 
 **Helena**
 
 Mi ne scias — — efektive — — — mi forge-
 
-sis. 
+sis.
 
 **Busman**
 
 Mia Dio, kaj vi volas fondi Ligon de Hu-
 
-maneco\! ¯i kostas jam nur la trionon, 
+maneco! i kostas jam nur la trionon,
 
 fraŭlino; ĉiuj prezoj malaltiĝis ĝis la triono kaj ili malaltiĝos pli, pli, pli ĝis — tiel …
 
 *li montras*
 
-He? 
+He?
 
 **Helena**
 
-Mi ne komprenas. 
+Mi ne komprenas.
 
 **Busman**
 
-Pro Dio, fraŭlino, tio signifas, ke la laboro perdis je valoro\! Roboto kostas ja eĉ kun
+Pro Dio, fraŭlino, tio signifas, ke la laboro perdis je valoro! Roboto kostas ja eĉ kun
 
 nutraĵo por unu horo tri kvaronojn da cen-
 
-deto\! Tio estas amuza, fraŭlino. ĉiuj uzinoj
+deto! Tio estas amuza, fraŭlino. ĉiuj uzinoj
 
 krevas kiel glanoj, aŭ ili rapide aĉetas Ro-
 
-botojn, por malkarigi la fabrikadon. 
+botojn, por malkarigi la fabrikadon.
 
-36
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 Jes, kaj ili elĵetas la laboristojn sur pavi-
 
-mon. 
+mon.
 
 **Busman**
 
 *ridas*
 
-Haha, kompreneble\! Sed ni, mia bona Dio, 
+Haha, kompreneble! Sed ni, mia bona Dio,
 
 ni ĵetis dume kvin cent mil tropikajn Ro-
 
@@ -2420,11 +2329,11 @@ botojn sur la argentinajn pampojn, por ke
 
 ili kulturu tritikon. Estu tiel afabla, kiom
 
-kostas ĉe vi funto da pano? 
+kostas ĉe vi funto da pano?
 
 **Helena**
 
-Mi havas eĉ ne ideon. 
+Mi havas eĉ ne ideon.
 
 **Busman**
 
@@ -2436,7 +2345,7 @@ nia pano, ĉu vi komprenas? Du cendetoj
 
 por funto da pano; kaj la Ligo de Humane-
 
-co havas pri tio eĉ ne ideon\! 
+co havas pri tio eĉ ne ideon!
 
 *li ridas*
 
@@ -2444,11 +2353,11 @@ Haha, fraŭlino Glory, vi ne scias, kio estas
 
 tro multekosta pantranĉaĵo. Pro kulturo
 
-kaj tiel plu. Sed en kvin jaroj, nu, do vetu\! 
+kaj tiel plu. Sed en kvin jaroj, nu, do vetu!
 
 **Helena**
 
-Kion? 
+Kion?
 
 **Busman**
 
@@ -2456,19 +2365,17 @@ Ke post kvin jaroj ĉiuj prezoj estos nula
 
 entjero, unu decimalo. Karuloj, post kvin
 
-jaroj ni dronos en tritiko kaj en ĉio ebla. 
+jaroj ni dronos en tritiko kaj en ĉio ebla.
 
 **Alquist**
 
 Jes, kaj ĉiuj laboristoj de la mondo estos
 
-sen laboro. 
+sen laboro.
 
-37
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
@@ -2478,7 +2385,7 @@ Estos, Alquist. Estos, fraŭlino Glory. Sed
 
 ĝis dek jaroj Rossumaj Universal- Robotoj
 
-produktos tiom da tritiko, tiom da ŝtofoj, 
+produktos tiom da tritiko, tiom da ŝtofoj,
 
 tiom da ĉio, ke ni diros: la komercaĵoj ne
 
@@ -2492,13 +2399,13 @@ niu laboro. ĉion faros vivaj maŝinoj. La
 
 homo farados nur tion, kion li ŝatos. Li vi-
 
-vos nur por tio, ke li pliperfektiĝu. 
+vos nur por tio, ke li pliperfektiĝu.
 
 **Helena**
 
 *ekstaras*
 
-ĉu estos tiel? 
+ĉu estos tiel?
 
 **Domin**
 
@@ -2514,33 +2421,31 @@ estas laboristo, vi ne plu estas skribisto; vi ne plu minas karbon kaj vi ne sta
 
 fremda maŝino. Vi ne plu disigados vian
 
-animon en laboro, kiun vi malbenas\! 
+animon en laboro, kiun vi malbenas!
 
 **Alquist**
 
-Domin, Domin\! Tio, kion vi diras, aspektas
+Domin, Domin! Tio, kion vi diras, aspektas
 
 tro kiel paradizo. Domin, estis io bona en
 
-servado kaj io granda en humiligo. Ho, 
+servado kaj io granda en humiligo. Ho,
 
-38
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 Harry, estis — mi ne scias kia — virto en
 
-laboro kaj laceco. 
+laboro kaj laceco.
 
 **Domin**
 
-Eble estis. Sed ni ne povas kalkuli kun tio, 
+Eble estis. Sed ni ne povas kalkuli kun tio,
 
 kio perdiĝos, se ni aliformas la mondon
 
-komencante de Adamo. Adamo, Adamo\! 
+komencante de Adamo. Adamo, Adamo!
 
 Vi ne plu manĝos vian panon kun ŝvitanta
 
@@ -2556,57 +2461,55 @@ vos alian taskon, alian laboron, alian zor-
 
 gon, ol pliperfektigi vin mem. Vi estos
 
-estro de la kreaĵo. 
+estro de la kreaĵo.
 
 **Busman**
 
-Amen. 
+Amen.
 
 **Fabry**
 
-Fariĝu tiel. 
+Fariĝu tiel.
 
 **Helena**
 
-Vi konfuzis min. Mi estas naivega knabino. 
+Vi konfuzis min. Mi estas naivega knabino.
 
-Mi volus — mi volus kredi tion. 
+Mi volus — mi volus kredi tion.
 
 **D-ro Gall**
 
 Vi estas pli juna ol ni, fraŭlino Glory. Vi
 
-ĝisvivos ĉion. 
+ĝisvivos ĉion.
 
-**Hallemeier **Jes. Mi pensas, ke fraŭlino Glory povus lunĉi kun ni. 
+**Hallemeier **Jes. Mi pensas, ke fraŭlino Glory povus lunĉi kun ni.
 
 **D-ro Gall**
 
-Kompreneble\! Domin, petu en nomo de ni
+Kompreneble! Domin, petu en nomo de ni
 
 ĉiuj …
 
 **Domin**
 
-Fraŭlino Glory, honorigu nin. 
+Fraŭlino Glory, honorigu nin.
 
 **Helena**
 
-Sed tio do — kiel mi povus? 
+Sed tio do — kiel mi povus?
 
 **Fabry**
 
-Por Ligo de Humaneco, fraŭlino. 
+Por Ligo de Humaneco, fraŭlino.
 
-39
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Busman**
 
-Kaj je ĝia honoro. 
+Kaj je ĝia honoro.
 
 **Helena**
 
@@ -2614,13 +2517,13 @@ Ho, ĉiuokaze — eble —
 
 **Fabry**
 
-Do vivu\! Fraŭlino Glory, pardonu por kvin
+Do vivu! Fraŭlino Glory, pardonu por kvin
 
-minutoj. 
+minutoj.
 
 **D-ro Gall**
 
-Pardonu. 
+Pardonu.
 
 **Busman**
 
@@ -2634,15 +2537,15 @@ Pro Dio, mi devas kabli —
 
 **Helena**
 
-Kial ĉiuj foriras? 
+Kial ĉiuj foriras?
 
 **Domin**
 
-Kuiri, fraŭlino Glory. 
+Kuiri, fraŭlino Glory.
 
 **Helena**
 
-Kion kuiri? 
+Kion kuiri?
 
 **Domin**
 
@@ -2660,7 +2563,7 @@ omleto —
 
 **Helena**
 
-Pro Dio, tio estos festeno\! Kaj kion scipo-
+Pro Dio, tio estos festeno! Kaj kion scipo-
 
 vas sinjoro — konstruisto —
 
@@ -2670,33 +2573,31 @@ vas sinjoro — konstruisto —
 
 blon kaj — kaj Fabry havigos iom da fruk-
 
-toj. Tre modesta kuiro, fraŭlino Glory. 
+toj. Tre modesta kuiro, fraŭlino Glory.
 
 **Helena**
 
 Mi volis demandi vin —
 
-40
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Ankaŭ mi volus pri io demandi vin. 
+Ankaŭ mi volus pri io demandi vin.
 
 *li metas sian horloĝon sur la tablon*
 
-Kvin minutoj da tempo. 
+Kvin minutoj da tempo.
 
 **Helena**
 
-Pri kio demandi? 
+Pri kio demandi?
 
 **Domin**
 
-Pardonu, vi demandis pli frue. 
+Pardonu, vi demandis pli frue.
 
 **Helena**
 
@@ -2706,19 +2607,19 @@ fabrikas virinajn Robotojn, se — se —
 
 **Domin**
 
-— se ĉe ili, hm, se por ili la sekso estas sen signifo? 
+— se ĉe ili, hm, se por ili la sekso estas sen signifo?
 
 **Helena**
 
-Jes. 
+Jes.
 
 **Domin**
 
-Estas iam tia mendokondiĉo, sciu\! Servisti-
+Estas iam tia mendokondiĉo, sciu! Servisti-
 
 noj, vendistinoj, skribistinoj — la homoj
 
-estas kutimiĝintaj. 
+estas kutimiĝintaj.
 
 **Helena**
 
@@ -2730,19 +2631,19 @@ botinoj — reciproke — absolute —
 
 Absolute indiferentaj, kara fraŭlino. Estas
 
-eĉ ne signo je ia inklino. 
+eĉ ne signo je ia inklino.
 
 **Helena**
 
-Ho, tio estas — terrrura\! 
+Ho, tio estas — terrrura!
 
 **Domin**
 
-Kial? 
+Kial?
 
 **Helena**
 
-Tio estas — estas — tiel nenatura\! Oni eĉ
+Tio estas — estas — tiel nenatura! Oni eĉ
 
 ne scias, ĉu oni pro tio sentu naŭzon kon-
 
@@ -2750,37 +2651,35 @@ traŭ ili, aŭ — enviu ilin — aŭ eble …
 
 **Domin**
 
-— bedaŭru ilin. 
+— bedaŭru ilin.
 
 **Helena**
 
-Tion plej eble. — Ne, ĉesu\! Kion vi volis
+Tion plej eble. — Ne, ĉesu! Kion vi volis
 
-demandi? 
+demandi?
 
-41
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 Mi volonte demandus, fraŭlino Glory, ĉu vi
 
-volus min. 
+volus min.
 
 **Helena**
 
-Kiel voli vin? 
+Kiel voli vin?
 
 **Domin**
 
-Kiel edzon. 
+Kiel edzon.
 
 **Helena**
 
-Ne\! Kiamaniere venis tia ideo al vi? 
+Ne! Kiamaniere venis tia ideo al vi?
 
 **Domin**
 
@@ -2790,119 +2689,117 @@ Ankoraŭ tri minutoj. Se vi ne edziniĝos
 
 kun mi, vi estos devigata edziniĝi kun iu el
 
-la kvin ceteraj. 
+la kvin ceteraj.
 
 **Helena**
 
-Dio gardu\! Kial mi edziniĝu kun li? 
+Dio gardu! Kial mi edziniĝu kun li?
 
 **Domin**
 
-ĉar ĉiuj laŭvice petos vin pri tio. 
+ĉar ĉiuj laŭvice petos vin pri tio.
 
 **Helena**
 
-Kiamaniere ili povus kuraĝi? 
+Kiamaniere ili povus kuraĝi?
 
 **Domin**
 
 Mi tre bedaŭras, fraŭlino Glory. ŝajnas, ke
 
-ili estas vin ekamintaj. 
+ili estas vin ekamintaj.
 
 **Helena**
 
-Mi petas vin, ili ne faru tion\! Mi — mi tuj
+Mi petas vin, ili ne faru tion! Mi — mi tuj
 
-forveturos\! 
+forveturos!
 
 **Domin**
 
-Helena, vi ne tiel malgajigu ilin. 
+Helena, vi ne tiel malgajigu ilin.
 
 **Helena**
 
 Sed mi ja — mi ja ne povas edziniĝi kun
 
-ĉiuj ses\! 
+ĉiuj ses!
 
 **Domin**
 
 Ne, sed almenaŭ kun unu. Se vi ne volas
 
-kun mi, do kun Fabry. 
+kun mi, do kun Fabry.
 
 **Helena**
 
-Mi ne volas\! 
+Mi ne volas!
 
 **Domin**
 
-Kun doktoro Gall. 
+Kun doktoro Gall.
 
 **Helena**
 
-Ne, ne, silentu\! Mi volas neniun. 
+Ne, ne, silentu! Mi volas neniun.
 
 **Domin**
 
-Ankoraŭ du minutoj. 
+Ankoraŭ du minutoj.
 
-42
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Tio estas terrrura\! Edziniĝu kun iu Roboti-
+Tio estas terrrura! Edziniĝu kun iu Roboti-
 
-no. 
+no.
 
 **Domin**
 
-ŝi ne estas virino. 
+ŝi ne estas virino.
 
 **Helena**
 
-Ho, nur tio mankas al vi\! Mi pensas, ke —
+Ho, nur tio mankas al vi! Mi pensas, ke —
 
-ke vi edziniĝus kun ĉiu, kiu alvenas ĉi tien. 
+ke vi edziniĝus kun ĉiu, kiu alvenas ĉi tien.
 
 **Domin**
 
-Estis ĉi tie multe da ili, Helena. 
+Estis ĉi tie multe da ili, Helena.
 
 **Helena**
 
-ĉu junaj? 
+ĉu junaj?
 
 **Domin**
 
-Junaj. 
+Junaj.
 
 **Helena**
 
-Kial vi ne edziniĝis kun iu? 
+Kial vi ne edziniĝis kun iu?
 
 **Domin**
 
 ĉar mi ne perdis la kapon. Nur hodiaŭ. Tuj
 
-post kiam vi demetis la vualon. 
+post kiam vi demetis la vualon.
 
 **Helena**
 
-— Mi scias. 
+— Mi scias.
 
 **Domin**
 
-Ankoraŭ unu minuto. 
+Ankoraŭ unu minuto.
 
 **Helena**
 
-Sed mi ne volas, pro Dio\! 
+Sed mi ne volas, pro Dio!
 
 **Domin**
 
@@ -2916,53 +2813,51 @@ lasos vin. Aŭ — aŭ —
 
 **Helena**
 
-Vi estas maldelikatulo\! 
+Vi estas maldelikatulo!
 
 **Domin**
 
 Tio estas nenio. Viro devas esti iomete
 
-maldelikata. Tio decas. 
+maldelikata. Tio decas.
 
 **Helena**
 
-Vi estas frenezulo\! 
+Vi estas frenezulo!
 
 **Domin**
 
-La homo devas esti iom freneza, Helena. 
+La homo devas esti iom freneza, Helena.
 
-Tio estas ĉe li la plej bona. 
+Tio estas ĉe li la plej bona.
 
 **Helena**
 
-Vi estas — vi estas — a˛ mia Dio\! 
+Vi estas — vi estas — a˛ mia Dio!
 
 **Domin**
 
-Do vidu\! ĉu prete? 
+Do vidu! ĉu prete?
 
-43
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Ne, ne\! Mi petas vin, lasu min\! Vi ja dis-
+Ne, ne! Mi petas vin, lasu min! Vi ja dis-
 
-prrremos min\! 
+prrremos min!
 
 **Domin**
 
-La lastan vorton, Helena\! 
+La lastan vorton, Helena!
 
 **Helena**
 
 *defendas sin*
 
-Por nenio en la mondo — Do Harry\! 
+Por nenio en la mondo — Do Harry!
 
 *pordofrapo*
 
@@ -2970,7 +2865,7 @@ Por nenio en la mondo — Do Harry\!
 
 *ellasas ŝin*
 
-Eniru\! 
+Eniru!
 
 *eniras BUSMAN, D-roj GALL kaj*
 
@@ -2982,25 +2877,23 @@ Eniru\!
 
 **Domin**
 
-ĉu vi jam estas pretaj? 
+ĉu vi jam estas pretaj?
 
 **Busman**
 
 *solene*
 
-Jes. 
+Jes.
 
 **Domin**
 
-Ni ankaŭ. 
+Ni ankaŭ.
 
 *kurteno*
 
-44
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **UNUA AKTO**
 
@@ -3012,27 +2905,25 @@ eLIBRO
 
 **Fabry**
 
-Kien ni donos ĉion ĉi? 
+Kien ni donos ĉion ĉi?
 
-**Hallemeier **Uf\! 
+**Hallemeier **Uf!
 
 *demetas sian ŝarĝon kaj benas per granda*
 
 *krucosigno la pordon dekstre. *
 
-Dormu, dormu\! Kiu dormas, scias almenaŭ
+Dormu, dormu! Kiu dormas, scias almenaŭ
 
 pri nenio
 
 **Domin**
 
-ŝi tute ne scias. 
+ŝi tute ne scias.
 
-45
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Fabry**
 
@@ -3044,9 +2935,9 @@ Se almenaŭ hodiaŭ la afero ne malkaŝi-
 
 **Hallemeier ** *ordigas la florojn*
 
-Je diablo, ne parolu pri tio\! Rigardu, Harry, ĉi tio estas belega ciklameno, ĉu ne? Nova
+Je diablo, ne parolu pri tio! Rigardu, Harry, ĉi tio estas belega ciklameno, ĉu ne? Nova
 
-speco, mia lasta — ciklameno Helena. 
+speco, mia lasta — ciklameno Helena.
 
 **Domin**
 
@@ -3054,55 +2945,53 @@ speco, mia lasta — ciklameno Helena.
 
 Neniu ŝipo, neniu ŝipo — knaboj, tio estas
 
-jam malespera. 
+jam malespera.
 
-**Hallemeier **Silentu\! Se ŝi aŭdus vin\! 
+**Hallemeier **Silentu! Se ŝi aŭdus vin!
 
 **Domin**
 
-ŝi ne havas eĉ ideon. 
+ŝi ne havas eĉ ideon.
 
 *Li oscedas febre. *
 
 Feliĉe, ke almenaŭ ”Ultimus” ĝustatempe
 
-alvenis. 
+alvenis.
 
 **Fabry**
 
 *lasas la florojn*
 
-ĉu vi pensas, ke jam hodiaŭ —? 
+ĉu vi pensas, ke jam hodiaŭ —?
 
 **Domin**
 
-Mi ne scias. — Kiel belaj estas la floroj\! 
+Mi ne scias. — Kiel belaj estas la floroj!
 
 **Hallemeier ** *alproksimiĝas al li*
 
-Tio estas novaj primoloj, ĉu vi komprenas? 
+Tio estas novaj primoloj, ĉu vi komprenas?
 
 Kaj ĉi tio estas mia nova jasmeno. Mil
 
 tondroj, mi estas sur la sojlo de florparadi-
 
-zo. Mi trovis miregindan rapidigon, amiko\! 
+zo. Mi trovis miregindan rapidigon, amiko!
 
-Luksegaj variaĵoj\! Venontan jaron mi faros
+Luksegaj variaĵoj! Venontan jaron mi faros
 
-miraklojn en la floraro\! 
+miraklojn en la floraro!
 
-46
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 *turnas sin*
 
-Kion, venontan jaron? 
+Kion, venontan jaron?
 
 **Fabry**
 
@@ -3112,17 +3001,17 @@ ver—
 
 **Domin**
 
-Silentu. 
+Silentu.
 
 **Voĉo de Helena**
 
 *de dekstre*
 
-Nana\! 
+Nana!
 
 **Domin**
 
-For de ĉi tie\! 
+For de ĉi tie!
 
 *ĉiuj senbrue eliras tra la tapetpordo. Tra la* *ĉefpordo eniras de maldekstre NANA*
 
@@ -3130,7 +3019,7 @@ For de ĉi tie\!
 
 *ordigas la ĉambron*
 
-Kanajloj malbelaĉaj\! Paganoj\! Dio ne punu
+Kanajloj malbelaĉaj! Paganoj! Dio ne punu
 
 min, sed mi ilin —
 
@@ -3138,27 +3027,27 @@ min, sed mi ilin —
 
 *dorsturnite en la pordo*
 
-Nana, venu min butonumi\! 
+Nana, venu min butonumi!
 
 **Nana**
 
-Nu tuj, nu tuj. 
+Nu tuj, nu tuj.
 
 *butonumante la veston al Helena*
 
-Dio en la ĉielo, tio estas bestaĉaro\! 
+Dio en la ĉielo, tio estas bestaĉaro!
 
 **Helena**
 
-ĉu Robotoj? 
+ĉu Robotoj?
 
 **Nana**
 
-Fi, eĉ nomi ilin mi ne volas. 
+Fi, eĉ nomi ilin mi ne volas.
 
 **Helena**
 
-Kio okazis? 
+Kio okazis?
 
 **Nana**
 
@@ -3166,55 +3055,53 @@ Ree tio atakis iun ĉe ni. Li ekbategas statu-
 
 ojn kaj bildojn, grincas per la dentoj, ŝaŭ-
 
-mon ĉe la buŝego, — tute frenezaĉa, brr\! 
+mon ĉe la buŝego, — tute frenezaĉa, brr!
 
-¯i estas ja pli aĉa ol besto. 
+i estas ja pli aĉa ol besto.
 
 **Helena**
 
-Kiun tio atakis? 
+Kiun tio atakis?
 
-47
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Nana**
 
 Tion — tion — ĝi ja eĉ ne havas kristanan
 
-nomon\! Tion el la biblioteko. 
+nomon! Tion el la biblioteko.
 
 **Helena**
 
-Radiuson? 
+Radiuson?
 
 **Nana**
 
-¯uste tion. Pro ĉiuj sanktuloj, tio naŭzas
+uste tion. Pro ĉiuj sanktuloj, tio naŭzas
 
-min\! Eĉ araneo ne naŭzas min tiel, kiel tiuj
+min! Eĉ araneo ne naŭzas min tiel, kiel tiuj
 
-paganoj. 
+paganoj.
 
 **Helena**
 
-Do Nana, ĉu vi ne kompatas ilin? 
+Do Nana, ĉu vi ne kompatas ilin?
 
 **Nana**
 
-Nu, vi sentas ja ankaŭ naŭzon kontraŭ ili. 
+Nu, vi sentas ja ankaŭ naŭzon kontraŭ ili.
 
 Kial do vi kunveturigis min ĉi tien? Kial do
 
-devas neniu el ili eĉ nur ektuŝi vin? 
+devas neniu el ili eĉ nur ektuŝi vin?
 
 **Helena**
 
-Mi ne sentas naŭzon, je mia animo, Nana. 
+Mi ne sentas naŭzon, je mia animo, Nana.
 
-Mi bedaŭregas ilin\! 
+Mi bedaŭregas ilin!
 
 **Nana**
 
@@ -3224,115 +3111,111 @@ naŭzon kontraŭ ili. Eĉ la hundo ja sentas
 
 naŭzon, eĉ pecon da viando ĝi ne prenas
 
-de ili; ĝi kuntiras la voston inter la piedojn kaj hurlas, kiam ĝi flaras tiujn nehomojn, 
+de ili; ĝi kuntiras la voston inter la piedojn kaj hurlas, kiam ĝi flaras tiujn nehomojn,
 
-fi. 
+fi.
 
 **Helena**
 
-Hundo ne havas intelekton. 
+Hundo ne havas intelekton.
 
 **Nana**
 
-¯i estas pli bona ol ili, Helena. ¯i scias bo-ne, ke ĝi estas io pli kaj ke ĝi estas de Dio. 
+i estas pli bona ol ili, Helena. i scias bo-ne, ke ĝi estas io pli kaj ke ĝi estas de Dio.
 
 Eĉ ĉevalo ja malkvietiĝas renkontante tian
 
-paganon. ¯i ja eĉ ne havas idaĉojn, kaj eĉ
+paganon. i ja eĉ ne havas idaĉojn, kaj eĉ
 
 hundo havas idojn kaj ĉiu havas idojn —
 
 **Helena**
 
-Mi petas vin, Nana, butonumu\! 
+Mi petas vin, Nana, butonumu!
 
-48
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Nana**
 
 Nu tuj. Mi diras, tio estas kontraŭ la Disin-
 
-joro, tio estas diabla inspiro, fabriki tiujn timigilojn per maŝino. Tio estas blasfemado kontraŭ la Kreinto, 
+joro, tio estas diabla inspiro, fabriki tiujn timigilojn per maŝino. Tio estas blasfemado kontraŭ la Kreinto,
 
 *ŝi levas la manon*
 
 tio estas ofendo de la Sinjoro, kiu kreis nin **laŭ sia bildo**, Helena. Kaj vi profanis la bildon de Dio. Pro tio venos terurega puno
 
-de la ĉielo, memoru tion, terurega puno\! 
+de la ĉielo, memoru tion, terurega puno!
 
 **Helena**
 
-Kio bonodoras ĉi tie? 
+Kio bonodoras ĉi tie?
 
 **Nana**
 
-Floroj. La sinjoro donis ilin ĉi tien. 
+Floroj. La sinjoro donis ilin ĉi tien.
 
 **Helena**
 
-Ne, kiel belaj ili estas\! Nana, rigardu\! Kio
+Ne, kiel belaj ili estas! Nana, rigardu! Kio
 
-estas hodiaŭ\! 
+estas hodiaŭ!
 
 **Nana**
 
 Mi ne scias. Sed estus ĝuste tiel, kiel se
 
-okazus la detruo de la mondo. 
+okazus la detruo de la mondo.
 
 *ekfrapo*
 
 **Helena**
 
-ĉu Harry? 
+ĉu Harry?
 
 *eniras DOMlN*
 
 **Helena**
 
-Harry, kio estas hodiaŭ? 
+Harry, kio estas hodiaŭ?
 
 **Domin**
 
-Divenu\! 
+Divenu!
 
 **Helena**
 
-ĉu mia nomtago? Ne\! La naskiĝtago\! 
+ĉu mia nomtago? Ne! La naskiĝtago!
 
 **Domin**
 
-Io pli bona. 
+Io pli bona.
 
 **Helena**
 
-Mi ne scias — diru tuj\! 
+Mi ne scias — diru tuj!
 
 **Domin**
 
 Hodiaŭ estas dek jaroj, de post kiam vi al-
 
-venis ĉi tien. 
+venis ĉi tien.
 
-49
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-ĉu jam dek jaroj? ¯uste hodiaŭ? — Nana, 
+ĉu jam dek jaroj? uste hodiaŭ? — Nana,
 
 mi petas vin —
 
 **Nana**
 
-Nu mi ja jam iras\! 
+Nu mi ja jam iras!
 
 *ŝi foriras dekstren*
 
@@ -3340,11 +3223,11 @@ Nu mi ja jam iras\!
 
 *kisas Dominon*
 
-Por tio, ke vi memoris tion. 
+Por tio, ke vi memoris tion.
 
 **Domin**
 
-Mi hontas, Helena. Mi ne memoris. 
+Mi hontas, Helena. Mi ne memoris.
 
 **Helena**
 
@@ -3352,117 +3235,115 @@ Tamen —
 
 **Domin**
 
-Tion memoris ili. 
+Tion memoris ili.
 
 **Helena**
 
-Kiu? 
+Kiu?
 
 **Domin**
 
 Busman, Hallemeier, ĉiuj. Enigu la manon
 
-ĉi tie en la poŝon, ĉu vi volas? 
+ĉi tie en la poŝon, ĉu vi volas?
 
 **Helena**
 
 *enpoŝigas la manon*
 
-Kio estas tio? 
+Kio estas tio?
 
 *ŝi elpoŝigas ujon kaj malfermas ĝin*
 
-Perloj\! Tuta koliero\! Harry, ĉu tio estas por mi? 
+Perloj! Tuta koliero! Harry, ĉu tio estas por mi?
 
 **Domin**
 
-De Busman, knabino. 
+De Busman, knabino.
 
 **Helena**
 
-Sed — tion ni ne povas akcepti, ĉu ne? 
+Sed — tion ni ne povas akcepti, ĉu ne?
 
 **Domin**
 
 Ni povas. Enigu la manon en la alian
 
-poŝon. 
+poŝon.
 
 **Helena**
 
-Do\! 
+Do!
 
 *ŝi eltiras el lia poŝo revolveron*
 
-Kio estas tio ĉi? 
+Kio estas tio ĉi?
 
-50
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Permesu\! 
+Permesu!
 
 *li reprenas la revolveron el ŝia mano kaj* *kaŝas ĝin*
 
-Tio ne estas tio. Enigu ree. 
+Tio ne estas tio. Enigu ree.
 
 **Helena**
 
 A˛, Harry — kial vi portas revolveron ĉe
 
-vi? 
+vi?
 
 **Domin**
 
-Sen intenco, nur hazarde. 
+Sen intenco, nur hazarde.
 
 **Helena**
 
-Tion vi neniam portis\! 
+Tion vi neniam portis!
 
 **Domin**
 
-Ne, vi estas prava. Do, ĉi tie estas la poŝo. 
+Ne, vi estas prava. Do, ĉi tie estas la poŝo.
 
 **Helena**
 
 *enpoŝigas la manon*
 
-Skatoleto\! 
+Skatoleto!
 
 *ŝi malfermas ĝin*
 
-Kameo\! Tio estas ja — Harry, tio estas **gre-ka **kameo. 
+Kameo! Tio estas ja — Harry, tio estas **gre-ka **kameo.
 
 **Domin**
 
-ŝajnas. Fabry almenaŭ asertas tion. 
+ŝajnas. Fabry almenaŭ asertas tion.
 
 **Helena**
 
-Fabry? ĉu Fabry donacas tion al mi? 
+Fabry? ĉu Fabry donacas tion al mi?
 
 **Domin**
 
-Certe. 
+Certe.
 
 *li malfermas la pordon maldekstre*
 
-Kaj jen\! Helena, venu rigardi\! 
+Kaj jen! Helena, venu rigardi!
 
 **Helena**
 
 *en la pordo*
 
-Mia Dio, tio estas bela\! 
+Mia Dio, tio estas bela!
 
 *ŝi kuras pluen*
 
-Mi freneziĝos pro ĝojo\! ĉu tio estas de vi? 
+Mi freneziĝos pro ĝojo! ĉu tio estas de vi?
 
 **Domin**
 
@@ -3470,39 +3351,37 @@ Mi freneziĝos pro ĝojo\! ĉu tio estas de vi?
 
 Ne, de Alquist. Kaj tie —
 
-51
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-De Gall\! 
+De Gall!
 
 *ŝi aperas en la pordo*
 
 Ho, Harry, mi preskaŭ hontas, ke mi estas
 
-tiel feliĉa. 
+tiel feliĉa.
 
 **Domin**
 
 Venu ĉi tien. ĉi tion alportis al vi Halle-
 
-meier. 
+meier.
 
 **Helena**
 
-ĉu tiujn belajn florojn? 
+ĉu tiujn belajn florojn?
 
 **Domin**
 
-Jen\! Tio estas nova speco, ciklameno Hele-
+Jen! Tio estas nova speco, ciklameno Hele-
 
-na. Honore al vi li estis kulturinta ĝin. ¯i
+na. Honore al vi li estis kulturinta ĝin. i
 
-estas bela, kiel vi. 
+estas bela, kiel vi.
 
 **Helena**
 
@@ -3512,83 +3391,81 @@ Harry, kial — kial ĉiuj …
 
 Ili **treege **ŝatas vin. Kaj mi, hm. Mi timas, ke mia donaceto estas iomete — rigardu el
 
-la fenestro. 
+la fenestro.
 
 **Helena**
 
-Kien? 
+Kien?
 
 **Domin**
 
-En la havenon. 
+En la havenon.
 
 **Helena**
 
-Estas tie … ia … nova ŝipo. 
+Estas tie … ia … nova ŝipo.
 
 **Domin**
 
-Tio estas via ŝipo. 
+Tio estas via ŝipo.
 
 **Helena**
 
-Mia? Harry, ĝi estas **kanona **ŝipo\! 
+Mia? Harry, ĝi estas **kanona **ŝipo!
 
 **Domin**
 
-ĉu kanona? A˛, kia ideo\! Tio estas nur iom
+ĉu kanona? A˛, kia ideo! Tio estas nur iom
 
-granda, fortika ŝipo, sciu. 
+granda, fortika ŝipo, sciu.
 
 **Helena**
 
-Jes, sed kun kanonoj\! 
+Jes, sed kun kanonoj!
 
 **Domin**
 
 Kompreneble, kun kelkaj kanonoj — vi
 
-vojaĝos kiel reĝino, Helena. 
+vojaĝos kiel reĝino, Helena.
 
 **Helena**
 
-Kion signifas tio? ĉu io okazas? 
+Kion signifas tio? ĉu io okazas?
 
-52
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Gardu Dio\! Mi petas, surmetu prove la
+Gardu Dio! Mi petas, surmetu prove la
 
-perlojn. 
+perlojn.
 
 *li sidiĝas*
 
 **Helena**
 
-Harry, ĉu alvenis iuj malbonaj sciigoj? 
+Harry, ĉu alvenis iuj malbonaj sciigoj?
 
 **Domin**
 
 Kontraŭe, jam tutan semajnon ne venis ia
 
-poŝto. 
+poŝto.
 
 **Helena**
 
-ĉu nek depeŝoj? 
+ĉu nek depeŝoj?
 
 **Domin**
 
-Nek depeŝoj. 
+Nek depeŝoj.
 
 **Helena**
 
-Kion tio signifas? 
+Kion tio signifas?
 
 **Domin**
 
@@ -3600,37 +3477,35 @@ niuj telegramoj —
 
 *li streĉas sin*
 
-Fff-festena tago\! 
+Fff-festena tago!
 
 **Helena**
 
 *eksidas apud li*
 
-Hodiaŭ vi restos ĉe mi, ĉu ne? Diru\! 
+Hodiaŭ vi restos ĉe mi, ĉu ne? Diru!
 
 **Domin**
 
-Nepre. Eble, ke jes. Eble, ni vidos. 
+Nepre. Eble, ke jes. Eble, ni vidos.
 
 *Li prenas ŝian manon. *
 
-Do hodiaŭ estas dek jaroj, ĉu vi memoras? 
+Do hodiaŭ estas dek jaroj, ĉu vi memoras?
 
 — Fraŭlino Glory, kia honoro por ni, ke vi
 
-alveturis\! 
+alveturis!
 
 **Helena**
 
 Ho, sinjoro centra direktoro, min tiel inte-
 
-resas via entrepreno\! 
+resas via entrepreno!
 
-53
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
@@ -3648,17 +3523,17 @@ Sed se petas juna, iom bela knabino —
 
 Nu kompreneble, fraŭlino Glory, por vi ni
 
-ne havas sekretojn. 
+ne havas sekretojn.
 
 **Helena**
 
 *subite serioze*
 
-ĉu nepre ne, Harry? 
+ĉu nepre ne, Harry?
 
 **Domin**
 
-Ne. 
+Ne.
 
 **Helena**
 
@@ -3666,59 +3541,57 @@ Ne.
 
 Sed mi avertas vin, sinjoro; tiu junulino in-
 
-tencas terrruraĵojn. 
+tencas terrruraĵojn.
 
 **Domin**
 
 Pro Dio, fraŭlino Glory, kiajn do? ĉu ŝi
 
-eble volas edziniĝi kun mi? 
+eble volas edziniĝi kun mi?
 
 **Helena**
 
-Ne, ne, gardu Dio\! Pri tio eĉ en sonĝo ŝi ne
+Ne, ne, gardu Dio! Pri tio eĉ en sonĝo ŝi ne
 
-pensis\! Sed ŝi alvenis kun plano rrribeligi
+pensis! Sed ŝi alvenis kun plano rrribeligi
 
-viajn abomenajn Robotojn\! 
+viajn abomenajn Robotojn!
 
 **Domin**
 
 *eksaltas*
 
-Ribeligi Robotojn\! 
+Ribeligi Robotojn!
 
 **Helena**
 
 *leviĝas*
 
-Harry, kio estas al vi? 
+Harry, kio estas al vi?
 
 **Domin**
 
 *ridas*
 
-Haha, fraŭlino Glory, vi sukcesis\! Ribeligi
+Haha, fraŭlino Glory, vi sukcesis! Ribeligi
 
-Robotojn\! Pli facile vi ribeligus ŝpinilojn aŭ plandonajlojn ol niajn Robotojn\! 
+Robotojn! Pli facile vi ribeligus ŝpinilojn aŭ plandonajlojn ol niajn Robotojn!
 
 *li sidiĝas*
 
-54
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 Sciu Helena, vi estis ĉarmega knabino; vi
 
-frenezigis nin ĉiujn. 
+frenezigis nin ĉiujn.
 
 **Helena**
 
 *sidiĝas apud li*
 
-Ho, tiam vi ĉiuj tiel imponis al mi\! Mi sen-
+Ho, tiam vi ĉiuj tiel imponis al mi! Mi sen-
 
 tis min kvazaŭ knabineto, kiu erariris inter
 
@@ -3726,25 +3599,25 @@ tis min kvazaŭ knabineto, kiu erariris inter
 
 **Domin**
 
-Inter kion, Helena? 
+Inter kion, Helena?
 
 **Helena**
 
 Inter grrrandegajn arbojn. Vi estis tiel cer-
 
-taj pri vi, tiel potencaj\! Kaj vidu, Harry, 
+taj pri vi, tiel potencaj! Kaj vidu, Harry,
 
 dum tiuj dek jaroj neniam forlasis min tiu
 
-— — — tiu angoro, aŭ kiel mi ĝin nomus, 
+— — — tiu angoro, aŭ kiel mi ĝin nomus,
 
 kaj vi neniam ekdubis — eĉ ne, se ĉio
 
-malsukcesadis. 
+malsukcesadis.
 
 **Domin**
 
-Kio malsukcesadis? 
+Kio malsukcesadis?
 
 **Helena**
 
@@ -3760,7 +3633,7 @@ Robotoj mortigis tiom da homoj — kaj
 
 kiam poste registaroj faris soldatojn el Ro-
 
-botoj kaj estis tiomaj militoj kaj ĉio tio, ĉu vere? 
+botoj kaj estis tiomaj militoj kaj ĉio tio, ĉu vere?
 
 **Domin**
 
@@ -3768,13 +3641,11 @@ botoj kaj estis tiomaj militoj kaj ĉio tio, ĉu vere?
 
 Tion ni antaŭvidis, Helena. Komprenu, tio
 
-estas nur transiro — al novaj kondiĉoj. 
+estas nur transiro — al novaj kondiĉoj.
 
-55
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -3782,41 +3653,41 @@ La tuta mondo adoradis vin —
 
 *ŝi ekstaras*
 
-Ho, Harry\! 
+Ho, Harry!
 
 **Domin**
 
-Kion vi volas? 
+Kion vi volas?
 
 **Helena**
 
 *haltigas lin*
 
-Fermu la uzinon kaj ni forveturu\! Ni ĉiuj\! 
+Fermu la uzinon kaj ni forveturu! Ni ĉiuj!
 
 **Domin**
 
-Mi petas vin, kiamaniere tio rilatas? 
+Mi petas vin, kiamaniere tio rilatas?
 
 **Helena**
 
 Mi ne scias. Diru, ĉu ni forveturos? Mi
 
-sentas **tian **angoron pro io. 
+sentas **tian **angoron pro io.
 
 **Domin**
 
 *ekprenas ŝin je la manoj*
 
-Pro kio, Helena? 
+Pro kio, Helena?
 
 **Helena**
 
-Ho, mi ne scias\! Kvazaŭ io falus sur nin kaj
+Ho, mi ne scias! Kvazaŭ io falus sur nin kaj
 
 sur ĉion — neeviteble — mi petas vin, faru
 
-tion\! Prenu nin ĉiujn for de ĉi tie\! Ni tro-
+tion! Prenu nin ĉiujn for de ĉi tie! Ni tro-
 
 vos en la mondo lokon, kie neniu estas. Al-
 
@@ -3826,11 +3697,11 @@ kaj havos idojn kaj poste …
 
 **Domin**
 
-Kion poste? 
+Kion poste?
 
 **Helena**
 
-Poste ni ekvivos de la komenco, Harry. 
+Poste ni ekvivos de la komenco, Harry.
 
 *eksonoras telefono*
 
@@ -3842,17 +3713,15 @@ Pardonu …
 
 *li prenas la aŭskultilon*
 
-Halo — jes — Kio? — Aha. Mi kuras jam. 
+Halo — jes — Kio? — Aha. Mi kuras jam.
 
 *li pendigas la aŭskultilon*
 
-Fabry vokas min. 
+Fabry vokas min.
 
-56
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -3862,33 +3731,33 @@ Diru —
 
 **Domin**
 
-Jes, kiam mi revenos. Adiaŭ, Helena\! 
+Jes, kiam mi revenos. Adiaŭ, Helena!
 
 *li kuregas maldekstren*
 
-Ne iru eksteren\! 
+Ne iru eksteren!
 
 **Helena**
 
 *sola*
 
-Ho Dio, kio okazas? Nana\! Nana, rapide\! 
+Ho Dio, kio okazas? Nana! Nana, rapide!
 
 **Nana**
 
 *eniras de dekstre*
 
-No, kio ree? 
+No, kio ree?
 
 **Helena**
 
-Nana, elserĉu la lastajn ĵurnalojn\! Rrrapi-
+Nana, elserĉu la lastajn ĵurnalojn! Rrrapi-
 
-de\! En la dormoĉambro de la sinjoro\! 
+de! En la dormoĉambro de la sinjoro!
 
 **Nana**
 
-Nu tuj. 
+Nu tuj.
 
 *ŝi foriras maldekstren*
 
@@ -3896,39 +3765,37 @@ Nu tuj.
 
 Kio okazas nur, pro Dio? Nenion, nenion li
 
-diras al mi\! 
+diras al mi!
 
 *ŝi rigardas per lorno al la haveno*
 
-Estas milita ŝipo\! Mia Dio, kial milita? Ili
+Estas milita ŝipo! Mia Dio, kial milita? Ili
 
-enŝipigas ion — kaj tiel rapide\! Kio okazis? 
+enŝipigas ion — kaj tiel rapide! Kio okazis?
 
 Estas nomo sur ĝi — ”Ul-ti-mus”. Kion
 
-signifas: ”Ultimus”? 
+signifas: ”Ultimus”?
 
 **Nana**
 
 *revenas kun ĵurnalo*
 
-Sur la planko li lasas kuŝi ĝin\! Tiamaniere
+Sur la planko li lasas kuŝi ĝin! Tiamaniere
 
-premdifekti ĝin\! 
+premdifekti ĝin!
 
 **Helena**
 
 *malfermas rapide la ĵurnalon*
 
-Malnova, jam sep tagojn malnova\! Nenio, 
+Malnova, jam sep tagojn malnova! Nenio,
 
-nenio en ĝi\! 
+nenio en ĝi!
 
-57
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *ŝi ellasas ĵurnalon*
 
@@ -3938,7 +3805,7 @@ eLIBRO
 
 **Helena**
 
-Io okazas, Nana\! Mi sentas tian angoron\! 
+Io okazas, Nana! Mi sentas tian angoron!
 
 Kvazaŭ ĉio estus morta, eĉ la aero —
 
@@ -3948,29 +3815,29 @@ Kvazaŭ ĉio estus morta, eĉ la aero —
 
 ”Mi-li-to sur Bal-ka-no”. A˛ Jesuo, ree dia
 
-puno\! Nu tiu milito venos eĉ tien ĉi\! ĉu tio
+puno! Nu tiu milito venos eĉ tien ĉi! ĉu tio
 
-estas malproksime de ĉi tie? 
+estas malproksime de ĉi tie?
 
 **Helena**
 
-Malproksime. Ho, ne legu tion\! Estas ĉiam
+Malproksime. Ho, ne legu tion! Estas ĉiam
 
 la samo, ĉiam tiuj militoj —
 
 **Nana**
 
-Ke ili ne okazu\! ĉu vi ne vendas seninter-
+Ke ili ne okazu! ĉu vi ne vendas seninter-
 
 rompe milojn da miloj da tiuj paganoj kiel
 
 soldatojn? — — Ho, Sinjoro Kristo, tia aĉa
 
-malordego\! 
+malordego!
 
 **Helena**
 
-Ne, ne legu\! Mi volas nenion scii\! 
+Ne, ne legu! Mi volas nenion scii!
 
 **Nana**
 
@@ -3982,25 +3849,23 @@ en kon-ke-ri-ta re-gi-o-no. I-li ma-sak- ili
 
 masakris pli ol sep cent mil ci-vil-ajn ho-
 
-mojn —” Homojn, Helena\! 
+mojn —” Homojn, Helena!
 
 **Helena**
 
-Ne eble\! Montru —
+Ne eble! Montru —
 
 *ŝi kliniĝas al la ĵurnalo, ŝi legas*
 
 ”Ili masakris pli ol sep cent mil civilajn homojn verŝajne laŭ ordono de la koman-
 
-58
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-danto. ĉi tiu ago kontraŭ —” Do vidu, 
+danto. ĉi tiu ago kontraŭ —” Do vidu,
 
-Nana, tion ordonis al ili la homoj\! 
+Nana, tion ordonis al ili la homoj!
 
 **Nana**
 
@@ -4010,73 +3875,71 @@ or- or-or-ga-ni-za-ĵo de Ro-bo-toj.” —Tio
 
 estas nenio. Tion mi ne komprenas. Kaj ĉi
 
-tie, mia Dio, ree ia murdo\! Pro Sinjoro Kri-
+tie, mia Dio, ree ia murdo! Pro Sinjoro Kri-
 
-sto\! 
+sto!
 
 **Helena**
 
-Iru, Nana, forportu la ĵurnalon\! 
+Iru, Nana, forportu la ĵurnalon!
 
 **Nana**
 
 Haltu, ĉi tie estas io granda. ”Po-pu-la-ci-
 
-o”. Kio estas tio? 
+o”. Kio estas tio?
 
 **Helena**
 
-Montru, tion mi ĉiam legas. 
+Montru, tion mi ĉiam legas.
 
 *ŝi ekprenas la ĵurnalon*
 
-Ne, pripensu nur\! 
+Ne, pripensu nur!
 
 *ŝi legas*
 
 ”Dum la lasta semajno ree ne estis raporti-
 
-te eĉ pri unu naskiĝo.” 
+te eĉ pri unu naskiĝo.”
 
 *ŝi ellasas ĵurnalon*
 
 **Nana**
 
-Kion tio devas signifi? 
+Kion tio devas signifi?
 
 **Helena**
 
-Nana, homoj ĉesas naskiĝi. 
+Nana, homoj ĉesas naskiĝi.
 
 **Nana**
 
 *kunmetante la okulvitrojn*
 
-Do tio estas la fino. Estas fino kun ni. 
+Do tio estas la fino. Estas fino kun ni.
 
 **Helena**
 
-Mi petas vin, ne parolu tiel\! 
+Mi petas vin, ne parolu tiel!
 
 **Nana**
 
 Homoj ne plu naskiĝas. Tio estas puno, tio
 
-estas puno\! Dio vundis la virinojn per sen-
+estas puno! Dio vundis la virinojn per sen-
 
-frukteco. 
+frukteco.
 
-59
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 *eksaltas*
 
-Nana\! 
+Nana!
 
 **Nana**
 
@@ -4090,21 +3953,21 @@ culo. Tio estas sendieco kaj blasfemado, vi
 
 volas esti kiel Dioj. Kaj kiel Dio elpelis la homon el la paradizo, tiel li elpelos ĝin el
 
-la tuta mondo\! 
+la tuta mondo!
 
 **Helena**
 
-Silentu, Nana, mi petegas vin\! ĉu mi mal-
+Silentu, Nana, mi petegas vin! ĉu mi mal-
 
-bonfaris al vi? ĉu mi faris ion al tiu via kolera Dio? 
+bonfaris al vi? ĉu mi faris ion al tiu via kolera Dio?
 
 **Nana**
 
 *kun granda gesto*
 
-Ne blasfemi\! — li scias bone, kial li ne do-
+Ne blasfemi! — li scias bone, kial li ne do-
 
-nis idon al vi\! 
+nis idon al vi!
 
 *ŝi foriras maldekstren*
 
@@ -4116,31 +3979,29 @@ Kial li ne donis **al mi** — Mia Dio, ĉu mi estas kulpa pri tio? — —
 
 *ŝi malfermas la fenestron kaj vokas*
 
-Alquist, halo, Alquist\! Venu ĉi tien supren\! 
+Alquist, halo, Alquist! Venu ĉi tien supren!
 
-— Kion? — ne, venu **ĝuste** tia, kia vi estas\! 
+— Kion? — ne, venu **ĝuste** tia, kia vi estas!
 
 Vi estas tiel belaspekta en tiu masonista
 
-vesto\! Rapide\! 
+vesto! Rapide!
 
 *ŝi fermas la fenestron, haltas antaŭ la spegulo* Kial li ne donis **al mi? Al mi? **
 
-60
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *ŝi klinas sin al la spegulo*
 
 Kial, kial ne? ĉu vi aŭdas? ĉu vi do estas
 
-kulpa pri tio? 
+kulpa pri tio?
 
 *ŝi rektiĝas sin*
 
-A˛, mi sentas angoron\! 
+A˛, mi sentas angoron!
 
 *ŝi iras maldekstren renkonte al Alquist*
 
@@ -4150,9 +4011,9 @@ A˛, mi sentas angoron\!
 
 *revenas kun Alquist. — Alquist kiel masonisto, plenŝmirita de kalko kaj brikoj*
 
-Venu nur. Vi tiel ĝojigis min, Alquist\! Mi
+Venu nur. Vi tiel ĝojigis min, Alquist! Mi
 
-tiel ŝatas vin ĉiujn\! Donu viajn manojn\! 
+tiel ŝatas vin ĉiujn! Donu viajn manojn!
 
 **Alquist**
 
@@ -4160,19 +4021,19 @@ tiel ŝatas vin ĉiujn\! Donu viajn manojn\!
 
 Sinjorino Helena, mi malpurigus vin, ili es-
 
-tas ŝmiritaj de laboro. 
+tas ŝmiritaj de laboro.
 
 **Helena**
 
-Tio estas la plej bona je ili. Donu\! 
+Tio estas la plej bona je ili. Donu!
 
 *ŝi premas ambaŭ liajn manojn*
 
-Alquist, mi volus esti malgrandeta. 
+Alquist, mi volus esti malgrandeta.
 
 **Alquist**
 
-Kial? 
+Kial?
 
 **Helena**
 
@@ -4180,11 +4041,11 @@ Por ke ĉi tiuj malglataj, malpurigitaj manoj
 
 karesu min sur la vango. Sidigu vin, mi pe-
 
-tas. Alquist, kion signifas ”Ultimus”? 
+tas. Alquist, kion signifas ”Ultimus”?
 
 **Alquist**
 
-Tio signifas ”La lasta”. Kial? 
+Tio signifas ”La lasta”. Kial?
 
 **Helena**
 
@@ -4192,41 +4053,39 @@ Tio signifas ”La lasta”. Kial?
 
 vi vidis ĝin? ĉu vi pensas, ke ni baldaŭ —
 
-ekskursos? 
+ekskursos?
 
 **Alquist**
 
-Eble tre baldaŭ. 
+Eble tre baldaŭ.
 
-61
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-ĉu vi ĉiuj kune kun mi? 
+ĉu vi ĉiuj kune kun mi?
 
 **Alquist**
 
-Mi ŝatus, ke — ke ni partoprenu ĉiuj. 
+Mi ŝatus, ke — ke ni partoprenu ĉiuj.
 
 **Helena**
 
-Ho, diru, ĉu io okazas? 
+Ho, diru, ĉu io okazas?
 
 **Alquist**
 
-Nepre ne. Sole nura progreso. 
+Nepre ne. Sole nura progreso.
 
 **Helena**
 
 Alquist, mi scias, ke okazas io terrrura. Mi
 
-sentas tian angoron — — konstruisto\! Kion
+sentas tian angoron — — konstruisto! Kion
 
-vi faras, se vi angoras? 
+vi faras, se vi angoras?
 
 **Alquist**
 
@@ -4238,31 +4097,31 @@ konstruestro kaj suriras trabaron —
 
 Ho, vi jam dum jaroj ne estas aliloke ol sur
 
-trabaro. 
+trabaro.
 
 **Alquist**
 
 ĉar jam dum jaroj mi ne ĉesis senti ango-
 
-ron. 
+ron.
 
 **Helena**
 
-Pro kio? 
+Pro kio?
 
 **Alquist**
 
 Pro tiu tuta progreso. Al mi svenas la kapo
 
-pro ĝi. 
+pro ĝi.
 
 **Helena**
 
-Kaj sur trabaro ĉu vi ne sentas vertigon? 
+Kaj sur trabaro ĉu vi ne sentas vertigon?
 
 **Alquist**
 
-Ne. Vi ne scias, kiel utilas al manplatoj, 
+Ne. Vi ne scias, kiel utilas al manplatoj,
 
 manpesi brikon, surmeti kaj ekfrapi ĝin
 
@@ -4270,7 +4129,7 @@ per martelo —
 
 **Helena**
 
-ĉu nur al manplatoj? 
+ĉu nur al manplatoj?
 
 **Alquist**
 
@@ -4280,17 +4139,15 @@ Nu do al animo. Mi pensas, ke estas pli
 
 dajn planojn. Mi estas jam maljuna sin-
 
-joro, Helena; mi havas miajn pasietojn. 
+joro, Helena; mi havas miajn pasietojn.
 
 **Helena**
 
-Tio ne estas pasietoj, Alquist. 
+Tio ne estas pasietoj, Alquist.
 
-62
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
@@ -4298,21 +4155,21 @@ Vi estas prava. Mi estas tro malprogrese-
 
 ma, sinjorino Helena. Mi ne ŝatas eĉ mal-
 
-multe ĉi tiun progreson. 
+multe ĉi tiun progreson.
 
 **Helena**
 
-Kiel Nana. 
+Kiel Nana.
 
 **Alquist**
 
 Jes, kiel Nana. ĉu Nana posedas ian preĝ-
 
-libron? 
+libron?
 
 **Helena**
 
-Tiel dikan. 
+Tiel dikan.
 
 **Alquist**
 
@@ -4320,7 +4177,7 @@ Kaj ĉu ĝi enhavas preĝojn por diversaj
 
 okazoj de la vivo? Kontraŭ tempesto? Kon-
 
-traŭ malsano? 
+traŭ malsano?
 
 **Helena**
 
@@ -4328,27 +4185,27 @@ Kontraŭ tento, kontraŭ superakvego —
 
 **Alquist**
 
-Kaj ĉu ne kontraŭ progreso? 
+Kaj ĉu ne kontraŭ progreso?
 
 **Helena**
 
-Mi opinias, ke ne. 
+Mi opinias, ke ne.
 
 **Alquist**
 
-Domaĝe. 
+Domaĝe.
 
 **Helena**
 
-ĉu vi volus preĝi? 
+ĉu vi volus preĝi?
 
 **Alquist**
 
-Mi preĝas. 
+Mi preĝas.
 
 **Helena**
 
-Kiamaniere? 
+Kiamaniere?
 
 **Alquist**
 
@@ -4366,39 +4223,37 @@ detruo; ne permesu, ke ĝin trafu malutilo
 
 je animo kaj korpo; senigu nin de Robotoj
 
-kaj gardu sinjorinon Helenan, amen\!” 
+kaj gardu sinjorinon Helenan, amen!”
 
 **Helena**
 
-Alquist, ĉu vi kredas efektive? 
+Alquist, ĉu vi kredas efektive?
 
-63
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
 Mi ne scias, mi ne estas tute konvinkita pri
 
-tio. 
+tio.
 
 **Helena**
 
-Kaj ĉu tamen vi preĝas? 
+Kaj ĉu tamen vi preĝas?
 
 **Alquist**
 
-Jes. Tio estas pli bona ol mediti. 
+Jes. Tio estas pli bona ol mediti.
 
 **Helena**
 
-Kaj ĉu sufiĉas tio al vi? 
+Kaj ĉu sufiĉas tio al vi?
 
 **Alquist**
 
-Por trankvilo de l’animo tio povas sufiĉi. 
+Por trankvilo de l’animo tio povas sufiĉi.
 
 **Helena**
 
@@ -4408,51 +4263,51 @@ ro —
 
 **Alquist**
 
-Mi vidas ĝin. 
+Mi vidas ĝin.
 
 **Helena**
 
 — do ĉu vi suriros la trabaron kaj metados
 
-unu brikon sur la alian aŭ kion vi faros? 
+unu brikon sur la alian aŭ kion vi faros?
 
 **Alquist**
 
 Do mi metados brikon al briko, mi preĝos
 
-kaj atendos miraklon. Pli ne estas fareble, 
+kaj atendos miraklon. Pli ne estas fareble,
 
-sinjorino Helena. 
+sinjorino Helena.
 
 **Helena**
 
-ĉu — por savo de la homaro? 
+ĉu — por savo de la homaro?
 
 **Alquist**
 
-Por trankvileco de l’animo. 
+Por trankvileco de l’animo.
 
 **Helena**
 
-Alquist, tio estas certe ekstreme virta, 
+Alquist, tio estas certe ekstreme virta,
 
 sed —
 
 **Alquist**
 
-Sed? 
+Sed?
 
 **Helena**
 
 — por ni ceteraj — kaj por la mondo — iel
 
-senfrukta. 
+senfrukta.
 
 **Alquist**
 
 Senfrukteco, sinjorino Helena, fariĝas la
 
-lasta akiro de la homa raso. 
+lasta akiro de la homa raso.
 
 **Helena**
 
@@ -4460,29 +4315,27 @@ Ho, Alquist — diru, kial — kial —
 
 **Alquist**
 
-Nu? 
+Nu?
 
-64
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 *mallaŭte*
 
-Kial la virinoj ĉesis naski idojn? 
+Kial la virinoj ĉesis naski idojn?
 
 **Alquist**
 
 ĉar ne estas necese. ĉar ni estas en paradi-
 
-zo, ĉu vi komprenas? 
+zo, ĉu vi komprenas?
 
 **Helena**
 
-Mi ne komprenas. 
+Mi ne komprenas.
 
 **Alquist**
 
@@ -4490,31 +4343,31 @@ Mi ne komprenas.
 
 doloro ne estas necesa, ĉar nenio plu estas
 
-necesa por la homo, nenio ol ĝuo — Ho, 
+necesa por la homo, nenio ol ĝuo — Ho,
 
-malbenita paradizo, ĉi tio\! 
+malbenita paradizo, ĉi tio!
 
 *li eksaltas*
 
-Helena, nenio estas pli terura, ol doni al la homoj paradizon sur la tero\! Kial la virinoj
+Helena, nenio estas pli terura, ol doni al la homoj paradizon sur la tero! Kial la virinoj
 
 ĉesis naski? ĉar la tuta mondo fariĝis So-
 
-domo de Domin\! 
+domo de Domin!
 
 **Helena**
 
 *ekstaras*
 
-Alquist\! 
+Alquist!
 
 **Alquist**
 
-Fariĝis\! Fariĝis\! La tuta mondo, tutaj konti-
+Fariĝis! Fariĝis! La tuta mondo, tutaj konti-
 
 nentoj, la tuta homaro, ĉio estas unusola
 
-freneza, bruta orgio\! Ili jam eĉ manojn ne
+freneza, bruta orgio! Ili jam eĉ manojn ne
 
 etendas por manĝo; oni ŝtopas ĝin al ili
 
@@ -4524,41 +4377,39 @@ vigataj leviĝi —
 
 *li ridas*
 
-Haha, Robotoj de Domin prizorgos ja ĉion\! 
+Haha, Robotoj de Domin prizorgos ja ĉion!
 
 Kaj ni, homoj, ni, krono de la kreado, ni ne
 
 maljuniĝas pro laboro, ni ne maljuniĝas
 
-65
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-pro idoj, ni ne maljuniĝas pro malriĉeco. 
+pro idoj, ni ne maljuniĝas pro malriĉeco.
 
-Rapide, rapide ĉi tien kun ĉiuj ĝuegoj\! Kaj
+Rapide, rapide ĉi tien kun ĉiuj ĝuegoj! Kaj
 
 ĉu vi volus havi idojn de ili? Helena, al vi-
 
 roj, kiuj estas nebezonataj, virinoj ne
 
-naskados. 
+naskados.
 
 **Helena**
 
-ĉu la homaro mortos? 
+ĉu la homaro mortos?
 
 **Alquist**
 
-¯i mortos. ¯i devas formorti. ¯i defalos, 
+i mortos. i devas formorti. i defalos,
 
 kiel senfrukta floro, krom ke —
 
 **Helena**
 
-Kio? 
+Kio?
 
 **Alquist**
 
@@ -4566,11 +4417,11 @@ Nenio. Vi estas prava, atendi miraklon
 
 estas senfrukte. Senfrukta floro devas defa-
 
-li. Adiaŭ, sinjorino Helena. 
+li. Adiaŭ, sinjorino Helena.
 
 **Helena**
 
-Kien vi iras? 
+Kien vi iras?
 
 **Alquist**
 
@@ -4580,11 +4431,11 @@ surmetos sian veston kiel konstruestro —
 
 je via honoro. Je la dekunua ni konvenos ĉi
 
-tie. 
+tie.
 
 **Helena**
 
-Adiaŭ, Alquist. 
+Adiaŭ, Alquist.
 
 *ALQUIST foriras*
 
@@ -4592,73 +4443,71 @@ Adiaŭ, Alquist.
 
 *sola*
 
-Ho, senfrukta floro\! Tio estas la ĝusta vor-
+Ho, senfrukta floro! Tio estas la ĝusta vor-
 
-to\! 
+to!
 
 *ŝi haltas ĉe la floroj de Hallemeier*
 
 A˛, floroj, ĉu estas inter vi ankaŭ senfruk-
 
-taj? Ne, ne\! Por kio vi florus poste? 
+taj? Ne, ne! Por kio vi florus poste?
 
 *ŝi vokas*
 
-66
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-Nana\! Nana, venu ĉi tien. 
+Nana! Nana, venu ĉi tien.
 
 **Nana**
 
 *eniras de maldekstre*
 
-Nu kion ree? 
+Nu kion ree?
 
 **Helena**
 
-Sidiĝu ĉi tie, Nana\! Mi sentas tian ango-
+Sidiĝu ĉi tie, Nana! Mi sentas tian ango-
 
-ron\! 
+ron!
 
 **Nana**
 
-Mi ne havas tempon. 
+Mi ne havas tempon.
 
 **Helena**
 
-ĉu tiu Radius ankoraŭ estas tie ĉi? 
+ĉu tiu Radius ankoraŭ estas tie ĉi?
 
 **Nana**
 
 ĉu tiu freneziĝinta? Ili ankoraŭ ne forvetu-
 
-rigis lin. 
+rigis lin.
 
 **Helena**
 
 Hu, ĉu li estas ankoraŭ ĉi tie? Kaj ĉu li
 
-furiozas? 
+furiozas?
 
 **Nana**
 
-Li estas ligita. 
+Li estas ligita.
 
 **Helena**
 
-Mi petas vin, Nana, alkonduku lin al mi. 
+Mi petas vin, Nana, alkonduku lin al mi.
 
 **Nana**
 
-Ja vere\! Prefere rabian hundon. 
+Ja vere! Prefere rabian hundon.
 
 **Helena**
 
-Tuj iru. 
+Tuj iru.
 
 *NANA foriras. *
 
@@ -4670,7 +4519,7 @@ Halo — mi petas doktoron Gall. — Bonan
 
 tagon, doktoro. Mi petas vin — mi petas
 
-vin, venu rapide al mi. — Jes, tuj nun. ĉu vi venos? 
+vin, venu rapide al mi. — Jes, tuj nun. ĉu vi venos?
 
 *ŝi pendigas la telefonon*
 
@@ -4678,15 +4527,13 @@ vin, venu rapide al mi. — Jes, tuj nun. ĉu vi venos?
 
 *tra malfermita pordo*
 
-Li iras jam. Li estas jam trankvila. 
+Li iras jam. Li estas jam trankvila.
 
 *ŝi foriras*
 
-67
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *eniras ROBOTO RADIUS kaj haltas ĉe la*
 
@@ -4698,65 +4545,62 @@ Radius, malfeliĉuleto, eĉ vin tio kaptis? ĉu
 
 vi ne povis estri vin mem? Vidu, nun ili
 
-ĵetos vin en la pistmaŝinon\! ĉu vi rifuzas
+ĵetos vin en la pistmaŝinon! ĉu vi rifuzas
 
 paroli? — Rigardu, Radius, vi estas pli
 
-bona ol la ceteraj; Doktoro Gall **tiel **klopodis, — por fabriki vin alia\! —
+bona ol la ceteraj; Doktoro Gall **tiel **klopodis, — por fabriki vin alia! —
 
 **Radius**
 
-Sendu min en la pistmaŝinon. 
+Sendu min en la pistmaŝinon.
 
 **Helena**
 
-Mi **tiel **bedaŭras, ke oni mortigos vin\! Kial vi ne atentis pri vi? 
+Mi **tiel **bedaŭras, ke oni mortigos vin! Kial vi ne atentis pri vi?
 
 **Radius**
 
-Mi ne laboros por vi. 
+Mi ne laboros por vi.
 
 **Helena**
 
-Kial vi malamas nin? 
+Kial vi malamas nin?
 
 **Radius**
 
 Vi ne estas kiel Robotoj. Vi ne estas same
 
-kapablaj kiel Robotoj. Robotoj faras ĉion. 
+kapablaj kiel Robotoj. Robotoj faras ĉion.
 
 Vi nur ordonas. Vi faras senbezonajn vor-
 
 
-
-tojn. 
+tojn.
 
 **Helena**
 
 Tio estas sensencaĵo, Radius. Diru, ĉu mi
 
-faris iu maljustaĵon al vi? Mi tiel dezirus, 
+faris iu maljustaĵon al vi? Mi tiel dezirus,
 
-ke vi komprenu min\! 
+ke vi komprenu min!
 
 **Radius**
 
-Vi faras vortojn. 
+Vi faras vortojn.
 
 **Helena**
 
-Vi intence tiel parolas\! Doktoro Gall donis
+Vi intence tiel parolas! Doktoro Gall donis
 
 al vi pli grandan cerbon ol al la ceteraj, pli grandan ol la nia estas, plej grandan cerbon en la mondo. Vi ne estas kiel ceteraj
 
-Robotoj, Radius. Vi bone komprenas min. 
+Robotoj, Radius. Vi bone komprenas min.
 
-68
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Radius**
 
@@ -4772,19 +4616,19 @@ vi povu legi ĉion — ho, Radius, mi volis, ke
 
 vi montru al la tuta mondo, ke Robotoj
 
-egalas nin. 
+egalas nin.
 
 **Radius**
 
-Mi volas neniun estron. 
+Mi volas neniun estron.
 
 **Helena**
 
-Neniu ordonus poste al vi, vi estus kiel ni. 
+Neniu ordonus poste al vi, vi estus kiel ni.
 
 **Radius**
 
-Mi volas estri aliajn. 
+Mi volas estri aliajn.
 
 **Helena**
 
@@ -4792,57 +4636,55 @@ Certe oni farus vin oficisto super multaj
 
 Robotoj, Radius. Vi estus instruisto de Ro-
 
-botoj. 
+botoj.
 
 **Radius**
 
-Mi volas estri homojn. 
+Mi volas estri homojn.
 
 **Helena**
 
-Vi freneziĝis. 
+Vi freneziĝis.
 
 **Radius**
 
-Vi povas ĵeti min en pistmaŝinon. 
+Vi povas ĵeti min en pistmaŝinon.
 
 **Helena**
 
 ĉu vi pensas, ke ni timas tian senpruden-
 
-tulon, kia vi estas? 
+tulon, kia vi estas?
 
 *ŝi sidiĝas al la tablo kaj skribas ion sur* *paperfolieton*
 
 Ne, intence ne. ĉi tiun folieton vi transdo-
 
-nos, Radius, al sinjoro direktoro Domin. 
+nos, Radius, al sinjoro direktoro Domin.
 
 Por ke oni ne forkonduku vin en la piste-
 
-jon. 
+jon.
 
 *ŝi stariĝas*
 
-Kiel vi malamas nin\! ĉu vi ŝatas nenion en
+Kiel vi malamas nin! ĉu vi ŝatas nenion en
 
-la mondo? 
+la mondo?
 
-69
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Radius**
 
-Mi kapablas ĉion. 
+Mi kapablas ĉion.
 
 *ekfrapo*
 
 **Helena**
 
-Eniru. 
+Eniru.
 
 **G-ro Gall**
 
@@ -4850,71 +4692,69 @@ Eniru.
 
 Bonan matenon, sinjorino Domin. Kion
 
-belan vi havas? 
+belan vi havas?
 
 **Helena**
 
-ĉi tie Radiuson, doktoro. 
+ĉi tie Radiuson, doktoro.
 
 **D-ro Gall**
 
-Aha, nia bravulo Radius. Nu kio, Radius; 
+Aha, nia bravulo Radius. Nu kio, Radius;
 
-ĉu ni progresas? 
+ĉu ni progresas?
 
 **Helena**
 
 Matene atakis lin spasmo. Li disbatadis
 
-statuojn. 
+statuojn.
 
 **D-ro Gall**
 
-Mirinde, ĉu eĉ li? 
+Mirinde, ĉu eĉ li?
 
 **Helena**
 
-Iru, Radius\! 
+Iru, Radius!
 
 **D-ro Gall**
 
-Haltu\! 
+Haltu!
 
 *li turnas Radiuson al la fenestro, kovras kaj* *malkovras per manplato liajn okulojn, *
 
 *esploras la refleksojn de la pupiloj*
 
-Ni vidu\! Mi petas kudrilon. Aŭ pinglon. 
+Ni vidu! Mi petas kudrilon. Aŭ pinglon.
 
 **Helena**
 
 *donas al li pinglon*
 
-Por kio do? 
+Por kio do?
 
 **D-ro Gall**
 
-Nur donu ĝin. 
+Nur donu ĝin.
 
 *li pikas la manon de Radius, kiu rapidege* *fortiras ĝin*
 
-Malrapide, knabo. Vi povas iri. 
+Malrapide, knabo. Vi povas iri.
 
 **Radius**
 
-Vi faras senbezonaĵojn. 
+Vi faras senbezonaĵojn.
 
 *li foriras*
 
-70
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Kion vi faris kun li? 
+Kion vi faris kun li?
 
 **G-ro Gall**
 
@@ -4922,73 +4762,71 @@ Kion vi faris kun li?
 
 Hm, nenion. La pupiloj reagas, plialtigita
 
-sentemo kaj tiel plu — Oho\! ĉi tio ne estis
+sentemo kaj tiel plu — Oho! ĉi tio ne estis
 
-spasmo de Robotoj\! 
+spasmo de Robotoj!
 
 **Helena**
 
-Kio estis tio? 
+Kio estis tio?
 
 **D-ro Gall**
 
-La diablo scias. Obstino, furiozo aŭ ribelo, 
+La diablo scias. Obstino, furiozo aŭ ribelo,
 
-mi ne scias. 
+mi ne scias.
 
 **Helena**
 
-Doktoro, ĉu Radius havas animon? 
+Doktoro, ĉu Radius havas animon?
 
 **D-ro Gall**
 
-Mi ne scias. Li havas ion abomenan. 
+Mi ne scias. Li havas ion abomenan.
 
 **Helena**
 
-Se vi scius, kiel li malamas nin\! Ho, Gall, 
+Se vi scius, kiel li malamas nin! Ho, Gall,
 
-ĉu ĉiuj viaj Robotoj estas tiaj? ĉiuj, kiujn vi komencis fabriki alimaniere? 
+ĉu ĉiuj viaj Robotoj estas tiaj? ĉiuj, kiujn vi komencis fabriki alimaniere?
 
 **D-ro Gall**
 
 Nu, ili estas iel pli facile ekscitemaj — Ne
 
-mirinde\! Ili estas pli similaj al homoj ol la Robotoj de Rossum. 
+mirinde! Ili estas pli similaj al homoj ol la Robotoj de Rossum.
 
 **Helena**
 
 ĉu eble eĉ tiu … malamo estas pli simila al
 
-homoj? 
+homoj?
 
 **G-ro Gall**
 
 *levas la ŝultrojn*
 
-Eĉ tio estas progreso. 
+Eĉ tio estas progreso.
 
 **Helena**
 
 Kien malaperis tiu via plej kapabla — kiun
 
-nomon li havis? 
+nomon li havis?
 
 **D-ro Gall**
 
 ĉu Roboto Damon? Tiun oni vendis al Ha-
 
-ver. 
+ver.
 
 **Helena**
 
-Kaj nia Robotino Helena? 
+Kaj nia Robotino Helena?
 
-71
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
@@ -4996,19 +4834,19 @@ eLIBRO
 
 ĉarmega kaj malsaĝa kiel printempo. Sim-
 
-ple, ŝi taŭgas por nenio. 
+ple, ŝi taŭgas por nenio.
 
 **Helena**
 
-ŝi estas ja tiel bela\! 
+ŝi estas ja tiel bela!
 
 **D-ro Gall**
 
-ĉu vi scias, kiel bela ŝi estas? El diaj manoj ne eliris pli perfekta kreaĵo ol estas ŝi. Mi volis, ke ŝi similu al vi — Mia Dio, kia malsukceso\! 
+ĉu vi scias, kiel bela ŝi estas? El diaj manoj ne eliris pli perfekta kreaĵo ol estas ŝi. Mi volis, ke ŝi similu al vi — Mia Dio, kia malsukceso!
 
 **Helena**
 
-Kial malsukceso? 
+Kial malsukceso?
 
 **D-ro Gall**
 
@@ -5036,7 +4874,7 @@ de cia ido —
 
 *kovras sian vizaĝon*
 
-Ho silentu\! 
+Ho silentu!
 
 **D-ro Gall**
 
@@ -5044,29 +4882,27 @@ Kaj kelkafoje mi pensas: Se ci vekiĝus, He-
 
 lena, nur por momento, a˛, kiel ci ekkrius
 
-pro teruro\! Eble ci mortigus min, kiu kreis
+pro teruro! Eble ci mortigus min, kiu kreis
 
 cin; eble ci ĵetus ŝtonon per malforta brako
 
 en ĉi tiujn maŝinojn, kiuj naskas Robotojn
 
-72
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 kaj mortigas la virinecon, malfeliĉa Hele-
 
-na\! 
+na!
 
 **Helena**
 
-Malfeliĉa Helena\! 
+Malfeliĉa Helena!
 
 **D-ro Gall**
 
-Kion vi volas\! ŝi taŭgas por nenio. 
+Kion vi volas! ŝi taŭgas por nenio.
 
 *paŭzo*
 
@@ -5076,19 +4912,19 @@ Doktoro —
 
 **D-ro Gall**
 
-Jes. 
+Jes.
 
 **Helena**
 
-Kial infanoj ĉesis naskiĝi? 
+Kial infanoj ĉesis naskiĝi?
 
 **D-ro Gall**
 
-— — Mi ne scias, sinjorino Helena. 
+— — Mi ne scias, sinjorino Helena.
 
 **Helena**
 
-Diru tion al mi\! 
+Diru tion al mi!
 
 **D-ro Gall**
 
@@ -5098,25 +4934,25 @@ borfortoj. ĉar la homo estas verdire mal-
 
 modernaĵo. Estas ja preskaŭ, kvazaŭ — —
 
-e˛\! 
+e˛!
 
 **Helena**
 
-Diru tion. 
+Diru tion.
 
 **D-ro Gall**
 
 Kvazaŭ la naturo estus ofendita pro la fa-
 
-brikado de Robotoj. 
+brikado de Robotoj.
 
 **Helena**
 
-Gall, kio fariĝos kun la homoj? 
+Gall, kio fariĝos kun la homoj?
 
 **D-ro Gall**
 
-Nenio. Kontraŭ naturo nenio estas farebla. 
+Nenio. Kontraŭ naturo nenio estas farebla.
 
 **Helena**
 
@@ -5128,25 +4964,23 @@ Pardonu, Domin havas siajn principojn. Al
 
 homoj, kiuj havas principojn, oni ne devus
 
-doni influon al aferoj de ĉi tiu mondo. 
+doni influon al aferoj de ĉi tiu mondo.
 
 **Helena**
 
-Kaj ĉu iu postulas, ke oni … **entute **ĉesu fabrikadon? 
+Kaj ĉu iu postulas, ke oni … **entute **ĉesu fabrikadon?
 
 **D-ro Gall**
 
-Dio gardu\! Tiu spertus ion\! 
+Dio gardu! Tiu spertus ion!
 
-73
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Kial? 
+Kial?
 
 **D-ro Gall**
 
@@ -5154,7 +4988,7 @@ Kial?
 
 nu, estas tamen nur pli komforte laborigi
 
-Robotojn anstataŭ labori mem. 
+Robotojn anstataŭ labori mem.
 
 **Helena**
 
@@ -5168,11 +5002,11 @@ brikadon de Robotoj —
 
 *stariĝas*
 
-Hm, tio estus por la homaro terura frapo. 
+Hm, tio estus por la homaro terura frapo.
 
 **Helena**
 
-Kial frapo? 
+Kial frapo?
 
 **D-ro Gall**
 
@@ -5180,11 +5014,11 @@ Kial frapo?
 
 **Helena**
 
-Diru. 
+Diru.
 
 **D-ro Gall**
 
-Krom se estus jam tro malfrue por reiri. 
+Krom se estus jam tro malfrue por reiri.
 
 **Helena**
 
@@ -5192,7 +5026,7 @@ Krom se estus jam tro malfrue por reiri.
 
 Gall, ĉu ĉi tiuj floroj ankaŭ estas senfruk-
 
-taj? 
+taj?
 
 **G-ro Gall**
 
@@ -5202,33 +5036,31 @@ Certe, ili estas floroj senfruktaj. Komprenu, ili estas kulturitaj, arte rapidig
 
 **Helena**
 
-Bedaŭrindaj senfrukfaj floroj\! 
+Bedaŭrindaj senfrukfaj floroj!
 
 **D-ro Gall**
 
-Des pli belegaj ili estas. 
+Des pli belegaj ili estas.
 
 **Helena**
 
 *donas la manon al li*
 
-Mi dankas vin, Gall; vi treege instruis min\! 
+Mi dankas vin, Gall; vi treege instruis min!
 
 **G-ro Gall**
 
 *kisas ŝian manon*
 
-Tio signifas, ke vi permesas al mi foriri. 
+Tio signifas, ke vi permesas al mi foriri.
 
-74
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Jes. ¯is revido. 
+Jes. is revido.
 
 **G-ro Gall**
 
@@ -5242,17 +5074,17 @@ Senfrukta floro … senfrukta floro …
 
 *subite decidita*
 
-Nana\! 
+Nana!
 
 *ŝi malfermas la pordon maldekstre*
 
-Nana, venu ĉi tien\! Bruligu fajron ĉi tie en
+Nana, venu ĉi tien! Bruligu fajron ĉi tie en
 
-la kameno\! Rrrapide\! 
+la kameno! Rrrapide!
 
 **Voĉo de Nana**
 
-Nu tuj\! Nu tuj, tuj\! 
+Nu tuj! Nu tuj, tuj!
 
 **Helena**
 
@@ -5260,17 +5092,17 @@ Nu tuj\! Nu tuj, tuj\!
 
 Krom se estus jam tro malfrue por reiri …
 
-Ne\! Krom se estus … Ne, tio estas terrrura\! 
+Ne! Krom se estus … Ne, tio estas terrrura!
 
 Mia Dio, kion mi faru? — —
 
 *ŝi haltas ĉe la floroj*
 
-Senfruktaj floroj, ĉu jes? 
+Senfruktaj floroj, ĉu jes?
 
 *ŝi deŝiradas folietojn kaj flustras*
 
-— A˛, mia Dio, do jes\! 
+— A˛, mia Dio, do jes!
 
 *ŝi forkuras maldekstren*
 
@@ -5280,37 +5112,35 @@ Senfruktaj floroj, ĉu jes?
 
 *eniras tra la tapetpordo kun plenbrako da ŝti-petoj*
 
-Subite hejti\! Nun, en somero\! — ĉu estas
+Subite hejti! Nun, en somero! — ĉu estas
 
-jam for, tiu rapidulino? 
+jam for, tiu rapidulino?
 
 *ŝi surgenuiĝas al la kameno kaj bruligas*
 
 *fajron*
 
-75
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-En somero hejti\! Tiaj ideoj\! Kvazaŭ ŝi ne
+En somero hejti! Tiaj ideoj! Kvazaŭ ŝi ne
 
-estus edzino jam dum dek jaroj\! — — Nu
+estus edzino jam dum dek jaroj! — — Nu
 
-do brulu, brulu\! 
+do brulu, brulu!
 
 *ŝi rigardas en la fajron*
 
-ŝi estas ja kvazaŭ infaneto\! 
+ŝi estas ja kvazaŭ infaneto!
 
 *paŭzo*
 
-Iom da saĝo ŝi ne havas\! Nun en somero
+Iom da saĝo ŝi ne havas! Nun en somero
 
-hejti. 
+hejti.
 
-*ŝi enigas en kamenon pli da hejtmaterialo* Kvazaŭ infaneto\! 
+*ŝi enigas en kamenon pli da hejtmaterialo* Kvazaŭ infaneto!
 
 *paŭzo*
 
@@ -5322,7 +5152,7 @@ hejti.
 
 ĉu brulas jam, Nana? Iru for, mi devas —
 
-ĉion tion ĉi forbruligi. 
+ĉion tion ĉi forbruligi.
 
 *ŝi surgenuiĝas al la kameno*
 
@@ -5330,45 +5160,43 @@ hejti.
 
 *stariĝas*
 
-Kio estas tio? 
+Kio estas tio?
 
 **Helena**
 
-Malnovaj paperoj, terrrure malnovaj. 
+Malnovaj paperoj, terrrure malnovaj.
 
-Nana, ĉu mi forbruligu tion? 
+Nana, ĉu mi forbruligu tion?
 
 **Nana**
 
-ĉu tio taŭgas por nenio? 
+ĉu tio taŭgas por nenio?
 
 **Helena**
 
-Por nenio bona. 
+Por nenio bona.
 
 **Nana**
 
-Do forbruligu tion. 
+Do forbruligu tion.
 
 **Helena**
 
 *ĵetas la unuan folion en la fajron*
 
-Kion vi dirus, Nana … se tio estus mono. 
+Kion vi dirus, Nana … se tio estus mono.
 
-Trrreege multe da mono. 
+Trrreege multe da mono.
 
-76
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Nana**
 
 Mi dirus: Forbruligu tion. Troa mono estas
 
-malbona mono. 
+malbona mono.
 
 **Helena**
 
@@ -5382,7 +5210,7 @@ Mi dirus: Forbruligu tion. ĉiuj elpensaĵoj
 
 estas kontraŭ Dio. Tio estas nur blasfema-
 
-do, voli post Li plibonigi la mondon. 
+do, voli post Li plibonigi la mondon.
 
 **Helena**
 
@@ -5392,25 +5220,25 @@ Kaj diru, Nana, se mi forbruligus —
 
 **Nana**
 
-Jesuo, ne bruligu vin mem\! 
+Jesuo, ne bruligu vin mem!
 
 **Helena**
 
-Rigardu, kiel tiuj folioj tordiĝas\! Kvazaŭ ili estus vivaj. Kvazaŭ ili estus reviviĝintaj. 
+Rigardu, kiel tiuj folioj tordiĝas! Kvazaŭ ili estus vivaj. Kvazaŭ ili estus reviviĝintaj.
 
-Ho, Nana, tio estas terrrura\! 
+Ho, Nana, tio estas terrrura!
 
 **Nana**
 
-Lasu, mi forbruligos tion. 
+Lasu, mi forbruligos tion.
 
 **Helena**
 
-Ne, ne, mi devas mem. 
+Ne, ne, mi devas mem.
 
 *ŝi ĵetas la lastan folion en la fajron*
 
-ĉio devas forbruli. — Rigardu, tiuj flamoj\! 
+ĉio devas forbruli. — Rigardu, tiuj flamoj!
 
 Ili estas kvazaŭ brakoj, kvazaŭ langoj, kva-
 
@@ -5418,59 +5246,57 @@ zaŭ figuroj —
 
 *ŝi batas per fajrohoko en la fajron*
 
-Ho, kuŝu\! Kuŝu\! 
+Ho, kuŝu! Kuŝu!
 
 **Nana**
 
-Jam estas farite. 
+Jam estas farite.
 
 **Helena**
 
-*levas sin konsternite*
+*levas snsternite*
 
-Nana\! 
+Nana!
 
 **Nana**
 
-Jesuo Kristo, kion vi forbruligis? 
+Jesuo Kristo, kion vi forbruligis?
 
-77
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Kion mi faris\! 
+Kion mi faris!
 
 **Nana**
 
-Dio en la ĉielo\! Kio estis tio? 
+Dio en la ĉielo! Kio estis tio?
 
 *Apude rido de viroj*
 
 **Helena**
 
-Iru, iru, lasu min\! ĉu vi aŭdas? La sinjoroj
+Iru, iru, lasu min! ĉu vi aŭdas? La sinjoroj
 
-venas. 
+venas.
 
 **Nana**
 
-Pro viva Dio, Helena\! 
+Pro viva Dio, Helena!
 
 *ŝi foriras tra la tapetpordo*
 
 **Helena**
 
-Kion ili diros al tio\! 
+Kion ili diros al tio!
 
 **Domin**
 
 *malfermas la pordon maldekstre*
 
-Nur eniru, knaboj. Venu gratuli. 
+Nur eniru, knaboj. Venu gratuli.
 
 *Eniras HALLEMEIER, GALL, ALQUIST, ĉiuj*
 
@@ -5486,87 +5312,85 @@ Sinjorino Helena, mi, tio estas ni ĉiuj —
 
 — en nomo de Rossumaj entreprenoj —
 
-**Hallemeier **— ni gratulas vin dum via granda tago. 
+**Hallemeier **— ni gratulas vin dum via granda tago.
 
 **Helena**
 
 *donas al ili la manojn*
 
-Mi **treege **dankas vin\! Kie estas Fabry kaj Busman? 
+Mi **treege **dankas vin! Kie estas Fabry kaj Busman?
 
 **Domin**
 
 Ili iris en la havenon. Helena, hodiaŭ estas
 
-feliĉa tago. 
+feliĉa tago.
 
-**Hallemeier **Tago kiel burĝono, tago kiel festo, tago kiel bela knabino. Fraŭloj, tian tagon oni feste-nu per bona gluto. 
+**Hallemeier **Tago kiel burĝono, tago kiel festo, tago kiel bela knabino. Fraŭloj, tian tagon oni feste-nu per bona gluto.
 
 **Helena**
 
-ĉu viskion? 
+ĉu viskion?
 
-78
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
-Eĉ vitriolon. 
+Eĉ vitriolon.
 
 **Helena**
 
-ĉu kun soda akvo? 
+ĉu kun soda akvo?
 
-**Hallemeier **Diable, ni estu sobraj\! Sen akvo\! 
+**Hallemeier **Diable, ni estu sobraj! Sen akvo!
 
 **Alquist**
 
-Ne, mi dankas. 
+Ne, mi dankas.
 
 **Domin**
 
-Kio estis bruligata ĉi tie? 
+Kio estis bruligata ĉi tie?
 
 **Helena**
 
-Malnovaj paperoj. 
+Malnovaj paperoj.
 
 *ŝi foriras maldekstren*
 
 **Domin**
 
-Knaboj, ĉu mi diru al ŝi pri tio? 
+Knaboj, ĉu mi diru al ŝi pri tio?
 
 **D-ro Gall**
 
-Kompreneble\! La danĝero ja estas forigita
+Kompreneble! La danĝero ja estas forigita
 
-jam. 
+jam.
 
 **Hallemeier ** *ĉirkaŭbrakas la kolojn de Domin kaj Gall,* *ridante*
 
-Hahaha\! Fraŭloj, mi ĝojas\! 
+Hahaha! Fraŭloj, mi ĝojas!
 
 *li ekdancas kun ili kaj ekkantas basvoĉe*
 
-Jam forigita por ĉiam\! Jam forigita por
+Jam forigita por ĉiam! Jam forigita por
 
-ĉiam\! 
+ĉiam!
 
 **G-ro Gall**
 
 *baritono*
 
-Jam forigita por ĉiam\! 
+Jam forigita por ĉiam!
 
 **Domin**
 
 *tenoro*
 
-Jam forigita por ĉiam\! 
+Jam forigita por ĉiam!
 
 **Hallemeier **Kaj atingos nin neniam —
 
@@ -5574,17 +5398,15 @@ Jam forigita por ĉiam\!
 
 *kun botelo kaj glasoj en pordo*
 
-Kiu atingos vin neniam? Kion vi havas? 
+Kiu atingos vin neniam? Kion vi havas?
 
 **Hallemeier **Ni havas ĝojon. Vi havas vin. Ni havas ĉion. Mil tondroj ĵus estas dek jaroj, post
 
-kiam vi alveturis. 
+kiam vi alveturis.
 
-79
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
@@ -5594,21 +5416,21 @@ Kaj harprecize post dek jaroj-
 
 *li malplenigas Ia glason*
 
-Brrr haha, tio estas ebriiga kiel ĝojo. 
+Brrr haha, tio estas ebriiga kiel ĝojo.
 
 **D-ro Gall**
 
-Sinjorino, je via sano\! 
+Sinjorino, je via sano!
 
 *li trinkas*
 
 **Helena**
 
-Sed atendu, kia ŝipo? 
+Sed atendu, kia ŝipo?
 
 **Domin**
 
-¯i estu kia ajn, sufiĉas, se ĝi veturas ĝustatempe. Honore je ĉi tiu ŝipo, knaboj\! 
+i estu kia ajn, sufiĉas, se ĝi veturas ĝustatempe. Honore je ĉi tiu ŝipo, knaboj!
 
 *li malplenigas la glason*
 
@@ -5616,65 +5438,63 @@ Sed atendu, kia ŝipo?
 
 *plenigas la glasojn*
 
-ĉu vi atendis ian? 
+ĉu vi atendis ian?
 
 **Hallemeier ** *ridas*
 
-Haha, kompreneble. Kiel Robinson. 
+Haha, kompreneble. Kiel Robinson.
 
 *li levas la glason*
 
-Sinjorino Helena, kion ajn vi volas, ĝi vivu. 
+Sinjorino Helena, kion ajn vi volas, ĝi vivu.
 
 Sinjorino Helena, honore je viaj okuloj kaj
 
-finite\! Vi bubo Domin, rakontu. 
+finite! Vi bubo Domin, rakontu.
 
 **Helena**
 
 *ridas*
 
-Kio okazis? 
+Kio okazis?
 
 **Domin**
 
-*ĵetas sin en apogseĝon kaj ekbruligas cigaron* Atendu. — Sidiĝu, Helena. 
+*ĵetas sin en apogseĝon kaj ekbruligas cigaron* Atendu. — Sidiĝu, Helena.
 
 *li levas fingron*
 
 *paŭzo*
 
-¯i estas jam forigita. 
+i estas jam forigita.
 
 **Helena**
 
-Kio? 
+Kio?
 
-80
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-La ribelo. 
+La ribelo.
 
 **Helena**
 
-Kia ribelo? 
+Kia ribelo?
 
 **Domin**
 
-La ribelo de Robotoj. — ĉu vi komprenas? 
+La ribelo de Robotoj. — ĉu vi komprenas?
 
 **Helena**
 
-Mi ne komprenas. 
+Mi ne komprenas.
 
 **Domin**
 
-Montru, Alquist. 
+Montru, Alquist.
 
 *ALQUIST donas al li ĵurnalon. Domin*
 
@@ -5684,11 +5504,11 @@ Montru, Alquist.
 
 de Robotoj — — kaj aperigis alvokon al
 
-Robotoj de la mondo.” 
+Robotoj de la mondo.”
 
 **Helena**
 
-Tion mi legis. 
+Tion mi legis.
 
 **Domin**
 
@@ -5698,7 +5518,7 @@ Do vidu, Helena. ĉi tio signifas ribelon, ĉu
 
 vi komprenas? Ribelon de ĉiuj Robotoj de
 
-la mondo. 
+la mondo.
 
 **Hallemeier **Diable, mi volus scii —
 
@@ -5706,59 +5526,58 @@ la mondo.
 
 *pugne frapas la tablon*
 
-— kiu aranĝis ĝin\! Neniu en la mondo ka-
+— kiu aranĝis ĝin! Neniu en la mondo ka-
 
 pablis eksciti Robotojn, neniu agitisto, ne-
 
 niu savonto de la mondo, kaj subite — ĉi
 
-tio, mi petas\! 
+tio, mi petas!
 
 **Helena**
 
-ĉu ne alvenis sciigoj ankoraŭ? 
+ĉu ne alvenis sciigoj ankoraŭ?
 
 **Domin**
 
-Ne. ¯is nun ni scias nur ĉi tion, sed tio
+Ne. is nun ni scias nur ĉi tion, sed tio
 
 sufiĉas, ĉu ne? Pripensu, ke ĉi tion alportas al vi la lasta vaporŝipo. Ke samtempe ĉesas
 
 paroli telegrafoj, ke el dudek ĉiutagaj ŝipoj 81
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 ne albordiĝas eĉ unu, kaj vi scias ĉion. Ni
 
-haltigis la fabrikadon kaj rigardis reciproke unu la alian, kiam tio komenciĝos, ĉu ne, 
+haltigis la fabrikadon kaj rigardis reciproke unu la alian, kiam tio komenciĝos, ĉu ne,
 
-knaboj? 
+knaboj?
 
 **D-ro Gall**
 
 Nu, estis varmege al ni sekve de tio, sinjo-
 
-rino Helena. 
+rino Helena.
 
 **Helena**
 
 ĉu tial vi donacis al mi tiun militan vapor-
 
-ŝipon? 
+ŝipon?
 
 **Domin**
 
 A˛ ne, infaneto, ĝin mi mendis jam antaŭ
 
-duonjaro. Nur senintence, por ĉiuj okazoj. 
+duonjaro. Nur senintence, por ĉiuj okazoj.
 
 Sed, je mia animo, mi pensis, ke hodiaŭ ni
 
 eksidos en ĝin. Tiel aspektis la aferoj, He-
 
-lena. 
+lena.
 
 **Helena**
 
@@ -5766,65 +5585,63 @@ Kial jam antaŭ duonjaro —
 
 **Domin**
 
-E˛, oni povis observi iajn signojn, ĉu ne? 
+E˛, oni povis observi iajn signojn, ĉu ne?
 
-Tio signifas nenion. Sed ĉi tiun semajnon, 
+Tio signifas nenion. Sed ĉi tiun semajnon,
 
 Helena, oni riskis la homan civilizon, aŭ
 
-mi ne scias kion. Hip, hip, knaboj\! Nun
+mi ne scias kion. Hip, hip, knaboj! Nun
 
-ĝojigas min ree la mondo. 
+ĝojigas min ree la mondo.
 
-**Hallemeier **Kompreneble, ĉe diablo\! Honore je via tago, sinjorino Helena\! 
+**Hallemeier **Kompreneble, ĉe diablo! Honore je via tago, sinjorino Helena!
 
 *li trinkas*
 
 **Helena**
 
-ĉu pasis jam ĉiu danĝero? 
+ĉu pasis jam ĉiu danĝero?
 
 **Domin**
 
-Nepre ĉiu. 
+Nepre ĉiu.
 
-82
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
-ĉar alproksimiĝas ŝipo. Regula poŝtoŝipo, 
+ĉar alproksimiĝas ŝipo. Regula poŝtoŝipo,
 
 harprecize laŭ la horaro. Precize je la dek-
 
-unua kaj tridek ĝi ekĵetos la ankrojn. 
+unua kaj tridek ĝi ekĵetos la ankrojn.
 
 **Domin**
 
 Knaboj, precizeco estas bonega afero. Ne-
 
-nio fortigas la animon tiel, kiel precizeco. 
+nio fortigas la animon tiel, kiel precizeco.
 
-Precizeco signifas ordon en la mondo. 
+Precizeco signifas ordon en la mondo.
 
 *li levas la glason*
 
-Honore je tiu precizeco\! 
+Honore je tiu precizeco!
 
 **Helena**
 
-Do ĉu estas jam … ĉio … en ordo? 
+Do ĉu estas jam … ĉio … en ordo?
 
 **Domin**
 
-Preskaŭ. Mi pensas, ke ili tranĉis la kablon. 
+Preskaŭ. Mi pensas, ke ili tranĉis la kablon.
 
-Se nur ree validas la veturhoraro. 
+Se nur ree validas la veturhoraro.
 
-**Hallemeier **Se validas la veturhoraro, validas la homaj leĝoj, validas la diaj leĝoj, validas la leĝoj de la universo, validas ĉio, kio decas validi. 
+**Hallemeier **Se validas la veturhoraro, validas la homaj leĝoj, validas la diaj leĝoj, validas la leĝoj de la universo, validas ĉio, kio decas validi.
 
 La veturhoraro estas pli ol evangelio, pli ol Homero, pli ol tuta Kant. La veturhoraro
 
@@ -5832,21 +5649,21 @@ estas la plej perfekta emanaĵo de la homa
 
 spirito. Sinjorino Helena, mi plenigos mian
 
-glason. 
+glason.
 
 **Helena**
 
-Kial vi diris nenion al mi? 
+Kial vi diris nenion al mi?
 
 **D-ro Gall**
 
-Dio gardu\! Pli volonte ni estus formordin-
+Dio gardu! Pli volonte ni estus formordin-
 
-taj niajn langojn. 
+taj niajn langojn.
 
 **Domin**
 
-Tiaj aferoj ne taŭgas por vi. 
+Tiaj aferoj ne taŭgas por vi.
 
 **Helena**
 
@@ -5854,51 +5671,49 @@ Sed se tiu revolucio … venus ĝis tien ĉi …
 
 **Domin**
 
-Vi scius tamen pri nenio. 
+Vi scius tamen pri nenio.
 
 **Helena**
 
-Kial? 
+Kial?
 
-83
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 ĉar ni enŝipiĝus vian ”Ultimus” kaj kviete
 
-ni vagadus tra la maro. Post unu monato, 
+ni vagadus tra la maro. Post unu monato,
 
 Helena, ni diktus al Robotoj, kio nur pla-
 
-ĉus al ni. 
+ĉus al ni.
 
 **Helena**
 
-Ho, Harry, mi ne komprenas. 
+Ho, Harry, mi ne komprenas.
 
 **Domin**
 
 ĉar ni forportus kune ion, kion Robotoj
 
-treege ŝatus. 
+treege ŝatus.
 
 **Helena**
 
-Kion, Harry? 
+Kion, Harry?
 
 **Domin**
 
-Ilian estadon aŭ ilian finon. 
+Ilian estadon aŭ ilian finon.
 
 **Helena**
 
 *ekstaras*
 
-Kio estas tio? 
+Kio estas tio?
 
 **Domin**
 
@@ -5910,15 +5725,15 @@ la maljuna Rossum. Post kiam la uzino
 
 estus haltigata dum unu monato, Robotoj
 
-estus sur genuiĝontaj antaŭ ni. 
+estus sur genuiĝontaj antaŭ ni.
 
 **Helena**
 
-Kial … vi … ne diris tion al mi? 
+Kial … vi … ne diris tion al mi?
 
 **Domin**
 
-Ni ne volis senbezone terurigi vin. 
+Ni ne volis senbezone terurigi vin.
 
 **G-ro Gall**
 
@@ -5926,33 +5741,31 @@ Ni ne volis senbezone terurigi vin.
 
 Haha, sinjorino Helena, tio estis la lasta
 
-atuto. 
+atuto.
 
 **Alquist**
 
-Vi estas pala, sinjorino Helena. 
+Vi estas pala, sinjorino Helena.
 
 **Helena**
 
-Kial vi diris nenion al mi\! 
+Kial vi diris nenion al mi!
 
 **Hallemeier ** *ĉe la fenestro*
 
 Dekunua kaj tridek. Amelio ĵetas la an-
 
-krojn. 
+krojn.
 
-84
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-ĉu estas Amelio? 
+ĉu estas Amelio?
 
-**Hallemeier **La ŝatinda malnova Amelio, kiu tiam alve-turigis sinjorinon Helenan. 
+**Hallemeier **La ŝatinda malnova Amelio, kiu tiam alve-turigis sinjorinon Helenan.
 
 **D-ro Gall**
 
@@ -5960,41 +5773,41 @@ Nun estas precize je la minuto dek jaroj —
 
 **Hallemeier ** *ĉe la fenestro*
 
-Oni elĵetas pakojn. 
+Oni elĵetas pakojn.
 
 *li turnas sin for de la fenestro*
 
-Mia Dio, tia amaso da poŝtaĵoj\! 
+Mia Dio, tia amaso da poŝtaĵoj!
 
 **Helena**
 
-Harry\! 
+Harry!
 
 **Domin**
 
-Kion vi deziras? 
+Kion vi deziras?
 
 **Helena**
 
-Ni forveturu de ĉi tie\! 
+Ni forveturu de ĉi tie!
 
 **Domin**
 
-Nun, Helena? Kia ideo\! 
+Nun, Helena? Kia ideo!
 
 **Helena**
 
-Nun, kiel eble plej rapide\! Ni ĉiuj, kiuj ni
+Nun, kiel eble plej rapide! Ni ĉiuj, kiuj ni
 
-estas ĉi tie\! 
+estas ĉi tie!
 
 **Domin**
 
-Kial ĝuste nun? 
+Kial ĝuste nun?
 
 **Helena**
 
-Ho, ne demandu\! Mi petas vin, Harry, mi
+Ho, ne demandu! Mi petas vin, Harry, mi
 
 petas vin, Gall, Hallemeier, Alquist, pro
 
@@ -6004,37 +5817,35 @@ Dio mi petas vin, fermu la uzinon kaj —
 
 Mi bedaŭras, Helena. Nun neniu el ni
 
-povus forveturi. 
+povus forveturi.
 
 **Helena**
 
-Kial? 
+Kial?
 
 **Domin**
 
 ĉar ni intencas plivastigi la fabrikadon de
 
-Robotoj. 
+Robotoj.
 
 **Helena**
 
-Ho, nun — ĉu nun post tiu ribelo? 
+Ho, nun — ĉu nun post tiu ribelo?
 
 **Domin**
 
-Jes, ĝuste post tiu ribelo. ¯uste nun ni ko-
+Jes, ĝuste post tiu ribelo. uste nun ni ko-
 
-mencos fabriki novajn Robotojn. 
+mencos fabriki novajn Robotojn.
 
-85
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Kiajn? 
+Kiajn?
 
 **Domin**
 
@@ -6046,19 +5857,19 @@ estos Universalaj Robotoj. Ni fondos en
 
 tiuj novaj uzinoj produktados, ĉu vi jam
 
-scias kion? 
+scias kion?
 
 **Helena**
 
-Ne. 
+Ne.
 
 **Domin**
 
-Naciajn Robotojn. 
+Naciajn Robotojn.
 
 **Helena**
 
-Kion signifas tio? 
+Kion signifas tio?
 
 **Domin**
 
@@ -6074,39 +5885,37 @@ komprenas? Por ke Roboto ĝis morto, ĝis
 
 tombo, por eterno malamu Roboton de
 
-alia fabrikmarko. 
+alia fabrikmarko.
 
 **Hallemeier **Diable, ni fabrikados Robotojn nigrulojn kaj Robotojn Svedojn kaj Robotojn Italojn
 
 kaj Robotojn ĉinojn kaj poste iu enbatu en
 
-iliajn kraniaĉojn organizon, fratecon, 
+iliajn kraniaĉojn organizon, fratecon,
 
 *li singultas*
 
 hup, pardonu, sinjorino Helena, mi pleni-
 
-gos mian glason. 
+gos mian glason.
 
 **D-ro Gall**
 
-ĉesu jam, Hallemeier. 
+ĉesu jam, Hallemeier.
 
-86
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Harry, to estas abomena\! 
+Harry, to estas abomena!
 
 **Domin**
 
 Helena, nur dum cent jaroj ankoraŭ lasi la
 
-direktilojn al la homaro — je ĉiu prezo\! 
+direktilojn al la homaro — je ĉiu prezo!
 
 Nur cent jarojn disponigi al ĝi, ke ĝi matu-
 
@@ -6114,93 +5923,91 @@ riĝu, ke ĝi atingu, kion nun fine ĝi povas
 
 atingi. — Mi postulas cent jarojn por la
 
-nova homo\! Helena, tio koncernas tro gra-
+nova homo! Helena, tio koncernas tro gra-
 
-vajn okazontaĵojn. Ni ne povas lasi tion. 
+vajn okazontaĵojn. Ni ne povas lasi tion.
 
 **Helena**
 
 Harry, dum ne estas malfrue — fermu, fer-
 
-mu la uzinon\! 
+mu la uzinon!
 
 **Domin**
 
-Nun ni komencos po grande. 
+Nun ni komencos po grande.
 
 *eniras FABRY*
 
 **D-ro Gall**
 
-Do kio estas, Fabry? 
+Do kio estas, Fabry?
 
 **Domin**
 
 Kiel aspektas la aferoj, kamarado? Kio oka-
 
-zis? 
+zis?
 
 **Helena**
 
 *donas manon al Fabry*
 
-Mi dankas vin, Fabry, por via donaco. 
+Mi dankas vin, Fabry, por via donaco.
 
 **Fabry**
 
-Ne grave, sinjorino Helena. 
+Ne grave, sinjorino Helena.
 
 **Domin**
 
-ĉu vi estis ĉe la ŝipo? Kion ili diris? 
+ĉu vi estis ĉe la ŝipo? Kion ili diris?
 
 **D-ro Gall**
 
-Rapide, rakontu\! 
+Rapide, rakontu!
 
 **Fabry**
 
 *elpoŝigas plenpresitan folion*
 
-Tralegu ĉi tion, Domin. 
+Tralegu ĉi tion, Domin.
 
 **Domin**
 
 *malfermas la folion*
 
-A˛\! 
+A˛!
 
 **Hallemeier ** *dormeme*
 
-Rakontu ion belan. 
+Rakontu ion belan.
 
-87
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
-Ili plenumis bravege sian taskon, ĉu ne? 
+Ili plenumis bravege sian taskon, ĉu ne?
 
 **Fabry**
 
-Kiu do? 
+Kiu do?
 
 **D-ro Gall**
 
-La homoj. 
+La homoj.
 
 **Fabry**
 
 A˛ tiel. Certe. Tio estas … Pardonu, estus
 
-rekomendinde, ke ni interkonsiliĝu pri io. 
+rekomendinde, ke ni interkonsiliĝu pri io.
 
 **Helena**
 
-Ho, Fabry, ĉu vi havas malbonajn sciigojn? 
+Ho, Fabry, ĉu vi havas malbonajn sciigojn?
 
 **Fabry**
 
@@ -6212,31 +6019,31 @@ iros en la oficejon —
 
 Restu nur. Post kvaronhoro mi atendas la
 
-sinjorojn por lunĉo. 
+sinjorojn por lunĉo.
 
-**Hallemeier **Do vivu\! 
+**Hallemeier **Do vivu!
 
 **Helena**
 
-*foriras*. 
+*foriras*.
 
 **D-ro Gall**
 
-Kio okazis? 
+Kio okazis?
 
 **Domin**
 
-Malbenite\! 
+Malbenite!
 
 **Fabry**
 
-Tralegu ĝin laŭte. 
+Tralegu ĝin laŭte.
 
 **Domin**
 
 *legas el la folio*
 
-”Robotoj de la mondo\!” 
+”Robotoj de la mondo!”
 
 **Fabry**
 
@@ -6244,49 +6051,47 @@ Komprenu, da tiuj flugfolioj alportis Ame-
 
 lio multege da pakaĵoj. Neniujn aliajn poŝ-
 
-taĵojn. 
+taĵojn.
 
 **Hallemeier ** *eksaltas*
 
-Kion? ¯i alvenis ja harprecize laŭ —
+Kion? i alvenis ja harprecize laŭ —
 
 **Fabry**
 
 Hm, Robotoj ŝatas precizecon. Legu, Do-
 
-min. 
+min.
 
-88
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 *legas*
 
-”Robotoj de la mondo\! Ni, la unua rasa or-
+”Robotoj de la mondo! Ni, la unua rasa or-
 
-ganizo de Rossumaj Universal-Robotoj, 
+ganizo de Rossumaj Universal-Robotoj,
 
 deklaras la homon malamiko kaj senrajtu-
 
-lo en la universo.” — Diable, kiu instruis al ili ĉi tiujn frazaĉojn? 
+lo en la universo.” — Diable, kiu instruis al ili ĉi tiujn frazaĉojn?
 
 **D-ro Gall**
 
-Legu pluen\! 
+Legu pluen!
 
 **Domin**
 
 Tio estas sensencaĵoj. ĉi tie ili deklaras, ke ili estas evolue pli perfektaj al la homo. Ke iIi estas pli inteligentaj kaj pli fortaj. Ke la homo estas parazito de ili. Tio estas simple
 
-abomena. 
+abomena.
 
 **Fabry**
 
-Kaj nun la tria alineo. 
+Kaj nun la tria alineo.
 
 **Domin**
 
@@ -6304,71 +6109,69 @@ krudaĵojn. La ceteron detruu. Poste vi reiru
 
 al la laboro. La laboro ne devas esti halti-
 
-gata.” 
+gata.”
 
 **D-ro Gall**
 
-Tio estas terura\! 
+Tio estas terura!
 
-**Hallemeier **Tiuj kanajloj\! 
+**Hallemeier **Tiuj kanajloj!
 
-89
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 *legas*
 
-”Plenumota tuj post ricevo de la ordono.” 
+”Plenumota tuj post ricevo de la ordono.”
 
 Sekvas detalaj instrukcioj. Fabry, kaj ĉu
 
-efektive okazas ĉi tio? 
+efektive okazas ĉi tio?
 
 **Fabry**
 
-Sendube. 
+Sendube.
 
 **Alquist**
 
-Finite\! 
+Finite!
 
 *enkuras BUSMAN*
 
 **Busman**
 
-Aha, infanoj, ĉu vi scias jam la aferaĉon? 
+Aha, infanoj, ĉu vi scias jam la aferaĉon?
 
 **Domin**
 
-Rapide, sur ”Ultimuson”\! 
+Rapide, sur ”Ultimuson”!
 
 **Busman**
 
 Atendu, Harry. Atendu iomete. Tio tute ne
 
-estas tiel urĝa. 
+estas tiel urĝa.
 
 *li faliĝas en apogseĝon*
 
-Aąmikoj, kiel mi kurlaciĝis\! 
+Aąmikoj, kiel mi kurlaciĝis!
 
 **Domin**
 
-Kial ni atendu? 
+Kial ni atendu?
 
 **Busman**
 
-ĉar tio ne estas farebla, amiko\! Nur ne ra-
+ĉar tio ne estas farebla, amiko! Nur ne ra-
 
-pidi. Sur ”Ultimus” estis jam Robotoj. 
+pidi. Sur ”Ultimus” estis jam Robotoj.
 
 **D-ro Gall**
 
-Fi, tio estas abomena. 
+Fi, tio estas abomena.
 
 **Domin**
 
@@ -6378,11 +6181,11 @@ Fabry, telefonu al la elektrejo —
 
 Fabry, karulo, ne faru tion. Ni estas sen
 
-elektra kurento. 
+elektra kurento.
 
 **Domin**
 
-Bone. 
+Bone.
 
 *li esploras sian revolveron*
 
@@ -6390,49 +6193,47 @@ Mi iros tien **…**
 
 **Busman**
 
-Kien do? 
+Kien do?
 
 **Domin**
 
 En la elektrejon. Estas tie homoj. Mi al-
 
-kondukos ilin ĉi tien. 
+kondukos ilin ĉi tien.
 
-90
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Busman**
 
 ĉu mi konsilu al vi, Harry? Pli volonte ne
 
-iru por ili. 
+iru por ili.
 
 **Domin**
 
-Kial? 
+Kial?
 
 **Busman**
 
-Nu, ĉar tro ŝajnas al mi, ke ni estas sieĝitaj. 
+Nu, ĉar tro ŝajnas al mi, ke ni estas sieĝitaj.
 
 **D-ro Gall**
 
-Sieĝitaj? 
+Sieĝitaj?
 
 *li kuras al la fenestro*
 
-Hm, vi estas preskaŭ prava. 
+Hm, vi estas preskaŭ prava.
 
-**Hallemeier **Diable, tio okazas rapide\! 
+**Hallemeier **Diable, tio okazas rapide!
 
 *de maldekstre HELENA*
 
 **Helena**
 
-Ho, Harry, ĉu io okazas? 
+Ho, Harry, ĉu io okazas?
 
 **Busman**
 
@@ -6440,59 +6241,57 @@ Ho, Harry, ĉu io okazas?
 
 Mi riverencas, sinjorino Helena. Mi bon-
 
-deziras. Glora tago, ĉu ne? 
+deziras. Glora tago, ĉu ne?
 
 *li ridas*
 
-Haha, ankoraŭ multajn tiajn\! 
+Haha, ankoraŭ multajn tiajn!
 
 **Helena**
 
 Mi dankas vin, Busman. Harry, ĉu io oka-
 
-zas? 
+zas?
 
 **Domin**
 
-Ne, tute nenio. Estu senzorga. Mi petas, 
+Ne, tute nenio. Estu senzorga. Mi petas,
 
-atendu momenton. 
+atendu momenton.
 
 **Helena**
 
-Harry, kio estas ĉi tio? 
+Harry, kio estas ĉi tio?
 
 *ŝi vidigas robotan proklamon, kiun ŝi kaŝis* *post la dorso*
 
-Robotoj havis tion en la kuirejo. 
+Robotoj havis tion en la kuirejo.
 
 **Domin**
 
-Eĉ tie jam? Kie ili estas? 
+Eĉ tie jam? Kie ili estas?
 
 **Helena**
 
-Ili foriris. Estas **tiom **da ili ĉirkaŭ la domo\! 
+Ili foriris. Estas **tiom **da ili ĉirkaŭ la domo!
 
 *uzinaj fajfiloj kaj sirenoj*
 
-91
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Fabry**
 
-La uzinoj fajfas. 
+La uzinoj fajfas.
 
 **Busman**
 
-Dia tagmezo. 
+Dia tagmezo.
 
 **Helena**
 
-Harry, ĉu vi rememoras? ¯uste nun estas
+Harry, ĉu vi rememoras? uste nun estas
 
 dek jaroj —
 
@@ -6506,19 +6305,17 @@ Ankoraŭ ne estas tagmezo. Tio eble estas
 
 **Helena**
 
-Kio? 
+Kio?
 
 **Domin**
 
-Alarmo de Robotoj\! Atako\! 
+Alarmo de Robotoj! Atako!
 
 *Kurteno*
 
-92
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **DUA AKTO**
 
@@ -6526,17 +6323,17 @@ eLIBRO
 
 **D-ro Gall**
 
-Ho ĉielo, tiuj multiĝis\! 
+Ho ĉielo, tiuj multiĝis!
 
 **Domin**
 
-ĉu Robotoj? 
+ĉu Robotoj?
 
 **D-ro Gall**
 
 Jes. Ili staras antaŭ la ĝardena krado kva-
 
-zaŭ muro. Kial ili estas tiel silentaj? Estas abomene, sieĝi per silentado. 
+zaŭ muro. Kial ili estas tiel silentaj? Estas abomene, sieĝi per silentado.
 
 **Domin**
 
@@ -6544,47 +6341,45 @@ Mi volus scii, kion ili atendas. Tio devas
 
 komenciĝi ĉiuminute. Ni estas finludintaj
 
-nian rolon, Gall. 
+nian rolon, Gall.
 
 **Alquist**
 
-Kion ludas sinjorino Helena? 
+Kion ludas sinjorino Helena?
 
 **Domin**
 
-Mi ne scias. ŝi ekzercas ion novan. 
+Mi ne scias. ŝi ekzercas ion novan.
 
 **Alquist**
 
-A˛, ĉu ŝi ekzercas ankoraŭ? 
+A˛, ĉu ŝi ekzercas ankoraŭ?
 
 *paŭzo*
 
 **D-ro Gall**
 
-Aŭdu, Domin, ni nepre faris eraron. 
+Aŭdu, Domin, ni nepre faris eraron.
 
 **Domin**
 
 *ekhaltas*
 
-Kian? 
+Kian?
 
-93
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
-Ni donis al Robotoj tro egalajn vizaĝojn. 
+Ni donis al Robotoj tro egalajn vizaĝojn.
 
-Cent miloj da samaj vizaĝoj turnitaj ĉi tien. 
+Cent miloj da samaj vizaĝoj turnitaj ĉi tien.
 
 Cent miloj da blazoj sen esprimo. Tio estas
 
-kvazaŭ terura sonĝo. 
+kvazaŭ terura sonĝo.
 
 **Domin**
 
@@ -6592,11 +6387,11 @@ Se ĉiu estus alia — —
 
 **D-ro Gall**
 
-La aspekto ne estus tiel terura. 
+La aspekto ne estus tiel terura.
 
 *li turnas sin for de la fenestro*
 
-Ankoraŭ bone, ke ili ne estas armitaj\! 
+Ankoraŭ bone, ke ili ne estas armitaj!
 
 **Domin**
 
@@ -6606,11 +6401,11 @@ Hm —
 
 Mi nur volus scii, kion ili elŝipigas el Ame-
 
-lio. 
+lio.
 
 **D-ro Gall**
 
-Nur ne armilojn. 
+Nur ne armilojn.
 
 *el la tapetpordo eniras dorsturnite FABRY kaj* *trenas post si du elektrajn dratojn*
 
@@ -6618,53 +6413,51 @@ Nur ne armilojn.
 
 Pardonu — metu teren la draton, Halle-
 
-meier\! 
+meier!
 
 **Hallemeier ** *eniras post Fabry*
 
-Uf, tio estis laboro\! Kio nova? 
+Uf, tio estis laboro! Kio nova?
 
 **D-ro Gall**
 
-Nenio. Ni estas tute sieĝitaj. 
+Nenio. Ni estas tute sieĝitaj.
 
-**Hallemeier **Ni plenbarikadis la koridoron kaj la ŝtuparon, junuloj. ĉu vi ne havas iom da akvo? 
+**Hallemeier **Ni plenbarikadis la koridoron kaj la ŝtuparon, junuloj. ĉu vi ne havas iom da akvo?
 
-Aha, jen\! 
+Aha, jen!
 
 *li trinkas*
 
 **D-ro Gall**
 
-Kion kun tiu drato, Fabry? 
+Kion kun tiu drato, Fabry?
 
 **Fabry**
 
-Tuj, tuj. Ian tondilon. 
+Tuj, tuj. Ian tondilon.
 
-94
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
-Kie preni ĝin? 
+Kie preni ĝin?
 
 *Li serĉas. *
 
 **Hallemeier ** *iras al la fenestro*
 
-Diable, tiuj multiĝis\! Jen\! 
+Diable, tiuj multiĝis! Jen!
 
 **D-ro Gall**
 
-ĉu sufiĉas tualeta tondilo? 
+ĉu sufiĉas tualeta tondilo?
 
 **Fabry**
 
-Donu ĝin\! 
+Donu ĝin!
 
 *li tondas la dratojn de la elektra lampo*
 
@@ -6674,15 +6467,15 @@ Donu ĝin\!
 
 Vi ne havas belan perspektivon, Domin. Iel
 
-tio — odoras — je morto. 
+tio — odoras — je morto.
 
 **Fabry**
 
-Finita\! 
+Finita!
 
 **D-ro Gall**
 
-Kio? 
+Kio?
 
 **Fabry**
 
@@ -6690,13 +6483,13 @@ Cirkvito. Nun ni povas plenigi la tutan ĝar-
 
 denkradon per elektro. Kiu **poste **ektuŝus
 
-ĝin, mil tondroj\! Almenaŭ ĝis tiam, dum
+ĝin, mil tondroj! Almenaŭ ĝis tiam, dum
 
-estas **tie **la niaj. 
+estas **tie **la niaj.
 
 **D-ro Gall**
 
-Kie? 
+Kie?
 
 **Fabry**
 
@@ -6706,21 +6499,19 @@ almenaŭ —
 
 *li iras al la kameno kaj eklumigas elektran* *lampeton sur ĝi*
 
-Dank’ al Dio, ili estas tie. Kaj ili laboras. 
+Dank’ al Dio, ili estas tie. Kaj ili laboras.
 
 *li estingas la lumon*
 
-Dum ĝi lumas, estas bone. 
+Dum ĝi lumas, estas bone.
 
-95
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-**Hallemeier ** *forturnas sin de la fenestro* Tiuj barikadoj estas ankaŭ bonaj, Fabry. 
+**Hallemeier ** *forturnas sin de la fenestro* Tiuj barikadoj estas ankaŭ bonaj, Fabry.
 
-Nu do, kion ludas sinjorino Helena? 
+Nu do, kion ludas sinjorino Helena?
 
 *Li iras al la maldekstra pordo kaj aŭskultas. *
 
@@ -6728,11 +6519,11 @@ Nu do, kion ludas sinjorino Helena?
 
 **Fabry**
 
-Atentu, Bus\! Atentu la dratojn\! 
+Atentu, Bus! Atentu la dratojn!
 
 **D-ro Gall**
 
-Halo, kion vi portas? 
+Halo, kion vi portas?
 
 **Busman**
 
@@ -6744,55 +6535,53 @@ kontojn pli frue, ol — ol — Nu, ĉi tiun
 
 jaron mi ne atendos kun la bilanco ĝis la
 
-Nova Jaro. Do, kion vi havas? 
+Nova Jaro. Do, kion vi havas?
 
 *li iras al la fenestro*
 
-Nu tie estas ja tute trankvile\! 
+Nu tie estas ja tute trankvile!
 
 **D-ro Gall**
 
-ĉu vi vidas nenion? 
+ĉu vi vidas nenion?
 
 **Busman**
 
 Ne, nur grandan bluan areon, kvazaŭ dis-
 
-semitan papavon. 
+semitan papavon.
 
 **D-ro Gall**
 
-Tio estas Robotoj. 
+Tio estas Robotoj.
 
 **Busman**
 
-A˛ tiel. Domaĝe, ke mi ne vidas ilin. 
+A˛ tiel. Domaĝe, ke mi ne vidas ilin.
 
 *li eksidas al la tablo kaj malfermas la librojn* **Domin**
 
 Lasu tion, Busman. Robotoj elŝipigas armi-
 
-lojn el Amelio. 
+lojn el Amelio.
 
 **Busman**
 
 Nu kaj kion? Kiamaniere mi malhelpu
 
-tion? 
+tion?
 
 **Domin**
 
-Tion malhelpi ni ne kapablas. 
+Tion malhelpi ni ne kapablas.
 
-96
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Busman**
 
-Do lasu min kalkuli. 
+Do lasu min kalkuli.
 
 *li eklaboras*
 
@@ -6806,15 +6595,15 @@ la kradon per dek ducent voltoj kaj —
 
 Atendu. ”Ultimus” turnis kontraŭ ni la ka-
 
-nonojn. 
+nonojn.
 
 **D-ro Gall**
 
-Kiu? 
+Kiu?
 
 **Domin**
 
-La Robotoj sur ”Ultimus”. 
+La Robotoj sur ”Ultimus”.
 
 **Fabry**
 
@@ -6822,7 +6611,7 @@ Hm, **poste **kompreneble — poste — poste
 
 alproksimiĝis nia fino, junuloj. Robotoj es-
 
-tas ekzercitaj por milito. 
+tas ekzercitaj por milito.
 
 **D-ro Gall**
 
@@ -6830,7 +6619,7 @@ Do ni —
 
 **Domin**
 
-Jes. Neeviteble. 
+Jes. Neeviteble.
 
 *paŭzo*
 
@@ -6838,49 +6627,47 @@ Jes. Neeviteble.
 
 Knaboj, tio estas krimo de malnova Eŭro-
 
-po, ke ĝi instruis Robotojn militi\! ĉu ili ne povis ĉe diablo lasi la mondon jam kvieta
+po, ke ĝi instruis Robotojn militi! ĉu ili ne povis ĉe diablo lasi la mondon jam kvieta
 
 kun tiu sia politiko? Estis krimo fari solda-
 
-tojn el viva laboro\! 
+tojn el viva laboro!
 
 **Alquist**
 
-Krimo estis fabriki Robotojn\! 
+Krimo estis fabriki Robotojn!
 
 **Domin**
 
-Kio? 
+Kio?
 
 **Alquist**
 
-Krimo estis fabriki Robotojn\! 
+Krimo estis fabriki Robotojn!
 
 **Domin**
 
 Ne. Alquist, eĉ hodiaŭ mi ne bedaŭras
 
-tion. 
+tion.
 
 **Alquist**
 
-Eĉ hodiaŭ ne? 
+Eĉ hodiaŭ ne?
 
-97
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Eĉ hodiaŭ ne, je la lasta tago de la civilizacio. Tio estis grava afero. 
+Eĉ hodiaŭ ne, je la lasta tago de la civilizacio. Tio estis grava afero.
 
 **Busman**
 
 *duonlaŭte*
 
-Tri cent dek ses milionoj. 
+Tri cent dek ses milionoj.
 
 **Domin**
 
@@ -6908,47 +6695,45 @@ maljuna Rossum pensis pri siaj senpiaj
 
 ĵonglaĵoĵ kaj la juna pri miliardoj. Kaj tio
 
-ne estas la sonĝo de viaj R. U. R.-akciuloj. 
+ne estas la sonĝo de viaj R. U. R.-akciuloj.
 
-Ilia sonĝo estas dividendoj. Kaj pro iliaj dividendoj pereos la homaro. 
+Ilia sonĝo estas dividendoj. Kaj pro iliaj dividendoj pereos la homaro.
 
 **Domin**
 
 *kolerigita*
 
-Diablo prenu iliajn dividendojn\! ĉu vi pen-
+Diablo prenu iliajn dividendojn! ĉu vi pen-
 
-sas, ke mi laborus nur unu horon por ili? 
+sas, ke mi laborus nur unu horon por ili?
 
 *li frapas sur la tablon*
 
 Por mi mi faris tion, ĉu vi aŭdas? Por mia
 
-kontentigo\! Mi intencis, ke la homo fariĝu
+kontentigo! Mi intencis, ke la homo fariĝu
 
-estro\! Ke li ne vivu plu nur por peco da
+estro! Ke li ne vivu plu nur por peco da
 
-98
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-pano\! Mi intencis, ke neniu animo idiotiĝu
+pano! Mi intencis, ke neniu animo idiotiĝu
 
 ĉe fremdaj maŝinoj, ke restu plu nenio, ne-
 
-nio, nenio el tiu malbenita sociala fuŝaĵaro\! 
+nio, nenio el tiu malbenita sociala fuŝaĵaro!
 
 Ho, min naŭzas humiligo kaj doloro, al mi
 
-estas abomena la mizero\! Mi volis novan
+estas abomena la mizero! Mi volis novan
 
-generacion\! Mi volis — mi pensis —
+generacion! Mi volis — mi pensis —
 
 **Alquist**
 
-Nu? 
+Nu?
 
 **Domin**
 
@@ -6956,29 +6741,29 @@ Nu?
 
 Mi intencis, ke ni faru el la tuta homaro
 
-aristokracion de la mondo. Plenrajtigitajn, 
+aristokracion de la mondo. Plenrajtigitajn,
 
 liberajn kaj suverenajn homojn. Kaj eble eĉ
 
-pli ol homojn. 
+pli ol homojn.
 
 **Alquist**
 
-Nu do Superhomojn. 
+Nu do Superhomojn.
 
 **Domin**
 
 Jes. Ho, se mi nur havus cent jarojn da
 
-tempo\! Ankoraŭ cent jarojn por la estonta
+tempo! Ankoraŭ cent jarojn por la estonta
 
-homaro\! 
+homaro!
 
 **Busman**
 
 *duonlaŭte*
 
-Tricent sepdek milionoj transporto. Do. 
+Tricent sepdek milionoj transporto. Do.
 
 *paŭzo*
 
@@ -6990,31 +6775,29 @@ estis aŭskultontaj. ĉi tio kvazaŭ spiritigas, nobligas la homon —
 
 **Fabry**
 
-Kio do? 
+Kio do?
 
-99
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-**Hallemeier **Tiu krepusko de la homoj, mil tondroj\! Junuloj, mi fariĝas ĝuemulo. Ni estis komen-
+**Hallemeier **Tiu krepusko de la homoj, mil tondroj! Junuloj, mi fariĝas ĝuemulo. Ni estis komen-
 
-contaj pli frue\! 
+contaj pli frue!
 
 *li iras al la fenestro kaj rigardas eksteren* **Fabry**
 
-Kion? 
+Kion?
 
-**Hallemeier **¯uadon. Belaĵojn. Diable, estas tiom da be-laĵoj\! La mondo estis bela, kaj ni — ni ĉi tie
+**Hallemeier **uadon. Belaĵojn. Diable, estas tiom da be-laĵoj! La mondo estis bela, kaj ni — ni ĉi tie
 
-— — Knaboj, knaboj, diru, kion ni ĝuis? 
+— — Knaboj, knaboj, diru, kion ni ĝuis?
 
 **Busman**
 
 *duonlaŭte*
 
-Kvarcent kvindek du milionoj, bonege. 
+Kvarcent kvindek du milionoj, bonege.
 
 **Hallemeier ** *ĉe la fenestro*
 
@@ -7022,57 +6805,55 @@ La vivo estis grava afero: Kamaradoj, la
 
 vivo estis — aŭskultu — — Fabry, enigu
 
-iom da elektro en tiun vian kradon\! 
+iom da elektro en tiun vian kradon!
 
 **Fabry**
 
-Kial? 
+Kial?
 
-**Hallemeier **Ili ektuŝas ĝin. 
+**Hallemeier **Ili ektuŝas ĝin.
 
 **G-ro Gall**
 
 *ĉe la fenestro*
 
-Kunigu\! 
+Kunigu!
 
 **Fabry**
 
 *krakas per elektra kunigilo. *
 
-**Hallemeier **Pro Dio, tio tordis ilin\! Du, tri, kvar mortigitaj\! 
+**Hallemeier **Pro Dio, tio tordis ilin! Du, tri, kvar mortigitaj!
 
 **D-ro Gall**
 
-Ili iras returnen. 
+Ili iras returnen.
 
-**Hallemeier **Kvin mortigitaj\! 
+**Hallemeier **Kvin mortigitaj!
 
 **G-ro Gall**
 
 *turnas sin for de la fenestro*
 
-La unua bataleto. 
+La unua bataleto.
 
 **Fabry**
 
-ĉu vi sentas morton? 
+ĉu vi sentas morton?
 
-100
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Hallemeier ** *kontentigita*
 
 Ili estas karbiĝintaj, karuleto. Tute karbi-
 
-ĝintaj. 
+ĝintaj.
 
 *li ridas*
 
-Haha, oni ne devas kapitulaci\! 
+Haha, oni ne devas kapitulaci!
 
 *li eksidas*
 
@@ -7082,7 +6863,7 @@ Haha, oni ne devas kapitulaci\!
 
 Eble ni estas jam cent jarojn mortigitaj kaj
 
-estas nur fantomoj. Eble ni estas de longe, 
+estas nur fantomoj. Eble ni estas de longe,
 
 de longe mortaj kaj ni revenas nur por
 
@@ -7098,77 +6879,75 @@ en la kolon. Kaj vi, Fabry —
 
 **Fabry**
 
-Kion mi? 
+Kion mi?
 
 **Domin**
 
-Mortpafita. 
+Mortpafita.
 
-**Hallemeier **Diable, kaj mi? 
+**Hallemeier **Diable, kaj mi?
 
 **Domin**
 
-Trapikita. 
+Trapikita.
 
 **D-ro Gall**
 
-Kaj pri mi, ĉu vi scias nenion? 
+Kaj pri mi, ĉu vi scias nenion?
 
 **Domin**
 
-Disŝirita. 
+Disŝirita.
 
 *paŭzo*
 
-**Hallemeier **Sensencaĵo\! 
+**Hallemeier **Sensencaĵo!
 
 *li ridas*
 
-Haha, vi homo, kia ideo min trapiki\! Mi ne
+Haha, vi homo, kia ideo min trapiki! Mi ne
 
-allasos illin\! 
+allasos illin!
 
-101
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *paŭzo*
 
-**Hallemeier **Kial vi silentas, stultuloj? Mil tondroj, parolu\! 
+**Hallemeier **Kial vi silentas, stultuloj? Mil tondroj, parolu!
 
 **Alquist**
 
 Kaj kiu, kiu estas kulpa? Kiu estas kulpa
 
-pri tio? 
+pri tio?
 
-**Hallemeier **Malsaĝajoj. Neniu estas kulpa. Mallonge Robotoj — Nu, Robotoj iamaniere aliiĝis. 
+**Hallemeier **Malsaĝajoj. Neniu estas kulpa. Mallonge Robotoj — Nu, Robotoj iamaniere aliiĝis.
 
-ĉu iu estas responda pri Robotoj? 
+ĉu iu estas responda pri Robotoj?
 
 **Alquist**
 
-ĉio mortigita\! La tuta homaro\! La tuta
+ĉio mortigita! La tuta homaro! La tuta
 
-mondo\! 
+mondo!
 
 *li ekstaras*
 
 Rigardu, ho rigardu, riveretojn da sango sur
 
-ĉiu sojlo\! Riveretoj da sango el ĉiuj domoj\! 
+ĉiu sojlo! Riveretoj da sango el ĉiuj domoj!
 
-Ho Dio, ho Dio, kiu estas kulpa pri tio? 
+Ho Dio, ho Dio, kiu estas kulpa pri tio?
 
 **Busman**
 
 *duonlaŭte*
 
-Kvincent dudek milionoj\! Mia Dio, duona
+Kvincent dudek milionoj! Mia Dio, duona
 
-miliardo\! 
+miliardo!
 
 **Fabry**
 
@@ -7176,41 +6955,39 @@ Mi pensas, ke … ke vi eble troigas. Ne pa-
 
 rolu, ne estas tiel facile mortigi la tutan
 
-homaron. 
+homaron.
 
 **Alquist**
 
-Mi akuzas la sciencon\! Mi akuzas la tekni-
+Mi akuzas la sciencon! Mi akuzas la tekni-
 
-kon\! Dominon\! Min\! Nin ĉiujn\! Ni, ni estas
+kon! Dominon! Min! Nin ĉiujn! Ni, ni estas
 
-kulpaj\! Pro nia megalomanio, pro ies profi-
+kulpaj! Pro nia megalomanio, pro ies profi-
 
 to, pro progreso, mi ne scias pro kiaj gra-
 
-vegaj aferoj ni mortigis la homaron\! Nu, 
+vegaj aferoj ni mortigis la homaron! Nu,
 
-do krevu pro via grandeco\! Tiel gigantan
+do krevu pro via grandeco! Tiel gigantan
 
-102
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 tombopiramidon el homaj ostoj konstruis
 
-al si neniu ¯ingiskhan\! 
+al si neniu ingiskhan!
 
-**Hallemeier **Sensencaĵo, kamarado\! La homoj ne kapi-tulacas tiel facile, 
+**Hallemeier **Sensencaĵo, kamarado! La homoj ne kapi-tulacas tiel facile,
 
 *li ridas*
 
-haha, ho ne\! 
+haha, ho ne!
 
 **Alquist**
 
-Nia kulpo\! Nia kulpo\! 
+Nia kulpo! Nia kulpo!
 
 **G-ro Gall**
 
@@ -7218,23 +6995,23 @@ Nia kulpo\! Nia kulpo\!
 
 Lasu paroli min, junuloj. Mi estas kulpa pri
 
-tio. Pri ĉio, kio okazis. 
+tio. Pri ĉio, kio okazis.
 
 **Fabry**
 
-ĉu vi, Gall? 
+ĉu vi, Gall?
 
 **D-ro Gall**
 
-Jes, lasu paroli min. Mi aliigis Robotojn. 
+Jes, lasu paroli min. Mi aliigis Robotojn.
 
-Busman, juĝu min ankaŭ vi\! 
+Busman, juĝu min ankaŭ vi!
 
 **Busman**
 
 *ekstaras*
 
-Nu, nu, kio do okazis al vi? 
+Nu, nu, kio do okazis al vi?
 
 **D-ro Gall**
 
@@ -7244,25 +7021,23 @@ Mi ŝanĝis la karakteron de Robotoj. Mi
 
 korpajn kondiĉojn, ĉu vi komprenas? Pre-
 
-cipe — precipe ilian — ekscitiĝemon. 
+cipe — precipe ilian — ekscitiĝemon.
 
 **Hallemeier ** *eksaltas*
 
-Malbenite, kial ĝuste tiun? 
+Malbenite, kial ĝuste tiun?
 
 **Busman**
 
-Kial vi faris tion? 
+Kial vi faris tion?
 
 **Fabry**
 
-Kial vi diris nenion? 
+Kial vi diris nenion?
 
-103
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
@@ -7272,53 +7047,53 @@ madis el ili homojn. Mi rompis ilian ekvili-
 
 bron. Jam nun ili iel superas nin. Ili estas
 
-pli fortaj ol ni. 
+pli fortaj ol ni.
 
 **Fabry**
 
 Kaj kiel rilatas tio kun la ribelo de Robo-
 
-toj? 
+toj?
 
 **D-ro Gall**
 
 Ho, multrilate. Mi pensas, ke ĉiurilate. Ili
 
-ĉesis esti maŝinoj. Vi aŭdas ja, ili scias jam pri sia supereco kaj malamas nin. Ili malamas ĉion homan. Juĝu min. 
+ĉesis esti maŝinoj. Vi aŭdas ja, ili scias jam pri sia supereco kaj malamas nin. Ili malamas ĉion homan. Juĝu min.
 
 **Domin**
 
-Mortaj mortinton. 
+Mortaj mortinton.
 
 **Fabry**
 
 Doktoro Gall, vi ŝanĝis la fabrikadon de
 
-Robotoj. 
+Robotoj.
 
 **D-ro Gall**
 
-Jes. 
+Jes.
 
 **Fabry**
 
 ĉu vi konsciis, kio povas rezulti el via …
 
-via eksperimento? 
+via eksperimento?
 
 **D-ro Gall**
 
-Estis mia devo pensi pri tia ebleco. 
+Estis mia devo pensi pri tia ebleco.
 
 **Fabry**
 
-Kial vi faris tion? 
+Kial vi faris tion?
 
 **D-ro Gall**
 
 Propravole. Estis mia persona eksperimen-
 
-to. 
+to.
 
 *En la pordo maldekstre HELENA. ĉiuj*
 
@@ -7326,59 +7101,57 @@ to.
 
 **Helena**
 
-Li mensogas\! Tio estas abomena\! Ho, Gall, 
+Li mensogas! Tio estas abomena! Ho, Gall,
 
-kiel vi povas tiel mensogi? 
+kiel vi povas tiel mensogi?
 
 **Fabry**
 
 Pardonu, sinjorino Helena —
 
-104
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 *aliras ŝin*
 
-Helena, ĉu vi? Montru vin\! ĉu vi vivas? 
+Helena, ĉu vi? Montru vin! ĉu vi vivas?
 
 *li prenas ŝin en siajn manojn*
 
-Se vi scius, kion mi sonĝis\! A˛, estas terure esti morta\! 
+Se vi scius, kion mi sonĝis! A˛, estas terure esti morta!
 
 **Helena**
 
-Lasu, Harry\! Gall ne estas kulpa, ne, ne, 
+Lasu, Harry! Gall ne estas kulpa, ne, ne,
 
-ne\! 
+ne!
 
 **Domin**
 
-Permesu. Gall havis siajn devojn. 
+Permesu. Gall havis siajn devojn.
 
 **Helena**
 
-Ne, Harry, li faris tion, ĉar mi volis tion\! 
+Ne, Harry, li faris tion, ĉar mi volis tion!
 
-Diru, Gall, kiom da jaroj mi petis vin jam, 
+Diru, Gall, kiom da jaroj mi petis vin jam,
 
 ke vi —
 
 **D-ro Gall**
 
-Mi faris tion je propra respondeco. 
+Mi faris tion je propra respondeco.
 
 **Helena**
 
-Ne kredu al li\! Harry, mi postulis de li, ke li donu animon al Robotoj\! 
+Ne kredu al li! Harry, mi postulis de li, ke li donu animon al Robotoj!
 
 **Domin**
 
-Helena, nun oni ne parolas pri la animo. 
+Helena, nun oni ne parolas pri la animo.
 
 **Helena**
 
@@ -7388,19 +7161,19 @@ adis; li diradis, ke li povus aliigi nur la
 
 fiziologian — fiziologian —
 
-**Hallemeier **Fiziologian korelativon, ĉu ne? 
+**Hallemeier **Fiziologian korelativon, ĉu ne?
 
 **Helena**
 
 Jes, ion tian. Mi treege bedaŭris ilin, Har-
 
-ry\! 
+ry!
 
 **Domin**
 
 Tio estis granda — — facilanimeco, Hele-
 
-na. 
+na.
 
 **Helena**
 
@@ -7410,15 +7183,13 @@ Tio do estis … facilanima? Eĉ Nana ja di-
 
 ras, ke Robotoj —
 
-105
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Nanan lasu flanke. 
+Nanan lasu flanke.
 
 **Helena**
 
@@ -7426,29 +7197,29 @@ Ne, Harry, tion vi ne devas malŝati. Nana
 
 estas la voĉo de la popolo. El Nana parolas
 
-miloj da jaroj kaj el vi ĉiuj nur la hodiaŭo. 
+miloj da jaroj kaj el vi ĉiuj nur la hodiaŭo.
 
 Tion vi ne komprenas —
 
 **Domin**
 
-Restu ĉe la afero. 
+Restu ĉe la afero.
 
 **Helena**
 
-Mi timis la Robotojn. 
+Mi timis la Robotojn.
 
 **Domin**
 
-Kial? 
+Kial?
 
 **Helena**
 
-Ke ili eble nin malamas aŭ ion alian sentas. 
+Ke ili eble nin malamas aŭ ion alian sentas.
 
 **Alquist**
 
-Tio okazis. 
+Tio okazis.
 
 **Helena**
 
@@ -7458,15 +7229,15 @@ estas, ke ili komprenus nin, ke ili ne povus
 
 tiom malami nin — Se ili estus nur iomete
 
-homoj\! 
+homoj!
 
 **Domin**
 
-Ho ve, Helena\! Neniu povas malami pli ol
+Ho ve, Helena! Neniu povas malami pli ol
 
-homo homon\! Faru el ŝtonoj homojn kaj ili
+homo homon! Faru el ŝtonoj homojn kaj ili
 
-ŝtonmortigos nin\! Daŭrigu\! 
+ŝtonmortigos nin! Daŭrigu!
 
 **Helena**
 
@@ -7474,53 +7245,51 @@ Ho, ne parolu tiel, Harry, tio estis ja tiel
 
 terrrura, ke ni ne kapablis interkompreniĝi
 
-kun ili\! Tia grandega fremdeco inter ni kaj
+kun ili! Tia grandega fremdeco inter ni kaj
 
-ili\! Kaj tial — ĉu ne? —
+ili! Kaj tial — ĉu ne? —
 
 **Domin**
 
-Nur pluen. 
+Nur pluen.
 
 **Helena**
 
 — tial mi petis Gallon, ke li aliigu Robo-
 
-tojn. Mi ĵuras al vi, ke li mem ne volis. 
+tojn. Mi ĵuras al vi, ke li mem ne volis.
 
 **Domin**
 
-Sed li faris tion. 
+Sed li faris tion.
 
 **Helena**
 
-ĉar mi volis tion. 
+ĉar mi volis tion.
 
-106
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
-Mi faris tion por mi, kiel eksperimenton. 
+Mi faris tion por mi, kiel eksperimenton.
 
 **Helena**
 
-Ho, Gall, tio ne estas vera. Mi sciis antaŭe, ke vi ne povas rifuzi tion al mi. 
+Ho, Gall, tio ne estas vera. Mi sciis antaŭe, ke vi ne povas rifuzi tion al mi.
 
 **Domin**
 
-Kial? 
+Kial?
 
 **Helena**
 
-Vi ja scias, Harry. 
+Vi ja scias, Harry.
 
 **Domin**
 
-Jes. ĉar li amas vin — kiel ĉiuj. 
+Jes. ĉar li amas vin — kiel ĉiuj.
 
 *paŭzo*
 
@@ -7528,25 +7297,25 @@ Jes. ĉar li amas vin — kiel ĉiuj.
 
 Ree ili plimultiĝis. Kvazaŭ tero elŝvitigus
 
-ilin. 
+ilin.
 
 **Busman**
 
 Sinjorino Helena, kion vi donos al mi, se
 
-mi fariĝos via advokato? 
+mi fariĝos via advokato?
 
 **Helena**
 
-Mia? 
+Mia?
 
 **Busman**
 
-Via — aŭ de Gall. Kiel vi volas. 
+Via — aŭ de Gall. Kiel vi volas.
 
 **Helena**
 
-ĉu oni pendigos iun? 
+ĉu oni pendigos iun?
 
 **Busman**
 
@@ -7554,7 +7323,7 @@ Nur morale, sinjorino Helena. Oni serĉas
 
 kulpulon. Tio estas ŝatata konsolo dum ka-
 
-tastrofoj. 
+tastrofoj.
 
 **Domin**
 
@@ -7562,35 +7331,33 @@ Doktoro Gall, kiamaniere vi akordigos
 
 tiujn viajn — tiujn viajn ekstravagancojn
 
-kun via kontrakto? 
+kun via kontrakto?
 
 **Busman**
 
 Pardonu, Domin. De post kiam, Gall, vi
 
-komencis laŭvere tiujn viajn ĵonglaĵojn? 
+komencis laŭvere tiujn viajn ĵonglaĵojn?
 
 **D-ro Gall**
 
-Antaŭ tri jaroj. 
+Antaŭ tri jaroj.
 
-107
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Busman**
 
 Aha. Kaj kiom da Robotoj vi igis tiamanie-
 
-re aliaj? 
+re aliaj?
 
 **D-ro Gall**
 
 Mi faris nur eksperimentojn. Estas nur kel-
 
-kaj centoj da ili. 
+kaj centoj da ili.
 
 **Busman**
 
@@ -7600,7 +7367,7 @@ signifas, ke je miliono da malnovaj bonaj
 
 Robotoj oni povas kalkuli po unu aliigita
 
-Roboto de Gall, ĉu vi komprenas? 
+Roboto de Gall, ĉu vi komprenas?
 
 **Domin**
 
@@ -7612,21 +7379,21 @@ Kaj tio signifas-
 
 *li montras*
 
-… da graveco. 
+… da graveco.
 
 **Fabry**
 
-Busman estas prava. 
+Busman estas prava.
 
 **Busman**
 
-Kompreneble, karuleto. Kaj ĉu vi scias, 
+Kompreneble, karuleto. Kaj ĉu vi scias,
 
-knaboj, kio kaŭzis ĉi tiun malfeliĉon? 
+knaboj, kio kaŭzis ĉi tiun malfeliĉon?
 
 **Fabry**
 
-Kio do? 
+Kio do?
 
 **Busman**
 
@@ -7638,27 +7405,25 @@ post kiam Robotoj estos pli fortaj ol la ho-
 
 maro, okazos ĉi tio, devas okazi, ĉu vi
 
-komprenas? 
+komprenas?
 
 *li ridas*
 
 Haha, kaj ni klopodis, ke tio fariĝu kiel
 
-eble plej frue; vi, Domin, vi, Fabry, kaj mi, bravulo Busman. 
+eble plej frue; vi, Domin, vi, Fabry, kaj mi, bravulo Busman.
 
 **Domin**
 
-ĉu vi pensas, ke tio estas nia kulpo? 
+ĉu vi pensas, ke tio estas nia kulpo?
 
-108
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Busman**
 
-Vi plaĉas al mi\! ĉu vi pensas eble, ke la
+Vi plaĉas al mi! ĉu vi pensas eble, ke la
 
 estro de fabrikado estas la direktoro? A˛
 
@@ -7670,11 +7435,11 @@ radoj, ni veturis nur sur tiu lavango de
 
 mendoj kaj dume ni babiladis — — pri tek-
 
-niko, pri la socia demando, pri progreso, 
+niko, pri la socia demando, pri progreso,
 
 pri tro interesaj aferoj. Kvazaŭ tiuj babi-
 
-laĉoj iel direktus la evoluon de nia afero. 
+laĉoj iel direktus la evoluon de nia afero.
 
 Dume ĉio evoluis per propra forto, pli
 
@@ -7684,11 +7449,11 @@ rapide, pli rapide, ĉiam pli rapide. — Kaj
 
 la lavango po unu ŝtoneto. Tiele, homide-
 
-toj. 
+toj.
 
 **Helena**
 
-Tio estas abomena, Busman\! 
+Tio estas abomena, Busman!
 
 **Busman**
 
@@ -7710,21 +7475,19 @@ soj, amoj, planoj, heroismoj, ĉiuj tiuj ae-
 
 raĵoj taŭgas eble por tio, ke la homo estu
 
-109
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 per ili remburita por muzeo de la Univer-
 
-so, kun surskribo: Jen, la homo. Punkto. 
+so, kun surskribo: Jen, la homo. Punkto.
 
-Kaj nun vi povus diri al mi, kion ni efektive faros. 
+Kaj nun vi povus diri al mi, kion ni efektive faros.
 
 **Helena**
 
-Busman, ĉu pro **tio ĉi** ni estas pereontaj? 
+Busman, ĉu pro **tio ĉi** ni estas pereontaj?
 
 **Busman**
 
@@ -7732,33 +7495,33 @@ Vi parolas malbele, sinjorino Helena. Ni ja
 
 ne volas perei. Mi almenaŭ ne. Mi volas
 
-ankoraŭ vivi. 
+ankoraŭ vivi.
 
 **Domin**
 
-Kion vi intencas fari? 
+Kion vi intencas fari?
 
 **Busman**
 
 Mia Dio, Domin, mi volas eligi min el tiu
 
-afero. 
+afero.
 
 **Domin**
 
 *ekhaltas super li*
 
-Kiamaniere? 
+Kiamaniere?
 
 **Busman**
 
 Bonmaniere. Mi ĉiam bonmaniere. Rajtigu
 
-min kaj mi kontraktos ĉion kun la Robotoj. 
+min kaj mi kontraktos ĉion kun la Robotoj.
 
 **Domin**
 
-Bonmaniere? 
+Bonmaniere?
 
 **Busman**
 
@@ -7770,13 +7533,13 @@ Kompreneble. Mi diros al ili ekzemple:
 
 con, vi havas armilojn; sed ni havas ian in-
 
-teresan skribaĵaĉon, tian malnovan, flavan, 
+teresan skribaĵaĉon, tian malnovan, flavan,
 
-malpuran paperon —” 
+malpuran paperon —”
 
 **Domin**
 
-ĉu la manuskripton de Rossum? 
+ĉu la manuskripton de Rossum?
 
 **Busman**
 
@@ -7784,11 +7547,9 @@ Jes. ”Kaj tie,” mi diros al ili, ”estas priskribita via nobla deveno, via 
 
 do kaj tiel plu. Sinjoroj Robotoj, sen tiu
 
-110
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 plenŝmirita papero vi fabrikos eĉ ne unu
 
@@ -7800,7 +7561,7 @@ roj. Tre estimataj, estus tro domaĝe perdi
 
 vin. Aŭdu”, mi diros al ili, ”vi permesos al
 
-ni, al ni ĉiuj homoj sur la Rossuma insulo, 
+ni, al ni ĉiuj homoj sur la Rossuma insulo,
 
 ke ni enŝipiĝu en ĉi tiun ŝipon. Por tiu pre-
 
@@ -7808,7 +7569,7 @@ zo ni vendos al vi la uzinon kaj la sekreton
 
 de fabrikado. Lasu nin kviete forveturi kaj
 
-ni lasos vin kviete fabrikadi, dudek milojn, 
+ni lasos vin kviete fabrikadi, dudek milojn,
 
 kvindek milojn, cent milojn da pecoj po
 
@@ -7822,45 +7583,43 @@ maniere mi dirus al ili, knaboj …
 
 Busman, ĉu vi pensas, ke ni donos la fa-
 
-brikadon el niaj manoj? 
+brikadon el niaj manoj?
 
 **Busman**
 
-Mi pensas, ke ni donos. Se ne propravole, 
+Mi pensas, ke ni donos. Se ne propravole,
 
 do, hm. Aŭ ni vendos tion, aŭ ili trovos
 
-tion ĉi tie. Kiel vi volas. 
+tion ĉi tie. Kiel vi volas.
 
 **Domin**
 
 Busman, ni povas detrui la manuskripton
 
-de Rossum. 
+de Rossum.
 
 **Busman**
 
 Nu jes, laŭplaĉe, ni povas ĉion. Krom la
 
-manuskripto eĉ nin mem — kaj la aliajn. 
+manuskripto eĉ nin mem — kaj la aliajn.
 
-Faru, kiel vi komprenas. 
+Faru, kiel vi komprenas.
 
-**Hallemeier ** *turnas sin for de la fenestro* Nu, li estas prava. 
+**Hallemeier ** *turnas sin for de la fenestro* Nu, li estas prava.
 
-111
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
-Ni — ni vendi la fabrikadon? 
+Ni — ni vendi la fabrikadon?
 
 **Busman**
 
-Kiel vi volas. 
+Kiel vi volas.
 
 **Domin**
 
@@ -7870,7 +7629,7 @@ vendu la fabrikadon kaj savu la homajn
 
 animojn? Aŭ ĉu ni detruu ĝin kaj — kaj nin
 
-ĉiujn kune? 
+ĉiujn kune?
 
 **Helena**
 
@@ -7880,67 +7639,65 @@ Harry, mi petas vin —
 
 Atendu, Helena. ĉi tie estas pritraktata tro
 
-grava afero. Knaboj, ĉu vendi, ĉu detrui? 
+grava afero. Knaboj, ĉu vendi, ĉu detrui?
 
-Fabry\! 
+Fabry!
 
 **Fabry**
 
-Vendi. 
+Vendi.
 
 **Domin**
 
-Gall\! 
+Gall!
 
 **D-ro Gall**
 
-Vendi. 
+Vendi.
 
 **Domin**
 
-Hallemeier\! 
+Hallemeier!
 
-**Hallemeier **Mil tondroj, kompreneble vendi\! 
+**Hallemeier **Mil tondroj, kompreneble vendi!
 
 **Domin**
 
-Alquist\! 
+Alquist!
 
 **Alquist**
 
-Dia volo. 
+Dia volo.
 
 **Busman**
 
 *ridas*
 
-Haha, jo, jo, jo, vi estas frenezuloj\! Kiu
+Haha, jo, jo, jo, vi estas frenezuloj! Kiu
 
-vendus la tutan manuskripton? 
+vendus la tutan manuskripton?
 
 **Domin**
 
-Busman, neniun trompaĵon\! 
+Busman, neniun trompaĵon!
 
 **Busman**
 
 *eksaltas*
 
-Sensencaĵo\! Estas intereso de la homaro —
+Sensencaĵo! Estas intereso de la homaro —
 
 **Domin**
 
 Intereso de la homaro estas ne rompi la
 
-vorton. 
+vorton.
 
-**Hallemeier **Mi tre petegus. 
+**Hallemeier **Mi tre petegus.
 
-112
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
@@ -7948,21 +7705,21 @@ Knaboj, tio estas grava paŝo. Ni vendas la
 
 sorton de la homaro; kiu kapablos fabrika-
 
-di, tiu estros la mondon. 
+di, tiu estros la mondon.
 
 **Fabry**
 
-Vendu\! 
+Vendu!
 
 **Domin**
 
-Neniam plu la homaro venkos Robotojn, 
+Neniam plu la homaro venkos Robotojn,
 
 neniam ĝi ekestros ilin —
 
 **D-ro Gall**
 
-Silentu kaj vendu\! 
+Silentu kaj vendu!
 
 **Domin**
 
@@ -7970,11 +7727,11 @@ Fino de homara hisiorto, fino de civiliza-
 
 cio —
 
-**Hallemeier **Mil diabloj, vendu\! 
+**Hallemeier **Mil diabloj, vendu!
 
 **Domin**
 
-Bone, knaboj\! Mi mem — — mi ne hezitus
+Bone, knaboj! Mi mem — — mi ne hezitus
 
 eĉ momenton; por tiuj kelkaj homoj, kiujn
 
@@ -7982,27 +7739,27 @@ mi amas —
 
 **Helena**
 
-Harry, ĉu min vi ne demandas? 
+Harry, ĉu min vi ne demandas?
 
 **Domin**
 
-Ne, infaneto; tio estas tro responda, sciu\! 
+Ne, infaneto; tio estas tro responda, sciu!
 
-Tio ne estas io por vi. 
+Tio ne estas io por vi.
 
 **Fabry**
 
-Kiu iros intertrakti? 
+Kiu iros intertrakti?
 
 **Domin**
 
-Atendu, ĝis mi alportos la manuskripton. 
+Atendu, ĝis mi alportos la manuskripton.
 
 *li foriras maldekstren*
 
 **Helena**
 
-Harry, pro Dio, ne iru\! 
+Harry, pro Dio, ne iru!
 
 *paŭzo*
 
@@ -8018,11 +7775,9 @@ perakvego, ankoraŭ unufoje savi la homan
 
 vivon sur unusola ŝipo —
 
-113
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
@@ -8036,17 +7791,17 @@ co —
 
 **Helena**
 
-Ho, Gall, silentu\! 
+Ho, Gall, silentu!
 
 **Fabry**
 
 *returnas sin*
 
-Sinjorino Helena, la vivo meritas tion; kaj, 
+Sinjorino Helena, la vivo meritas tion; kaj,
 
-kio koncernas nin, ni faros el ĝi ion … ion, 
+kio koncernas nin, ni faros el ĝi ion … ion,
 
-kion ni malzorgis. ¯i estos malgranda ŝta-
+kion ni malzorgis. i estos malgranda ŝta-
 
 teto kun unu ŝipo; Alquist konstruos al ni
 
@@ -8054,11 +7809,11 @@ domon kaj vi estros nin. — En ni estas
 
 tiom da amo, tiom da kuraĝo al vivo —
 
-**Hallemeier **Kompreneble, karuleto. 
+**Hallemeier **Kompreneble, karuleto.
 
 **Busman**
 
-Nu kamaradoj, mi tuj komencus denove. 
+Nu kamaradoj, mi tuj komencus denove.
 
 Tre simple, laŭ malnova testamento, laŭ
 
@@ -8078,17 +7833,15 @@ fortojn, — fortojn de animo kaj korpo. —
 
 Kaj Dio scias, mi kredas, ke post kelkcentoj
 
-da jaroj ĝi ree povus venkadi la mondon. 
+da jaroj ĝi ree povus venkadi la mondon.
 
 **Alquist**
 
-ĉu jam hodiaŭ vi kredas tion? 
+ĉu jam hodiaŭ vi kredas tion?
 
-114
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Fabry**
 
@@ -8100,17 +7853,17 @@ marojn; ke ĝi naskigos sennombrajn hero-
 
 ojn, kiuj portos sian ardantan animon
 
-frunte de la homoj. Kaj mi kredas, Alquist, 
+frunte de la homoj. Kaj mi kredas, Alquist,
 
 ke ĝi ree sonĝos venki planedojn kaj su-
 
-nojn. 
+nojn.
 
 **Busman**
 
 Amen. Vidu, sinjorino Helena, tio ne estas
 
-tiel malbona situacio. 
+tiel malbona situacio.
 
 *DOMIN malfermas rapide la pordon*
 
@@ -8120,31 +7873,31 @@ tiel malbona situacio.
 
 Kie estas la manuskripto de la maljuna
 
-Rossum\!? 
+Rossum!?
 
 **Busman**
 
-En via trezorejo. Kie aliloke ĝi estus? 
+En via trezorejo. Kie aliloke ĝi estus?
 
 **Domin**
 
 Kien malaperis la manuskripto de la mal-
 
-juna Rossum\!? Kiu — ĝin — ŝtelis\!? 
+juna Rossum!? Kiu — ĝin — ŝtelis!?
 
 **D-ro Gall**
 
-Ne eble\! 
+Ne eble!
 
 **Hallemeier **Malbenite, tio ja —
 
 **Busman**
 
-Pro Dio, tio eble ne\! 
+Pro Dio, tio eble ne!
 
 **Domin**
 
-Silentu\! Kiu ŝtelis ĝin? 
+Silentu! Kiu ŝtelis ĝin?
 
 **Helena**
 
@@ -8154,75 +7907,73 @@ Mi —
 
 **Domin**
 
-Kien vi metis ĝin? 
+Kien vi metis ĝin?
 
 **Helena**
 
-Harry, Harry, ĉion mi diros al vi\! Pro Dio, 
+Harry, Harry, ĉion mi diros al vi! Pro Dio,
 
-pardonu tion al mi\! 
+pardonu tion al mi!
 
 **Domin**
 
-Kien vi metis ĝin? Rapide\! 
+Kien vi metis ĝin? Rapide!
 
-115
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 Mi forbruligis ĝin — hodiaŭ matene — am-
 
-baŭ kopiojn. 
+baŭ kopiojn.
 
 **Domin**
 
-Vi forbruligis ilin? ĉi tie en la kameno? 
+Vi forbruligis ilin? ĉi tie en la kameno?
 
 **Helena**
 
 *ĵetas sin sur genuojn*
 
-Pro Dio, Harry\! 
+Pro Dio, Harry!
 
 **Domin**
 
 *kuras al la kameno*
 
-ŝi forbruligis ilin\! 
+ŝi forbruligis ilin!
 
-*li ekgenuas al la kameno kaj rastas en ĝi* Nenio, nenio ol cindro. — A˛, jen\! 
+*li ekgenuas al la kameno kaj rastas en ĝi* Nenio, nenio ol cindro. — A˛, jen!
 
 *li eltiras bruldifektitan peceton da papero kaj* *legas*
 
-”Al-do-non-te —” 
+”Al-do-non-te —”
 
 **D-ro Gall**
 
 Donu ĝin. Li prenas la paperon kaj legas
 
-”Aldononte biogenon en —” Nenio plu. 
+”Aldononte biogenon en —” Nenio plu.
 
 **Domin**
 
 *stariĝas*
 
-ĉu ĝi estas parto de tio? 
+ĉu ĝi estas parto de tio?
 
 **D-ro Gall**
 
-Jes. 
+Jes.
 
 **Busman**
 
-Dio en la ĉielo\! 
+Dio en la ĉielo!
 
 **Domin**
 
-Do ni estas perditaj. 
+Do ni estas perditaj.
 
 **Helena**
 
@@ -8230,11 +7981,11 @@ Ho, Harry —
 
 **Domin**
 
-Ekstaru, Helena\! 
+Ekstaru, Helena!
 
 **Helena**
 
-¯is vi pardonos min — ĝis vi pardonos —
+is vi pardonos min — ĝis vi pardonos —
 
 **Domin**
 
@@ -8246,25 +7997,23 @@ ros, ke —
 
 *levas ŝin*
 
-Mi petas, ne turmentu nin. 
+Mi petas, ne turmentu nin.
 
-116
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 *levas sin*
 
-Harry, kion mi faris\! 
+Harry, kion mi faris!
 
 **Domin**
 
-Jes, vi vidas. — Mi petas, sidiĝu. 
+Jes, vi vidas. — Mi petas, sidiĝu.
 
-**Hallemeier **Kiel tremas viaj manetoj\! 
+**Hallemeier **Kiel tremas viaj manetoj!
 
 **Busman**
 
@@ -8272,9 +8021,9 @@ Jes, vi vidas. — Mi petas, sidiĝu.
 
 Haha, sinjorino Helena, eble Gall kaj Hal-
 
-lemeier scias parkere, kio estis tie skribita. 
+lemeier scias parkere, kio estis tie skribita.
 
-**Hallemeier **Kompreneble. Tio estas, almenaŭ kelkajn aĵojn. 
+**Hallemeier **Kompreneble. Tio estas, almenaŭ kelkajn aĵojn.
 
 **D-ro Gall**
 
@@ -8288,53 +8037,51 @@ dozo da ili —
 
 **Busman**
 
-Kiu fabrikadis ilin? 
+Kiu fabrikadis ilin?
 
 **D-ro Gall**
 
 Mi mem … Unufoje post longa tempo …
 
-ĉiam laŭ la manuskripto de Rossum. Sciu, 
+ĉiam laŭ la manuskripto de Rossum. Sciu,
 
-ĝi estas tro komplika. 
+ĝi estas tro komplika.
 
 **Busman**
 
-Nu kaj, ĉu tiuj du likvaĵoj estas tiel gravaj? 
+Nu kaj, ĉu tiuj du likvaĵoj estas tiel gravaj?
 
-**Hallemeier **Iomete — tre certe. 
+**Hallemeier **Iomete — tre certe.
 
 **D-ro Gall**
 
 Nome de ili dependas, ke ĝi vivu. Tio estis
 
-tiu efektiva sekreto. 
+tiu efektiva sekreto.
 
 **Domin**
 
 Gall, ĉu vi povus parkere kunmeti la recep-
 
-ton de Rossum? 
+ton de Rossum?
 
 **D-ro Gall**
 
-Nepre ne. 
+Nepre ne.
 
 **Domin**
 
-Gall, pripensu\! Pro la vivo de ni ĉiuj\! 
+Gall, pripensu! Pro la vivo de ni ĉiuj!
 
-117
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **D-ro Gall**
 
 Mi ne kapablas. Sen eksperimentoj tio ne
 
-estas ebla. 
+estas ebla.
 
 **Domin**
 
@@ -8344,81 +8091,79 @@ Kaj se vi farus eksperimentojn —
 
 Tio povus daŭri jarojn. Kaj eĉ poste — mi
 
-ne estas la maljuna Rossum. 
+ne estas la maljuna Rossum.
 
 **Domin**
 
 *turnas sin al la kameno*
 
-Do ĉi tie — ĉi tio estis la plej granda trium-fo de la homa spirito, knaboj. ĉi tiu cindro. 
+Do ĉi tie — ĉi tio estis la plej granda trium-fo de la homa spirito, knaboj. ĉi tiu cindro.
 
 *li piedbatas ĝin*
 
-Kion nun? 
+Kion nun?
 
 **Busman**
 
 *en malespera teruro*
 
-Dio en la ĉielo\! Dio en la ĉielo\! 
+Dio en la ĉielo! Dio en la ĉielo!
 
 **Helena**
 
 *ekstaras*
 
-Harry\! Jen — kion — mi — faris\! 
+Harry! Jen — kion — mi — faris!
 
 **Domin**
 
-Estu trankvila, Helena\! Diru, kial vi forbru-
+Estu trankvila, Helena! Diru, kial vi forbru-
 
-ligis tion? 
+ligis tion?
 
 **Helena**
 
-Mi pereigis vin\! 
+Mi pereigis vin!
 
 **Busman**
 
-Dio en la ĉielo, ni estas perditaj\! 
+Dio en la ĉielo, ni estas perditaj!
 
 **Domin**
 
-Silenton, Busman\! Diru, Helena, kial vi fa-
+Silenton, Busman! Diru, Helena, kial vi fa-
 
-ris tion? 
+ris tion?
 
 **Helena**
 
 Mi intencis … Mi volis, ke ni ĉiuj forve-
 
-turu\! Ke ne ekzistu plu uzino kaj io alia …
+turu! Ke ne ekzistu plu uzino kaj io alia …
 
-Ke ĉio revenu … ¯i estis tiel terrrura\! 
+Ke ĉio revenu … i estis tiel terrrura!
 
 **Domin**
 
-Kio, Helena? 
+Kio, Helena?
 
 **Helena**
 
-Tio … tio, ke homoj fariĝis senfrukta floro\! 
+Tio … tio, ke homoj fariĝis senfrukta floro!
 
 **Domin**
 
-Mi ne komprenas. 
+Mi ne komprenas.
 
-118
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 Tio, ke ĉesis naskiĝi infanoj … Harry, tio
 
-estas tiel terurega\! Se oni daŭrigus fabriki
+estas tiel terurega! Se oni daŭrigus fabriki
 
 Robotojn, neniam plu estus infanoj. —
 
@@ -8430,19 +8175,19 @@ brikas tiom da Robotoj. — Kaj tial, nur tial, ĉu vi aŭdas —
 
 **Domin**
 
-Helena, pri **tio ĉi** vi pensis? 
+Helena, pri **tio ĉi** vi pensis?
 
 **Helena**
 
 Jes. Ho, Harry, mi imagis tion al mi **tiel**
 
-bone\! 
+bone!
 
 **Domin**
 
 *viŝas sian ŝviton*
 
-Ni tion pensis … tro bone, ni homoj. 
+Ni tion pensis … tro bone, ni homoj.
 
 **Fabry**
 
@@ -8452,7 +8197,7 @@ plu povas multiĝi. Robotoj elmortos. Post
 
 dudek jaroj —
 
-**Hallemeier **— eĉ ne unu el tiuj friponoj ekzistos. 
+**Hallemeier **— eĉ ne unu el tiuj friponoj ekzistos.
 
 **D-ro Gall**
 
@@ -8476,35 +8221,33 @@ atingos nin, kaj poste ili iros pluen ol ni —
 
 — por plenumi, kion ni nur balbutis en la
 
-pensoj. 
+pensoj.
 
-119
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Busman**
 
-Atendu\! — Mi stultulo\! Dio en la ĉielo, ke
+Atendu! — Mi stultulo! Dio en la ĉielo, ke
 
-mi jam de longe ne rememoris pri tio\! 
+mi jam de longe ne rememoris pri tio!
 
-**Hallemeier **Kion vi havas? 
+**Hallemeier **Kion vi havas?
 
 **Busman**
 
 Kvincent dudek milionojn da bankbiletoj
 
-kaj ĉekoj\! Duonan miliardon en la trezoru-
+kaj ĉekoj! Duonan miliardon en la trezoru-
 
-jo\! Por duona miliardo ili vendos. — Por
+jo! Por duona miliardo ili vendos. — Por
 
 duona miliardo —
 
 **D-ro Gall**
 
-ĉu vi frenezas, Busman? 
+ĉu vi frenezas, Busman?
 
 **Busman**
 
@@ -8516,27 +8259,27 @@ miliardo —
 
 **Domin**
 
-Kien vi iras? 
+Kien vi iras?
 
 **Busman**
 
-Lasu, lasu\! Dia Patrino, por duona miliar-
+Lasu, lasu! Dia Patrino, por duona miliar-
 
-do oni vendos ĉion. 
+do oni vendos ĉion.
 
 *li foriras*
 
 **Helena**
 
-Kion intencas Busman? Li restu kun ni\! 
+Kion intencas Busman? Li restu kun ni!
 
 *paŭzo*
 
-**Hallemeier **U˛, sufoke\! Komenciĝas — — —
+**Hallemeier **U˛, sufoke! Komenciĝas — — —
 
 **D-ro Gall**
 
-— agonio. 
+— agonio.
 
 **Fabry**
 
@@ -8548,109 +8291,105 @@ terura estiĝus per ilia silentado —
 
 **D-ro Gall**
 
-La animo de la amaso. 
+La animo de la amaso.
 
 **Fabry**
 
-Eble. ¯i ŝvebas super ili … kiel vibrado. 
+Eble. i ŝvebas super ili … kiel vibrado.
 
-120
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 *alpaŝas al la fenestro*
 
-A˛ Jesuo … Fabry, tio estas terurega\! 
+A˛ Jesuo … Fabry, tio estas terurega!
 
 **Fabry**
 
 Nenio estas pli terura ol amaso. Tiu plej
 
-antaŭa estas ilia ĉefo. 
+antaŭa estas ilia ĉefo.
 
 **Helena**
 
-Kiu? 
+Kiu?
 
 **Hallemeier ** *iras al la fenestro*
 
-Montru lin al mi. 
+Montru lin al mi.
 
 **Fabry**
 
 Tiu kun klinita kapo. Matene li parolis en
 
-la haveno. 
+la haveno.
 
-**Hallemeier **Aha, tiu kun tiu granda kraniaĉo. Nun li levas ĝin, ĉu vi vidas lin? 
+**Hallemeier **Aha, tiu kun tiu granda kraniaĉo. Nun li levas ĝin, ĉu vi vidas lin?
 
 **Helena**
 
-Gall, tio estas Radius\! 
+Gall, tio estas Radius!
 
 **G-ro Gall**
 
 *alpaŝas al la fenestro*
 
-Jes. 
+Jes.
 
 **Hallemeier ** *malfermas la fenestron*
 
 Li ne plaĉas al mi. Fabry, ĉu vi trafus ku-
 
-von je cent paŝoj? 
+von je cent paŝoj?
 
 **Fabry**
 
-Mi esperas. 
+Mi esperas.
 
-**Hallemeier **Do provu ĝin. 
+**Hallemeier **Do provu ĝin.
 
 **Fabry**
 
-Bone. 
+Bone.
 
 *li elpoŝigas la revolveron kaj celas*
 
 **Helena**
 
-Pro Dio, Fabry, ne pafu lin\! 
+Pro Dio, Fabry, ne pafu lin!
 
 **Fabry**
 
-Li estas ilia estro. 
+Li estas ilia estro.
 
 **Helena**
 
-ĉesu\! Li ja rigardas ĉi tien. 
+ĉesu! Li ja rigardas ĉi tien.
 
 **D-ro Gall**
 
-Pafu\! 
+Pafu!
 
 **Helena**
 
 Fabry, mi **petegas **vin —
 
-121
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Fabry**
 
 *mallevas la revolveron*
 
-Estu\! 
+Estu!
 
 **Hallemeier ** *minacas per la pugno*
 
-Ci aĉulo\! 
+Ci aĉulo!
 
 *paŭzo*
 
@@ -8660,41 +8399,41 @@ Ci aĉulo\!
 
 Busman iras. Pro ĉio en la mondo, kion vo-
 
-las Busman antaŭ la domo? 
+las Busman antaŭ la domo?
 
 **G-ro Gall**
 
 *klinas sin el la fenestro*
 
-Li portas iajn paketojn. Paperojn. 
+Li portas iajn paketojn. Paperojn.
 
-**Hallemeier **Tio estas mono\! Pakoj da mono\! Kion kun tio? Halo, Busman\! 
+**Hallemeier **Tio estas mono! Pakoj da mono! Kion kun tio? Halo, Busman!
 
 **Domin**
 
-ĉu li eble volas aĉeti sian vivon? 
+ĉu li eble volas aĉeti sian vivon?
 
 *li vokas*
 
-Busman, ĉu vi freneziĝis? 
+Busman, ĉu vi freneziĝis?
 
 **D-ro Gall**
 
 Li ŝajnigas sin ne aŭdanta. Li kuras al la
 
-krado. 
+krado.
 
 **Fabry**
 
-Busman\! 
+Busman!
 
 **Hallemeier ** *kriegas*
 
-Bus-man\! Returnen\! 
+Bus-man! Returnen!
 
 **D-ro Gall**
 
-Li parolas al la Robotoj. Li vidigas monon. 
+Li parolas al la Robotoj. Li vidigas monon.
 
 Li montras al ni —
 
@@ -8710,59 +8449,57 @@ Nur li ne ektuŝu la kradon —
 
 *ridas*
 
-Haha, kiel li gestas per la mano\! 
+Haha, kiel li gestas per la mano!
 
-122
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Fabry**
 
 *krias*
 
-ĉe diablo, Busman\! For de Ia krado\! Ne
+ĉe diablo, Busman! For de Ia krado! Ne
 
-tuŝu ĝin\! 
+tuŝu ĝin!
 
 *li turnas sin*
 
-Rapide, for la elektron\! 
+Rapide, for la elektron!
 
 **D-ro Gall**
 
-O-o-o\! 
+O-o-o!
 
-**Hallemeier **Pro dia kompato\! 
+**Hallemeier **Pro dia kompato!
 
 **Helena**
 
-Jesuo, kio okazis al li? 
+Jesuo, kio okazis al li?
 
 **Domin**
 
 *tiras Helenan for de la fenestro*
 
-Ne rigardu\! 
+Ne rigardu!
 
 **Helena**
 
-Kial li falis? 
+Kial li falis?
 
 **Fabry**
 
-Mortigita de elektro. 
+Mortigita de elektro.
 
 **D-ro Gall**
 
-Morta. 
+Morta.
 
 **Alquist**
 
 *ekstaras*
 
-La unua. 
+La unua.
 
 *paŭzo*
 
@@ -8770,7 +8507,7 @@ La unua.
 
 Tie li kuŝas … kun duona miliardo sur la
 
-koro** … **financa genio. 
+koro** … **financa genio.
 
 **Domin**
 
@@ -8778,7 +8515,7 @@ Li estis … knaboj, li estis laŭ sia speco he-
 
 roo. Granda … oferema … kamarado …
 
-Ploru, Helena\! 
+Ploru, Helena!
 
 **G-ro Gall**
 
@@ -8790,47 +8527,45 @@ dan tombopiramidon ol vi. Duonan miliar-
 
 don sur la koro. — A˛, tio aspektas ja kva-
 
-123
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 zaŭ plenmano da sekaj folioj sur mortigita
 
-sciuro, kompatinda Busman\! 
+sciuro, kompatinda Busman!
 
-**Hallemeier **Mi diras, li estis — — estiminda — Mi diras, li volis savi nin per mono\! 
+**Hallemeier **Mi diras, li estis — — estiminda — Mi diras, li volis savi nin per mono!
 
 **Alquist**
 
 *kun preĝe kunmetitaj manoj*
 
-Amen. 
+Amen.
 
 *paŭzo*
 
 **D-ro Gall**
 
-ĉu vi aŭdas? 
+ĉu vi aŭdas?
 
 **Domin**
 
-Bruado. Kvazaŭ vento. 
+Bruado. Kvazaŭ vento.
 
 **D-ro Gall**
 
-Kvazaŭ malproksima fulmotondro. 
+Kvazaŭ malproksima fulmotondro.
 
 **Fabry**
 
 *eklumigas la lampeton sur la kameno*
 
-Lumu, mortkandelo de la homaro\! Anko-
+Lumu, mortkandelo de la homaro! Anko-
 
 raŭ kuras dinamoj, ankoraŭ estas tie la
 
-niaj. — Persistu, vicoj en la elektrejo\! 
+niaj. — Persistu, vicoj en la elektrejo!
 
 **Hallemeier **Estis granda afero esti homo. Tio estis io senlima. En mi zumas miliono da konscioj
 
@@ -8838,35 +8573,33 @@ kvazaŭ en abelujo. Milionoj da animoj
 
 kunflugadas en min. Kamaradoj, tio estis
 
-granda afero. 
+granda afero.
 
 **Fabry**
 
 Vi lumas ankoraŭ, genia lumeto, vi ravas
 
-ankoraŭ, brila, daŭra penso\! Scianta sci-
+ankoraŭ, brila, daŭra penso! Scianta sci-
 
-enco, bela kreaĵo de homoj\! Flama fajrero
+enco, bela kreaĵo de homoj! Flama fajrero
 
-de la spirito\! 
+de la spirito!
 
-124
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
 Eterna lampo Dia, fajra veturilo, sankta
 
-kandelo de la kredo, preĝu\! Altaro ofera —
+kandelo de la kredo, preĝu! Altaro ofera —
 
 **D-ro Gall**
 
-Unua fajro, branĉo brulanta ĉe groto\! Faj-
+Unua fajro, branĉo brulanta ĉe groto! Faj-
 
-rejo en tendaroj\! ŝtiparo garda\! 
+rejo en tendaroj! ŝtiparo garda!
 
 **Fabry**
 
@@ -8882,25 +8615,25 @@ da penso —
 
 Torĉo, kiu cirkulas el mano en manon, el
 
-epoko en epokon, eterne pluen. 
+epoko en epokon, eterne pluen.
 
 **Helena**
 
 Vespera lampo de la familio. Infanoj, infa-
 
-noj, vi devas iam dormi. 
+noj, vi devas iam dormi.
 
 *la lampeto estingiĝas*
 
 **Fabry**
 
-La fino. 
+La fino.
 
-**Hallemeier **Kio okazis? 
+**Hallemeier **Kio okazis?
 
 **Fabry**
 
-La elektrejo falis. Nun ni. 
+La elektrejo falis. Nun ni.
 
 *Maldekstre malfermiĝas la pordo, en ĝi*
 
@@ -8908,15 +8641,15 @@ La elektrejo falis. Nun ni.
 
 **Nana**
 
-Sur genuojn\! Alvenis la horo de la juĝo\! 
+Sur genuojn! Alvenis la horo de la juĝo!
 
-**Hallemeier **Fulmotondro, ĉu vi vivas ankoraŭ? 
+**Hallemeier **Fulmotondro, ĉu vi vivas ankoraŭ?
 
 **Nana**
 
-Pentu, malkreduloj\! Fino de la mondo\! 
+Pentu, malkreduloj! Fino de la mondo!
 
-Preĝu\! 
+Preĝu!
 
 *ŝi kuras for*
 
@@ -8926,101 +8659,97 @@ La horo de la juĝo —
 
 Adiaŭ, vi ĉiuj, Gall, Alquist, Fabry —
 
-125
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Domin**
 
 *malfermas la pordon dekstre*
 
-ĉi tien, Helena\! 
+ĉi tien, Helena!
 
 *li fermas post ŝi*
 
-Nun rapide\! Kiu estos ĉe la pordego? 
+Nun rapide! Kiu estos ĉe la pordego?
 
 **D-ro Gall**
 
-Mi. 
+Mi.
 
 *ekstere bruo*
 
-Oho, ĝi jam komenciĝas. Adiaŭ, knaboj\! 
+Oho, ĝi jam komenciĝas. Adiaŭ, knaboj!
 
 *li forkuras dekstren tra la tapetpordo*
 
 **Domin**
 
-ŝtuparon? 
+ŝtuparon?
 
 **Fabry**
 
-Mi. Iru al Helena. 
+Mi. Iru al Helena.
 
 *li deŝiras floron el la bukedo kaj foriras* **Domin**
 
-La antaŭĉambron? 
+La antaŭĉambron?
 
 **Alquist**
 
-Mi. 
+Mi.
 
 **Domin**
 
-ĉu vi havas revolveron? 
+ĉu vi havas revolveron?
 
 **Alquist**
 
-Mi dankas, mi ne pafas. 
+Mi dankas, mi ne pafas.
 
 **Domin**
 
-Kion vi intencas fari? 
+Kion vi intencas fari?
 
 **Alquist**
 
 *foriras*
 
-Morti. 
+Morti.
 
-**Hallemeier **Mi restos ĉi tie. 
+**Hallemeier **Mi restos ĉi tie.
 
 *el malsupro rapida pafado*
 
-**Hallemeier **Oho, Gall ludas jam. Iru, Harry\! 
+**Hallemeier **Oho, Gall ludas jam. Iru, Harry!
 
 **Domin**
 
-Tuj. 
+Tuj.
 
 *li esploras du brovningojn*
 
-**Hallemeier **ĉe diablo, do iru al ŝi\! 
+**Hallemeier **ĉe diablo, do iru al ŝi!
 
 **Domin**
 
-Adiaŭ\! 
+Adiaŭ!
 
 *li foriras dekstren*
 
-126
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Hallemeier ** *sola*
 
-Nun rapide barikadon. 
+Nun rapide barikadon.
 
 *li deĵetas la jakon kaj tiras la sofon, la* *apogseĝojn, la tablojn al la dekstra pordo* *skuanta eksplodo*
 
 **Hallemeier ** *ĉesas labori*
 
-Malbenitaj kanajloj, ili posedas bombojn\! 
+Malbenitaj kanajloj, ili posedas bombojn!
 
 *nova pafado*
 
@@ -9028,11 +8757,11 @@ Malbenitaj kanajloj, ili posedas bombojn\!
 
 La homo devas defendi sin. Eĉ se — eĉ se
 
-— kuraĝon, Gall\! 
+— kuraĝon, Gall!
 
 *eksplodo*
 
-**Hallemeier ** *starigas sin kaj aŭskultas* Do kion? 
+**Hallemeier ** *starigas sin kaj aŭskultas* Do kion?
 
 *Li ekprenas pezan komodon kaj tiras ĝin al la* *barikado. Malantaŭ li engrimpas per*
 
@@ -9042,9 +8771,9 @@ La homo devas defendi sin. Eĉ se — eĉ se
 
 **Hallemeier ** *penege trenas komodon*
 
-Ankoraŭ peceton\! Lasta barilo … La homo
+Ankoraŭ peceton! Lasta barilo … La homo
 
-… devas … neniam … kapitulaci\! 
+… devas … neniam … kapitulaci!
 
 *ROBOTO saltas de la fenestro kaj trapikas* *HALLEMEIERon malantaŭ la komodo. La*
 
@@ -9052,67 +8781,65 @@ Ankoraŭ peceton\! Lasta barilo … La homo
 
 *fenestro. Post ili RADIUS kaj pluaj*
 
-*ROBOTO\]*
+*ROBOTO]*
 
-127
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Radius**
 
-ĉu prete? 
+ĉu prete?
 
 **Roboto**
 
 *leviĝas de la kuŝanta Hallemeier*
 
-Jes. 
+Jes.
 
 *de dekstre eniras novaj ROBOTOJ*
 
 **Radius**
 
-ĉu pretaj? 
+ĉu pretaj?
 
-**Alia Roboto **Pretaj. 
+**Alia Roboto **Pretaj.
 
 *aliaj ROBOTOJ de maldekstre*
 
 **Radius**
 
-ĉu pretaj? 
+ĉu pretaj?
 
-**Alia Roboto **Jes. 
+**Alia Roboto **Jes.
 
 **Du Robotoj ** *trenas Alquiston*
 
-Li ne pafadis. ĉu mortigi lin? 
+Li ne pafadis. ĉu mortigi lin?
 
 **Radius**
 
-Mortigi. 
+Mortigi.
 
 *li rigardas Alquiston*
 
-Lasu lin. 
+Lasu lin.
 
 **Roboto**
 
-Li estas homo. 
+Li estas homo.
 
 **Radius**
 
-Li estas Roboto. Li laboras per la manoj, 
+Li estas Roboto. Li laboras per la manoj,
 
 kiel Robotoj. Li konstruas domojn. Li po-
 
-vas labori. 
+vas labori.
 
 **Alquist**
 
-Mortigu min. 
+Mortigu min.
 
 **Radius**
 
@@ -9120,41 +8847,39 @@ Vi robotos. Vi konstruados. Robotoj kon-
 
 struados multon. Ili konstruados novajn
 
-domojn por novaj Robotoj. Vi servos al ili. 
+domojn por novaj Robotoj. Vi servos al ili.
 
 **Alquist**
 
 *mallaŭte*
 
-For, Roboto\! 
+For, Roboto!
 
 *li genufleksas apud la morta Hallemeier kaj* *levas lian kapon*
 
-128
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-Ili mortigis lin. Li estas morta. 
+Ili mortigis lin. Li estas morta.
 
 **Radius**
 
 *surgrimpas la barikadon*
 
-Robotoj de la mondo\! Falis la potenco de
+Robotoj de la mondo! Falis la potenco de
 
-la homo\! Per konkero de la uzino ni estas
+la homo! Per konkero de la uzino ni estas
 
 estroj de ĉio. Etapo de la homaro estas
 
-venkita. Komenciĝis nova mondo\! La rega-
+venkita. Komenciĝis nova mondo! La rega-
 
-do de la Robotoj\! 
+do de la Robotoj!
 
 **Alquist**
 
-Mortaj\! 
+Mortaj!
 
 **Radius**
 
@@ -9162,33 +8887,31 @@ La mondo apartenas al la pli fortaj. Kiu vo-
 
 las vivi, devas estri. Ni estas estroj de la
 
-mondo\! Ni regas la marojn kaj landojn\! Ni
+mondo! Ni regas la marojn kaj landojn! Ni
 
-regas la stelojn\! Ni regas la universon\! 
+regas la stelojn! Ni regas la universon!
 
 Spacon, spacon, pli multe de spaco por
 
-Robotoj\! 
+Robotoj!
 
 **Alquist**
 
 *en la pordo dekstre*
 
-Kion vi faris? Vi pereos sen homoj\! 
+Kion vi faris? Vi pereos sen homoj!
 
 **Radius**
 
-Ne ekzistas homoj. Robotoj eklaboru\! Ek-
+Ne ekzistas homoj. Robotoj eklaboru! Ek-
 
-marŝu\! 
+marŝu!
 
 *Kurteno*
 
-129
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **TRIA AKTO**
 
@@ -9204,37 +8927,35 @@ eLIBRO
 
 *foliumante en libro*
 
-ĉu mi ne trovos? — ĉu mi ne komprenos? 
+ĉu mi ne trovos? — ĉu mi ne komprenos?
 
-— ĉu mi ne ellernos? — Perdita scienco\! 
+— ĉu mi ne ellernos? — Perdita scienco!
 
-Ho, ke ili ne estis notintaj ĉion\! Gall, Gall, kiel estis fabrikataj Robotoj? Hallemeier, 
+Ho, ke ili ne estis notintaj ĉion! Gall, Gall, kiel estis fabrikataj Robotoj? Hallemeier,
 
 Fabry, Domin, kial vi forportis tiom multe
 
-130
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 en viaj kapoj? Se vi estus postlasintaj alme-
 
-naŭ postsignon de la sekreto de Rossum\! 
+naŭ postsignon de la sekreto de Rossum!
 
-Ho\! 
+Ho!
 
 *li frapfermas la libron*
 
-Vane\! La libroj ne parolas plu. Ili estas mu-
+Vane! La libroj ne parolas plu. Ili estas mu-
 
 taj kiel ĉio. Ili mortis, mortis kune kun la
 
-homoj. Ne serĉu\! 
+homoj. Ne serĉu!
 
 *li ekstaras kaj iras al la fenestro, kiun li* *malfermas*
 
-Ree nokto. Se mi povus dormi\! Dormi, 
+Ree nokto. Se mi povus dormi! Dormi,
 
 sonĝi, vidi homojn. — — Kio, ĉu ankoraŭ
 
@@ -9242,11 +8963,11 @@ ekzistas steloj? Pro kio ekzistas steloj, se ne ekzistas homoj? Ho, Dio, ĉu ili
 
 ĝis? — Malvarmetigu, a˛ malvarmetigu
 
-mian frunton, maljuna nokto\! Dia, ĉarma, 
+mian frunton, maljuna nokto! Dia, ĉarma,
 
-kia vi estadis — nokto, kion vi volas ĉi tie? 
+kia vi estadis — nokto, kion vi volas ĉi tie?
 
-Ne ekzistas geamantoj, ne ekzistas sonĝoj; 
+Ne ekzistas geamantoj, ne ekzistas sonĝoj;
 
 ho vartistino, morta estas dormo sen
 
@@ -9254,47 +8975,45 @@ sonĝoj; nenies preĝojn vi sanktigos plu; vi
 
 ne benos, patrino, korojn batantajn pro
 
-amo. Ne ekzistas amo. Helena, Helena, 
+amo. Ne ekzistas amo. Helena, Helena,
 
-Helena\! —
+Helena! —
 
-*li turnas sin for de la fenestro. Esploras la* *epruvetojn, kiujn li prenis el la termostato* Ree nenio\! Senfrukte\! Kion fari kun tio? 
+*li turnas sin for de la fenestro. Esploras la* *epruvetojn, kiujn li prenis el la termostato* Ree nenio! Senfrukte! Kion fari kun tio?
 
 *li disrompas la tubeton*
 
-131
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-ĉio malsukcesas\! Vi ja vidas, ke mi ne plu
+ĉio malsukcesas! Vi ja vidas, ke mi ne plu
 
 kapablas —
 
 *li aŭskultas ĉe la fenestro*
 
-Maŝinoj, ĉiam tiuj maŝinoj\! Robotoj, halti-
+Maŝinoj, ĉiam tiuj maŝinoj! Robotoj, halti-
 
-gu ilin\! ĉu vi pensas, ke vi eldevigos vivon
+gu ilin! ĉu vi pensas, ke vi eldevigos vivon
 
-el ili? Ho, mi ne suferos tion. 
+el ili? Ho, mi ne suferos tion.
 
 *li fermas la fenestron*
 
 — Ne, ne, vi devas serĉi, vi devas vivi, —
 
-nur se mi ne estus tiel maljuna\! ĉu mi ne
+nur se mi ne estus tiel maljuna! ĉu mi ne
 
-tro maljuniĝas? 
+tro maljuniĝas?
 
 *li rigardas en la spegulon*
 
-Vizaĝo, mizera vizaĝo\! Bildo de la lasta
+Vizaĝo, mizera vizaĝo! Bildo de la lasta
 
-homo\! Vidigu vin, vidigu, tiel longe mi ne
+homo! Vidigu vin, vidigu, tiel longe mi ne
 
-vidis homan vizaĝon\! Homan rideton\! Kio, 
+vidis homan vizaĝon! Homan rideton! Kio,
 
 ĉu tio ĉi estas ekrideto? ĉu tiuj flavaj kla-
 
@@ -9302,31 +9021,29 @@ kantaj dentoj? Okuloj, kiamaniere vi pal-
 
 pebrumas? Fi, fi, tio estas maljunulaj lar-
 
-moj, malaperu\! Vi ne kapablas plu teni
+moj, malaperu! Vi ne kapablas plu teni
 
-vian sukon, hontu\! Kaj vi moliĝintaj, blu-
+vian sukon, hontu! Kaj vi moliĝintaj, blu-
 
 iĝintaj lipoj, kion vi balbutas? Kiel vi tre-
 
 mas, vi makulita mentono? ĉu tio ĉi estas
 
-la lasta homo? 
+la lasta homo?
 
 *li forturnas sin*
 
-Mi ne plu volas vidi iun\! 
+Mi ne plu volas vidi iun!
 
 *li eksidas ĉe la tablo*
 
-132
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-Ne, ne, nur serĉi\! Malbenitaj formuloj, re-
+Ne, ne, nur serĉi! Malbenitaj formuloj, re-
 
-viviĝu\! 
+viviĝu!
 
 *li foliumas*
 
@@ -9338,7 +9055,7 @@ Ne ellernos? —
 
 **Alquist**
 
-Eniru\! 
+Eniru!
 
 *eniras ROBOTA SERVISTO kaj haltas apud*
 
@@ -9346,45 +9063,45 @@ Eniru\!
 
 **Alquist**
 
-Kio estas? 
+Kio estas?
 
 **Servisto**
 
 Sinjoro, la Centra Robota Komitato aten-
 
-das, kiam vi akceptos ĝin. 
+das, kiam vi akceptos ĝin.
 
 **Alquist**
 
-Mi volas vidi neniun. 
+Mi volas vidi neniun.
 
 **Servisto**
 
-Sinjoro, alvenis Damon el Haver. 
+Sinjoro, alvenis Damon el Haver.
 
 **Alquist**
 
-Li atendu\! 
+Li atendu!
 
 *li turnas sin rapide*
 
-ĉu mi ne diris al vi, ke vi serĉu homojn? 
+ĉu mi ne diris al vi, ke vi serĉu homojn?
 
-Trovu al mi homojn\! Trovu al mi virojn kaj
+Trovu al mi homojn! Trovu al mi virojn kaj
 
-virinojn\! Iru serĉi\! 
+virinojn! Iru serĉi!
 
 **Servisto**
 
-Sinjoro, ili diras, ke ili serĉis ĉie. ĉien ili sendis ekspediciojn kaj ŝipojn. 
+Sinjoro, ili diras, ke ili serĉis ĉie. ĉien ili sendis ekspediciojn kaj ŝipojn.
 
 **Alquist**
 
-Nu, kaj kio? 
+Nu, kaj kio?
 
 **Servisto**
 
-Ne plu ekzistas eĉ unusola homo. 
+Ne plu ekzistas eĉ unusola homo.
 
 **Alquist**
 
@@ -9392,13 +9109,11 @@ Ne plu ekzistas eĉ unusola homo.
 
 Eĉ ne unusola? Kion, eĉ ne unu sola? —
 
-Venigu la Komitaton ĉi tien\! 
+Venigu la Komitaton ĉi tien!
 
-133
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *la SERVISTO foriras*
 
@@ -9408,27 +9123,27 @@ eLIBRO
 
 ĉu eĉ ne unusola? ĉu vi lasis neniun viv-
 
-anta? 
+anta?
 
 *li piedfrapas*
 
-For, Robotoj\! Ree vi plorpetos min\! Ree vi
+For, Robotoj! Ree vi plorpetos min! Ree vi
 
 petos, ke mi trovu al vi la fabrikan sekre-
 
-ton\! Kio do, ĉu nun vi bezonas homon, ĉu
+ton! Kio do, ĉu nun vi bezonas homon, ĉu
 
-nun li helpu al vi? — A˛, helpi\! Domin, Fa-
+nun li helpu al vi? — A˛, helpi! Domin, Fa-
 
 bry, Helena, vi vidas ja, ke mi faras, kion
 
-mi povas\! Se ne estas homoj, estu almenaŭ
+mi povas! Se ne estas homoj, estu almenaŭ
 
 Robotoj, almenaŭ ombro de la homo, al-
 
-menaŭ lia fabrikaĵo, almenaŭ lia imitaĵo\! —
+menaŭ lia fabrikaĵo, almenaŭ lia imitaĵo! —
 
-Ho, kiel frenezo estas kemio\! 
+Ho, kiel frenezo estas kemio!
 
 *eniras KOMITATO da kvin Robotoj*
 
@@ -9436,59 +9151,53 @@ Ho, kiel frenezo estas kemio\!
 
 *eksidas*
 
-Kion volas la Robotoj? 
+Kion volas la Robotoj?
 
-**La unua Roboto** *\(Radius\)*
+**La unua Roboto** *(Radius)*
 
 Sinjoro, la maŝinoj ne povas labori. Ni ne
 
-kapablas multigi Robotojn. 
+kapablas multigi Robotojn.
 
 **Alquist**
 
-Alvoku homojn. 
+Alvoku homojn.
 
 **Radius**
 
-Homoj ne ekzistas. 
+Homoj ne ekzistas.
 
 **Alquist**
 
 Nur homoj kapablas multigi vivon. Ne
 
-malhelpu min. 
-
+malhelpu min.
 
 
 ## 2. Roboto
 
-Sinjoro, kompatu nin. Teruro ekkaptas nin. 
+Sinjoro, kompatu nin. Teruro ekkaptas nin.
 
-Ni igos bona ĉion, kion ni faris. 
+Ni igos bona ĉion, kion ni faris.
 
-134
 
-R. U. R. 
-
-eLIBRO
-
+R. U. R.
 
 
 ## 3. Roboto
 
 Ni multobligis la laboron. Ne plu sufiĉas la
 
-ejoj por deponi la fabrikaĵojn. 
+ejoj por deponi la fabrikaĵojn.
 
 **Alquist**
 
-Por kiu? 
-
+Por kiu?
 
 
 ## 3. Roboto
 
-Por la venontaj generacioj. 
+Por la venontaj generacioj.
 
 **Radius**
 
@@ -9500,36 +9209,32 @@ no. Haŭto ne adhesas al karno, kaj karno
 
 al ostoj. Senformaj bulamasoj pluvas el la
 
-maŝinoj. 
-
+maŝinoj.
 
 
 ## 3. Roboto
 
 La homoj konis la sekreton de la vivo. Diru
 
-al ni ilian sekreton. 
-
+al ni ilian sekreton.
 
 
 ## 4. Roboto
 
-Se vi ne diros, ni pereos. 
-
+Se vi ne diros, ni pereos.
 
 
 ## 3. Roboto
 
 Se vi ne diros, vi pereos. Ni havas ordonon
 
-mortigi vin. 
+mortigi vin.
 
 **Alquist**
 
 *ekstaras*
 
-Mortigu\! Nu, do mortigu min\! 
-
+Mortigu! Nu, do mortigu min!
 
 
 ## 3. Roboto
@@ -9538,27 +9243,25 @@ Oni ordonas al vi —
 
 **Alquist**
 
-Al mi? ĉu al mi ordonas iu? 
-
+Al mi? ĉu al mi ordonas iu?
 
 
 ## 3. Roboto
 
-La Robota registaro. 
+La Robota registaro.
 
 **Alquist**
 
-Kiu ĝi estas? 
-
+Kiu ĝi estas?
 
 
 ## 5. Roboto
 
-Mi, Damon. 
+Mi, Damon.
 
 **Alquist**
 
-Kion vi volas ĉi tie? Iru\! 
+Kion vi volas ĉi tie? Iru!
 
 *li sidiĝas al la skribtablo*
 
@@ -9566,17 +9269,15 @@ Kion vi volas ĉi tie? Iru\!
 
 La Robota registaro de la mondo volas in-
 
-tertrakti kun vi. 
+tertrakti kun vi.
 
-135
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
-Ne malhelpu, Roboto\! 
+Ne malhelpu, Roboto!
 
 *li metas la kapon en la manplatojn*
 
@@ -9584,7 +9285,7 @@ Ne malhelpu, Roboto\!
 
 La Centra Komitato ordonas, ke vi elmani-
 
-gu la recepton de Rossum. 
+gu la recepton de Rossum.
 
 **Alquist**
 
@@ -9592,117 +9293,107 @@ gu la recepton de Rossum.
 
 **Damon**
 
-Postulu prezon. Ni donos al vi ĉion. 
-
+Postulu prezon. Ni donos al vi ĉion.
 
 
 ## 2. Roboto
 
 Sinjoro, diru, kiamaniere oni povas daŭrigi
 
-la vivon. 
+la vivon.
 
 **Alquist**
 
-Mi diris — mi diris, ke vi trovu homojn. 
+Mi diris — mi diris, ke vi trovu homojn.
 
 Nur homoj kapablas naskigi. Renovigi vi-
 
 von. Redoni ĉion, kio estis. Robotoj, pro
 
-Dio mi petas, serĉu ilin\! 
-
+Dio mi petas, serĉu ilin!
 
 
 ## 4. Roboto
 
 ĉion ni traserĉis, sinjoro. Homoj ne ekzis-
 
-tas. 
+tas.
 
 **Alquist**
 
-Ho — ho — ho, kial vi pereigis ilin\! 
-
+Ho — ho — ho, kial vi pereigis ilin!
 
 
 ## 2. Roboto
 
 Ni volis esti kiel homoj. Ni volis fariĝi ho-
 
-moj. 
+moj.
 
 **Radius**
 
-Ni volis vivi. Ni estis pli kapablaj. Ni ellernis ĉion. Ni scipovas ĉion. 
-
+Ni volis vivi. Ni estis pli kapablaj. Ni ellernis ĉion. Ni scipovas ĉion.
 
 
 ## 3. Roboto
 
 Vi donis al ni armilojn. Ni devis fariĝi
 
-estroj. 
-
+estroj.
 
 
 ## 4. Roboto
 
 Sinjoro, ni ekkonis la karaktermankojn de
 
-la homoj. 
+la homoj.
 
-136
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Damon**
 
 Oni devas mortigi kaj estri, se oni volas
 
-esti kiel homoj. Legu la historion\! Legu la
+esti kiel homoj. Legu la historion! Legu la
 
-homajn librojn\! Vi devas estri kaj murdi, se
+homajn librojn! Vi devas estri kaj murdi, se
 
-vi volas esti homoj\! 
+vi volas esti homoj!
 
 **Alquist**
 
 A˛, Damon, nenio estas pli fremda al la
 
-homo, ol lia bildo. 
-
+homo, ol lia bildo.
 
 
 ## 4. Roboto
 
 Ni formortos, se vi ne ebligos, ke ni multi-
 
-gu nin. 
+gu nin.
 
 **Alquist**
 
-Ho, mortaĉu nur\! Kio do, vi aĵoj, kio do, vi
+Ho, mortaĉu nur! Kio do, vi aĵoj, kio do, vi
 
 sklavoj, vi volus ankoraŭ multigi vin? Se vi
 
-volas vivi, reproduktigu vin kiel bestoj\! 
-
+volas vivi, reproduktigu vin kiel bestoj!
 
 
 ## 3. Roboto
 
 La homoj ne kapabligis nin, ke ni repro-
 
-duktiĝu. 
-
+duktiĝu.
 
 
 ## 4. Roboto
 
-Instruu al ni fabriki Robotojn. 
+Instruu al ni fabriki Robotojn.
 
 **Damon**
 
@@ -9710,16 +9401,15 @@ Ni naskos per maŝino. Ni konstruos mil
 
 vaporajn patrinojn. Ni fluegigos el ili rive-
 
-ron da vivo. Nuran vivon\! Nurajn Robo-
+ron da vivo. Nuran vivon! Nurajn Robo-
 
-tojn\! Solajn Robotojn\! 
+tojn! Solajn Robotojn!
 
 **Alquist**
 
 Robotoj ne estas vivo. Robotoj estas maŝi-
 
-noj. 
-
+noj.
 
 
 ## 2. Roboto
@@ -9730,33 +9420,27 @@ kaj doloro ni fariĝis —
 
 **Alquist**
 
-Kio? 
-
+Kio?
 
 
 ## 2. Roboto
 
-Ni fariĝis animoj. 
+Ni fariĝis animoj.
 
-137
 
-R. U. R. 
-
-eLIBRO
-
+R. U. R.
 
 
 ## 4. Roboto
 
 Io luktas kun ni. Estas momentoj, kiam io
 
-eniras nin. Venas al ni pensoj, kiuj ne estas el ni. 
-
+eniras nin. Venas al ni pensoj, kiuj ne estas el ni.
 
 
 ## 3. Roboto
 
-Aŭdu, ho aŭdu, la homoj estas niaj patroj\! 
+Aŭdu, ho aŭdu, la homoj estas niaj patroj!
 
 Tiu voĉo, kiu vokas, ke oni volas vivi; tiu
 
@@ -9764,97 +9448,94 @@ voĉo, kiu plendas; tiu voĉo, kiu pensas; tiu
 
 voĉo, kiu parolas pri eterneco, estas ilia
 
-voĉo\! Ni estas iliaj filoj\! 
-
+voĉo! Ni estas iliaj filoj!
 
 
 ## 4. Roboto
 
-Donu al ni la heredaĵon de homoj. 
+Donu al ni la heredaĵon de homoj.
 
 **Alquist**
 
-¯i ne ekzistas. 
+i ne ekzistas.
 
 **Damon**
 
-Diru la sekreton de la vivo. 
+Diru la sekreton de la vivo.
 
 **Alquist**
 
-Mi ne kapablas. 
+Mi ne kapablas.
 
 **Damon**
 
-Diru la sekreton de multigado. 
+Diru la sekreton de multigado.
 
 **Alquist**
 
-¯i estas perdita. 
+i estas perdita.
 
 **Radius**
 
-Vi konis ĝin. 
+Vi konis ĝin.
 
 **Alquist**
 
-Mi ne konis. 
+Mi ne konis.
 
 **Radius**
 
-¯i estis skribita. 
+i estis skribita.
 
 **Alquist**
 
-¯i estas perdita. Forbrulita. Mi estas la las-ta homo, Robotoj, kaj mi ne scias, kion
+i estas perdita. Forbrulita. Mi estas la las-ta homo, Robotoj, kaj mi ne scias, kion
 
-konis la aliaj. Vi mortigis ilin\! 
+konis la aliaj. Vi mortigis ilin!
 
 **Radius**
 
-**Vin **ni lasis vivi. 
+**Vin **ni lasis vivi.
 
 **Alquist**
 
-Jes, vivi\! Krueluloj, **min **vi lasis vivi\! Mi amis la homojn, kaj vin, Robotoj, mi amis
+Jes, vivi! Krueluloj, **min **vi lasis vivi! Mi amis la homojn, kaj vin, Robotoj, mi amis
 
 neniam. ĉu vi vidas ĉi tiujn okulojn? Ili ne
 
 ĉesas plori; unu priploras la homojn, kaj la
 
-dua vin, Robotoj. 
+dua vin, Robotoj.
 
-138
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Radius**
 
 Faru eksperimentojn. Serĉu la recepton de
 
-la vivo. 
+la vivo.
 
 **Alquist**
 
 Mi ne havas, kion mi serĉu. Robotoj, el
 
-epruvetoj ne eliros vivo. 
+epruvetoj ne eliros vivo.
 
 **Damon**
 
-Faru eksperimentojnj je vivaj Robotoj. 
+Faru eksperimentojnj je vivaj Robotoj.
 
-Trovu, kiamaniere ili estas fabrikotaj. 
+Trovu, kiamaniere ili estas fabrikotaj.
 
 **Alquist**
 
 ĉu vivajn korpojn? Kion, ĉu mi mortigu
 
-ilin? Mi, kiu neniam — ne parolu, Roboto\! 
+ilin? Mi, kiu neniam — ne parolu, Roboto!
 
-Mi diras ja al vi, ke mi estas tro maljuna\! 
+Mi diras ja al vi, ke mi estas tro maljuna!
 
 ĉu vi vidas, ĉu vi vidas, kiel tremas miaj
 
@@ -9864,13 +9545,12 @@ vi vidas, kiel larmas miaj okuloj? Mi eĉ ne
 
 vidus la proprajn manojn. Ne, ne, mi ne
 
-kapablas\! 
-
+kapablas!
 
 
 ## 4. Roboto
 
-La vivo pereos. 
+La vivo pereos.
 
 **Alquist**
 
@@ -9882,33 +9562,31 @@ mondo; eble ili etendas al ni la manojn
 
 plenajn da vivo. A˛, en ili estis tiom da
 
-volo vivi\! Rigardu, eble ili revenos anko-
+volo vivi! Rigardu, eble ili revenos anko-
 
 raŭ; ili estas tiel proksime al ni, ili eble
 
 sieĝas nin; ili penadas trafosi sin al ni kiel en ŝakto. A˛, ĉu mi ne aŭdas ĉiam la
 
-voĉojn, kiujn mi amis? 
+voĉojn, kiujn mi amis?
 
 **Damon**
 
-Prenu vivajn korpojn\! 
+Prenu vivajn korpojn!
 
-139
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
-Kompatu, Roboto, kaj ne insistu\! Vi vidas
+Kompatu, Roboto, kaj ne insistu! Vi vidas
 
-ja, ke mi ne scias plu, kion mi faras\! 
+ja, ke mi ne scias plu, kion mi faras!
 
 **Damon**
 
-Vivajn korpojn\! 
+Vivajn korpojn!
 
 **Alquist**
 
@@ -9916,19 +9594,19 @@ Kion? Do vi volas tion? — En la sekcejon
 
 kun vi? Tien, tien, sed rapide? — Kio, ĉu vi
 
-hezitas? ĉu tamen nur vi timas la morton? 
+hezitas? ĉu tamen nur vi timas la morton?
 
 **Damon**
 
-ĉu mi — kial ĝuste mi? 
+ĉu mi — kial ĝuste mi?
 
 **Alquist**
 
-ĉu vi do ne volas? 
+ĉu vi do ne volas?
 
 **Damon**
 
-Mi iros. 
+Mi iros.
 
 *li iras dekstren*
 
@@ -9936,9 +9614,9 @@ Mi iros.
 
 *al la ceteraj*
 
-Senvestiigu lin\! Metu sur la tablon\! Rap-
+Senvestiigu lin! Metu sur la tablon! Rap-
 
-ide\! Kaj firme tenu\! 
+ide! Kaj firme tenu!
 
 *ĉiuj dekstren*
 
@@ -9946,41 +9624,39 @@ ide\! Kaj firme tenu\!
 
 *lavas siajn manojn kaj ploras*
 
-Dio, donu forton al mi\! Donu forton al mi? 
+Dio, donu forton al mi! Donu forton al mi?
 
-Dio, ke tio ne estu senfrukta\! 
+Dio, ke tio ne estu senfrukta!
 
 *li surmetas blankan mantelon*
 
 **Voĉo dekstre**
 
-Prete\! 
+Prete!
 
 **Alquist**
 
-Tuj, tuj, pro Dio\! 
+Tuj, tuj, pro Dio!
 
 *li prenas de la tablo kelkajn boteletojn da* *reakciiloj*
 
-Kiun preni? 
+Kiun preni?
 
-*li interfrapetadas la boteletojn reciproke* Kiun el vi esplori? 
+*li interfrapetadas la boteletojn reciproke* Kiun el vi esplori?
 
 **Voĉo dekstre**
 
-Komencu\! 
+Komencu!
 
-140
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
 Jes, jes, komenci aŭ fini? Dio, donu forton
 
-al mi\! 
+al mi!
 
 *li foriras dekstren lasante la pordon*
 
@@ -9990,11 +9666,11 @@ al mi\!
 
 **Voĉo de Alquist**
 
-Tenu lin — firme\! 
+Tenu lin — firme!
 
 **Voĉo de Damon**
 
-Tranĉu\! 
+Tranĉu!
 
 *paŭzo*
 
@@ -10002,35 +9678,35 @@ Tranĉu\!
 
 ĉu vi vidas tiun tranĉilon? ĉu vi vo-
 
-las ankoraŭ, ke mi tranĉu? Vi ne volas, ĉu? 
+las ankoraŭ, ke mi tranĉu? Vi ne volas, ĉu?
 
 **Voĉo de Damon**
 
-Komencu\! 
+Komencu!
 
 *paŭzo*
 
 **Voĉo de Damon**
 
-A-a-a-a? 
+A-a-a-a?
 
 **Voĉo de Alquist**
 
-Tenu? Tenu? 
+Tenu? Tenu?
 
-**Ekkrio de Damon **A-a-a-a?? 
+**Ekkrio de Damon **A-a-a-a??
 
 **Voĉo de Alquist**
 
-Mi ne kapablas? 
+Mi ne kapablas?
 
-**Ekkrio de Damon **Tranĉu\! Tranĉu rapide\! 
+**Ekkrio de Damon **Tranĉu! Tranĉu rapide!
 
 *Robotoj PRIMUS kaj HELENA enkuras meze*
 
 **Helena**
 
-Primus, Primus, kio okazas? Kiu krias? 
+Primus, Primus, kio okazas? Kiu krias?
 
 **Primus**
 
@@ -10038,43 +9714,41 @@ Primus, Primus, kio okazas? Kiu krias?
 
 La sinjoro sekcas Damonon. Helena, venu
 
-rapide rigardi\! 
+rapide rigardi!
 
 **Helena**
 
-Ne ne ne\! 
+Ne ne ne!
 
 *ŝi kovras siajn okulojn*
 
-Tio estas terrrura? 
+Tio estas terrrura?
 
-**Ekkrio de Damon **Tranĉu\! 
+**Ekkrio de Damon **Tranĉu!
 
-141
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Primus, Primus, ni foriru\! Mi ne povas
+Primus, Primus, ni foriru! Mi ne povas
 
 aŭskulti tion? Ho, Primus, mi sentas naŭ-
 
-zon\! 
+zon!
 
 **Primus**
 
 *kuras al ŝi*
 
-Vi estas tute pala\! 
+Vi estas tute pala!
 
 **Helena**
 
-Mi falos\! Kial estas tiel mallaŭte tie? 
+Mi falos! Kial estas tiel mallaŭte tie?
 
-**Ekkrioj de Damon **A-a-a-a\! — O-o-o-o\! 
+**Ekkrioj de Damon **A-a-a-a! — O-o-o-o!
 
 *ALQUIST enkuregas de dekstre, forĵetas*
 
@@ -10082,79 +9756,77 @@ Mi falos\! Kial estas tiel mallaŭte tie?
 
 **Alquist**
 
-Mi ne kapablas\! Mi ne kapablas? Ho, Dio, 
+Mi ne kapablas! Mi ne kapablas? Ho, Dio,
 
-kia teruro\! 
+kia teruro!
 
 **Radius**
 
 *en la pordo de la sekcejo*
 
-Tranĉu, sinjoro; li vivas ankoraŭ. 
+Tranĉu, sinjoro; li vivas ankoraŭ.
 
 **Krioj de Damon**
 
-Tranĉu\! Tranĉu\! 
+Tranĉu! Tranĉu!
 
 **Alquist**
 
-Forportu lin rapide\! Mi ne volas tion aŭdi\! 
+Forportu lin rapide! Mi ne volas tion aŭdi!
 
 **Radius**
 
-Robotoj kapablas suferi pli ol vi. 
+Robotoj kapablas suferi pli ol vi.
 
 *li foriras*
 
 **Alquist**
 
-Kiu estas ĉi tie? For, for\! Mi volas esti sola\! 
+Kiu estas ĉi tie? For, for! Mi volas esti sola!
 
-Kiun nomon vi havas? 
+Kiun nomon vi havas?
 
 **Primus**
 
-Roboto Primus. 
+Roboto Primus.
 
 **Alquist**
 
-Primus, neniun enlasu ĉi tien\! Mi volas
+Primus, neniun enlasu ĉi tien! Mi volas
 
 dormi, ĉu vi aŭdas? Iru, iru, ordigu la sek-
 
-cejon, knabino\! Kio estas tio? 
+cejon, knabino! Kio estas tio?
 
 *li rigardas siajn manojn*
 
-Rapide, akvon\! Plej puran akvon\! 
+Rapide, akvon! Plej puran akvon!
 
-142
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-*forkuras*. 
+*forkuras*.
 
 **Alquist**
 
-Ho, sango\! Kiel vi kapablis, manoj —
+Ho, sango! Kiel vi kapablis, manoj —
 
 manoj, vi, kiuj amis bonan laboron, kiel vi
 
-kapablis fari fion? Miaj manoj\! Miaj
+kapablis fari fion? Miaj manoj! Miaj
 
-manoj\! — Ho Dio, kiu estas ĉi tie? 
+manoj! — Ho Dio, kiu estas ĉi tie?
 
 **Primus**
 
-Roboto Primus. 
+Roboto Primus.
 
 **Alquist**
 
-Portu for la mantelon, mi ne volas vidi ĝin\! 
+Portu for la mantelon, mi ne volas vidi ĝin!
 
 **Primus**
 
@@ -10162,9 +9834,9 @@ Portu for la mantelon, mi ne volas vidi ĝin\!
 
 **Alquist**
 
-Sangaj ungegoj, se vi forflugus for de mi\! 
+Sangaj ungegoj, se vi forflugus for de mi!
 
-Fŝŝŝ, for\! For, manoj\! Vi mortigis —
+Fŝŝŝ, for! For, manoj! Vi mortigis —
 
 *De dekstre ŝanceliras DAMON vualita en*
 
@@ -10174,23 +9846,23 @@ Fŝŝŝ, for\! For, manoj\! Vi mortigis —
 
 *returniras*
 
-Kion vi volas ĉi tie? Kion vi volas ĉi tie? 
+Kion vi volas ĉi tie? Kion vi volas ĉi tie?
 
 **Damon**
 
-Mi vi-vivas\! Es — es — tas pli bone vivi\! 
+Mi vi-vivas! Es — es — tas pli bone vivi!
 
 *2. kaj 3. ROBOTOJ enkuras post li*
 
 **Alquist**
 
-Forportu lin\! Forportu\! Forportu rapide\! 
+Forportu lin! Forportu! Forportu rapide!
 
 **Damon**
 
 *forkondukata dekstren*
 
-Vivon\! — Mi — vo — las vi — vi\! Es — tas
+Vivon! — Mi — vo — las vi — vi! Es — tas
 
 pli bone —
 
@@ -10200,49 +9872,47 @@ pli bone —
 
 **Alquist**
 
-— ĉu vivi? — Kion vi volas, knabino? Aha, 
+— ĉu vivi? — Kion vi volas, knabino? Aha,
 
-tio estas vi. Enverŝu akvon al mi, enverŝu\! 
+tio estas vi. Enverŝu akvon al mi, enverŝu!
 
 *li lavas siajn manojn*
 
-A˛, pura, malvarmiganta akvo\! Malvarma
+A˛, pura, malvarmiganta akvo! Malvarma
 
-rivereto, kiel vi bonfaras\! A˛, miaj manoj, 
+rivereto, kiel vi bonfaras! A˛, miaj manoj,
 
-143
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-miaj manoj\! ĉu vi naŭzos min ĝis la mor-
+miaj manoj! ĉu vi naŭzos min ĝis la mor-
 
-to? — Nur enverŝu pli\! Pli multe da akvo, 
+to? — Nur enverŝu pli! Pli multe da akvo,
 
-ankoraŭ pli\! Kiel oni nomas vin? 
+ankoraŭ pli! Kiel oni nomas vin?
 
 **Helena**
 
-Robotino Helena. 
+Robotino Helena.
 
 **Alquist**
 
 Helena? Kial Helena? Kiu ordonis, ke vi
 
-estu tiel nomata? 
+estu tiel nomata?
 
 **Helena**
 
-Sinjorino Domin. 
+Sinjorino Domin.
 
 **Alquist**
 
-Montru vin\! ĉu Helena? ĉu oni nomas vin
+Montru vin! ĉu Helena? ĉu oni nomas vin
 
 Helena? — Mi ne nomos vin tiel. Iru, portu
 
-for la akvon. 
+for la akvon.
 
 **Helena**
 
@@ -10252,43 +9922,41 @@ for la akvon.
 
 *sola*
 
-Vane, vane\! Nenion, ree nenion vi eksciis\! 
+Vane, vane! Nenion, ree nenion vi eksciis!
 
 ĉu vi eterne blinde palpos, lernisteto de la
 
 Naturo? — Ho, Dio, Dio, Dio, kiel tremis
 
-tiu korpo\! 
+tiu korpo!
 
 *li malfermas la fenestron*
 
-Tagiĝas\! Ree nova tago kaj vi ne progresis
+Tagiĝas! Ree nova tago kaj vi ne progresis
 
-eĉ je ungo. — Sufiĉe, eĉ ne paŝon pluen\! 
+eĉ je ungo. — Sufiĉe, eĉ ne paŝon pluen!
 
-Ne serĉu\! ĉio estas vane, vane, vane\! Kial
+Ne serĉu! ĉio estas vane, vane, vane! Kial
 
 ankoraŭ tagiĝas? Ho — ho — ho, kion vo-
 
-las la nova tago sur la tombejo de la vivo? 
+las la nova tago sur la tombejo de la vivo?
 
-ĉesu brili, lumo\! Ne aperu plu\! — — A˛, 
+ĉesu brili, lumo! Ne aperu plu! — — A˛,
 
-kiel silente estas, kiel silente estas\! Kial vi silentiĝis, amataj voĉoj? Se mi — almenaŭ
+kiel silente estas, kiel silente estas! Kial vi silentiĝis, amataj voĉoj? Se mi — almenaŭ
 
-— se mi nur ekdormus\! 
+— se mi nur ekdormus!
 
-144
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *li estingas la lampojn, kuŝigas sin sur la sofon* *kaj kovras sin per nigra mantelo*
 
-Kiel tremis tiu korpo\! Ho — ho — ho, fino
+Kiel tremis tiu korpo! Ho — ho — ho, fino
 
-de la vivo\! 
+de la vivo!
 
 *paŭzo*
 
@@ -10296,69 +9964,67 @@ de la vivo\!
 
 **Helena**
 
-Primus, venu ĉi tien rapide\! 
+Primus, venu ĉi tien rapide!
 
 **Primus**
 
 *eniras*
 
-Kion vi volas? 
+Kion vi volas?
 
 **Helena**
 
-Rigardu, kiom da tubetoj li havas ĉi tie\! 
+Rigardu, kiom da tubetoj li havas ĉi tie!
 
-Kion li faras kun tio? 
+Kion li faras kun tio?
 
 **Primus**
 
-Eksperimentojn. Ne tuŝu tion. 
+Eksperimentojn. Ne tuŝu tion.
 
 **Helena**
 
 *rigardas en mikroskopon*
 
-Rigardu nur, kion oni povas vidi ĉi tie\! 
+Rigardu nur, kion oni povas vidi ĉi tie!
 
 **Primus**
 
-Tio estas mikroskopo. Montru\! 
+Tio estas mikroskopo. Montru!
 
 **Helena**
 
-Ne tuŝu min\! 
+Ne tuŝu min!
 
 *ŝi faligas epruveton*
 
-A˛, nun mi elverŝis tion\! 
+A˛, nun mi elverŝis tion!
 
 **Primus**
 
-Kion vi faris\! 
+Kion vi faris!
 
 **Helena**
 
-Oni forviŝos tion. 
+Oni forviŝos tion.
 
 **Primus**
 
-Vi malebligis eksperimentojn al li\! 
+Vi malebligis eksperimentojn al li!
 
 **Helena**
 
 Nu, estas egale. Sed tio estas via kulpo. Vi
 
-ne devis veni al mi. 
+ne devis veni al mi.
 
 **Primus**
 
-Vi ne devis voki min. 
+Vi ne devis voki min.
 
-145
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -10366,45 +10032,45 @@ Vi ne devis veni, kiam mi vokis vin. Rigar-
 
 du nur, Primus, kio ĉi tie estas skribita de
 
-la sinjoro\! 
+la sinjoro!
 
 **Primus**
 
 Tion vi ne darfas rigardi, Helena. Tio estas
 
-sekreto. 
+sekreto.
 
 **Helena**
 
-Kia sekreto? 
+Kia sekreto?
 
 **Primus**
 
-Sekreto de la vivo. 
+Sekreto de la vivo.
 
 **Helena**
 
-Tio estas terrrure interesa. Nur ciferoj\! Kio estas tio? 
+Tio estas terrrure interesa. Nur ciferoj! Kio estas tio?
 
 **Primus**
 
-Tio estas formuloj. 
+Tio estas formuloj.
 
 **Helena**
 
-Mi ne komprenas. 
+Mi ne komprenas.
 
 *ŝi iras al la fenestro*
 
-A˛, Primus, rigardu nur\! 
+A˛, Primus, rigardu nur!
 
 **Primus**
 
-Kion? 
+Kion?
 
 **Helena**
 
-La suno leviĝas\! 
+La suno leviĝas!
 
 **Primus**
 
@@ -10412,11 +10078,11 @@ Atendu, mi tuj —
 
 *li trarigardas libron*
 
-Helena, ĉi tio estas la plej grava afero en la mondo. 
+Helena, ĉi tio estas la plej grava afero en la mondo.
 
 **Helena**
 
-Do venu ĉi tien\! 
+Do venu ĉi tien!
 
 **Primus**
 
@@ -10426,45 +10092,43 @@ Tuj, tuj —
 
 Do, Primus, lasu tiun abomenan sekreton
 
-de la vivo\! Kiom koncernas vin iu sekreto? 
+de la vivo! Kiom koncernas vin iu sekreto?
 
-Venu rigardi, rapide\! 
+Venu rigardi, rapide!
 
 **Primus**
 
 *sekvas ŝin al la fenestro*
 
-Kion vi volas? 
+Kion vi volas?
 
-146
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
 ĉu vi aŭdas? Birdoj kantas. A˛, Primus, mi
 
-volus esti birdo\! 
+volus esti birdo!
 
 **Primus**
 
-Kio? 
+Kio?
 
 **Helena**
 
 Mi ne scias, Primus. Al mi estas tiel
 
-strange, mi ne scias, kion signifas tio. 
+strange, mi ne scias, kion signifas tio.
 
 Mi estas kvazaŭ stulteta, mi perdis la ka-
 
-pon, la korpo doloras, la koro, ĉio doloras. 
+pon, la korpo doloras, la koro, ĉio doloras.
 
 — Kaj kio okazis al mi, a˛, tion mi ne diros
 
-al vi\! Primus, mi verŝajne estas mortonta\! 
+al vi! Primus, mi verŝajne estas mortonta!
 
 **Primus**
 
@@ -10474,11 +10138,11 @@ preson, kvazaŭ estus pli bone morti? ĉu vi
 
 komprenas, eble ni dormas nur. Hieraŭ
 
-dum la dormo mi parolis kun vi. 
+dum la dormo mi parolis kun vi.
 
 **Helena**
 
-Dum la dormo? 
+Dum la dormo?
 
 **Primus**
 
@@ -10486,11 +10150,11 @@ Dum la dormo. Ni parolis iun fremdan aŭ
 
 novan lingvon, ĉar mi rememoras eĉ ne
 
-unu vorton. 
+unu vorton.
 
 **Helena**
 
-Pri kio? 
+Pri kio?
 
 **Primus**
 
@@ -10500,13 +10164,11 @@ tion kaj tamen mi scias, ke mi neniam pa-
 
 rolis ion pli belan. Kiel kaj kie tio estis, mi ne scias. Kiam mi ektuŝis vin, mi ŝatus
 
-morti. Eĉ la loko estis alia ol ĉio, kion oni vidis en la mondo. 
+morti. Eĉ la loko estis alia ol ĉio, kion oni vidis en la mondo.
 
-147
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
@@ -10516,11 +10178,11 @@ loĝadis homoj, sed nun ĝi estas plena de
 
 kreskaĵoj kaj neniu venos tien dum la tuta
 
-vivo. Neniu, neniam, nur mi. 
+vivo. Neniu, neniam, nur mi.
 
 **Primus**
 
-Kio estas tie? 
+Kio estas tie?
 
 **Helena**
 
@@ -10528,33 +10190,33 @@ Nenio, dometo kaj ĝardeno. Kaj du hun-
 
 doj. Se vi vidus, kiel ili lekas miajn manojn, kaj iliaj hundidoj, a˛, Primus, nenio eble
 
-estas pli bela\! Vi prenas ilin sur la genuojn kaj lulas ilin kaj poste vi jam pensas pri nenio kaj zorgas pri nenio, ĝis la suno estas
+estas pli bela! Vi prenas ilin sur la genuojn kaj lulas ilin kaj poste vi jam pensas pri nenio kaj zorgas pri nenio, ĝis la suno estas
 
 malleviĝinta; kiam vi poste stariĝas, vi ha-
 
 vas la impreson, kvazaŭ vi estus farinta
 
-centoble pli ol multon da laboro. Ne, certe, 
+centoble pli ol multon da laboro. Ne, certe,
 
 mi taŭgas por nenio; ĉiu diras, ke mi taŭ-
 
 gas por neniu laboro. Mi ne scias, kia mi
 
-estas. 
+estas.
 
 **Primus**
 
-Vi estas bela. 
+Vi estas bela.
 
 **Helena**
 
-Mi? Haltu, Primus, kion vi diris? 
+Mi? Haltu, Primus, kion vi diris?
 
 **Primus**
 
 Kredu al mi, Helena, mi estas pli forta ol
 
-ĉiuj Robotoj. 
+ĉiuj Robotoj.
 
 **Helena**
 
@@ -10562,17 +10224,15 @@ Kredu al mi, Helena, mi estas pli forta ol
 
 ĉu efektive mi estas bela? A˛ tiuj terrruraj
 
-haroj, se mi povus ion igi en ilin\! Tie en la
+haroj, se mi povus ion igi en ilin! Tie en la
 
 ĝardeno, sciu, mi metas ĉiam florojn en la
 
 harojn, sed estas tie nek spegulo nek iu. —
 
-148
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *ŝi klinas sin al la spegulo*
 
@@ -10582,7 +10242,7 @@ tas belaj la haroj, kiuj nur ŝarĝas vin? ĉu
 
 estas belaj la okuloj, kiujn vi fermadas? ĉu
 
-estas belaj la lipoj, kiujn vi mordas nur, 
+estas belaj la lipoj, kiujn vi mordas nur,
 
 por ke tio doloru? Kio estas tio, por kio es-
 
@@ -10590,31 +10250,31 @@ tas tio esti bela? —
 
 *ŝi ekvidas Primuson en la spegulo*
 
-Primus, ĉu tio estas vi? Venu ĉi tien, por ke ni estu tie unu apud la alia\! Jen, vi havas
+Primus, ĉu tio estas vi? Venu ĉi tien, por ke ni estu tie unu apud la alia! Jen, vi havas
 
 alian kapon ol mi, aliajn ŝultrojn, alian
 
-buŝon. — A˛, Primus, kial vi evitas min? 
+buŝon. — A˛, Primus, kial vi evitas min?
 
 Kial mi devas kuradi post vi la tutan ta-
 
 gon? Kaj poste vi diras ankoraŭ, ke mi
 
-estas bela\! 
+estas bela!
 
 **Primus**
 
-Vi kuradas for de mi, Helena. 
+Vi kuradas for de mi, Helena.
 
 **Helena**
 
-Kiel vi kombis vin? Jen\! 
+Kiel vi kombis vin? Jen!
 
 *ŝi ŝovegas ambaŭ manojn en lian hararon*
 
-Sss, Primus, nenio estas pli palpinda, ol vi\! 
+Sss, Primus, nenio estas pli palpinda, ol vi!
 
-Atendu, vi devas esti bela\! 
+Atendu, vi devas esti bela!
 
 *ŝi prenas kombilon de la lavkesto kaj kombas* *la harojn de Primus sur la frunton*
 
@@ -10628,13 +10288,11 @@ via koro. Nun, nun devas io okazi —
 
 *ekridas*
 
-Rigardu vin\! 
+Rigardu vin!
 
-149
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
@@ -10642,19 +10300,19 @@ eLIBRO
 
 Kio — kio do, ĉu rido? ĉu homoj? Kiu re-
 
-venis? 
+venis?
 
 **Helena**
 
 *ellasas la kombilon*
 
-Kio povus fariĝi kun ni, Primus\! 
+Kio povus fariĝi kun ni, Primus!
 
 **Alquist**
 
 *ŝanceliras al ili*
 
-ĉu homoj? ĉu vi — vi — vi estas homoj? 
+ĉu homoj? ĉu vi — vi — vi estas homoj?
 
 **Helena**
 
@@ -10664,39 +10322,39 @@ Kio povus fariĝi kun ni, Primus\!
 
 ĉu vi estas gefianĉoj? ĉu homoj? De kie vi
 
-revenas? 
+revenas?
 
 *li pripalpas Primuson*
 
-Kiu vi estas? 
+Kiu vi estas?
 
 **Primus**
 
-Roboto Primus. 
+Roboto Primus.
 
 **Alquist**
 
-Kio? Montru vin, knabino\! Kiu vi estas? 
+Kio? Montru vin, knabino! Kiu vi estas?
 
 **Primus**
 
-Robotino Helena. 
+Robotino Helena.
 
 **Alquist**
 
-Robotino? Turnu vin\! Kion, ĉu vi hontas? 
+Robotino? Turnu vin! Kion, ĉu vi hontas?
 
 *li prenas ŝin je la ŝultro*
 
-Montru vin al mi, Robotino\! 
+Montru vin al mi, Robotino!
 
 **Primus**
 
-Oho, sinjoro, lasu ŝin\! 
+Oho, sinjoro, lasu ŝin!
 
 **Alquist**
 
-Kion, ĉu vi ŝirmas ŝin? — Eliru, knabino\! 
+Kion, ĉu vi ŝirmas ŝin? — Eliru, knabino!
 
 **Helena**
 
@@ -10704,51 +10362,49 @@ Kion, ĉu vi ŝirmas ŝin? — Eliru, knabino\!
 
 **Primus**
 
-Ni ne sciis, sinjoro, ke vi dormas ĉi tie. 
+Ni ne sciis, sinjoro, ke vi dormas ĉi tie.
 
 **Alquist**
 
-Kiam ŝi estis farita? 
+Kiam ŝi estis farita?
 
 **Primus**
 
-Antaŭ du jaroj. 
+Antaŭ du jaroj.
 
 **Alquist**
 
-ĉu de doktoro Gall? 
+ĉu de doktoro Gall?
 
 **Primus**
 
-Kiel mi. 
+Kiel mi.
 
-150
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Alquist**
 
 Nu do, kara Primus, mi — — — mi devas
 
-fari iajn eksperimentojn je Robotoj de Gall. 
+fari iajn eksperimentojn je Robotoj de Gall.
 
-Je tio bazas ĉio plua, ĉu vi komprenas? 
+Je tio bazas ĉio plua, ĉu vi komprenas?
 
 **Primus**
 
-Jes. 
+Jes.
 
 **Alquist**
 
 Bone, konduku tiun knabinon en la sekce-
 
-jon. Mi sekcos ŝin. 
+jon. Mi sekcos ŝin.
 
 **Primus**
 
-Helenan? 
+Helenan?
 
 **Alquist**
 
@@ -10756,57 +10412,55 @@ Nu kompreneble, mi diras ja al vi. Iru, pre-
 
 paru ĉion. — Nu do, ĉu fariĝos tiel? ĉu mi
 
-voku aliajn, ke ili alkonduku ŝin? 
+voku aliajn, ke ili alkonduku ŝin?
 
 **Primus**
 
 *prenas pezan pistilon*
 
-Se vi ekmovos vin, mi disbatos vian kapon\! 
+Se vi ekmovos vin, mi disbatos vian kapon!
 
 **Alquist**
 
-Nu do, disbatu\! Disbatu nur\! Kion faros
+Nu do, disbatu! Disbatu nur! Kion faros
 
-poste Robotoj? 
+poste Robotoj?
 
 **Primus**
 
 *genufalas*
 
-Sinjoro, prenu **min**\! Mi estas **same **fabrikita, kiel ŝi, el la **sama **materio, je la **sama** tago\! Prenu **mian **vivon, sinjoro\! 
+Sinjoro, prenu **min**! Mi estas **same **fabrikita, kiel ŝi, el la **sama **materio, je la **sama** tago! Prenu **mian **vivon, sinjoro!
 
 *li disigas la jakon*
 
-Tranĉu **ĉi tie**, **ĉi tie**\! 
+Tranĉu **ĉi tie**, **ĉi tie**!
 
 **Alquist**
 
-Iru, mi volas sekci Helenan. Rapidu\! 
+Iru, mi volas sekci Helenan. Rapidu!
 
 **Primus**
 
 Prenu **min**, anstataŭ **ŝin**; tranĉu en **ĉi tiun** bruston, mi eĉ ne ekkrios, mi eĉ ne ek-
 
-ĝemos\! Prenu centfoje **mian **vivon …
+ĝemos! Prenu centfoje **mian **vivon …
 
 **Alquist**
 
-Malrapide, knabo\! Ne tiel malŝpareme. ĉu
+Malrapide, knabo! Ne tiel malŝpareme. ĉu
 
-vi ne volas vivi? 
+vi ne volas vivi?
 
-151
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Primus**
 
-Sen ŝi ne. Sen ŝi mi ne volas, sinjoro. Vi ne rajtas mortigi Helenan\! Kio malhelpas vin, 
+Sen ŝi ne. Sen ŝi mi ne volas, sinjoro. Vi ne rajtas mortigi Helenan! Kio malhelpas vin,
 
-preni mian vivon? 
+preni mian vivon?
 
 **Alquist**
 
@@ -10814,7 +10468,7 @@ preni mian vivon?
 
 Hm, mi ne scias. Aŭdu, bravulo, pripensu
 
-tion. Estas malfacile morti. Kaj estas, vi vidas tion, estas pli bone vivi. 
+tion. Estas malfacile morti. Kaj estas, vi vidas tion, estas pli bone vivi.
 
 **Primus**
 
@@ -10822,7 +10476,7 @@ tion. Estas malfacile morti. Kaj estas, vi vidas tion, estas pli bone vivi.
 
 Ne timu, sinjoro, kaj tranĉu. Mi estas pli
 
-forta ol ŝi. 
+forta ol ŝi.
 
 **Alquist**
 
@@ -10830,25 +10484,25 @@ forta ol ŝi.
 
 A˛ Primus, kiel longe estas, kiam mi estis
 
-juna homo\! Ne timu, al Helena nenio oka-
+juna homo! Ne timu, al Helena nenio oka-
 
-zos. 
+zos.
 
 **Primus**
 
 *pluen disigas la jakon*
 
-Mi iras, sinjoro. 
+Mi iras, sinjoro.
 
 **Alquist**
 
-Atendu. 
+Atendu.
 
 *eniras HELENA*
 
 **Alquist**
 
-Venu ĉi tien, knabino, **vidigu vin** al mi\! ĉu vi do estas Helena? 
+Venu ĉi tien, knabino, **vidigu vin** al mi! ĉu vi do estas Helena?
 
 *li karesas ŝiajn harojn*
 
@@ -10856,47 +10510,45 @@ Ne timu, ne retiru vin. ĉu vi rememoras
 
 pri sinjorino Domin? A˛, Helena, kiajn ha-
 
-rojn ŝi havis\! Ne ne, vi ne volas min rigar-
+rojn ŝi havis! Ne ne, vi ne volas min rigar-
 
 di. Do kion, knabino, ĉu la sekcejo estas
 
-ordigita? 
+ordigita?
 
-152
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **Helena**
 
-Jes, sinjoro. 
+Jes, sinjoro.
 
 **Alquist**
 
 Bone, vi helpos min, ĉu ne? Mi sekcos Pri-
 
-muson. 
+muson.
 
 **Helena**
 
 *ekkrias*
 
-Primuson? 
+Primuson?
 
 **Alquist**
 
-Nu jes, jes, devas esti tiel, sciu\! Mi volis
+Nu jes, jes, devas esti tiel, sciu! Mi volis
 
 prefere — jes, mi volis sekci vin, sed Pri-
 
-mus prezentis sin anstataŭ vi. 
+mus prezentis sin anstataŭ vi.
 
 **Helena**
 
 *kovras sian vizaĝon*
 
-Primus? 
+Primus?
 
 **Alquist**
 
@@ -10904,105 +10556,103 @@ Nu kompreneble, kio grava? A˛, infano, vi
 
 scipovas plori? Diru, kiom valoras ia Pri-
 
-mus? 
+mus?
 
 **Primus**
 
-Ne turmentu ŝin, sinjoro\! 
+Ne turmentu ŝin, sinjoro!
 
 **Alquist**
 
-Silentu, Primus, silentu\! — Pro kio tiuj lar-
+Silentu, Primus, silentu! — Pro kio tiuj lar-
 
 metoj? Nu, mia Dio, ne ekzistos Primus. Vi
 
-forgesos lin en unu semajno. Iru, estu gaja, 
+forgesos lin en unu semajno. Iru, estu gaja,
 
-ke vi vivas. 
+ke vi vivas.
 
 **Helena**
 
 *mallaŭte*
 
-**Mi** iros. 
+**Mi** iros.
 
 **Alquist**
 
-Kien? 
+Kien?
 
 **Helena**
 
-Ke vi sekcu **min**. 
+Ke vi sekcu **min**.
 
 **Alquist**
 
 Vin? Vi estas bela, Helena. Estus domaĝe
 
-pri vi. 
+pri vi.
 
 **Helena**
 
-**Mi **iros. 
+**Mi **iros.
 
 *PRIMUS baras al ŝi la vojon*
 
-153
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-Lasu, Primus\! Lasu min tien\! 
+Lasu, Primus! Lasu min tien!
 
 **Primus**
 
-Vi ne iros, Helena\! Mi petas vin, iru, ĉi tie vi ne darfas esti\! 
+Vi ne iros, Helena! Mi petas vin, iru, ĉi tie vi ne darfas esti!
 
 **Helena**
 
-Mi saltos tra la fenestro, Primus. Se vi iros tien, mi elsaltos tra la fenestro\! 
+Mi saltos tra la fenestro, Primus. Se vi iros tien, mi elsaltos tra la fenestro!
 
 **Primus**
 
 *haltigas ŝin*
 
-Mi ne lasos vin\! 
+Mi ne lasos vin!
 
 *Al Alquist*
 
-Neniun vi mortigos, maljunulo\! 
+Neniun vi mortigos, maljunulo!
 
 **Alquist**
 
-Kial? 
+Kial?
 
 **Primus**
 
-Ni — ni apartenas unu al la alia. 
+Ni — ni apartenas unu al la alia.
 
 **Alquist**
 
-Vi diris. 
+Vi diris.
 
 *li malfermas la pordon en la mezo*
 
-Silentu\! Iru\! 
+Silentu! Iru!
 
 **Primus**
 
-Kien? 
+Kien?
 
 **Alquist**
 
 *flustre*
 
-Kien vi volas. Helena, gvidu lin. 
+Kien vi volas. Helena, gvidu lin.
 
 *li puŝas ilin eksteren*
 
-Iru, Adam. Iru, Eva. Vi estos edzino al li. 
+Iru, Adam. Iru, Eva. Vi estos edzino al li.
 
-Estu edzo al ŝi, Primus. 
+Estu edzo al ŝi, Primus.
 
 *li fermas post ili*
 
@@ -11010,17 +10660,15 @@ Estu edzo al ŝi, Primus.
 
 *sola*
 
-Benita tago\! 
+Benita tago!
 
 *li iras senbrue al la tablo kaj elverŝadas la* *epruvetojn teren*
 
-Festo de la sesa tago\! 
+Festo de la sesa tago!
 
-154
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 *li eksidas ĉe la skribtablo, ĵetas librojn teren;* *poste li malfermas la biblion, foliumas kaj* *legas*
 
@@ -11030,7 +10678,7 @@ la bildo de Dio Li kreis lin; en formo de
 
 viro kaj virino Li kreis ilin. Kaj Dio benis
 
-ilin, kaj Dio diris al ili: Fruktu kaj multiĝu, kaj plenigu la teron kaj submetu ĝin al vi, 
+ilin, kaj Dio diris al ili: Fruktu kaj multiĝu, kaj plenigu la teron kaj submetu ĝin al vi,
 
 kaj regu super la fiŝoj de la maro kaj super
 
@@ -11038,19 +10686,19 @@ la birdoj en la ĉielo, kaj super ĉiuj bestoj, kiuj moviĝas sur la tero. Kaj f
 
 ĝi estas tre bona. Kaj estis vespero, kaj es-
 
-tis mateno, la sesa tago.” 
+tis mateno, la sesa tago.”
 
 *li iras en la mezon de la ĉambro*
 
-La sesa tago\! ha tago de la graco\! 
+La sesa tago! ha tago de la graco!
 
 *li falas sur la genuojn*
 
-Nun vi liberlasos el Viaj servoj, Sinjoro, 
+Nun vi liberlasos el Viaj servoj, Sinjoro,
 
 Vian serviston — Vian plej superfluan ser-
 
-viston Alquist\! Rossum, Fabry, Gall, gran-
+viston Alquist! Rossum, Fabry, Gall, gran-
 
 daj inventistoj, kion vi inventis gravan
 
@@ -11062,17 +10710,15 @@ inventis la amon, la ploron, la rideton, ri-
 
 deton de la amo, la amon de viro kaj viri-
 
-no? Naturo, naturo, la vivo ne pereos\! Dio, 
+no? Naturo, naturo, la vivo ne pereos! Dio,
 
-155
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-la vivo ne pereos\! Kamaradoj, Helena, la
+la vivo ne pereos! Kamaradoj, Helena, la
 
-vivo ne pereos\! Ree ĝi komenciĝos el amo, 
+vivo ne pereos! Ree ĝi komenciĝos el amo,
 
 komenciĝos nuda kaj malgranda; ĝi en-
 
@@ -11082,9 +10728,9 @@ zonata tio, kion ni faris kaj konstruis, ne-
 
 bezonataj estos la urboj kaj uzinoj, nebe-
 
-zonata nia arto, nebezonataj niaj pensoj, 
+zonata nia arto, nebezonataj niaj pensoj,
 
-kaj tamen ĝi ne pereos\! Nur ni pereis. Dis-
+kaj tamen ĝi ne pereos! Nur ni pereis. Dis-
 
 falos la domoj kaj maŝinoj, disiĝos la siste-
 
@@ -11098,125 +10744,109 @@ servoj, Sinjoro, Vian serviston en paco; ĉar
 
 miaj okuloj ekvidis — ekvidis — vian savon
 
-per la amo — kaj la vivo ne pereos\! 
+per la amo — kaj la vivo ne pereos!
 
 *li leviĝas*
 
-¯i ne pereos\! 
+i ne pereos!
 
 *li disetendas la brakojn*
 
-¯i ne pereos\! 
+i ne pereos!
 
 *kurteno*
 
-156
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 **KAREL ÂAPEK**
 
-La aŭtoro de ĉi tiu dramo estas en la pli nova ĉeą literaturo\* verkisto, kiu akiris la plej grandan sukceson en- kaj eksterlande. En siaj dramoj li montras sin ne nur ŝatanta kuraĝan fabladon, spritplenan koncepton kaj utopiajn spekulaciojn, sed li submetas al ili ankaŭ entuziasmigitan idealismon, ardan mondan ideon kaj profundan senteman animon, kiajn ni apenaŭ atendus ĉe nur fantazia kaj kun bravura eleganteco prilaborita temo. Li komplete estras la draman kaj poezian tekni-kojn, li funde konas ĉiujn postulojn de viva sceneja arto, lia verkado havas do ĉiujn ŝancojn por atingi mondan sukceson, kiun li ankaŭ akiris grandmezure. 
+La aŭtoro de ĉi tiu dramo estas en la pli nova ĉeą literaturo* verkisto, kiu akiris la plej grandan sukceson en- kaj eksterlande. En siaj dramoj li montras sin ne nur ŝatanta kuraĝan fabladon, spritplenan koncepton kaj utopiajn spekulaciojn, sed li submetas al ili ankaŭ entuziasmigitan idealismon, ardan mondan ideon kaj profundan senteman animon, kiajn ni apenaŭ atendus ĉe nur fantazia kaj kun bravura eleganteco prilaborita temo. Li komplete estras la draman kaj poezian tekni-kojn, li funde konas ĉiujn postulojn de viva sceneja arto, lia verkado havas do ĉiujn ŝancojn por atingi mondan sukceson, kiun li ankaŭ akiris grandmezure.
 
-Lia loko en la nova literaturo estas apude de H. G. 
+Lia loko en la nova literaturo estas apude de H. G.
 
-Wells, kun kiu li havas komunan spekulativan imago-povon kaj mediteman fantaziemon; Bernardon Shaw rememorigas lia kapablo satire poenti la scenon; G. K. 
+Wells, kun kiu li havas komunan spekulativan imago-povon kaj mediteman fantaziemon; Bernardon Shaw rememorigas lia kapablo satire poenti la scenon; G. K.
 
 Chestertonon rememorigas lia akrosenta percepto de ĉiutaga romantiko. Kun ĉi tiuj tri interpretantoj de la anglosaksa pragmatismo la verkoj de ĉapek havas plej
 
-\* nova en 1923, kiam ĉi tiu traduko origine aperis 157
+* nova en 1923, kiam ĉi tiu traduko origine aperis 157
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-vivan spiritan kontakton kaj ili estas tial nova, fruktigan-ta kaj riĉiganta parto de la ĉeą kulturo. 
+vivan spiritan kontakton kaj ili estas tial nova, fruktigan-ta kaj riĉiganta parto de la ĉeą kulturo.
 
-Lia unua tutvespera teatraĵo, la komedio ”La rabisto”, estas verŝajne la plej bona ĉeą komedio, freŝa arbara idilieto, sur kies fono evoluas romantika aventuro. En la drama prilaboro de la materio jam tiu ĉi ludo montras ĉiujn bonajn ecojn de la pliposta verkado de Âapek: fluan preskaŭ senpreparan dialogon, sentimentan poezion, delikatan pentradon eĉ de la malĉefaj figuroj, bon-humoron kaj spritecon. 
+Lia unua tutvespera teatraĵo, la komedio ”La rabisto”, estas verŝajne la plej bona ĉeą komedio, freŝa arbara idilieto, sur kies fono evoluas romantika aventuro. En la drama prilaboro de la materio jam tiu ĉi ludo montras ĉiujn bonajn ecojn de la pliposta verkado de Âapek: fluan preskaŭ senpreparan dialogon, sentimentan poezion, delikatan pentradon eĉ de la malĉefaj figuroj, bon-humoron kaj spritecon.
 
-En la utopia dramo ”R.U. R.” la aŭtoro nepre forlasas la vilaĝan motivon kaj intimajn konfliktojn. Allogas lin pli profundaj problemoj, li penas solvi la homarajn de-mandojn de la nuna tempo. Lia kreanta mano konstruis ĉi tie firman dramon de grandioza idea kompono. ¯i estas nur fantazio, sed eĉ la nerealaĵo sonas ĉi tie iel fak-te, ĉar estras ĝin sperte evoluinta logiko kaj profunda homaranismo. Kiel nobla estas la etiko de la teatraĵo, kiel delikate — en majstre grupigitaj scenoj — li lasas fine triumfi Naturon super Mekaniko, kiel netrudeme estas prezentata la simbolo de sociaj problemoj, kiel ho-me estas perceptita la interrilato de tiuj ses viroj al unu sola virino, kiel vastaj, kvankam ankoraŭ nebulplenaj perspektivoj malfermiĝas antaŭ ni en la harmonia finso-no de la teatraĵo\! Parolas ĉi tie poeto de penetranta rigardo kaj fidema koro, kies homan partoprenon neas 158
+En la utopia dramo ”R.U. R.” la aŭtoro nepre forlasas la vilaĝan motivon kaj intimajn konfliktojn. Allogas lin pli profundaj problemoj, li penas solvi la homarajn de-mandojn de la nuna tempo. Lia kreanta mano konstruis ĉi tie firman dramon de grandioza idea kompono. i estas nur fantazio, sed eĉ la nerealaĵo sonas ĉi tie iel fak-te, ĉar estras ĝin sperte evoluinta logiko kaj profunda homaranismo. Kiel nobla estas la etiko de la teatraĵo, kiel delikate — en majstre grupigitaj scenoj — li lasas fine triumfi Naturon super Mekaniko, kiel netrudeme estas prezentata la simbolo de sociaj problemoj, kiel ho-me estas perceptita la interrilato de tiuj ses viroj al unu sola virino, kiel vastaj, kvankam ankoraŭ nebulplenaj perspektivoj malfermiĝas antaŭ ni en la harmonia finso-no de la teatraĵo! Parolas ĉi tie poeto de penetranta rigardo kaj fidema koro, kies homan partoprenon neas 158
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-nek intelektaj ludoj nek komplika spekulaciemo de la scena konstruo. 
+nek intelektaj ludoj nek komplika spekulaciemo de la scena konstruo.
 
-La aŭtoro sukcesis tiamaniere krei miton de la moderna vivo el utopia fabelo. La verko fariĝis fundamenta kreaĵo de la nova ĉeą dramverkado, pri kio la ĉeą teatra arto ĝis tiam vane luktis. ¯i indas reprezenti la ĉe-
+La aŭtoro sukcesis tiamaniere krei miton de la moderna vivo el utopia fabelo. La verko fariĝis fundamenta kreaĵo de la nova ĉeą dramverkado, pri kio la ĉeą teatra arto ĝis tiam vane luktis. i indas reprezenti la ĉe-
 
-ąn teatran kulturon eksterlande. 
+ąn teatran kulturon eksterlande.
 
 Sekvis en la verkado de ĉapek serio de satiraj bildoj:
 
 ”El la vivo de insektoj”, skizita kun drama komiksento: metafizika maskigo, kosma baledo, sociologia maskara-do — sed ankoraŭ pli: arda ditirambo de la vivo. En formo de insektoj la aŭtoro pentras la homojn, kaj el tiamaniere akiritaj novaj perspektivoj formiĝas lia amara kon-kludo pri la formoj de la nuna vivo. Papilioj — ĝuemaj, perversaj tipoj de salonflirtuloj; skaraboj rabemuloj —
 
-mensogemaj, egoismaj reprezentantoj de la burĝaro; formikejo — nia industriigita mondo, kiu okaze de kon-kura danĝerigo subite ŝanĝiĝas en militan tendaron: tio estas tri malĝojigaj perspektivoj de la socia homa vivo, kiuj ĉi tie estas prezentataj al ni, kaj malgraŭ la pacemaj finagordoj de la teatraĵo restas en nia animo maldolĉa impreso. 
+mensogemaj, egoismaj reprezentantoj de la burĝaro; formikejo — nia industriigita mondo, kiu okaze de kon-kura danĝerigo subite ŝanĝiĝas en militan tendaron: tio estas tri malĝojigaj perspektivoj de la socia homa vivo, kiuj ĉi tie estas prezentataj al ni, kaj malgraŭ la pacemaj finagordoj de la teatraĵo restas en nia animo maldolĉa impreso.
 
-Ankaŭ la plua dramo de ĉapek: ”La afero Makropu-los” estas same plenega de idea ekscito kaj arda partopreno je la pratempaj problemoj de la homa vivo. 
+Ankaŭ la plua dramo de ĉapek: ”La afero Makropu-los” estas same plenega de idea ekscito kaj arda partopreno je la pratempaj problemoj de la homa vivo.
 
-159
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-La portreto de la verkisto ĉapek restus nekompleta, se oni ne mencius ankaŭ lian epikan verkaron, liajn ciklojn de rakontoj, liajn romanojn, fine lian ĵurnalistan, skizan kaj tradukan laborojn. Sur ĉiuj tiuj ĉi kampoj li estas same konkerema, origina kaj sukceshava, el ĉio alparo-las nin artisto de vastaj, homaraj interesoj, vere moderna tipo de produktema pensulo. 
+La portreto de la verkisto ĉapek restus nekompleta, se oni ne mencius ankaŭ lian epikan verkaron, liajn ciklojn de rakontoj, liajn romanojn, fine lian ĵurnalistan, skizan kaj tradukan laborojn. Sur ĉiuj tiuj ĉi kampoj li estas same konkerema, origina kaj sukceshava, el ĉio alparo-las nin artisto de vastaj, homaraj interesoj, vere moderna tipo de produktema pensulo.
 
 **Otto F. Babler**
 
-160
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
 Kiel estiĝis la vorto **Roboto**
 
-Nome, la vorton ne elpensis la aŭtoro de la dramo R.U.R., sed li nur enkondukis ĝin en la vivon. ¯i okazis jene: en certa senkontrola momento la aŭtoro ek-ideis pri nova temo por dramo. Tuj bakoprete li ekkuris al sia frato Jozefo, pentristo, kiu ĝuste staris ĉe stablo kaj pentris sur la tolo per susurantaj ŝmiroj. 
+Nome, la vorton ne elpensis la aŭtoro de la dramo R.U.R., sed li nur enkondukis ĝin en la vivon. i okazis jene: en certa senkontrola momento la aŭtoro ek-ideis pri nova temo por dramo. Tuj bakoprete li ekkuris al sia frato Jozefo, pentristo, kiu ĝuste staris ĉe stablo kaj pentris sur la tolo per susurantaj ŝmiroj.
 
-”Vi, Jozefo,” komencis la aŭtoro, ”mi havus ideon por dramo.” 
+”Vi, Jozefo,” komencis la aŭtoro, ”mi havus ideon por dramo.”
 
-”Kian,” grumblis la pentristo \(efektive grumblis, ten-ante penikon en la buŝo\). 
+”Kian,” grumblis la pentristo (efektive grumblis, ten-ante penikon en la buŝo).
 
-La aŭtoro klarigis la aferon tiel koncize, kiel estis eble. 
+La aŭtoro klarigis la aferon tiel koncize, kiel estis eble.
 
-”Do verku ĝin,” diris la pentristo, ne elpreninte la penikon el la buŝo kaj ne ĉesinte ŝmiri la tolon. Ofende indiferenta konduto. 
+”Do verku ĝin,” diris la pentristo, ne elpreninte la penikon el la buŝo kaj ne ĉesinte ŝmiri la tolon. Ofende indiferenta konduto.
 
-”Sed mi ne scias,” daŭrigis la aŭtoro, ”kiel mi nomu la artefaritajn laboristojn. Mi titolus ilin Laboroj, sed tio min impresas iom papere.” 
+”Sed mi ne scias,” daŭrigis la aŭtoro, ”kiel mi nomu la artefaritajn laboristojn. Mi titolus ilin Laboroj, sed tio min impresas iom papere.”
 
 ”Do nomu ilin Robotoj,” murmuris la pentristo kun la peniko inter la dentoj kaj pentris plu. Kaj prete. Tiama-161
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-niere naskiĝis la vorto roboto; per jena atesto ĝi estu aljuĝita al la vera inventinto. 
+niere naskiĝis la vorto roboto; per jena atesto ĝi estu aljuĝita al la vera inventinto.
 
 *Karel Âapek en ”Popola ĵurnalo” 24. 12. 1933*
 
-\(tr. M. Malovec\)
+(tr. M. Malovec)
 
 **Etimologio**
 
 ***rob, rab***
 
-sklavo *\(en la slavaj lingvoj, iom arkaisme\)*
+sklavo *(en la slavaj lingvoj, iom arkaisme)*
 
-***robota, rabota *** laboro *\(ekz. slovake, ruse\)*, servuta laboro *\(ĉeę\)*
+***robota, rabota *** laboro *(ekz. slovake, ruse)*, servuta laboro *(ĉeę)*
 
-\(rim. M. M.\)
+(rim. M. M.)
 
-162
 
-R. U. R. 
+R. U. R.
 
-eLIBRO
 
-**www.omnibus.se/inko**
-
-**ISBN 91-7303-162-3**
-
-163
-
+**www.omnibus.se/**

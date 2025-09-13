@@ -1,25 +1,3 @@
-% Eo
-% Tabelo perioda de la elementoj
-
-**PERIODA TABELO DE LA ELEMENTOJ**
-
-
-**1**
-
-**2**
-
-**3**
-
-**4**
-
-**5**
-
-**6**
-
-**7**
-
-**8**
-
 **9**
 
 **10**
@@ -49,7 +27,6 @@ helio
 hidrogeno 4'00
 
 1'01
-
 
 
 **3Li**
@@ -166,7 +143,7 @@ nikelo
 
 kupro
 
-zinko
+z
 
 galio
 
@@ -230,7 +207,7 @@ rodio
 
 paladio
 
-arøento
+arĝento
 
 kadmio
 
@@ -256,7 +233,7 @@ ksenono
 
 95'94
 
-\(99\)
+(99)
 
 101'07
 
@@ -350,11 +327,11 @@ astateno radono
 
 208'98
 
-\(210\)
+(210)
 
-\(210\)
+(210)
 
-\(222\)
+(222)
 
 **87Fr 88Ra 89Ac 104Rf 105Db 106Sg 107Bh 108Hs 109Mt 110Ds** francio
 
@@ -368,25 +345,25 @@ seaborgio borio
 
 hasio
 
-meitnerio darmstadtio \(223\)
+meitnerio darmstadtio (223)
 
-\(226\)
+(226)
 
-\(227\)
+(227)
 
-\(261\)
+(261)
 
-\(262\)
+(262)
 
-\(263\)
+(263)
 
-\(262\)
+(262)
 
-\(265\)
+(265)
 
-\(266\)
+(266)
 
-\(281\)
+(281)
 
 **58Ce**
 
@@ -434,7 +411,7 @@ lutecio
 
 144'24
 
-\(147\)
+(147)
 
 150'35
 
@@ -480,31 +457,30 @@ mendelevio nobelio
 
 lauxrencio 232'03
 
-\(231\)
+(231)
 
 238'03
 
-\(237\)
+(237)
 
-\(242\)
+(242)
 
-\(243\)
+(243)
 
-\(247\)
+(247)
 
-\(247\)
+(247)
 
-\(251\)
+(251)
 
-\(254\)
+(254)
 
-\(253\)
+(253)
 
-\(256\)
+(256)
 
-\(254\)
+(254)
 
-\(257\)
+(257)
 
-Santiago Fernández Venegas \(2005\)
-
+Santiago Fernández Venegas (2005)

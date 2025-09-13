@@ -1,248 +1,186 @@
-% kioestas.PDF
-% supervisor
+Kio estas Spiritismo?
 
-!(images/000001.jpg)
-
-
-
-
-
-Kio estas Spiritismo? 
-
-
-
-
-
-!(images/000003.jpg)
 
 *Kio estas Spiritismo? *
 
 
-
-
-
-ENKONDUKO 
+ENKONDUKO
 
 *EN LA SCION PRI LA NEVIDEBLA MONDO *
 
 *PER MANIFESTIØOJ DE LA SPIRITOJ *
 
 
-
-ENHAVANTA 
-
+ENHAVANTA
 
 
 *La resumon de la principoj de la spiritisma doktrino, *
 
-*kaj respondon al la æefaj kontraýdiroj* 
+*kaj respondon al la ĝefaj kontraŭdiroj*
 
 
-
-DE 
-
+DE
 
 
-ALLAN KARDEC 
+ALLAN KARDEC
 
 
+*Aŭtoro de “La Libro de la Spiritoj”, “La Libro de la *
 
-*Aýtoro de “La Libro de la Spiritoj”, “La Libro de la *
-
-*Mediumoj”, “La Evangelio laý Spiritismo”, “La Æielo *
+*Mediumoj”, “La Evangelio laŭ Spiritismo”, “La Æielo *
 
 *kaj la Infero” kaj “La Genezo”, fondinto *
 
 *de la “Revue Spirite” *
 
 
-
 **Ekster karito, nenia savo **
-
 
 
 **El la franca originalo tradukis P. C. N. k aj I. G. B. **
 
-**** 
 
-Eldonfako de 
+Eldonfako de
 
-BRAZILA SPIRITISMA FEDERACIO
 
-DEPARTAMENTO EDITORIAL E GRÁFICO 
+DEPARTAMENTO EDITORIAL E GRÁFICO
 
 *Rua Souza Valente, 17 — 20941 - 040 *
 
 *Rio de Janeiro, RJ — * BRAZILO * *
 
 
-
-
-
-****
-
-****
-
-****
-
 **Tabelo de la enhavo **
 
-****
 
+*Paĝoj *
 
-
-
-
-*Paøoj *
-
-*Antaýparolo .................................................................................... *
+*Antaŭparolo .................................................................................... *
 
 *7 *
 
 
-
-ÆAPITRO I 
+ÆAPITRO I
 
 **Kio estas Spiritismo? **
 
-Mallonga diskutado pri spiritismaj aferoj: 
+Mallonga diskutado pri spiritismaj aferoj:
 
-*Unua dialogo —* La Kritikisto ............................................................. 
-
-9 
-
-*Dua dialogo* — La Skeptikulo ............................................................ 21 
-
-Spiritismo kaj Spiritualismo ................................................................ 22 
-
-Malakordoj ..................................................................................... 24 
-
-Þajnigaj spiritismaj fenomenoj ............................................................ 25 
-
-Senpoveco de la misfamigantoj ........................................................... 27 
-
-Tio mirakleca kaj tio supernatura ........................................................ 29 
-
-Opono de la scienco ........................................................................... 30 
-
-Malveraj klarigoj de la fenomenoj: 
+*Unua dialogo —* La Kritikisto .............................................................
 
 
+*Dua dialogo* — La Skeptikulo ............................................................ 21
 
-Halucino. 
+Spiritismo kaj Spiritualismo ................................................................ 22
 
-— Magneta fluida¼o. 
+Malakordoj ..................................................................................... 24
 
-— Reradiado de 
+Þajnigaj spiritismaj fenomenoj ............................................................ 25
 
+Senpoveco de la misfamigantoj ........................................................... 27
 
+Tio mirakleca kaj tio supernatura ........................................................ 29
 
-la penso. — Cerba superekscitiøo. — Somnambu- 
+Opono de la scienco ........................................................................... 30
 
-
-
-la stato de la mediumoj ................................................................ 36 
-
-La nekredemaj ne kapablas vidi por konvinkiøi .................................... 39 
-
-Volonto aý malvolonto de la Spiritoj por konvinki ................................ 41 
-
-Origino de la modernaj spiritismaj ideoj .............................................. 42 
-
-Rimedoj por komunikado ................................................................... 45 
-
-Profitamaj mediumoj ......................................................................... 49 
-
-Mediumoj kaj soræistoj ...................................................................... 54 
-
-Diverseco de la Spiritoj ...................................................................... 56 
-
-Praktika utileco de la manifestiøoj ....................................................... 60 
-
-Frenezeco, memmortigo, obsedo ......................................................... 61 
-
-6 
-
-TABELO DE LA ENHAVO 
+Malveraj klarigoj de la fenomenoj:
 
 
+Halucino.
+
+— Magneta fluida¼o.
+
+— Reradiado de
 
 
-
-*Paøoj *
-
-Forgeso pri la pasinteco ..................................................................... 64 
-
-Rimedoj por konvinko ....................................................................... 67 
-
-Societo por la kontinuigo de la spiritismaj laboroj de 
+la penso. — Cerba superekscitiĝo. — Somnambu-
 
 
+la stato de la mediumoj ................................................................ 36
 
-Allan Kardec, Strato Lille, 7 ......................................................... 69 
+La nekredemaj ne kapablas vidi por konvinkiĝi .................................... 39
 
-Malpermeso de Spiritismo .................................................................. 70 
+Volonto aŭ malvolonto de la Spiritoj por konvinki ................................ 41
 
-*Tria dialogo* — La Pastro ................................................................... 72 
+Origino de la modernaj spiritismaj ideoj .............................................. 42
 
-ÆAPITRO II 
+Rimedoj por komunikado ................................................................... 45
+
+Profitamaj mediumoj ......................................................................... 49
+
+Mediumoj kaj sorĝistoj ...................................................................... 54
+
+Diverseco de la Spiritoj ...................................................................... 56
+
+Praktika utileco de la manifestiĝoj ....................................................... 60
+
+Frenezeco, memmortigo, obsedo ......................................................... 61
+
+
+TABELO DE LA ENHAVO
+
+
+*Paĝoj *
+
+Forgeso pri la pasinteco ..................................................................... 64
+
+Rimedoj por konv ....................................................................... 67
+
+Societo por la kontinuigo de la spiritismaj laboroj de
+
+
+Allan Kardec, Strato Lille, 7 ......................................................... 69
+
+Malpermeso de Spiritismo .................................................................. 70
+
+*Tria dialogo* — La Pastro ................................................................... 72
+
+ÆAPITRO II
 
 **Elementaj principoj de Spiritismo **
 
-Antaýrimarkoj ................................................................................... 98 
+Antaŭrimarkoj ................................................................................... 98
 
-Pri la Spiritoj .................................................................................... 100 
+Pri la Spiritoj .................................................................................... 100
 
-Komunikiøoj kun la nevidebla mondo ................................................. 104 
+Komunikiĝoj kun la nevidebla mondo ................................................. 104
 
-Providenca celo de la spiritaj manifestiøoj ........................................... 114 
+Providenca celo de la spiritaj manifestiĝoj ........................................... 114
 
-Pri la mediumoj ................................................................................. 115 
+Pri la mediumoj ................................................................................. 115
 
-Rifoj de la mediumoj ......................................................................... 119 
+Rifoj de la mediumoj ......................................................................... 119
 
-La ecoj de la mediumoj ...................................................................... 122 
+La ecoj de la mediumoj ...................................................................... 122
 
-Æarlatanismo .................................................................................... 126 
+Æarlatanismo .................................................................................... 126
 
-Identeco de la Spiritoj ........................................................................ 127 
+Identeco de la Spiritoj ........................................................................ 127
 
-Kontraýdiroj ..................................................................................... 128 
+Kontraŭdiroj ..................................................................................... 128
 
-Konsekvencoj de Spiritismo ............................................................... 129 
+Konsekvencoj de Spiritismo ............................................................... 129
 
-ÆAPITRO III 
+ÆAPITRO III
 
 **Solvo de kelkaj problemoj per la spiritisma doktrino **
 
-Plureco de la mondoj ......................................................................... 135 
+Plureco de la mondoj ......................................................................... 135
 
-Pri la animo .................................................................................... 136 
+Pri la animo .................................................................................... 136
 
-La homo dum la surtera vivo .............................................................. 139 
+La homo dum la surtera vivo .............................................................. 139
 
-La homo post la morto ....................................................................... 149 
-
-
-
+La homo post la morto ....................................................................... 149
 
 
 *LA KOMENCO DE LA HISTORIO ......................................... 159 *
 
-* *
 
 *PRI LA TRADUKO ............................................................... 161 *
 
 
-
-
-
-****
-
-**Antaýparolo **
-
-
-
+**Antaŭparolo **
 
 
 *Tiuj, kiuj Spiritismon nur surpra¼e konas, nature *
@@ -251,15 +189,15 @@ La homo post la morto ..........................................................
 
 *profunda studado de tiu afero, sed tempon kaj ofte volon, *
 
-*ili ne havas por sin fordoni al kontinua observado. Antaý *
+*ili ne havas por sin fordoni al kontinua observado. Antaŭ *
 
-*ol tion entrepreni, iuj eble dezirus ekscii almenaý, kio *
+*ol tion entrepreni, iuj eble dezirus ekscii almenaŭ, kio *
 
-*øi estas, kaj æu valoros la penon okupi sin pri øi. Þajnis *
+*ĝi estas, kaj ĝu valoros la penon okupi sin pri ĝi. Þajnis *
 
 *al mi tial utile malmultvorte prezenti la respondojn pri *
 
-*kelkaj el la fundamentaj demandoj, kiujn oni æiutage *
+*kelkaj el la fundamentaj demandoj, kiujn oni ĝiutage *
 
 *faras al mi; tio estos, por la leganto, ia inicado, kaj, por *
 
@@ -267,57 +205,54 @@ La homo post la morto ..........................................................
 
 *unu saman aferon. *
 
-*La unua æapitro enhavas, sub la formo de dialogoj, *
+*La unua ĝapitro enhavas, sub la formo de dialogoj, *
 
-*respondojn pri la plej ordinaraj kontraýdiroj de tiuj, ne *
+*respondojn pri la plej ordinaraj kontraŭdiroj de tiuj, ne *
 
-*konantaj eæ la rudimenta¼ojn de la Doktrino, kaj ankaý *
+*konantaj eĝ la rudimenta¼ojn de la Doktrino, kaj ankaŭ *
 
-*la refutadon de la æefaj argumentoj de ties oponantoj. *
+*la refutadon de la ĝefaj argumentoj de ties oponantoj. *
 
-*Æi tiu agmaniero þajnis al mi la plej konvena, æar øi ne *
+*Æi tiu agmaniero þajnis al mi la plej konvena, ĝar ĝi ne *
 
-*estas seka, kiel la dogma aranøo. *
+*estas seka, kiel la dogma aranĝo. *
 
-*La dua æapitro estas destinita por nelonga elmontro *
+*La dua ĝapitro estas destinita por nelonga elmontro *
 
 *de tiuj partoj de la praktika kaj eksperimenta scienco, *
 
-*kiujn, æe manko de kompleta instruado, la sensperta *
+*kiujn, ĝe manko de kompleta instruado, la sensperta *
 
-*observanto devas atenti por plenscia juøado; øi estas *
+*observanto devas atenti por plenscia juĝado; ĝi estas *
 
-*ia kvazaýa resumo de “La Libro de la Mediumoj”\(\*\). *
+*ia kvazaŭa resumo de “La Libro de la Mediumoj”(*). *
 
-*La kontraýdirojn plej ofte naskas maløustaj ideoj, kiujn *
+*La kontraŭdirojn plej ofte naskas malĝustaj ideoj, kiujn *
 
-*oni jam antaýe faras al si pri io, kion oni ne konas; korekti *
+*oni jam antaŭe faras al si pri io, kion oni ne konas; korekti *
 
-*tiajn ideojn signifas antaýrespondi kontraýdirojn: jen *
+*tiajn ideojn signifas antaŭrespondi kontraŭdirojn: jen *
 
-*la celo de æi tiu verketo. *
+*la celo de ĝi tiu verketo. *
 
-*La tria æapitro povas esti rigardata kiel resumo de *
+*La tria ĝapitro povas esti rigardata kiel resumo de *
 
-*“La Libro de la Spiritoj”\(\*\*\); øi solvas, per la Spiritisma *
+*“La Libro de la Spiritoj”(**); ĝi solvas, per la Spiritisma *
 
 
+( * ) — Jam publikigita en Espera n t o . — *La Trad. *
 
-\( \* \) — Jam publikigita en Espera n t o . — *La Trad. * 
+( * * ) — Jam publikigita en Esperanto. — *La Trad. *
 
-\( \* \* \) — Jam publikigita en Esperanto. — *La Trad. * 
 
-8 
-
-ALLAN KARDEC 
-
+ALLAN KARDEC
 
 
 *Doktrino, iom da plej altgrade interesaj demandoj kun *
 
-*naturo psikologia, morala kaj filozofia, kiujn oni æiutage *
+*naturo psikologia, morala kaj filozofia, kiujn oni ĝiutage *
 
-*faras, sed kiujn nenia filozofio øis hodiaý kontentige *
+*faras, sed kiujn nenia filozofio ĝis hodiaŭ kontentige *
 
 *respondis. Oni provu ilin solvi per ia alia teorio, sen la *
 
@@ -329,15 +264,15 @@ ALLAN KARDEC
 
 *Æi tiu epitomo estas utila ne nur al novicoj, kiuj el *
 
-*øi povas en mallonga tempo kaj per malgranda elspezo *
+*ĝi povas en mallonga tempo kaj per malgranda elspezo *
 
-*æerpi la plej esencajn sciojn pri la Doktrino, sed ankaý *
+*ĝerpi la plej esencajn sciojn pri la Doktrino, sed ankaŭ *
 
-*al ties adeptoj, al kiuj øi havigas la rimedojn, por res- *
+*al ties adeptoj, al kiuj ĝi havigas la rimedojn, por res- *
 
-*pondi al la unuaj kontraýdiroj, kiuj ja ne mankos, kaj, *
+*pondi al la unuaj kontraŭdiroj, kiuj ja ne mankos, kaj, *
 
-*krom tio, æar ili æi tie trovos kunigitaj, en malvasta *
+*krom tio, ĝar ili ĝi tie trovos kunigitaj, en malvasta *
 
 *kadro kaj per rapida ekrigardo, la principojn, kiujn ili *
 
@@ -345,7 +280,7 @@ ALLAN KARDEC
 
 *Por tuj kaj nedetale respondi la demandon, enten- *
 
-*atan en la titolo de æi tiu verketo, mi diras, ke: *
+*atan en la titolo de ĝi tiu verketo, mi diras, ke: *
 
 *SPIRITISMO ESTAS NE NUR OBSERVOSCIENCO, *
 
@@ -359,7 +294,7 @@ ALLAN KARDEC
 
 *MORALAJN SEKVOJN DE TIAJ INTERRILATOJ. *
 
-*Oni povas difini øin jene: *
+*Oni povas difini ĝin jene: *
 
 *SPIRITISMO ESTAS SCIENCO, KIU TRAKTAS PRI *
 
@@ -369,11191 +304,10421 @@ ALLAN KARDEC
 
 *ENKORPA MONDO. *
 
-* *
 
-* *
-
-* *
-
-* *
-
-\_\_\_\_\_\_\_\_\_\_\_ 
+___________
 
 
-
-
-
-ÆAPITRO I 
-
+ÆAPITRO I
 
 
 **Kio estas Spiritismo? **
 
-****
 
 **Mallonga diskutado pri spiritismaj aferoj **
 
-****
 
-UNUA DIALOGO 
-
+UNUA DIALOGO
 
 
 **LA KRITIKISTO **
 
-****
 
-**Vizitanto. **— Mi diras al vi, sinjoro, ke mia prudento 
+**Vizitanto. **— Mi diras al vi, sinjoro, ke mia prudento
 
-rifuzas konsenti la realecon de la strangaj fenomenoj, 
+rifuzas konsenti la realecon de la strangaj fenomenoj,
 
-atribuataj al la Spiritoj, estuloj, kiuj, laý mia konvinko, 
+atribuataj al la Spiritoj, estuloj, kiuj, laŭ mia konv,
 
-ekzistas sole nur en la imago. Tamen antaý evidenteco 
+ekzistas sole nur en la imago. Tamen antaŭ evidenteco
 
-oni devas sin klini, kaj tion mi ja farus, se mi povus 
+oni devas sin klini, kaj tion mi ja farus, se mi povus
 
-havi nekontesteblajn pruvojn; mi tial venas peti de via 
+havi nekontesteblajn pruvojn; mi tial venas peti de via
 
-komplezemo la permeson æeesti nur unu aý du ekspe- 
+komplezemo la permeson ĝeesti nur unu aŭ du ekspe-
 
-rimentojn, por ne esti impertinenta, celante konvinkiøi, 
+rimentojn, por ne esti impertinenta, celante konvinkiĝi,
 
-se tio estus ebla. 
+se tio estus ebla.
 
 
+**Allan Kardec. **— Se via prudento, sinjoro, rifuzas
 
-**Allan Kardec. **— Se via prudento, sinjoro, rifuzas 
+akcepti ion, kion ni rigardas kiel bone kontrolitajn fakt-
 
-akcepti ion, kion ni rigardas kiel bone kontrolitajn fakt- 
+ojn, vi do opinias ĝin supera ol la prudentoj de ĝiuj, kiuj
 
-ojn, vi do opinias øin supera ol la prudentoj de æiuj, kiuj 
+ne dividas vian juĝon. Mi ne dubas vian talenton kaj
 
-ne dividas vian juøon. Mi ne dubas vian talenton kaj 
+ne pretendas starigi mian inteligentecon super la via;
 
-ne pretendas starigi mian inteligentecon super la via; 
+konsentu do, ke mi eraras, ĝar parolas al vi la prudento,
 
-konsentu do, ke mi eraras, æar parolas al vi la prudento, 
+kaj jen ĝio finita.
 
-kaj jen æio finita. 
 
+**V. ** — Se tamen al vi prosperus konvinki min, min,
 
+konatan kiel antagoniston de viaj ideoj, tio estus ja mi-
 
-**V. ** — Se tamen al vi prosperus konvinki min, min, 
+raklo treege favora al via afero.
 
-konatan kiel antagoniston de viaj ideoj, tio estus ja mi- 
 
-raklo treege favora al via afero. 
+**A. K. — **Mi ĝin bedaŭras, sinjoro, mi ne posedas
 
+la naturdoton fari miraklojn. Æu vi pensas, ke unu aŭ
 
 
-**A. K. — **Mi øin bedaýras, sinjoro, mi ne posedas 
+ALLAN KARDEC
 
-la naturdoton fari miraklojn. Æu vi pensas, ke unu aý 
 
-10 
+du seancoj sufiĝos por vnvinki? Tio estus efektiva
 
-ALLAN KARDEC 
+miraklo; mi bezonis pli ol unu jaro da laboroj, por kon-
 
+vinkiĝi, kio pruvas al vi, ke mia konvinkiteco ne estas
 
+io senpripensa. Cetere mi ne faras publikajn seancojn,
 
-du seancoj sufiæos por vin konvinki? Tio estus efektiva 
+kaj laŭþajne vi tute eraras pri la celo de niaj kunsidoj,
 
-miraklo; mi bezonis pli ol unu jaro da laboroj, por kon- 
+ĝar ni ne faras eksperimentojn, por kontentigi la sci-
 
-vinkiøi, kio pruvas al vi, ke mia konvinkiteco ne estas 
+volon de iu ajn.
 
-io senpripensa. Cetere mi ne faras publikajn seancojn, 
 
-kaj laýþajne vi tute eraras pri la celo de niaj kunsidoj, 
+**V. ** — Vi do ne penas fari prozelitojn?
 
-æar ni ne faras eksperimentojn, por kontentigi la sci- 
 
-volon de iu ajn. 
+**A. K. **— Kial mi penus fari el vi prozeliton, se vi
 
+mem ne penas varbiĝi? Mi devigas neniun konvinkiĝi
 
+pri io. Kiam mi renkontas homojn sincere dezirantajn
 
-**V. ** — Vi do ne penas fari prozelitojn? 
+kleriĝi kaj farantajn al mi la honoron peti min pri klar-
 
+igoj, tio estas por mi plezuro kaj devo respondi al ili
 
+en la limoj de miaj scioj; pri tiuj antagonistoj, kiuj, kiel
 
-**A. K. **— Kial mi penus fari el vi prozeliton, se vi 
+vi, havas neþanceleblajn konvjn, mi donas al mi nen-
 
-mem ne penas varbiøi? Mi devigas neniun konvinkiøi 
+iom da peno, por ilin deadmoni: ekzistas multaj volont-
 
-pri io. Kiam mi renkontas homojn sincere dezirantajn 
+emaj homoj, por ke mi ne perdu tempon kun tiuj ne
 
-kleriøi kaj farantajn al mi la honoron peti min pri klar- 
+pretaj akcepti mian aferon. La konv venos pli aŭ
 
-igoj, tio estas por mi plezuro kaj devo respondi al ili 
+malpli frue per la altrudo de la faktoj, kaj la nekredem-
 
-en la limoj de miaj scioj; pri tiuj antagonistoj, kiuj, kiel 
+uloj estos trenataj de la torento; por la momento kelkaj
 
-vi, havas neþanceleblajn konvinkojn, mi donas al mi nen- 
+partianoj plie aŭ malplie ne estas senteblaj sur la pesilo;
 
-iom da peno, por ilin deadmoni: ekzistas multaj volont- 
+tial vi neniam vidos elverþiĝi mian galon ĝe la peno
 
-emaj homoj, por ke mi ne perdu tempon kun tiuj ne 
+altiri al niaj ideoj tiujn, kiuj havas, kiel vi, tiel fortajn
 
-pretaj akcepti mian aferon. La konvinko venos pli aý 
+motivojn, por foriĝi de ili.
 
-malpli frue per la altrudo de la faktoj, kaj la nekredem- 
 
-uloj estos trenataj de la torento; por la momento kelkaj 
+**V. **— Mi pensas, ke konvinki min estas pli interese
 
-partianoj plie aý malplie ne estas senteblaj sur la pesilo; 
+ol kiel vi imagas al vi. Æu vi volas permesi al mi tute
 
-tial vi neniam vidos elverþiøi mian galon æe la peno 
+malkaþe klarigi mian penson kaj promesi al mi ne ofend-
 
-altiri al niaj ideoj tiujn, kiuj havas, kiel vi, tiel fortajn 
+iĝi ĝe mia parolo? Tio estos miaj ideoj pri la afero mem,
 
-motivojn, por foriøi de ili. 
+ne pri la persono, al kiu mi parolas: mi povas respekti
 
+la personon, ne dividante ties opinion.
 
 
-**V. **— Mi pensas, ke konvinki min estas pli interese 
+**A. K. **— Spiritismo instruis min atribui neniom da
 
-ol kiel vi imagas al vi. Æu vi volas permesi al mi tute 
+graveco al la bagatelaĝa trosentemo de la memestimo
 
-malkaþe klarigi mian penson kaj promesi al mi ne ofend- 
+kaj ne ofendiĝi pri vortoj. Se via parolo transpaþos la
 
-iøi æe mia parolo? Tio estos miaj ideoj pri la afero mem, 
+limojn de la ĝentileco kaj konvena¼oj, mi el ĝi konkludos,
 
-ne pri la persono, al kiu mi parolas: mi povas respekti 
+ke vi estas malbonedukito: nenion pli. Mi, mi preferas
 
-la personon, ne dividante ties opinion. 
+lasi la malsaĝa¼ojn ĝe aliaj, ol ilin mem fari. Vi do
 
+vidas, el ĝi tio sola, ke Spiritismo utilas al io.
 
 
-**A. K. **— Spiritismo instruis min atribui neniom da 
+KIO ESTAS SPIRITISMO ?
 
-graveco al la bagatelaæa trosentemo de la memestimo 
 
-kaj ne ofendiøi pri vortoj. Se via parolo transpaþos la 
+Mi jam diris al vi, sinjoro: min tute ne interesas
 
-limojn de la øentileco kaj konvena¼oj, mi el øi konkludos, 
+instigi vin same pensi kiel mi; mi respektas vian opi-
 
-ke vi estas malbonedukito: nenion pli. Mi, mi preferas 
+nion, se ĝi estas sincera, kiel ankaŭ mi deziras, ke vi
 
-lasi la malsaøa¼ojn æe aliaj, ol ilin mem fari. Vi do 
+respektu mian. Rigardante Spiritismon kiel ian senenhav-
 
-vidas, el æi tio sola, ke Spiritismo utilas al io. 
+an revon, vi, venante al mi, diris en via animo: "Mi nun
 
+vidos frenezulon". Konfesu tion sincere, mi ne ofend-
 
+iĝos pro ĝi. Æiuj spiritistoj estas ja frenezuloj, tio estas
 
-KIO ESTAS SPIRITISMO ? 
+rekonata afero. Nu, sinjoro, ĝar vi rigardas tion kiel
 
-11 
+ian mensan malsanon, mi tial eĝ faras al mi skrupulon
 
+komuniki ĝin al vi, kaj mi ja miregas, ke ĝe tia penso
 
+vi deziras havi konvn, kiu vin alkalkulus al la fre-
 
-Mi jam diris al vi, sinjoro: min tute ne interesas 
+nezuloj. Se vi jam antaŭe havas la firman opinion, ke
 
-instigi vin same pensi kiel mi; mi respektas vian opi- 
+vi ne povas esti konvinkita, via peno estas do senutila,
 
-nion, se øi estas sincera, kiel ankaý mi deziras, ke vi 
+ĝar ĝin movas nur scivolo. Ni do mallongigu nian kon-
 
-respektu mian. Rigardante Spiritismon kiel ian senenhav- 
+versacion, ĝar mi ne povas perdi tempon en sencelaj
 
-an revon, vi, venante al mi, diris en via animo: "Mi nun 
+babiladoj.
 
-vidos frenezulon". Konfesu tion sincere, mi ne ofend- 
 
-iøos pro øi. Æiuj spiritistoj estas ja frenezuloj, tio estas 
+**V. **— Homo povas erari, fari al si ian iluzion, tamen
 
-rekonata afero. Nu, sinjoro, æar vi rigardas tion kiel 
+tio ne kuntrenas, ke li estas frenezulo.
 
-ian mensan malsanon, mi tial eæ faras al mi skrupulon 
 
-komuniki øin al vi, kaj mi ja miregas, ke æe tia penso 
+**A. K. **— Formetu ĝirkaŭfrazojn: diru, kiel tiom da
 
-vi deziras havi konvinkon, kiu vin alkalkulus al la fre- 
+aliaj, ke tio estas manio forpasema; vi tamen konfesos,
 
-nezuloj. Se vi jam antaýe havas la firman opinion, ke 
+ke manio, kiu dum kelke da jaroj havigis al si milion-
 
-vi ne povas esti konvinkita, via peno estas do senutila, 
+ojn da adeptoj en ĝiuj landoj, kiu kalkulas ĝiukategori-
 
-æar øin movas nur scivolo. Ni do mallongigu nian kon- 
+ajn scienculojn, kiu disvastiĝas prefere en la kleraj klas-
 
-versacion, æar mi ne povas perdi tempon en sencelaj 
+oj, ĝi ja estas ia stranga manio, kiu meritas ioman
 
-babiladoj. 
+ekzamenon.
 
 
+**V. **— Pri ĝi tio mi havas proprajn ideojn, vere, ta-
 
-**V. **— Homo povas erari, fari al si ian iluzion, tamen 
+men ili ne estas tiel absolutaj, ke mi ne konsentus oferi
 
-tio ne kuntrenas, ke li estas frenezulo. 
+ilin ĝe la evidenteco de la faktoj. Mi diras al vi, sinjoro,
 
+ke al vi estas iel interese konvinki min. Mi konfesas
 
+al vi, ke mi intencas publikigi verkon, en kiu mi pro-
 
-**A. K. **— Formetu æirkaýfrazojn: diru, kiel tiom da 
+ponas al mi la taskon **ex professo **(tiel!) (*) elmontri
 
-aliaj, ke tio estas manio forpasema; vi tamen konfesos, 
+tion, kion mi konsideras eraro; kaj ĝar tia libro certe
 
-ke manio, kiu dum kelke da jaroj havigis al si milion- 
+renkontos grandan sukceson kaj per unu fojo forbatos
 
-ojn da adeptoj en æiuj landoj, kiu kalkulas æiukategori- 
 
-ajn scienculojn, kiu disvastiøas prefere en la kleraj klas- 
+( * ) *Ex professo ***: **latina esprimo, signifanta “plene kona n t a l a a f e r o n ” . — *La Trad*.
 
-oj, øi ja estas ia stranga manio, kiu meritas ioman 
 
-ekzamenon. 
+ALLAN KARDEC
 
 
+la Spiritojn, tial, se mi fine estus konvinkita, mi tiam
 
-**V. **— Pri æi tio mi havas proprajn ideojn, vere, ta- 
+ĝin ne publikigus.
 
-men ili ne estas tiel absolutaj, ke mi ne konsentus oferi 
 
-ilin æe la evidenteco de la faktoj. Mi diras al vi, sinjoro, 
+**A. K. **— Forte ĝagrenus min, sinjoro, neebligi al vi
 
-ke al vi estas iel interese konvinki min. Mi konfesas 
+ĝui la utilecon de tia libro, kiu certe renkontos grandan
 
-al vi, ke mi intencas publikigi verkon, en kiu mi pro- 
+sukceson; cetere mi havas nenian intereson malhelpi al
 
-ponas al mi la taskon **ex professo **\(tiel\!\) \(\*\) elmontri 
+ĝia publikigo, kontraŭe, mi deziras al ĝi grandan dis -
 
-tion, kion mi konsideras eraro; kaj æar tia libro certe 
+vastiĝon, ĝar ĝi eĝ ludus la rolon de prospekto kaj re-
 
-renkontos grandan sukceson kaj per unu fojo forbatos 
+klamilo. Kiam iu afero estas atakata, tio vekas la atent-
 
+on; multaj homoj volas vidi la "por" kaj la "kontraŭ", kaj la kritiko konigas tiun aferon eĝ al tiuj, kiuj ne
 
+pensadis pri ĝi: tiel oni ofte pretervole reklamas ion por
 
-\( \* \) *Ex professo ***: **latina esprimo, signifanta “plene kona n t a l a a f e r o n ” . — *La Trad*. 
+la profito de tiuj, kiujn oni volas malutili. La demando
 
-12 
+pri la Spiritoj, cetere, estas tiel vive interesa, ĝi tiagrade
 
-ALLAN KARDEC 
+ekscitas la scivolon, ke sufiĝas turni sur ĝin la atenton,
 
+por ekdeziri ĝin profunde studi (*).
 
 
-la Spiritojn, tial, se mi fine estus konvinkita, mi tiam 
+**V. **— Sekve, laŭ via kompreno, la kritiko valoras
 
-øin ne publikigus. 
+neniom, la publika opinio estas kalkulata kiel nenio?
 
 
+**A. K. **— Mi ne rigardas la kritikon kiel la esprimon
 
-**A. K. **— Forte æagrenus min, sinjoro, neebligi al vi 
+de la publika opinio, sed kiel individuan juĝon, kiu povas
 
-øui la utilecon de tia libro, kiu certe renkontos grandan 
+erari. Legu la historion kaj vidu, kiom da majstroverkoj
 
-sukceson; cetere mi havas nenian intereson malhelpi al 
+ĝe sia apero ricevis akran kritikon, kio ne malhelpis,
 
-øia publikigo, kontraýe, mi deziras al øi grandan dis - 
+ke ili estu ĝiam ankoraŭ majstra¼oj; kiam io estas mal-
 
-vastiøon, æar øi eæ ludus la rolon de prospekto kaj re- 
+bona, nenia laŭdo faras ĝin bona. **Se Spiritismo estas **
 
-klamilo. Kiam iu afero estas atakata, tio vekas la atent- 
+**eraro, ĝi falos mem, sed, se ĝi estas vera¼o, nenia bojado **
 
-on; multaj homoj volas vidi la "por" kaj la "kontraý", kaj la kritiko konigas tiun aferon eæ al tiuj, kiuj ne 
+**ĝin malverigos. **Via libro estos ia persona juĝo el via
 
-pensadis pri øi: tiel oni ofte pretervole reklamas ion por 
+punkto de vidado; la vera publika opinio diros, ĝu vi
 
-la profito de tiuj, kiujn oni volas malutili. La demando 
+ĝuste vidis. Por tio oni volos esplori, kaj se poste oni
 
-pri la Spiritoj, cetere, estas tiel vive interesa, øi tiagrade 
+konstatos, ke vi eraris, via libro fariĝos ridinda, tiel
 
-ekscitas la scivolon, ke sufiæas turni sur øin la atenton, 
+same, kiel tiuj, antaŭ nelonge publikigitaj kontraŭ teorio
 
-por ekdeziri øin profunde studi \(\*\). 
-
-
-
-**V. **— Sekve, laý via kompreno, la kritiko valoras 
-
-neniom, la publika opinio estas kalkulata kiel nenio? 
-
-
-
-**A. K. **— Mi ne rigardas la kritikon kiel la esprimon 
-
-de la publika opinio, sed kiel individuan juøon, kiu povas 
-
-erari. Legu la historion kaj vidu, kiom da majstroverkoj 
-
-æe sia apero ricevis akran kritikon, kio ne malhelpis, 
-
-ke ili estu æiam ankoraý majstra¼oj; kiam io estas mal- 
-
-bona, nenia laýdo faras øin bona. **Se Spiritismo estas **
-
-**eraro, øi falos mem, sed, se øi estas vera¼o, nenia bojado **
-
-**øin malverigos. **Via libro estos ia persona juøo el via 
-
-punkto de vidado; la vera publika opinio diros, æu vi 
-
-øuste vidis. Por tio oni volos esplori, kaj se poste oni 
-
-konstatos, ke vi eraris, via libro fariøos ridinda, tiel 
-
-same, kiel tiuj, antaý nelonge publikigitaj kontraý teorio 
-
-de la cirkulado de la sango, la teorio de la vakcino k.a. 
+de la cirkulado de la sango, la teorio de la vakcino k.a.
 
 Sed mi forgesis, ke vi pritraktos la aferon **ex pro- **
 
-**fesso**, kio signifas, ke vi studis øin el æiuj øiaj flankoj; 
+**fesso**, kio signifas, ke vi studis ĝin el ĝiuj ĝiaj flankoj;
 
-ke vi ja vidis æion, kion oni povas vidi, vi legis æion, 
+ke vi ja vidis ĝion, kion oni povas vidi, vi legis ĝion,
 
 
+( * ) De post ĝi tiu konversacio, skribita en 1859, la
 
-\( \* \) De post æi tiu konversacio, skribita en 1859, la 
+sperto abunde pruvis la ĝustecon de ĝi tiu aserto. — *Noto *
 
-sperto abunde pruvis la øustecon de æi tiu aserto. — *Noto *
+*de la Aŭtoro *.
 
-*de la Aýtoro *. 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+skribitan pri ĝi tiu objekto, vi analizis kaj komparis la
 
-13 
+diversajn opiniojn; ke vi havas la plej bonajn kondiĝ-
 
+ojn, por observi mem; ke vi dediĝis al ĝi tagojn kaj
 
+noktojn dum sinsekvaj jaroj; per unu vorto, vi preter-
 
-skribitan pri æi tiu objekto, vi analizis kaj komparis la 
+lasis nenion, por veni al la konstato de la vero. Mi dev-
 
-diversajn opiniojn; ke vi havas la plej bonajn kondiæ- 
+as kredi, ke tiel estas, se nur vi estas homo serioza, ĝar
 
-ojn, por observi mem; ke vi dediæis al øi tagojn kaj 
+ja nur tiu rajtas paroli el plena scio de la afero, kiu
 
-noktojn dum sinsekvaj jaroj; per unu vorto, vi preter- 
+ĝion ĝi faris.
 
-lasis nenion, por veni al la konstato de la vero. Mi dev- 
+Kion vi pensus pri iu, kiu arogus al si la cenzuron
 
-as kredi, ke tiel estas, se nur vi estas homo serioza, æar 
+de iu literatura verko, ne konante literaturon, aŭ de iu
 
-ja nur tiu rajtas paroli el plena scio de la afero, kiu 
+pentra¼o, ne studinte pentrarton? Tio estas elemente
 
-æion æi faris. 
+logika, ke kritikanto devas koni, ne supra¼e, sed funde,
 
-Kion vi pensus pri iu, kiu arogus al si la cenzuron 
+tion, pri kio li parolas, alie lia opinio neniom valoras.
 
-de iu literatura verko, ne konante literaturon, aý de iu 
+Por malakcepti iun kalkulon, estas necese kontraŭmeti
 
-pentra¼o, ne studinte pentrarton? Tio estas elemente 
+alian kalkulon, sed por tio oni devas povoscii kalkuli.
 
-logika, ke kritikanto devas koni, ne supra¼e, sed funde, 
+Kritikanto devas ne limigi sin per la aserto, ke io estas
 
-tion, pri kio li parolas, alie lia opinio neniom valoras. 
+bona aŭ malbona, sed motivi sian opinion per klara kaj
 
-Por malakcepti iun kalkulon, estas necese kontraýmeti 
+kategoria pruvado, bazita sur la principoj mem de la
 
-alian kalkulon, sed por tio oni devas povoscii kalkuli. 
+arto aŭ de la scienco. Kiel li ja povas tion fari, ne kon-
 
-Kritikanto devas ne limigi sin per la aserto, ke io estas 
+ante tiujn principojn? Æu vi povus taksi la bona¼ojn
 
-bona aý malbona, sed motivi sian opinion per klara kaj 
+aŭ malbona¼ojn de iu maþino, ne konante mekanikon?
 
-kategoria pruvado, bazita sur la principoj mem de la 
+Ne; nu, via juĝo pri Spiritismo, kiun vi ja ne konas,
 
-arto aý de la scienco. Kiel li ja povas tion fari, ne kon- 
+ne havus pli grandan valoron ol tiu, kiun vi eldirus pri
 
-ante tiujn principojn? Æu vi povus taksi la bona¼ojn 
+maþino, se vi ne konus mekanikon. Vi sur ĝiu paþo est-
 
-aý malbona¼ojn de iu maþino, ne konante mekanikon? 
+us trafata ĝe kulpo de nesciado, ĝar tiuj, kiuj estus ĝin
 
-Ne; nu, via juøo pri Spiritismo, kiun vi ja ne konas, 
+studintaj, tuj vidus, ke tiu afero estas fremda por vi;
 
-ne havus pli grandan valoron ol tiu, kiun vi eldirus pri 
+el tio ili konkludus, ke vi ne estas homo serioza aŭ ke
 
-maþino, se vi ne konus mekanikon. Vi sur æiu paþo est- 
+vi agas malbonfide: en ĝiu ajn el ambaŭ okazoj, vi el-
 
-us trafata æe kulpo de nesciado, æar tiuj, kiuj estus øin 
+metus vin al refutoj ne tre flataj por via memestimo.
 
-studintaj, tuj vidus, ke tiu afero estas fremda por vi; 
 
-el tio ili konkludus, ke vi ne estas homo serioza aý ke 
+**V. **— Øuste por eviti tiun rifon, mi venis peti vin
 
-vi agas malbonfide: en æiu ajn el ambaý okazoj, vi el- 
+permesi al mi ĝeesti iajn kelke da eksperimentoj.
 
-metus vin al refutoj ne tre flataj por via memestimo. 
 
+**A. K. ** — Kaj vi pensas, ke tio sufiĝos al vi, por
 
+paroli pri Spiritismo **ex professo**? Kiel do vi povus kom-
 
-**V. **— Øuste por eviti tiun rifon, mi venis peti vin 
+preni tiujn eksperimentojn, kaj des malpli ilin juĝi, se
 
-permesi al mi æeesti iajn kelke da eksperimentoj. 
+vi ne studis la principojn, kiuj prezentas ilian funda-
 
+menton? Kiel vi povus taksi la rezultaton, kontentigan
 
+aŭ ne, ekzemple de metalurgiaj provoj, se vi funde ne
 
-**A. K. ** — Kaj vi pensas, ke tio sufiæos al vi, por 
+povoscius metalurgion? Permesu, ke mi diru al vi, si-
 
-paroli pri Spiritismo **ex professo**? Kiel do vi povus kom- 
 
-preni tiujn eksperimentojn, kaj des malpli ilin juøi, se 
+ALLAN KARDEC
 
-vi ne studis la principojn, kiuj prezentas ilian funda- 
 
-menton? Kiel vi povus taksi la rezultaton, kontentigan 
+njoro, ke via projekto aspektas tiel same, kiel se, sciante
 
-aý ne, ekzemple de metalurgiaj provoj, se vi funde ne 
+nek matematikojn nek astronomion, vi dirus al iu mem-
 
-povoscius metalurgion? Permesu, ke mi diru al vi, si- 
+bro de la Observatorio: "Sinjoro, mi volas skribi verkon
 
-14 
+pri astronomio kaj ankaŭ pruvi, ke via sistemo estas
 
-ALLAN KARDEC 
+erara, sed, ĝar mi pri astronomio eĝ la plej elementan
 
+rudimenta¼on ne scias, lasu min unu aŭ du fojojn ri-
 
+gardi tra viaj teleskopoj: tio sufiĝos al mi, por scii tiel
 
-njoro, ke via projekto aspektas tiel same, kiel se, sciante 
-
-nek matematikojn nek astronomion, vi dirus al iu mem- 
-
-bro de la Observatorio: "Sinjoro, mi volas skribi verkon 
-
-pri astronomio kaj ankaý pruvi, ke via sistemo estas 
-
-erara, sed, æar mi pri astronomio eæ la plej elementan 
-
-rudimenta¼on ne scias, lasu min unu aý du fojojn ri- 
-
-gardi tra viaj teleskopoj: tio sufiæos al mi, por scii tiel 
-
-bone kiel vi. 
+bone kiel vi.
 
 Nur dank’al pliampleksigo de senco la vorto **kritiki **
 
-estas sinonimo de** mallaýdi; ** laý sia propra senco kaj laý 
+estas sinonimo de** mallaŭdi; ** laŭ sia propra senco kaj laŭ
 
-la etimologio øi signifas **juøi, taksi. ** Kritiko povas do 
+la etimologio ĝi signifas **juĝi, taksi. ** Kritiko povas do
 
-esti aproba aý malaproba. Fari la kritikon de iu libro 
+esti aproba aŭ malaproba. Fari la kritikon de iu libro
 
-ne estas øin nepre kondamni: kiu prenas sur sin tiun 
+ne estas ĝin nepre kondamni: kiu prenas sur sin tiun
 
-taskon, tiu devus fari øin sen antaýjuøo; se antaý ol 
+taskon, tiu devus fari ĝin sen antaŭjuĝo; se antaŭ ol
 
-malfermi la libron, li øin jam kondamnis en sia animo, 
+malfermi la libron, li ĝin jam kondamnis en sia animo,
 
-lia ekzameno ne povas do esti senpartia. 
+lia ekzameno ne povas do esti senpartia.
 
-Tiel estas kun la plej multaj el tiuj, kiuj parolas 
+Tiel estas kun la plej multaj el tiuj, kiuj parolas
 
-pri Spiritismo. Ili kreis al si opinion nur pri la nomo, 
+pri Spiritismo. Ili kreis al si opinion nur pri la nomo,
 
-agante simile al juøisto, kiu eldirus sian verdikton pri 
+agante simile al juĝisto, kiu eldirus sian verdikton pri
 
-iu proceso, ne ekzameninte la aktojn. El tio rezultis, 
+iu proceso, ne ekzameninte la aktojn. El tio rezultis,
 
-ke ilia juøo trafis la aeron kaj anstataý konvinki, el- 
+ke ilia juĝo trafis la aeron kaj anstataŭ konvinki, el-
 
-vokis ridon. El tiuj, kiuj studis la aferon serioze, la 
+vokis ridon. El tiuj, kiuj studis la aferon serioze, la
 
-plimulto þanøis sian opinion, kaj pli ol unu kontraýulo 
+plimulto þanĝis sian opinion, kaj pli ol unu kontraŭulo
 
-fariøis øiaj adeptoj, kiam ili vidis, ke tio estas io tute 
+fariĝis ĝiaj adeptoj, kiam ili vidis, ke tio estas io tute
 
-alia, ol kiel ili pensis. 
+alia, ol kiel ili pensis.
 
-****
 
-**V. ** — Vi parolas pri la ekzameno de libroj øenerale; 
+**V. ** — Vi parolas pri la ekzameno de libroj ĝenerale;
 
-æu vi pensas, ke øi estas fizike ebla al iu gazetisto legi 
+ĝu vi pensas, ke ĝi estas fizike ebla al iu gazetisto legi
 
-kaj studi æiujn, kiuj venas en liajn manojn, precipe tiujn 
+kaj studi ĝiujn, kiuj venas en liajn manojn, precipe tiujn
 
-kun novaj teorioj, kiujn li devas funde esplori rilate 
+kun novaj teorioj, kiujn li devas funde esplori rilate
 
-ilian esencon kaj verecon? Tio estus tio sama, kiel pos- 
+ilian esencon kaj verecon? Tio estus tio sama, kiel pos-
 
-tuli de iu presisto, ke li legu æiujn verkojn, elirantajn 
+tuli de iu presisto, ke li legu ĝiujn verkojn, elirantajn
 
-el liaj presmaþinoj. 
+el liaj presmaþinoj.
 
 
+**A. K. **— Pri tia saĝa rezonado mi povas respondi
 
-**A. K. **— Pri tia saøa rezonado mi povas respondi 
+nur tion, ke, kiam oni ne disponas tempon, por kon-
 
-nur tion, ke, kiam oni ne disponas tempon, por kon- 
+science fari ion, oni tien ne enþoviĝu, kaj ke estas pre-
 
-science fari ion, oni tien ne enþoviøu, kaj ke estas pre- 
+ferinde fari unu solan aferon bone, ol dek fuþe.
 
-ferinde fari unu solan aferon bone, ol dek fuþe. 
 
+**V. **— Ne pensu, sinjoro, ke mia opinio estas kreita
 
+ventanime. Mi vidis tablojn turniĝi kaj frapi; mi vidis
 
-**V. **— Ne pensu, sinjoro, ke mia opinio estas kreita 
 
-ventanime. Mi vidis tablojn turniøi kaj frapi; mi vidis 
+KIO ESTAS SPIRITISMO ?
 
 
+homojn, kiuj skribis laŭdire sub la influo de Spiritoj;
 
-KIO ESTAS SPIRITISMO ? 
+mi tamen estas konvinkita, ke en tio partoprenas ĝar-
 
-15 
+latanismo.
 
 
+**A. K. **— Kiom vi pagis, por vidi tion?
 
-homojn, kiuj skribis laýdire sub la influo de Spiritoj; 
 
-mi tamen estas konvinkita, ke en tio partoprenas æar- 
+**V. **— Neniom, certe.
 
-latanismo. 
 
+**A. K. ** — Jen do apartaspecaj ĝarlatanoj, kiuj re-
 
+honorigos la nomon de sia klaso. Æarlatanojn neprofit-
 
-**A. K. **— Kiom vi pagis, por vidi tion? 
+amajn, ĝis hodiaŭ oni ne vidis. Æu el tio, ke iu sensprita
 
+þercemulo foje volis amuziĝi per tio, sekvas, ke la ĝe-
 
+estantaj homoj estas ja liaj kunludantoj?
 
-**V. **— Neniom, certe. 
+Cetere por kio do ili fariĝus kunhelpantoj en ia
 
+mistifiko? Por amuzi la societon, vi diros. Mi konsentas,
 
+ke oni unu fojon volontas partopreni en iu þerco, sed,
 
-**A. K. ** — Jen do apartaspecaj æarlatanoj, kiuj re- 
+kiam iu þerco daŭras tutajn monatojn kaj jarojn, mi
 
-honorigos la nomon de sia klaso. Æarlatanojn neprofit- 
+pensas, ke mistifikata estas ja la mistifikanto. Æu estas
 
-amajn, øis hodiaý oni ne vidis. Æu el tio, ke iu sensprita 
+akcepteble, ke pro la sola plezuro kredigi je io, pri kio
 
-þercemulo foje volis amuziøi per tio, sekvas, ke la æe- 
+oni scias, ke ĝi estas malvera, oni þimus tutajn horojn
 
-estantaj homoj estas ja liaj kunludantoj? 
+ĝe iu tablo? La plezuro ne kompensus la penon.
 
-Cetere por kio do ili fariøus kunhelpantoj en ia 
+Antaŭ ol konkludi, ke tio estas artifiko, oni devas
 
-mistifiko? Por amuzi la societon, vi diros. Mi konsentas, 
+demandi sin, kian intereson oni povas havi ĝe trompo;
 
-ke oni unu fojon volontas partopreni en iu þerco, sed, 
+nu, vi ja konsentos, ke ekzistas sociaj situacioj, kiuj per
 
-kiam iu þerco daýras tutajn monatojn kaj jarojn, mi 
+se mem antaŭforigas ĝian suspekton pri ruza¼oj, homoj,
 
-pensas, ke mistifikata estas ja la mistifikanto. Æu estas 
+kies sola karaktero estas garantio de skrupula honesteco.
 
-akcepteble, ke pro la sola plezuro kredigi je io, pri kio 
+Io alia estus, se temus pri iu spekulacio, ĝar ja la
 
-oni scias, ke øi estas malvera, oni þimus tutajn horojn 
+allogo de la profito estas malbona konsilanto; tamen eĝ
 
-æe iu tablo? La plezuro ne kompensus la penon. 
+se oni konsentas, ke en ĝi tiu okazo estas konstatita
 
-Antaý ol konkludi, ke tio estas artifiko, oni devas 
+iu fripona manovro, tio neniel pruvas la nerealecon de
 
-demandi sin, kian intereson oni povas havi æe trompo; 
+la principo, ĝar ĝion oni povas misuzi. El tio, ke iuj
 
-nu, vi ja konsentos, ke ekzistas sociaj situacioj, kiuj per 
+komercistoj vendas falsitajn vinojn, ne sekvas, ke vino
 
-se mem antaýforigas æian suspekton pri ruza¼oj, homoj, 
+pura ne ekzistas. Spiritismo ne respondas por la agoj
 
-kies sola karaktero estas garantio de skrupula honesteco. 
+de tiuj, kiuj misuzas ĝian nomon kaj ĝin ekspluatas,
 
-Io alia estus, se temus pri iu spekulacio, æar ja la 
+same kiel la medicino ne por tiuj de la ĝarlatanoj, kiuj
 
-allogo de la profito estas malbona konsilanto; tamen eæ 
+trompe trudas siajn drogaĝojn, kaj la religio ne por tiuj
 
-se oni konsentas, ke en æi tiu okazo estas konstatita 
+de la pastroj, kiuj malbonuzas sian oficon.
 
-iu fripona manovro, tio neniel pruvas la nerealecon de 
+Dank’al sia noveco kaj eĝ pro sia karaktero, Spi-
 
-la principo, æar æion oni povas misuzi. El tio, ke iuj 
+ritismo devis ja esti misuzebla, sed ĝi havigis la rimed-
 
-komercistoj vendas falsitajn vinojn, ne sekvas, ke vino 
+ojn rekoni tiujn misuzojn, klare difinante sian veran ka-
 
-pura ne ekzistas. Spiritismo ne respondas por la agoj 
 
-de tiuj, kiuj misuzas øian nomon kaj øin ekspluatas, 
+ALLAN KARDEC
 
-same kiel la medicino ne por tiuj de la æarlatanoj, kiuj 
 
-trompe trudas siajn drogaæojn, kaj la religio ne por tiuj 
+rakteron kaj forpuþante de si ĝian solidarecon kun tiuj,
 
-de la pastroj, kiuj malbonuzas sian oficon. 
+kiuj ĝin ekspluatis aŭ ĝin deklinis de ĝia ekskluzive mo -
 
-Dank’al sia noveco kaj eæ pro sia karaktero, Spi- 
+rala celo, por fari el ĝi ian oficon, ian ilon por divenado
 
-ritismo devis ja esti misuzebla, sed øi havigis la rimed- 
+aŭ por frivolaj esploroj.
 
-ojn rekoni tiujn misuzojn, klare difinante sian veran ka- 
+Æar Spiritismo mem ja desegnas la limojn, en kiuj
 
-16 
+ĝi enteniĝas, precize difinas tion, kion ĝi diras kaj kion
 
-ALLAN KARDEC 
+ĝi ne diras, tion, kion ĝi povas kaj kion ĝi ne povas,
 
+tion, kio ĝncernas aŭ ne koncernas, tion, kion ĝi
 
+akceptas kaj kion ĝi forpuþas, tial malpravaj estas tiuj,
 
-rakteron kaj forpuþante de si æian solidarecon kun tiuj, 
+kiuj ne penante ĝin studi, juĝas ĝin laŭ þajna¼oj, tiuj,
 
-kiuj øin ekspluatis aý øin deklinis de øia ekskluzive mo - 
+kiuj, vidante ¼onglistojn, sin pave alnomantajn "spirit-
 
-rala celo, por fari el øi ian oficon, ian ilon por divenado 
+istoj", por allogi la amason, gravatone asertas: "Jen,
 
-aý por frivolaj esploroj. 
+kio estas Spiritismo ". Kiu definitive ridindiĝas? Ne la
 
-Æar Spiritismo mem ja desegnas la limojn, en kiuj 
+¼onglisto, kiu praktikadas sian metion, kaj ne Spiritismo,
 
-øi enteniøas, precize difinas tion, kion øi diras kaj kion 
+kies skribita doktrino neigas tiajn asertojn, sed ja la
 
-øi ne diras, tion, kion øi povas kaj kion øi ne povas, 
+kritikantoj, konvinkplene parolantaj pri io, kion ili ne
 
-tion, kio øin koncernas aý ne koncernas, tion, kion øi 
+scias, aŭ konscie kripligantaj la veron. Kiuj atribuas
 
-akceptas kaj kion øi forpuþas, tial malpravaj estas tiuj, 
+al Spiritismo tion kontraŭan al ĝia esenco mem, tiuj tiel
 
-kiuj ne penante øin studi, juøas øin laý þajna¼oj, tiuj, 
+agas aŭ pro nescio aŭ intence: en la unua okazo estas
 
-kiuj, vidante ¼onglistojn, sin pave alnomantajn "spirit- 
+ventanimeco, en la dua estas malhonesteco. En ĝi tiu
 
-istoj", por allogi la amason, gravatone asertas: "Jen, 
+lasta okazo ili similas certajn historiistojn, kiuj falsas
 
-kio estas Spiritismo ". Kiu definitive ridindiøas? Ne la 
+la historiajn faktojn pro la intereso de iu partio aŭ opi-
 
-¼onglisto, kiu praktikadas sian metion, kaj ne Spiritismo, 
+nio. Uzante tiajn rimedojn, la partio ĝiam senkreditiĝas
 
-kies skribita doktrino neigas tiajn asertojn, sed ja la 
+kaj maltrafas sian celon.
 
-kritikantoj, konvinkplene parolantaj pri io, kion ili ne 
+Notu al vi, sinjoro, ke mi ne pretendas, ke la kritiko
 
-scias, aý konscie kripligantaj la veron. Kiuj atribuas 
+devas nepre aprobi niajn ideojn, eĝ ilin studinte; ni tute
 
-al Spiritismo tion kontraýan al øia esenco mem, tiuj tiel 
+ne riproĝas tiujn, kiuj ne pensas same kiel ni. Kio estas
 
-agas aý pro nescio aý intence: en la unua okazo estas 
+evidenta por ni, tio povas tia ne esti por ceteraj; ĝiu
 
-ventanimeco, en la dua estas malhonesteco. En æi tiu 
+juĝas la aferojn el sia punkto de vidado, kaj el iu plej
 
-lasta okazo ili similas certajn historiistojn, kiuj falsas 
+senduba fakto ne ĝiuj tiras samajn sekvojn. Se, ekzemple,
 
-la historiajn faktojn pro la intereso de iu partio aý opi- 
+iu pentristo en sia bildo prezentas ĝevalon blankan, iu
 
-nio. Uzante tiajn rimedojn, la partio æiam senkreditiøas 
+povos ja prave trovi, ke tia ĝevalo faras malbonan efekt-
 
-kaj maltrafas sian celon. 
+on, ke nigra pli bone konvenus; malprava li estus, se li
 
-Notu al vi, sinjoro, ke mi ne pretendas, ke la kritiko 
+dirus, ke tiu ĝevalo estas blanka, se ĝi estas nigra: jen
 
-devas nepre aprobi niajn ideojn, eæ ilin studinte; ni tute 
+kiel agas la plej multaj el niaj kontraŭuloj.
 
-ne riproæas tiujn, kiuj ne pensas same kiel ni. Kio estas 
+Per unu vorto, sinjoro, ĝiu rajtas tute libere aprobi
 
-evidenta por ni, tio povas tia ne esti por ceteraj; æiu 
+aŭ malaprobi la principojn de Spiritismo, el ili dedukti
 
-juøas la aferojn el sia punkto de vidado, kaj el iu plej 
+tiajn bonajn aŭ malbonajn sekvojn, kiaj al li plaĝas, sed
 
-senduba fakto ne æiuj tiras samajn sekvojn. Se, ekzemple, 
+la konscienco devigas ĝiun seriozan kritikanton ne diri
 
-iu pentristo en sia bildo prezentas æevalon blankan, iu 
 
-povos ja prave trovi, ke tia æevalo faras malbonan efekt- 
+KIO ESTAS SPIRITISMO ?
 
-on, ke nigra pli bone konvenus; malprava li estus, se li 
 
-dirus, ke tiu æevalo estas blanka, se øi estas nigra: jen 
+la malon de tio, kio ja estas; nu, por tio, unua kondiĝo
 
-kiel agas la plej multaj el niaj kontraýuloj. 
+estas paroli sole nur pri tio, kion li scias.
 
-Per unu vorto, sinjoro, æiu rajtas tute libere aprobi 
 
-aý malaprobi la principojn de Spiritismo, el ili dedukti 
+**V. **— Ni denove parolu, mi petas, pri la turniĝantaj
 
-tiajn bonajn aý malbonajn sekvojn, kiaj al li plaæas, sed 
+kaj parolantaj tabloj: Æu ne povus okazi, ke ili estu al-
 
-la konscienco devigas æiun seriozan kritikanton ne diri 
+preparitaj?
 
 
+**A. K. — **Æi tio estas tiu sama demando pri bonfido,
 
-KIO ESTAS SPIRITISMO ? 
+kiun mi jam respondis. Kiam la friponeco estos pruv-
 
-17 
+ita, tiam mi ĝin fordonos al via arbitro; se vi montros
 
+**efektive konstatitajn **atestojn pri artifikado, ĝarlatan-
 
+ismo, ekspluatado aŭ konfidotrompo, tiam mi ilin for-
 
-la malon de tio, kio ja estas; nu, por tio, unua kondiæo 
+lasos al via skurĝado, antaŭe deklarante, ke mi ilin ne
 
-estas paroli sole nur pri tio, kion li scias. 
+defendos, ĝar la serioza Spiritismo ilin la unua repuþas,
 
+kaj ke montri la trouzojn estas kunhelpi por ilin antaŭ-
 
+forigi kaj servi al ĝi.
 
-**V. **— Ni denove parolu, mi petas, pri la turniøantaj 
+Sed ĝeneraligi tiujn akuzojn, pri¼eti grandan nombr-
 
-kaj parolantaj tabloj: Æu ne povus okazi, ke ili estu al- 
+on da respektindaj homoj per la riproĝo, kiun meritas
 
-preparitaj? 
+iaj kelke da individuoj, tio estas alispeca trouzo, nome
 
+kalumnio.
 
+Se, kiel vi diras, la tabloj estas alpreparataj, estus
 
-**A. K. — **Æi tio estas tiu sama demando pri bonfido, 
+do necesa ia tre sprita mekanismo, por ke ili nasku tiel
 
-kiun mi jam respondis. Kiam la friponeco estos pruv- 
+diversajn movojn kaj bruojn. Kiel do oni ankoraŭ ne
 
-ita, tiam mi øin fordonos al via arbitro; se vi montros 
+konas la nomon de la lerta fabrikanto de tiaj tabloj?
 
-**efektive konstatitajn **atestojn pri artifikado, æarlatan- 
+Li certe estus famega, ĝar tiaj aparatoj troviĝas en la
 
-ismo, ekspluatado aý konfidotrompo, tiam mi ilin for- 
+kvin partoj de la mondo. Oni devas ja konsenti ankaŭ,
 
-lasos al via skurøado, antaýe deklarante, ke mi ilin ne 
+ke lia mekanismo estas tre subtila, ĝar ĝi povas alĝust-
 
-defendos, æar la serioza Spiritismo ilin la unua repuþas, 
+iĝi al ĝia ajn tablo, lasante nenian videblan postesignon.
 
-kaj ke montri la trouzojn estas kunhelpi por ilin antaý- 
+Kiel klarigi, ke de post Tertuliano, kiu, ankaŭ li, parolis
 
-forigi kaj servi al øi. 
+pri la turniĝantaj kaj parolantaj tabloj, ĝis hodiaŭ neniu
 
-Sed øeneraligi tiujn akuzojn, pri¼eti grandan nombr- 
+povis vidi nek priskribi tian mekanismon?
 
-on da respektindaj homoj per la riproæo, kiun meritas 
 
-iaj kelke da individuoj, tio estas alispeca trouzo, nome 
+**V. **— Jen kio vin erarigas. Fama kirurgo trovis,
 
-kalumnio. 
+ke certaj homoj povas, per kuntiriĝo de iu muskolo de
 
-Se, kiel vi diras, la tabloj estas alpreparataj, estus 
+la kruro, aŭdigi brueton similan al tiu, kiun vi atribuas
 
-do necesa ia tre sprita mekanismo, por ke ili nasku tiel 
+al la tablo; el tio li konkludis, ke viaj mediumoj sin
 
-diversajn movojn kaj bruojn. Kiel do oni ankoraý ne 
+amuzas pri via kredemeco.
 
-konas la nomon de la lerta fabrikanto de tiaj tabloj? 
 
-Li certe estus famega, æar tiaj aparatoj troviøas en la 
+**A. K. **— Se do tio estas krako de muskolo, tiam
 
-kvin partoj de la mondo. Oni devas ja konsenti ankaý, 
+ĝi ne estas brueto el alpreparita tablo; kaj ĝar ĝiu klar-
 
-ke lia mekanismo estas tre subtila, æar øi povas aløust- 
+igas tiun supozatan fripona¼on laŭ sia aparta maniero,
 
-iøi al æia ajn tablo, lasante nenian videblan postesignon. 
 
-Kiel klarigi, ke de post Tertuliano, kiu, ankaý li, parolis 
+ALLAN KARDEC
 
-pri la turniøantaj kaj parolantaj tabloj, øis hodiaý neniu 
 
-povis vidi nek priskribi tian mekanismon? 
+tio plej evidente pruvas, ke nek unuj nek aliaj konas la
 
+veran kaŭzon.
 
+Mi respektas la sciojn de tiu klera kirurgo, nur lev-
 
-**V. **— Jen kio vin erarigas. Fama kirurgo trovis, 
+iĝas iaj malfacila¼oj ĝe la aplikado de tiu fakto, kiun
 
-ke certaj homoj povas, per kuntiriøo de iu muskolo de 
+li citas, al la parolantaj tabloj. La unua estas tio, ke
 
-la kruro, aýdigi brueton similan al tiu, kiun vi atribuas 
+estas strange, ke tiu kapablo, ĝis hodiaŭ escepta kaj
 
-al la tablo; el tio li konkludis, ke viaj mediumoj sin 
+rigardata kiel patologia okazo, subite fariĝis tiel ordi-
 
-amuzas pri via kredemeco. 
+nara; la dua, ke oni ja devas havi fortegan deziron mis -
 
+tifiki, por krakigi sian muskolon en la daŭro de tutaj
 
+du aŭ tri horoj, dum tio alportas nur laciĝon kaj do-
 
-**A. K. **— Se do tio estas krako de muskolo, tiam 
+loron; la tria, ke mi ne tute klare vidas, kiel al tiu
 
-øi ne estas brueto el alpreparita tablo; kaj æar æiu klar- 
+muskolo respondas la pordoj kaj la muroj, kie aŭdiĝas
 
-igas tiun supozatan fripona¼on laý sia aparta maniero, 
+la frapoj; la kvara, fine, ke tiu krakanta muskolo devas
 
-18 
+havi ja mirindan kapablon, por movigi tre pezan tablon,
 
-ALLAN KARDEC 
+ĝin levi, malfermi, fermi, teni þvebanta sen apogo kaj
 
+fine ĝin rompi ĝe la falo. Neniu ja suspektus, ke tiu
 
+muskolo havas tian grandan povon. (**Revue Spirite, **, pĝ. 141: **Le muscle craqueur. **)
 
-tio plej evidente pruvas, ke nek unuj nek aliaj konas la 
+Æu tiu fama kirurgo, pri kiu vi parolas, studis tiun
 
-veran kaýzon. 
+fenomenon, la tiptologion, ĝe la homoj, kiuj ĝin okaz-
 
-Mi respektas la sciojn de tiu klera kirurgo, nur lev- 
+igas? Ne; li konstatis ĝe iuj individuoj, kiuj neniam
 
-iøas iaj malfacila¼oj æe la aplikado de tiu fakto, kiun 
+antaŭe sin okupis pri frapantaj tabloj, ian anormalan
 
-li citas, al la parolantaj tabloj. La unua estas tio, ke 
+fiziologian efikon, iel analogan al tiu, fariĝanta ĝe la
 
-estas strange, ke tiu kapablo, øis hodiaý escepta kaj 
+tabloj, kaj sen plua ekzameno konkludis, laŭ la tuta aŭ-
 
-rigardata kiel patologia okazo, subite fariøis tiel ordi- 
+toritateco de sia klereco, ke ĝiuj, kiuj kunhelpas por la
 
-nara; la dua, ke oni ja devas havi fortegan deziron mis - 
+parolado de la tabloj, devas esti kapablaj krakigi sian
 
-tifiki, por krakigi sian muskolon en la daýro de tutaj 
+peronean muskolon kaj estas simplaj trompantoj, ĝu ili
 
-du aý tri horoj, dum tio alportas nur laciøon kaj do- 
+estas princoj aŭ metiistoj, ĝu ili postulas monon aŭ ne.
 
-loron; la tria, ke mi ne tute klare vidas, kiel al tiu 
+Æu li almenaŭ studis la tiptologion en ĝiuj ĝiaj aspektoj?
 
-muskolo respondas la pordoj kaj la muroj, kie aýdiøas 
+Æu li vidis, ĝu per tiu krakado de muskolo oni povas
 
-la frapoj; la kvara, fine, ke tiu krakanta muskolo devas 
+okazigi ĝiujn tiptologiajn efikojn? Ne, ĝar alie li kon-
 
-havi ja mirindan kapablon, por movigi tre pezan tablon, 
+vinkiĝus pri la nesufiĝeco de sia supozo, kio ne detenis
 
-øin levi, malfermi, fermi, teni þvebanta sen apogo kaj 
+lin proklami sian eltrovon en la Instituto de Francujo
 
-fine øin rompi æe la falo. Neniu ja suspektus, ke tiu 
+mem. Jen grava juĝo, serioze kompromitanta scienc-
 
-muskolo havas tian grandan povon. \(**Revue Spirite, **Junio 
+ulon! Kio el ĝi restas hodiaŭ? Mi konfesas, ke, se mi
 
-1859, pø. 141: **Le muscle craqueur. **\) 
+devus submeti min al kirurgia operacio, mi tre hezitus
 
-Æu tiu fama kirurgo, pri kiu vi parolas, studis tiun 
+konfidi min al tiu kuracisto, ĝar mi timus, ke li juĝus
 
-fenomenon, la tiptologion, æe la homoj, kiuj øin okaz- 
+mian malsanon malpli sagace.
 
-igas? Ne; li konstatis æe iuj individuoj, kiuj neniam 
+Æar tiu juĝo estas unu el la aŭtoritataj argumentoj,
 
-antaýe sin okupis pri frapantaj tabloj, ian anormalan 
 
-fiziologian efikon, iel analogan al tiu, fariøanta æe la 
+KIO ESTAS SPIRITISMO ?
 
-tabloj, kaj sen plua ekzameno konkludis, laý la tuta aý- 
 
-toritateco de sia klereco, ke æiuj, kiuj kunhelpas por la 
+sur kiuj vi laŭþajne devas apogi vin, por ataki Spirit-
 
-parolado de la tabloj, devas esti kapablaj krakigi sian 
+ismon, tio min tute trankviligas pri la forto de la ceter-
 
-peronean muskolon kaj estas simplaj trompantoj, æu ili 
+aj argumentoj, kies valoron vi uzos, se vi ilin ne ĝerpos
 
-estas princoj aý metiistoj, æu ili postulas monon aý ne. 
+el pli fidindaj fontoj.
 
-Æu li almenaý studis la tiptologion en æiuj øiaj aspektoj? 
 
-Æu li vidis, æu per tiu krakado de muskolo oni povas 
+**V. **— Vi tamen vidas, ke la modo pri la turniĝantaj
 
-okazigi æiujn tiptologiajn efikojn? Ne, æar alie li kon- 
+tabloj jam pasis; dum certa tempo ili furoris, sed ho-
 
-vinkiøus pri la nesufiæeco de sia supozo, kio ne detenis 
+diaŭ neniu plu sin okupas pri ili. Kial tio okazas, se
 
-lin proklami sian eltrovon en la Instituto de Francujo 
+la afero estas io serioza?
 
-mem. Jen grava juøo, serioze kompromitanta scienc- 
 
-ulon\! Kio el øi restas hodiaý? Mi konfesas, ke, se mi 
+**A. K. **— Tial, ĝar el la turniĝantaj tabloj venis afe-
 
-devus submeti min al kirurgia operacio, mi tre hezitus 
+ro ankoraŭ pli serioza; venis tuta scienco, tuta filozofia
 
-konfidi min al tiu kuracisto, æar mi timus, ke li juøus 
+doktrino, ja alie interesantaj la meditemajn homojn.
 
-mian malsanon malpli sagace. 
+Kiam ĝi tiuj konstatis ke ili jam nenion pli lernos, vid-
 
-Æar tiu juøo estas unu el la aýtoritataj argumentoj, 
+ante turniĝi tablojn, tiam ili ne plu interesiĝis pri tio.
 
+Por la frivoluloj, kiuj nenion funde esploris, tiu estis
 
+tempopasigilo, amuza¼o, kiun ili forlasis, kiam ili tediĝis
 
-KIO ESTAS SPIRITISMO ? 
+de ĝi; tiaj homoj estas nuloj en la scienca sfero. La
 
-19 
+fazo de scivolo vivis sian tempon: sekvis ĝin tiu de
 
+observado. Spiritismo tiam eniris en la rondon de la
 
+seriozaj homoj, kiuj pri ĝi ne amuziĝas, sed per ĝi sin
 
-sur kiuj vi laýþajne devas apogi vin, por ataki Spirit- 
+instruas. Tial la homoj, kiuj rigardas ĝin kiel aferon
 
-ismon, tio min tute trankviligas pri la forto de la ceter- 
+gravan, ne volonte submetiĝas al eksperimento pro sci-
 
-aj argumentoj, kies valoron vi uzos, se vi ilin ne æerpos 
+volo, des malpli por kontentigi iun, kiu portus malamik-
 
-el pli fidindaj fontoj. 
+ajn pensojn; ne amuzante sin mem, ili tial ne penas amuzi
 
+la aliajn: mi apartenas al ĝi tiu nomb ro.
 
 
-**V. **— Vi tamen vidas, ke la modo pri la turniøantaj 
+**V. **— Tamen nur eksperimentoj povas konvinki, eĝ
 
-tabloj jam pasis; dum certa tempo ili furoris, sed ho- 
+tiam, se en la komenco oni celas kontentigi la scivolon.
 
-diaý neniu plu sin okupas pri ili. Kial tio okazas, se 
+Se vi eksperimentas nur inter jam konvinkitaj homoj,
 
-la afero estas io serioza? 
+permesu, ke mi diru, vi do predikas al konvertitoj.
 
 
+**A. K. **— Malsamaj aferoj estas konvinkiteco kaj
 
-**A. K. **— Tial, æar el la turniøantaj tabloj venis afe- 
+preteco konvinkiĝi; mi parolas al la homoj kun tia pret-
 
-ro ankoraý pli serioza; venis tuta scienco, tuta filozofia 
+eco, ne al tiuj, kiuj pensas, ke ili humiligas sian pru-
 
-doktrino, ja alie interesantaj la meditemajn homojn. 
+denton, venante aŭskulti tion, kion ili nomas fantazi-
 
-Kiam æi tiuj konstatis ke ili jam nenion pli lernos, vid- 
+a¼oj. Pri tiuj mi tute ne zorgas. Tiuj, kiuj manifestas
 
-ante turniøi tablojn, tiam ili ne plu interesiøis pri tio. 
+sian sinceran deziron instruiĝi, ĝin la plej bone pruvas
 
-Por la frivoluloj, kiuj nenion funde esploris, tiu estis 
+montrante persistemon; oni ilin ekkonas laŭ aliaj signoj,
 
-tempopasigilo, amuza¼o, kiun ili forlasis, kiam ili tediøis 
+ol la deziro ĝeesti unu aŭ du eksperimentojn: tiuj volas
 
-de øi; tiaj homoj estas nuloj en la scienca sfero. La 
+labori serioze.
 
-fazo de scivolo vivis sian tempon: sekvis øin tiu de 
 
-observado. Spiritismo tiam eniris en la rondon de la 
+ALLAN KARDEC
 
-seriozaj homoj, kiuj pri øi ne amuziøas, sed per øi sin 
 
-instruas. Tial la homoj, kiuj rigardas øin kiel aferon 
+Konvinkitecon oni akiras al si nur kun la tempo,
 
-gravan, ne volonte submetiøas al eksperimento pro sci- 
+per serio da observoj, farataj kun tute aparta zorgo.
 
-volo, des malpli por kontentigi iun, kiu portus malamik- 
+La spiritismaj fenomenoj esence diferencas de tiuj en la
 
-ajn pensojn; ne amuzante sin mem, ili tial ne penas amuzi 
+ekzataj sciencoj: ili ne okazas laŭ la plaĝo de la homo,
 
-la aliajn: mi apartenas al æi tiu nomb ro. 
+oni devas ilin kapti ĝe la momento mem; nur multe kaj
 
+longe observante oni rimarkas grandegan nombron da
 
+pruvoj, kiuj pretervidiĝas ĝe la unua rigardo, precipe
 
-**V. **— Tamen nur eksperimentoj povas konvinki, eæ 
+tiam, kiam oni ne plene scias la kondiĝojn, en kiuj ili
 
-tiam, se en la komenco oni celas kontentigi la scivolon. 
+povas troviĝi, kaj des pli tiam, kiam oni tenas jam prete
 
-Se vi eksperimentas nur inter jam konvinkitaj homoj, 
+malfavoran juĝon pri tiuj fenomenoj. Por diligenta kaj
 
-permesu, ke mi diru, vi do predikas al konvertitoj. 
+konsiderema observanto la pruvoj abundas: por li unu
 
+vorto, unu fakto þajne sensignifa povas esti ia lumstrio,
 
+ia konfirmo; por supra¼ema kaj unuminuta observanto,
 
-**A. K. **— Malsamaj aferoj estas konvinkiteco kaj 
+por la simpla scivolulo, ili estas nulaj; jen kial mi ne
 
-preteco konvinkiøi; mi parolas al la homoj kun tia pret- 
+volontas fari eksperimentojn sen ia probabla rezultato.
 
-eco, ne al tiuj, kiuj pensas, ke ili humiligas sian pru- 
 
-denton, venante aýskulti tion, kion ili nomas fantazi- 
+**V. **— Nu, ĝion konsiderante, ĝio devas ja havi ian
 
-a¼oj. Pri tiuj mi tute ne zorgas. Tiuj, kiuj manifestas 
+komencon. Kiel la novico, kiu estas nulo, kiu nenion
 
-sian sinceran deziron instruiøi, øin la plej bone pruvas 
+vidis, sed kiu volas instruiĝi, povas tion fari, se vi ne
 
-montrante persistemon; oni ilin ekkonas laý aliaj signoj, 
+havigas al li la rimedojn por ĝi?
 
-ol la deziro æeesti unu aý du eksperimentojn: tiuj volas 
 
-labori serioze. 
+**A. K. **— Mi strekas netan linion inter la nekred-
 
-20 
+emulo pro nescio, kaj la nekredemulo pro partieco; kiam
 
-ALLAN KARDEC 
+mi vidas ĝe iu favoran humoron, neniom kostas al mi
 
+instrui lin, sed de iuj homoj la deziro instruiĝi estas
 
+simpla þajna¼o: kun tiuj oni perdas sian tempon, ĝar, se
 
-Konvinkitecon oni akiras al si nur kun la tempo, 
+ili ne tuj trovas tion, kion ili þajnas serĝi kaj kio eble
 
-per serio da observoj, farataj kun tute aparta zorgo. 
+malplaĝus al ili, se ĝi al ili montriĝus, la malmulto, kiun
 
-La spiritismaj fenomenoj esence diferencas de tiuj en la 
+ili vidas estas nesufiĝa, por disbati iliajn antaŭjuĝojn;
 
-ekzataj sciencoj: ili ne okazas laý la plaæo de la homo, 
+tion ili misjuĝas kaj faras mokata¼o, kaj tial estas sen-
 
-oni devas ilin kapti æe la momento mem; nur multe kaj 
+utile montri al ili tiajn aferojn.
 
-longe observante oni rimarkas grandegan nombron da 
+Al iu deziranta instruiĝi, mi diras: "Oni ne povas
 
-pruvoj, kiuj pretervidiøas æe la unua rigardo, precipe 
+fari kurson de eksperimenta Spiritismo tiel same, kiel
 
-tiam, kiam oni ne plene scias la kondiæojn, en kiuj ili 
+kurson de Fiziko aŭ ¦emio, ĝar oni ne kapablas laŭ-
 
-povas troviøi, kaj des pli tiam, kiam oni tenas jam prete 
+plaĝe okazigi spiritismajn fenomenojn kaj la inteligentoj,
 
-malfavoran juøon pri tiuj fenomenoj. Por diligenta kaj 
+agantoj de tiuj fenomenoj, ofte fiaskigas ĝiujn niajn an-
 
-konsiderema observanto la pruvoj abundas: por li unu 
+taŭvidojn. Prezentante nenian intersekvon, nenian ne-
 
-vorto, unu fakto þajne sensignifa povas esti ia lumstrio, 
+cesan interligon, tiuj, kiujn vi okaze povus vidi, estus
 
-ia konfirmo; por supra¼ema kaj unuminuta observanto, 
+por vi nemulte kompreneblaj. Unue instruiĝu per la
 
-por la simpla scivolulo, ili estas nulaj; jen kial mi ne 
+teorio; legu kaj primeditu la verkojn pri tiu scienco: tie
 
-volontas fari eksperimentojn sen ia probabla rezultato. 
 
+KIO ESTAS SPIRITISMO ?
 
 
-**V. **— Nu, æion konsiderante, æio devas ja havi ian 
+vi lernos ĝiajn principojn, vi trovos la priskribon de ĝiuj
 
-komencon. Kiel la novico, kiu estas nulo, kiu nenion 
+fenomenoj, vi komprenos ilian eblecon per la klarigo,
 
-vidis, sed kiu volas instruiøi, povas tion fari, se vi ne 
+pri ili donata, kaj la raporto de multego da spontaneaj
 
-havigas al li la rimedojn por øi? 
+faktoj, kiujn vi pretervole ĝeestis kaj kiuj revenos en
 
+vian memoron; vi plene informiĝos pri ĝiaj malfacila¼oj,
 
+kiuj povas stariĝi, kaj tiel vi formos al vi ian unuan
 
-**A. K. **— Mi strekas netan linion inter la nekred- 
+moralan konvn. Kiam do prezentiĝos la okazo vidi
 
-emulo pro nescio, kaj la nekredemulo pro partieco; kiam 
+aŭ eksperimenti persone, vi komprenos la aferojn, kia
 
-mi vidas æe iu favoran humoron, neniom kostas al mi 
+ajn la ordo, en kiu sin prezentos la faktoj, ĝar nenio
 
-instrui lin, sed de iuj homoj la deziro instruiøi estas 
+por vi estos stranga."
 
-simpla þajna¼o: kun tiuj oni perdas sian tempon, æar, se 
+Jen, sinjoro, kion mi konsilas al ĝiu, kiu diras, ke
 
-ili ne tuj trovas tion, kion ili þajnas seræi kaj kio eble 
+li volas instruiĝi; laŭ lia respondo estas facile vidi, ĝu
 
-malplaæus al ili, se øi al ili montriøus, la malmulto, kiun 
+ĝe li ekzistas io alia ol scivolo.
 
-ili vidas estas nesufiæa, por disbati iliajn antaýjuøojn; 
 
-tion ili misjuøas kaj faras mokata¼o, kaj tial estas sen- 
-
-utile montri al ili tiajn aferojn. 
-
-Al iu deziranta instruiøi, mi diras: "Oni ne povas 
-
-fari kurson de eksperimenta Spiritismo tiel same, kiel 
-
-kurson de Fiziko aý ¦emio, æar oni ne kapablas laý- 
-
-plaæe okazigi spiritismajn fenomenojn kaj la inteligentoj, 
-
-agantoj de tiuj fenomenoj, ofte fiaskigas æiujn niajn an- 
-
-taývidojn. Prezentante nenian intersekvon, nenian ne- 
-
-cesan interligon, tiuj, kiujn vi okaze povus vidi, estus 
-
-por vi nemulte kompreneblaj. Unue instruiøu per la 
-
-teorio; legu kaj primeditu la verkojn pri tiu scienco: tie 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-21 
-
-
-
-vi lernos øiajn principojn, vi trovos la priskribon de æiuj 
-
-fenomenoj, vi komprenos ilian eblecon per la klarigo, 
-
-pri ili donata, kaj la raporto de multego da spontaneaj 
-
-faktoj, kiujn vi pretervole æeestis kaj kiuj revenos en 
-
-vian memoron; vi plene informiøos pri æiaj malfacila¼oj, 
-
-kiuj povas stariøi, kaj tiel vi formos al vi ian unuan 
-
-moralan konvinkon. Kiam do prezentiøos la okazo vidi 
-
-aý eksperimenti persone, vi komprenos la aferojn, kia 
-
-ajn la ordo, en kiu sin prezentos la faktoj, æar nenio 
-
-por vi estos stranga." 
-
-Jen, sinjoro, kion mi konsilas al æiu, kiu diras, ke 
-
-li volas instruiøi; laý lia respondo estas facile vidi, æu 
-
-æe li ekzistas io alia ol scivolo. 
-
-
-
-DUA DIALOGO 
-
+DUA DIALOGO
 
 
 **LA SKEPTIKULO **
 
-****
 
-**V. **— Mi komprenas, sinjoro, la utilecon de tiu pre- 
+**V. **— Mi komprenas, sinjoro, la utilecon de tiu pre-
 
-para studado, pri kiu vi ¼us parolis. Laý mia persona 
+para studado, pri kiu vi ¼us parolis. Laŭ mia persona
 
-temperamento mi diras, ke mi estas nek por, nek kontraý 
+temperamento mi diras, ke mi estas nek por, nek kontraŭ
 
-Spiritismo, sed ke æi tiu objekto per si mem plej alt- 
+Spiritismo, sed ke ĝi tiu objekto per si mem plej alt-
 
-grade ekscitas mian intereson. En la rondo de miaj kon- 
+grade ekscitas mian intereson. En la rondo de miaj kon-
 
-atoj troviøas de øi partianoj, sed ankaý kontraýuloj; pri 
+atoj troviĝas de ĝi partianoj, sed ankaŭ kontraŭuloj; pri
 
-øi mi aýdas forte interkontraýajn argumentojn; mi do 
+ĝi mi aŭdas forte interkontraŭajn argumentojn; mi do
 
-deziras submeti al vi kelkajn el tiuj kontraýdiroj, faritaj 
+deziras submeti al vi kelkajn el tiuj kontraŭdiroj, faritaj
 
-en mia æeesto kaj kiuj þajnas al mi iom valoraj, almenaý 
+en mia ĝeesto kaj kiuj þajnas al mi iom valoraj, almenaŭ
 
-al mi, kiu konfesas al vi mian nesciadon en æi tiu rilato. 
-
+al mi, kiu konfesas al vi mian nesciadon en ĝi tiu rilato.
 
 
-**A. K. **— Estas por mi plezuro, sinjoro, respondi la 
+**A. K. **— Estas por mi plezuro, sinjoro, respondi la
 
-demandojn, kiujn oni bonvolas al mi fari, kiam faritaj 
+demandojn, kiujn oni bonvolas al mi fari, kiam faritaj
 
-sincere kaj sen kaþita penso, kvankam mi ne pretendas, 
+sincere kaj sen kaþita penso, kvankam mi ne pretendas,
 
-ke mi povas ilin æiujn solvi. Spiritismo estas scienco ¼us 
+ke mi povas ilin ĝiujn solvi. Spiritismo estas scienco ¼us
 
-naskiøinta kaj pri kiu oni ankoraý multe devas lerni; 
+naskiĝinta kaj pri kiu oni ankoraŭ multe devas lerni;
 
-estus do tro vante de mia flanko pretendi formovi æiajn 
+estus do tro vante de mia flanko pretendi formovi ĝiajn
 
-malfacila¼ojn: mi povas diri sole nur tion, kion mi scias. 
+malfacila¼ojn: mi povas diri sole nur tion, kion mi scias.
 
-Spiritismo rilatas kun æiuj branæoj de la filozofio, 
+Spiritismo rilatas kun ĝiuj branĝoj de la filozofio,
 
-de la metafiziko, de la psikologio kaj de la moralo; øi 
+de la metafiziko, de la psikologio kaj de la moralo; ĝi
 
-estas grandega kampo, kiun oni ne povas trairi en iaj 
+estas grandega kampo, kiun oni ne povas trairi en iaj
 
-kelke da horoj. Nu, vi ja komprenas, sinjoro, ke estus 
-
-22 
-
-ALLAN KARDEC 
+kelke da horoj. Nu, vi ja komprenas, sinjoro, ke estus
 
 
-
-por mi fizike ne eble ripeti per propra buþo kaj al æiu 
-
-persone æion, kion mi pri tio skribis por øenerala uzado. 
-
-Per antaýa serioza legado oni cetere trovos la res- 
-
-pondon je la plej multaj demandoj, nature venantaj en 
-
-la menson: øi havas la duoblan meriton eviti senutil- 
-
-ajn ripetojn kaj pruvi seriozan deziron instruiøi. Se post 
-
-øi ankoraý restas duboj aý malklaraj punktoj, ilia klar- 
-
-igo fariøas pli facila, æar oni jam apogas sin sur io kaj 
-
-ne perdas tempon por veni returne al la plej elementaj 
-
-principoj. Se vi øin permesas, ni por momento limigos 
-
-nin je kelkaj øeneralaj demandoj. 
+ALLAN KARDEC
 
 
+por mi fizike ne eble ripeti per propra buþo kaj al ĝiu
 
-**V. **— Konsentite; bonvolu, mi petas, admoni min, se 
+persone ĝion, kion mi pri tio skribis por ĝenerala uzado.
 
-mi ne konvene kondutos. 
+Per antaŭa serioza legado oni cetere trovos la res-
 
+pondon je la plej multaj demandoj, nature venantaj en
+
+la menson: ĝi havas la duoblan meriton eviti senutil-
+
+ajn ripetojn kaj pruvi seriozan deziron instruiĝi. Se post
+
+ĝi ankoraŭ restas duboj aŭ malklaraj punktoj, ilia klar-
+
+igo fariĝas pli facila, ĝar oni jam apogas sin sur io kaj
+
+ne perdas tempon por veni returne al la plej elementaj
+
+principoj. Se vi ĝin permesas, ni por momento limigos
+
+nin je kelkaj ĝeneralaj demandoj.
+
+
+**V. **— Konsentite; bonvolu, mi petas, admoni min, se
+
+mi ne konvene kondutos.
 
 
 **Spiritismo kaj spiritualismo **
 
-****
 
-Mi demandas vin unue, kian neceson oni havis krei 
+Mi demandas vin unue, kian neceson oni havis krei
 
-la vortojn **spiritista, spiritisma, spiritisto, spiritismo, **por anstataýigi **spiritualista, spiritualisma, spiritualisto, spi - **
+la vortojn **spiritista, spiritisma, spiritisto, spiritismo, **por anstataŭigi **spiritualista, spiritualisma, spiritualisto, spi - **
 
-**ritualismo, **kiuj ekzistas en la vulgara lingvo kaj estas 
+**ritualismo, **kiuj ekzistas en la vulgara lingvo kaj estas
 
-komprenataj de æiuj? Mi aýdis iun kvalitigi tiujn vort- 
+komprenataj de ĝiuj? Mi aŭdis iun kvalitigi tiujn vort-
 
 ojn **barbarismoj. **
 
-****
 
-**A. K. **— La vorto **spiritualisto **jam longe havas tute 
+**A. K. **— La vorto **spiritualisto **jam longe havas tute
 
-difinitan sencon, donitan de la Akademio: SPIRITUAL- 
+difinitan sencon, donitan de la Akademio: SPIRITUAL-
 
 ISTO, SPIRITUALISTINO, **tiu homo, kies doktrino estas **
 
-**kontraýa al la materialismo. ** Æiuj religioj nepre sin baz- 
+**kontraŭa al la materialismo. ** Æiuj religioj nepre sin baz-
 
-as sur spiritualismo. Kiu kredas, ke en ni ekzistas io 
+as sur spiritualismo. Kiu kredas, ke en ni ekzistas io
 
-krom materio, tiu estas spiritualisto, el kio ne sekvas, 
+krom materio, tiu estas spiritualisto, el kio ne sekvas,
 
-ke li kredas la ekziston de la Spiritoj kaj ties manifest- 
+ke li kredas la ekziston de la Spiritoj kaj ties manifest-
 
-iøojn. Kiel vi distingus lin de tiu, kiu kredas tion? Vi 
+iĝojn. Kiel vi distingus lin de tiu, kiu kredas tion? Vi
 
-devus uzi æirkaýfrazon, dirante: Li estas spiritualisto, 
+devus uzi ĝirkaŭfrazon, dirante: Li estas spiritualisto,
 
-kiu kredas, aý ne kredas la ekziston de la Spiritoj. Por 
+kiu kredas, aŭ ne kredas la ekziston de la Spiritoj. Por
 
-novaj aferoj estas necesaj novaj vortoj, se oni volas eviti 
+novaj aferoj estas necesaj novaj vortoj, se oni volas eviti
 
-dubasenca¼ojn. Se mi estus doninta al mia REVUE la 
+dubasenca¼ojn. Se mi estus doninta al mia REVUE la
 
-kvalifikon **spiritualisma, ** mi tute neniel estus difininta 
+kvalifikon **spiritualisma, ** mi tute neniel estus difininta
 
-øian celon, æar, ne neigante øian titolon, mi povus tie 
+ĝian celon, ĝar, ne neigante ĝian titolon, mi povus tie
 
-ne diri eæ unu vorton pri la Spiritoj kaj eæ ilin kontraý- 
+ne diri eĝ unu vorton pri la Spiritoj kaj eĝ ilntraŭ-
 
-batali. Antaý kelka tempo mi legis en gazeto, pri ia 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-23 
+batali. Antaŭ kelka tempo mi legis en gazeto, pri ia
 
 
+KIO ESTAS SPIRITISMO ?
 
-filozofia verko, artikolon, en kiu oni diris, ke la aýtoro 
 
-øin skribis el la vidpunkto **spiritualisma; **nu, la partianoj 
+filozofia verko, artikolon, en kiu oni diris, ke la aŭtoro
 
-de la Spiritoj sentus sin profunde trompitaj, se, fidante 
+ĝin skribis el la vidpunkto **spiritualisma; **nu, la partianoj
 
-tiun aserton, ili kredus, ke ili tie trovos eæ la plej mal- 
+de la Spiritoj sentus sin profunde trompitaj, se, fidante
 
-grandan akordon kun iliaj ideoj. Se do mi alprenis la 
+tiun aserton, ili kredus, ke ili tie trovos eĝ la plej mal-
 
-vortojn **spiritista, spiritisma, spiritisto, spiritismo, **tiel mi agis tial, ke ili sen ia dubo esprimas la ideojn rilatajn 
+grandan akordon kun iliaj ideoj. Se do mi alprenis la
 
-al la Spiritoj. Æiu **spiritisto **estas nepre **spiritualisto, ** sed ne æiuj **spiritualistoj **estas **spiritistoj. ** Eæ se la Spiritoj estus ia ¶imero, estus ja utile havi specialajn terminojn 
+vortojn **spiritista, spiritisma, spiritisto, spiritismo, **tiel mi agis tial, ke ili sen ia dubo esprimas la ideojn rilatajn
 
-por tio, kio ilin koncernas, æar estas necesaj vortoj por 
+al la Spiritoj. Æiu **spiritisto **estas nepre **spiritualisto, ** sed ne ĝiuj **spiritualistoj **estas **spiritistoj. ** Eĝ se la Spiritoj estus ia ¶imero, estus ja utile havi specialajn terminojn
 
-la ideoj malveraj, kiel ankaý por la ideoj veraj. 
+por tio, kio ilncernas, ĝar estas necesaj vortoj por
 
-Tiuj vortoj cetere ne estas pli barbaraj ol tiuj, kiujn 
+la ideoj malveraj, kiel ankaŭ por la ideoj veraj.
 
-la sciencoj, la artoj kaj la industrio æiutage kreas; ili 
+Tiuj vortoj cetere ne estas pli barbaraj ol tiuj, kiujn
 
-tiaj certe ne estas pli ol tiuj, kiujn Gall \(\*\) imagis por 
+la sciencoj, la artoj kaj la industrio ĝiutage kreas; ili
+
+tiaj certe ne estas pli ol tiuj, kiujn Gall (*) imagis por
 
 sia nomenklaturo de la fakultoj, kiel **sekretiveco, amativ- **
 
-**eco, bataliveco, nutriveco, afekciiveco **k. a. 
+**eco, bataliveco, nutriveco, afekciiveco **k. a.
 
-Iuj homoj pro kontraýemo kritikas æion, kio ne ven- 
+Iuj homoj pro kontraŭemo kritikas ĝion, kio ne ven-
 
-as de ili kaj pretendas afekti oponon; tiuj, kiuj elmovas 
+as de ili kaj pretendas afekti oponon; tiuj, kiuj elmovas
 
-tiajn mizerajn æikanojn, elmontras nur unu aferon, nome 
+tiajn mizerajn ĝikanojn, elmontras nur unu aferon, nome
 
-la malvastecon de siaj ideoj. 
+la malvastecon de siaj ideoj.
 
-Alkroæiøi al tiaj bagatelaæoj estas montri mankon 
+Alkroĝiĝi al tiaj bagatelaĝoj estas montri mankon
 
-de bonaj motivoj. 
+de bonaj motivoj.
 
-**Spiritualismo, spiritualisto **respondas al la anglaj 
+**Spiritualismo, spiritualisto **respondas al la anglaj
 
-vortoj, uzataj en Usono ekde la komenco de la manifest- 
+vortoj, uzataj en Usono ekde la komenco de la manifest-
 
-iøoj de Spiritoj, unue kaj dum kelka tempo ankaý en 
+iĝoj de Spiritoj, unue kaj dum kelka tempo ankaŭ en
 
 Francujo; sed de kiam aperis la terminoj **spiritismo, **
 
-**spiritisto, **oni tiel bone komprenis ties utilecon, ke la 
+**spiritisto, **oni tiel bone komprenis ties utilecon, ke la
 
-publiko ilin tuj akceptis. Hodiaý ilia uzado estas tiel 
+publiko ilin tuj akceptis. Hodiaŭ ilia uzado estas tiel
 
-konfirmita, ke la kontraýuloj mem, tiuj, kiuj la unuaj 
+konfirmita, ke la kontraŭuloj mem, tiuj, kiuj la unuaj
 
-ilin kvalitigis barbarismoj, ne aliajn uzas. La predikoj 
+ilin kvalitigis barbarismoj, ne aliajn uzas. La predikoj
 
-kaj la episkopaj mandatoj, kiuj anatemas **Spiritismon **kaj 
+kaj la episkopaj mandatoj, kiuj anatemas **Spiritismon **kaj
 
-la **spiritistojn, **ne povus, sen konfuzo de ideoj, esti ana- 
+la **spiritistojn, **ne povus, sen konfuzo de ideoj, esti ana-
 
-temintaj la **spiritualismon **kaj la **spiritualistojn. ** 
+temintaj la **spiritualismon **kaj la **spiritualistojn. **
 
-Æu barbarismoj aý ne, æi tiuj vortoj jam eniris en la 
+Æu barbarismoj aŭ ne, ĝi tiuj vortoj jam eniris en la
 
-komunuzan parolon en æiuj eýropaj lingvoj; nur ilin sol- 
-
-
-
-\( \* \) Francisko Jozefo Gall, germana kuracisto \(1758- 
-
-1828\), elpensinto de la frenologio. — *La Trad*. 
-
-24 
-
-ALLAN KARDEC 
+komunuzan parolon en ĝiuj eŭropaj lingvoj; nur ilin sol-
 
 
+( * ) Francisko Jozefo Gall, germana kuracisto (1758-
 
-ajn uzadas æiuj publikiga¼oj, favoraj aý malfavoraj, en 
+1828), elpensinto de la frenologio. — *La Trad*.
 
-æiuj landoj. Ili okupas la supron de la nomenklaturo 
 
-de la nova scienco; por esprimi la fenomenojn proprajn 
+ALLAN KARDEC
 
-al æi tiu scienco, estis necesaj specialaj terminoj; Spirit- 
 
-ismo de nun havas sian nomenklaturon tiel bona, kiel 
+ajn uzadas ĝiuj publikiga¼oj, favoraj aŭ malfavoraj, en
 
-la ¦emio. 
+ĝiuj landoj. Ili okupas la supron de la nomenklaturo
 
-La vortojn **spiritualismo **kaj **spiritualisto, **por la manifestiøoj de la Spiritoj, hodiaý uzas nur la adeptoj de 
+de la nova scienco; por esprimi la fenomenojn proprajn
 
-la tiel nomata usona skolo. 
+al ĝi tiu scienco, estis necesaj specialaj terminoj; Spirit-
 
+ismo de nun havas sian nomenklaturon tiel bona, kiel
+
+la ¦emio.
+
+La vortojn **spiritualismo **kaj **spiritualisto, **por la manifestiĝoj de la Spiritoj, hodiaŭ uzas nur la adeptoj de
+
+la tiel nomata usona skolo.
 
 
 **Malakordoj **
 
-****
 
-**V. **— Tiu diverseco de opinioj pri tio, kion vi nomas 
+**V. **— Tiu diverseco de opinioj pri tio, kion vi nomas
 
-scienco, estas, þajnas al mi, kondamno. Se tia scienco 
+scienco, estas, þajnas al mi, kondamno. Se tia scienco
 
-sin bazus sur efektivaj faktoj, æu do øi ja ne estus unu 
+sin bazus sur efektivaj faktoj, ĝu do ĝi ja ne estus unu
 
-sama en Usono kaj en Eýropo? 
-
+sama en Usono kaj en Eŭropo?
 
 
-**A. K. **— Je tio mi respondas unue, ke tia diverseco 
+**A. K. **— Je tio mi respondas unue, ke tia diverseco
 
-kuþas pli bone en la formo ol en la fundo; en la real- 
+kuþas pli bone en la formo ol en la fundo; en la real-
 
-eco øi konsistas nur en la maniero rigardi iujn punktojn 
+eco ĝi konsistas nur en la maniero rigardi iujn punktojn
 
-de la doktrino, sed ne prezentas ian radikalan antagon- 
+de la doktrino, sed ne prezentas ian radikalan antagon-
 
-ismon en la principoj, kiel afekte distrumpetas niaj kon- 
+ismon en la principoj, kiel afekte distrumpetas niaj kon-
 
-traýuloj, ne studinte la demandon. 
+traŭuloj, ne studinte la demandon.
 
-Nu, diru al mi kia scienco en sia komenco ne nask- 
+Nu, diru al mi kia scienco en sia komenco ne nask-
 
-is skismojn, øis øiaj principoj estis klare starigitaj? Æu 
+is skismojn, ĝis ĝiaj principoj estis klare starigitaj? Æu
 
-tiaj malakordoj ankoraý hodiaý ne ekzistas en la plej 
+tiaj malakordoj ankoraŭ hodiaŭ ne ekzistas en la plej
 
-bone organizitaj sciencoj? 
+bone organizitaj sciencoj?
 
-Æu æiuj kleruloj æiam akordas inter si? Æu æiu el 
+Æu ĝiuj kleruloj ĝiam akordas inter si? Æu ĝiu el
 
-ili ne havas sian personan sistemon? Æu la kunsidoj en 
+ili ne havas sian personan sistemon? Æu la kunsidoj en
 
-la Instituto de Francujo æiam prezentas bildon de per- 
+la Instituto de Francujo ĝiam prezentas bildon de per-
 
-fekta konkordo? Æu en la medicino ja ne ekzistas la 
+fekta konkordo? Æu en la medicino ja ne ekzistas la
 
-skolo de Parizo kaj la skolo de Montpellier? Æu æiu el- 
+skolo de Parizo kaj la skolo de Montpellier? Æu ĝiu el-
 
-trovo en iu scienco ne estas motivo de malkonsento in- 
+trovo en iu scienco ne estas motivo de malkonsento in-
 
-ter tiuj, kiuj volas iri antaýen, kaj tiuj, kiuj volas plue 
+ter tiuj, kiuj volas iri antaŭen, kaj tiuj, kiuj volas plue
 
-staradi? 
+staradi?
 
-Kio koncernas Spiritismon, æu ne estas nature, ke, 
+Kio koncernas Spiritismon, ĝu ne estas nature, ke,
 
-kiam aperis la unuaj fenomenoj, tiam, kiam oni ne konis 
+kiam aperis la unuaj fenomenoj, tiam, kiam oni ne konis
 
-la leøojn, laý kiuj ili fariøas, æiu elkovis sian sistemon 
+la leĝojn, laŭ kiuj ili fariĝas, ĝiu elkovis sian sistemon
 
-kaj rigardis la faktojn laý sia persona maniero? Kio 
+kaj rigardis la faktojn laŭ sia persona maniero? Kio
 
-fariøis æiuj primitivaj apartaj sistemoj? Ili falis æe 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-25 
+fariĝis ĝiuj primitivaj apartaj sistemoj? Ili falis ĝe
 
 
+KIO ESTAS SPIRITISMO ?
 
-pli profunda observado de la faktoj. Kelke da jaroj su- 
 
-fiæis, por ke stariøu la grandioza unueco, kiu hodiaý 
+pli profunda observado de la faktoj. Kelke da jaroj su-
 
-regas en la Doktrino kaj kunligas la grandegan plimult- 
+fiĝis, por ke stariĝu la grandioza unueco, kiu hodiaŭ
 
-on de øiaj adeptoj, escepte de iaj nemultaj individuoj, 
+regas en la Doktrino kaj kunligas la grandegan plimult-
 
-kiuj, en æi tiu, kiel en æiuj aferoj, alkroæiøas al la pri- 
+on de ĝiaj adeptoj, escepte de iaj nemultaj individuoj,
 
-mitivaj ideoj kaj kune kun ili mortas. Kia scienco, kia 
+kiuj, en ĝi tiu, kiel en ĝiuj aferoj, alkroĝiĝas al la pri-
 
-filozofia aý religia doktrino prezentas similan ekzempl- 
+mitivaj ideoj kaj kune kun ili mortas. Kia scienco, kia
 
-on? Æu en Spiritismo iam okazis eæ la centono de la 
+filozofia aŭ religia doktrino prezentas similan ekzempl-
 
-disapartiøoj, kiuj dum pluraj jarcentoj distranæis la 
+on? Æu en Spiritismo iam okazis eĝ la centono de la
 
-Eklezion kaj kiuj ankoraý hodiaý æi tiun diserigas? 
+disapartiĝoj, kiuj dum pluraj jarcentoj distranĝis la
 
-Estas ja kurioze vidi la infana¼ojn, al kiuj algluiøas 
+Eklezion kaj kiuj ankoraŭ hodiaŭ ĝi tiun diserigas?
 
-la kontraýuloj de Spiritismo: æu tio ne signas la senhav- 
+Estas ja kurioze vidi la infana¼ojn, al kiuj algluiĝas
 
-econ de seriozaj pravigoj? Se ili tiajn havus, ili nepre 
+la kontraŭuloj de Spiritismo: ĝu tio ne signas la senhav-
 
-tiujn uzus. Kion ili kontraýmetas al øi? Pikmokojn, kon- 
+econ de seriozaj pravigoj? Se ili tiajn havus, ili nepre
 
-testojn, kalumniojn sed da nediskuteblaj argumentoj ne- 
+tiujn uzus. Kion ili kontraŭmetas al ĝi? Pikmokojn, kon-
 
-niom, kaj la pruvo, ke oni øis nun trovis en øi nenian 
+testojn, kalumniojn sed da nediskuteblaj argumentoj ne-
 
-vundeblan lokon, estas tio, ke nenio haltigis øian supren- 
+niom, kaj la pruvo, ke oni ĝis nun trovis en ĝi nenian
 
-iradon kaj ke post dek jaroj \(\*\) øi enkalkulas plimulte 
+vundeblan lokon, estas tio, ke nenio haltigis ĝian supren-
 
-da adeptoj, ol ia ajn sekto post unu centjaro. Æi tio 
+iradon kaj ke post dek jaroj (*) ĝi enkalkulas plimulte
 
-estas fakto, konstatita de la sperto kaj konfesata eæ de 
+da adeptoj, ol ia ajn sekto post unu centjaro. Æi tio
 
-øiaj kontraýuloj. Por øin ekstermi, ne sufiæus diri: tio 
+estas fakto, konstatita de la sperto kaj konfesata eĝ de
 
-ne estas, tio estas absurdo; estus necese pruvi kategorie, 
+ĝiaj kontraŭuloj. Por ĝin ekstermi, ne sufiĝus diri: tio
 
-ke tiuj fenomenoj ne ekzistas, ne povas ekzisti: jen kion 
+ne estas, tio estas absurdo; estus necese pruvi kategorie,
 
-neniu ankoraý faris. 
+ke tiuj fenomenoj ne ekzistas, ne povas ekzisti: jen kion
 
+neniu ankoraŭ faris.
 
 
 **Þajnigaj spiritismaj fenomenoj **
 
-****
 
-**V. **— Æu ne estas pruvite, ke ekster Spiritismo oni 
+**V. **— Æu ne estas pruvite, ke ekster Spiritismo oni
 
-povas okazigi tiajn samajn fenomenojn? El tio oni pov- 
+povas okazigi tiajn samajn fenomenojn? El tio oni pov-
 
-as konvinki, ke ili ne havas tian originon, kiun la spirist- 
+as konvinki, ke ili ne havas tian originon, kiun la spirist-
 
-istoj atribuas al ili. 
-
+istoj atribuas al ili.
 
 
-**A. K. **— Æu el tio, ke oni povas imiti ion, sekvas, 
+**A. K. **— Æu el tio, ke oni povas imiti ion, sekvas,
 
-ke øi ne ekzistas? Kion vi diros pri la logikeco de iu, kiu 
+ke ĝi ne ekzistas? Kion vi diros pri la logikeco de iu, kiu
 
-pretendus, ke æia þaýmvino estas Selters-akvo, æar oni 
+pretendus, ke ĝia þaŭmvino estas Selters-akvo, ĝar oni
 
-faras þaýmvino el Selters-akvo? Tio estas la aparta eco 
+faras þaŭmvino el Selters-akvo? Tio estas la aparta eco
 
-de æiuj aferoj, kiuj havas grandan famon, naski falsa¼- 
+de ĝiuj aferoj, kiuj havas grandan famon, naski falsa¼-
 
 
+( * ) Spiritismo jam festis sian centjarecon, en 1957. —
 
-\( \* \) Spiritismo jam festis sian centjarecon, en 1957. — 
+*La Trad*.
 
-*La Trad*. 
 
-26 
-
-ALLAN KARDEC 
-
+ALLAN KARDEC
 
 
 ojn. Kelkaj prestidigitatoroj pensis, ke la nomo **spirit- **
 
-**ismo, ** dank’al sia populareco kaj la polemikoj, kies objek- 
+**ismo, ** dank’al sia populareco kaj la polemikoj, kies objek-
 
-to øi estis, bone taýgas por esti ekspluatata, kaj, por 
+to ĝi estis, bone taŭgas por esti ekspluatata, kaj, por
 
-allogi la vulgarularon, pli aý malpli fuþe þajnigis kelke 
+allogi la vulgarularon, pli aŭ malpli fuþe þajnigis kelke
 
-da mediumecaj fenomenoj, tute same, kiel ili iam þajn- 
+da mediumecaj fenomenoj, tute same, kiel ili iam þajn-
 
-igis la somnambulan klarvidecon, kaj æiuj mokantoj ilin 
+igis la somnambulan klarvidecon, kaj ĝiuj mokantoj ilin
 
-aplaýdis, ekkriante: "Jen kio estas Spiritismo\!" Kiam oni 
+aplaŭdis, ekkriante: "Jen kio estas Spiritismo!" Kiam oni
 
-sprite aperigis spektrojn sur la scenejo, æu ili æie ne 
+sprite aperigis spektrojn sur la scenejo, ĝu ili ĝie ne
 
-proklamis, ke tio estas la finofara bato kontraý øi? 
+proklamis, ke tio estas la finofara bato kontraŭ ĝi?
 
-Antaý ol eldiri tiel formalan verdikton, ili devus esti pri- 
+Antaŭ ol eldiri tiel formalan verdikton, ili devus esti pri-
 
-pensintaj, ke la asertoj de trompisto ne estas paroloj de 
+pensintaj, ke la asertoj de trompisto ne estas paroloj de
 
-iu evangelio, kaj certiøintaj, æu ekzistas reala identeco 
+iu evangelio, kaj certiĝintaj, ĝu ekzistas reala identeco
 
-de la imita¼o kun tio imitata. Neniu aæetas brilianton, 
+de la imita¼o kun tio imitata. Neniu aĝetas brilianton,
 
-antaý ol certiøi, æu tio ne estas ia straso. Studo, eæ 
+antaŭ ol certiĝi, ĝu tio ne estas ia straso. Studo, eĝ
 
-neprofunda, konvinkus ilin, ke la spiritismaj fenomenoj 
+neprofunda, konvinkus ilin, ke la spiritismaj fenomenoj
 
-fariøas em tute aliaj kondiæoj, ili scius ankaý, ke la spi- 
+fariĝas em tute aliaj kondiĝoj, ili scius ankaŭ, ke la spi-
 
-ritistoj ne zorgas pri aperigo de spektroj, nek pri antaý- 
+ritistoj ne zorgas pri aperigo de spektroj, nek pri antaŭ-
 
-dirado de homaj destinoj. 
+dirado de homaj destinoj.
 
-Nur malbonvolemo kaj malsincereco povis similigi 
+Nur malbonvolemo kaj malsincereco povis similigi
 
-Spiritismon al la magio kaj soræarto, æar øi ja forpuþas 
+Spiritismon al la magio kaj sorĝarto, ĝar ĝi ja forpuþas
 
-de si ties celon, farojn, formulojn kaj mistikajn parolojn. 
+de si ties celon, farojn, formulojn kaj mistikajn parolojn.
 
-Kelkaj eæ kuraøis kompari la spiritistajn seancojn kun 
+Kelkaj eĝ kuraĝis kompari la spiritistajn seancojn kun
 
-la sabatorgiaj kunvenoj, kie oni atendas la fatalan no- 
+la sabatorgiaj kunvenoj, kie oni atendas la fatalan no-
 
-ktomezan horon, por aperigi fantomojn. 
+ktomezan horon, por aperigi fantomojn.
 
-Unu spiritisto, mia amiko, foje troviøis, dum ludado 
+Unu spiritisto, mia amiko, foje troviĝis, dum ludado
 
-de la dramo **Macbeth, **apud gazetisto, kiun li ne konis. 
+de la dramo **Macbeth, **apud gazetisto, kiun li ne konis.
 
-Kiam montriøis la sceno pri la soræistinoj, li aýdis tiun 
+Kiam montriĝis la sceno pri la sorĝistinoj, li aŭdis tiun
 
-diri al sia najbaro: 
+diri al sia najbaro:
 
-"— Jen\! Ni nun æeestos spiritisman seancon; øuste 
+"— Jen! Ni nun ĝeestos spiritisman seancon; ĝuste
 
-æi tion mi bezonis por mia plej proksima artikolo; mi 
+ĝi tion mi bezonis por mia plej proksima artikolo; mi
 
-nun vidos, kiel okazas la aferoj. Se æi tie estus unu el 
+nun vidos, kiel okazas la aferoj. Se ĝi tie estus unu el
 
-tiuj frenezuloj, mi demandus lin, æu li rekonas sin en 
+tiuj frenezuloj, mi demandus lin, ĝu li rekonas sin en
 
-tiu sceno." 
+tiu sceno."
 
-"— Mi estas unu el tiaj frenezuloj — diris al li la 
+"— Mi estas unu el tiaj frenezuloj — diris al li la
 
-spiritisto —, kaj mi povas certigi vin, ke mi tie tute ne 
+spiritisto —, kaj mi povas certigi vin, ke mi tie tute ne
 
-rekonas min, æar, kvankam mi æeestis centojn da spiritist- 
+rekonas min, ĝar, kvankam mi ĝeestis centojn da spiritist-
 
-aj seancoj, mi tamen tie neniam vidis ion similan. Se 
+aj seancoj, mi tamen tie neniam vidis ion similan. Se
 
-æi tien vi venis, por æerpi informojn por via artikolo, 
+ĝi tien vi venis, por ĝerpi informojn por via artikolo,
 
-æi tiu ne distingiøos per sia vereco." 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-27 
+ĝi tiu ne distingiĝos per sia vereco."
 
 
+KIO ESTAS SPIRITISMO ?
 
-Multaj kritikantoj ne havas pli seriozan bazon. Kiu 
 
-alia ridindiøos, ol tiuj, kiuj tiel ventkape elpaþas? Rilate 
+Multaj kritikantoj ne havas pli seriozan bazon. Kiu
 
-Spiritismon, øia fidindeco, anstataý suferi de tiaj kritik- 
+alia ridindiĝos, ol tiuj, kiuj tiel ventkape elpaþas? Rilate
 
-oj, kreskis, dank’al rezonado, kiun al øi havigis æiuj tiuj 
+Spiritismon, ĝia fidindeco, anstataŭ suferi de tiaj kritik-
 
-manovroj, atentigante al øi multajn homojn, kiuj pri 
+oj, kreskis, dank’al rezonado, kiun al ĝi havigis ĝiuj tiuj
 
-øi neniam antaýe aýdis; tiuj kritikoj instigis øian ekza- 
+manovroj, atentigante al ĝi multajn homojn, kiuj pri
 
-menon kaj pligrandigis la nombron de øiaj adeptoj, æar 
+ĝi neniam antaŭe aŭdis; tiuj kritikoj instigis ĝian ekza-
 
-oni ja konstatis, ke øi estas ne ia frivola¼o, sed serio- 
+menon kaj pligrandigis la nombron de ĝiaj adeptoj, ĝar
 
-za afero. 
+oni ja konstatis, ke ĝi estas ne ia frivola¼o, sed serio-
 
+za afero.
 
 
 **Senpoveco de la misfamigantoj **
 
-****
 
-**V. **— Mi konsentas, ke el la misfamigantoj de Spi- 
+**V. **— Mi konsentas, ke el la misfamigantoj de Spi-
 
-ritismo kelkaj estas homoj senkonsideraj, kiel tiu, pri kiu 
+ritismo kelkaj estas homoj senkonsideraj, kiel tiu, pri kiu
 
-vi ¼us parolis, sed krom tiuj, æu aliaj ne havas realan 
+vi ¼us parolis, sed krom tiuj, ĝu aliaj ne havas realan
 
-meriton kaj ties opinio ne havas iom da pezo? 
+meriton kaj ties opinio ne havas iom da pezo?
 
 
+**A. K. — **Mi tion tute ne kontestas. Tion mi res-
 
-**A. K. — **Mi tion tute ne kontestas. Tion mi res- 
+pondas dirante, ke ankaŭ Spiritismo enkalkulas multe da
 
-pondas dirante, ke ankaý Spiritismo enkalkulas multe da 
+homoj kun ne malpli reala merito; eĝ plue: la grandega
 
-homoj kun ne malpli reala merito; eæ plue: la grandega 
+plimulto el la spiritistoj konsistas el intelektuloj kaj stud-
 
-plimulto el la spiritistoj konsistas el intelektuloj kaj stud- 
+emuloj; nur la malsincereco povas diri, ke oni varbas
 
-emuloj; nur la malsincereco povas diri, ke oni varbas 
+al ĝi simplanimajn virinojn kaj malklerulojn.
 
-al øi simplanimajn virinojn kaj malklerulojn. 
+Nediskutebla fakto cetere respondas ĝi tiun kontraŭ-
 
-Nediskutebla fakto cetere respondas æi tiun kontraý- 
+diron, nome, ke, malgraŭ sia klereco aŭ oficiala situacio,
 
-diron, nome, ke, malgraý sia klereco aý oficiala situacio, 
+neniu el tiuj sukcesis haltigi la iradon de Spiritismo, kaj
 
-neniu el tiuj sukcesis haltigi la iradon de Spiritismo, kaj 
+tamen neniu, komencante de la plej senvalora felieton-
 
-tamen neniu, komencante de la plej senvalora felieton- 
+isto, ne flatis al si, ke li donis la finofaran baton al nia
 
-isto, ne flatis al si, ke li donis la finofaran baton al nia 
+afero; ankaŭ, ke ĝiuj senescepte kunhelpis pretervole por
 
-afero; ankaý, ke æiuj senescepte kunhelpis pretervole por 
+ĝin diskonigi. Æu iu ideo, kiu rezistas al tiom da atakoj,
 
-øin diskonigi. Æu iu ideo, kiu rezistas al tiom da atakoj, 
+kiu senþanceliĝe iradas tra la hajlo da sagoj, kiujn oni
 
-kiu senþanceliøe iradas tra la hajlo da sagoj, kiujn oni 
+¼etas kontraŭ ĝin, ja ne pruvas sian forton kaj la pro-
 
-¼etas kontraý øin, ja ne pruvas sian forton kaj la pro- 
+fundecon de siaj radikoj? Æu tiu fenomeno ne indas la
 
-fundecon de siaj radikoj? Æu tiu fenomeno ne indas la 
+atenton de la seriozaj pensitoj? Tial pluraj el ili hodiaŭ
 
-atenton de la seriozaj pensitoj? Tial pluraj el ili hodiaý 
+diras en sia animo, ke tie devas ekzisti io, eble unu el
 
-diras en sia animo, ke tie devas ekzisti io, eble unu el 
+tiuj nerezisteblaj movadoj, kiuj de tempo al tempo skuas
 
-tiuj nerezisteblaj movadoj, kiuj de tempo al tempo skuas 
+la socion, por ĝin transformi.
 
-la socion, por øin transformi. 
+Tiel ĝiam estas kun ĝiuj novaj ideoj, destinitaj por
 
-Tiel æiam estas kun æiuj novaj ideoj, destinitaj por 
+revoluciigi la mondon, ili renkontas barojn, ĝar ili devas
 
-revoluciigi la mondon, ili renkontas barojn, æar ili devas 
 
-28 
+ALLAN KARDEC
 
-ALLAN KARDEC 
 
+batali kontraŭ la interesoj, la antaŭjuĝoj, la trouzoj, ki-
 
+ujn ili disbatas, sed, ĝar ili troviĝas en la planoj de Dio,
 
-batali kontraý la interesoj, la antaýjuøoj, la trouzoj, ki- 
+por ke estu plenumata la leĝo de progreso de la homaro,
 
-ujn ili disbatas, sed, æar ili troviøas en la planoj de Dio, 
+tial, kiam sonas la horo, nenio povus ilin reteni: ĝi tio
 
-por ke estu plenumata la leøo de progreso de la homaro, 
+estas la pruvo, ke ili esprimas la veron.
 
-tial, kiam sonas la horo, nenio povus ilin reteni: æi tio 
+Tiu senpoveco de la kontraŭuloj de Spiritismo antaŭ
 
-estas la pruvo, ke ili esprimas la veron. 
+ĝio pruvas, kiel dirite, mankon de bonaj motivoj, ĝar tiuj,
 
-Tiu senpoveco de la kontraýuloj de Spiritismo antaý 
+kiujn ili al ĝi kontraŭmetas, ne konvinkas; sed tiu sen-
 
-æio pruvas, kiel dirite, mankon de bonaj motivoj, æar tiuj, 
+poveco estas ligita kun alia kaŭzo, kiu vanigas ĝiujn
 
-kiujn ili al øi kontraýmetas, ne konvinkas; sed tiu sen- 
+iliajn aranĝojn. Ili miras la disvastiĝon de tiu doktrino,
 
-poveco estas ligita kun alia kaýzo, kiu vanigas æiujn 
+malgraŭ ĝio, kion ili faras, por ĝin haltigi; neniu el ili
 
-iliajn aranøojn. Ili miras la disvastiøon de tiu doktrino, 
+trovas la kaŭzon de tio, ĝar ili ĝin serĝas tie, kie ĝi ja
 
-malgraý æio, kion ili faras, por øin haltigi; neniu el ili 
+ne estas. Unuj vidas ĝin en la granda povo de la diablo,
 
-trovas la kaýzon de tio, æar ili øin seræas tie, kie øi ja 
+kiu tiele montriĝus pli forta ol ili kaj eĝ pli ol Dio, kaj
 
-ne estas. Unuj vidas øin en la granda povo de la diablo, 
+aliaj en la pligrandiĝo de la homa frenezeco. La eraro
 
-kiu tiele montriøus pli forta ol ili kaj eæ pli ol Dio, kaj 
+de ĝiuj estas kredi, ke la fonto de Spiritismo estas unu
 
-aliaj en la pligrandiøo de la homa frenezeco. La eraro 
+sola kaj sin apogas sur la opinio de unu sola homo; el
 
-de æiuj estas kredi, ke la fonto de Spiritismo estas unu 
+tio la ideo, ke, nuligante la opinion de tiu homo, ili nul-
 
-sola kaj sin apogas sur la opinio de unu sola homo; el 
+igus Spiritismon. Ili serĝas tiun fonton sur la Tero,
 
-tio la ideo, ke, nuligante la opinion de tiu homo, ili nul- 
+dum ĝi troviĝas en la spaco: ne en unu punkto, sed ĝie,
 
-igus Spiritismon. Ili seræas tiun fonton sur la Tero, 
+ĝar la Spiritoj manifestiĝas ĝie, en ĝiuj landoj, kiel en
 
-dum øi troviøas en la spaco: ne en unu punkto, sed æie, 
+palacoj, tiel en kabanoj. La vera kaŭzo kuþas do en la
 
-æar la Spiritoj manifestiøas æie, en æiuj landoj, kiel en 
+naturo mem de Spiritismo, kiu ne ricevas sian movadon
 
-palacoj, tiel en kabanoj. La vera kaýzo kuþas do en la 
+de unu sola homo, sed permesas al ĝiu rekte ricevi ko-
 
-naturo mem de Spiritismo, kiu ne ricevas sian movadon 
+munika¼ojn de la Spiritoj kaj tiel certiĝi pri la realeco
 
-de unu sola homo, sed permesas al æiu rekte ricevi ko- 
+de la faktoj. Kiel konvinki milionojn da homoj, ke ĝio
 
-munika¼ojn de la Spiritoj kaj tiel certiøi pri la realeco 
+tio estas nur ¼ongla¼oj, ĝarlatana¼oj, prestidigita¼oj, ar-
 
-de la faktoj. Kiel konvinki milionojn da homoj, ke æio 
+tifikoj, se ili mem ricevas tiujn rezultatojn sen ies kun-
 
-tio estas nur ¼ongla¼oj, æarlatana¼oj, prestidigita¼oj, ar- 
+helpo? Æu oni kredigus al ili, ke ili mem estas siaj kunlud-
 
-tifikoj, se ili mem ricevas tiujn rezultatojn sen ies kun- 
+antoj kaj ĝarlatanas kaj artifikas nur kontraŭ si solaj?
 
-helpo? Æu oni kredigus al ili, ke ili mem estas siaj kunlud- 
+Tiu ĝiea okazanteco de la manifestiĝoj de la Spiritoj,
 
-antoj kaj æarlatanas kaj artifikas nur kontraý si solaj? 
+kiuj sur ĝiuj lokoj de la terglobo kontraŭasertas la mis -
 
-Tiu æiea okazanteco de la manifestiøoj de la Spiritoj, 
+famigantojn kaj konfirmas la principojn de la Doktrino,
 
-kiuj sur æiuj lokoj de la terglobo kontraýasertas la mis - 
+estas forto, kiun ne povas kompreni tiuj, kiuj ne konas
 
-famigantojn kaj konfirmas la principojn de la Doktrino, 
+la nevideblan mondon, tiel same, kiel tiuj, kiuj ne konas
 
-estas forto, kiun ne povas kompreni tiuj, kiuj ne konas 
+la leĝojn de la elektraj fenomenoj, ne povas kompreni
 
-la nevideblan mondon, tiel same, kiel tiuj, kiuj ne konas 
+la rapidecon de la transsendo de iu tia depeþo; kontraŭ
 
-la leøojn de la elektraj fenomenoj, ne povas kompreni 
+tiun forton rompiĝas ĝiaj kontestoj, ĝar tio estas tute
 
-la rapidecon de la transsendo de iu tia depeþo; kontraý 
+sama, kiel se oni dirus al homoj, kiuj ricevas la radiojn
 
-tiun forton rompiøas æiaj kontestoj, æar tio estas tute 
+de la suno, ke la suno ne ekzistas.
 
-sama, kiel se oni dirus al homoj, kiuj ricevas la radiojn 
 
-de la suno, ke la suno ne ekzistas. 
+KIO ESTAS SPIRITISMO ?
 
 
+Flanke lasante la kvalitojn de la Doktrino, kiu plaĝ-
 
-KIO ESTAS SPIRITISMO ? 
+as pli multe, ol tiuj, kiujn oni kontraŭmetas al ĝi, tio
 
-29 
+estas la kaŭzo de la fiaskoj de tiuj, kiuj penas ĝin halt-
 
+igi; por sukcesi, ili devus trovi ian rimedon, por mal-
 
+helpi la Spiritojn manifestiĝi. Jen kial la spiritistoj tiel
 
-Flanke lasante la kvalitojn de la Doktrino, kiu plaæ- 
+malmulte zorgas pri ties manovroj; por ili, spiritistoj,
 
-as pli multe, ol tiuj, kiujn oni kontraýmetas al øi, tio 
-
-estas la kaýzo de la fiaskoj de tiuj, kiuj penas øin halt- 
-
-igi; por sukcesi, ili devus trovi ian rimedon, por mal- 
-
-helpi la Spiritojn manifestiøi. Jen kial la spiritistoj tiel 
-
-malmulte zorgas pri ties manovroj; por ili, spiritistoj, 
-
-parolas la sperto kaj la aýtoritateco de la faktoj. 
-
+parolas la sperto kaj la aŭtoritateco de la faktoj.
 
 
 **Tio mirakleca kaj tio supernatura **
 
-****
 
-**V. **— Spiritismo evidente inklinas revivigi la kred- 
+**V. **— Spiritismo evidente inklinas revivigi la kred-
 
-ojn, bazitajn sur tio mirakleca kaj tio supernatura; nu, 
+ojn, bazitajn sur tio mirakleca kaj tio supernatura; nu,
 
-en nia pozitiva jarcentro tio þajnas al mi malfacila, æar 
+en nia pozitiva jarcentro tio þajnas al mi malfacila, ĝar
 
-øi fidindigus la superstiæojn kaj la popolajn erarojn, ki- 
+ĝi fidindigus la superstiĝojn kaj la popolajn erarojn, ki-
 
-ujn la racio elmontras en ilia nudeco. 
+ujn la racio elmontras en ilia nudeco.
 
 
+**A. K. **— Iu ideo estas superstiĝa nur tial, ke ĝi est-
 
-**A. K. **— Iu ideo estas superstiæa nur tial, ke øi est- 
+as malvera; ĝi tia ne plu estas de la momento, kiam ĝi
 
-as malvera; øi tia ne plu estas de la momento, kiam øi 
+estas rekonata kiel vera. La demando estas do scii, ĝu
 
-estas rekonata kiel vera. La demando estas do scii, æu 
+fariĝas, aŭ ne, manifestiĝoj de Spiritoj; nu, vi ne povas
 
-fariøas, aý ne, manifestiøoj de Spiritoj; nu, vi ne povas 
+alnomi ion superstiĝo tiel longe, ĝis vi **pruvos**, ke ĝi ne
 
-alnomi ion superstiæo tiel longe, øis vi **pruvos**, ke øi ne 
+ekzistas. Vi eble diros: mia prudento rifuzas ĝin akcepti,
 
-ekzistas. Vi eble diros: mia prudento rifuzas øin akcepti, 
+sed ĝiuj, kiuj ĝin kredas — kaj ili ne estas iaj stultuloj
 
-sed æiuj, kiuj øin kredas — kaj ili ne estas iaj stultuloj 
+—, sin turnas ankaŭ al sia prudento kaj krom tio al
 
-—, sin turnas ankaý al sia prudento kaj krom tio al 
+faktoj; kiu el ambaŭ prudentoj triumfos la venkon? La
 
-faktoj; kiu el ambaý prudentoj triumfos la venkon? La 
+granda juĝanto, en ĝi tiu rilato, estas la estonteco, kiel
 
-granda juøanto, en æi tiu rilato, estas la estonteco, kiel 
+okazis al ĝiuj sciencaj kaj industriaj demandoj, en sia
 
-okazis al æiuj sciencaj kaj industriaj demandoj, en sia 
+komenco rigardataj kiel absurdaj kaj ne eblaj. Vi an-
 
-komenco rigardataj kiel absurdaj kaj ne eblaj. Vi an- 
+taŭjuĝas laŭ via opinio; mi, mi juĝas, nur longe vidinte
 
-taýjuøas laý via opinio; mi, mi juøas, nur longe vidinte 
+kaj observinte. Mi aldiras, ke la klare vidanta Spirit-
 
-kaj observinte. Mi aldiras, ke la klare vidanta Spirit- 
+ismo, kiel ĝi hodiaŭ estas, celas, kontraŭe, forbati la su-
 
-ismo, kiel øi hodiaý estas, celas, kontraýe, forbati la su- 
+perstiĝajn ideojn, ĝar ĝi montras, kio vera aŭ malvera
 
-perstiæajn ideojn, æar øi montras, kio vera aý malvera 
+ekzistas en la popolaj kredoj, kaj ĝion, kion absurdan al
 
-ekzistas en la popolaj kredoj, kaj æion, kion absurdan al 
+ĝi almiksis la malklereco kaj la antaŭjuĝoj.
 
-øi almiksis la malklereco kaj la antaýjuøoj. 
+Mi iras pli malproksimen kaj diras, ke ĝuste la po-
 
-Mi iras pli malproksimen kaj diras, ke øuste la po- 
+zitiveco de nia jarcento instigas la akcepton de Spirit-
 
-zitiveco de nia jarcento instigas la akcepton de Spirit- 
+ismo kaj al ĝi oni parte devas danki ties rapidan disvast-
 
-ismo kaj al øi oni parte devas danki ties rapidan disvast- 
+iĝon, kaj ne, kiel kelkaj pretendas, al ia pliflamiĝo de
 
-iøon, kaj ne, kiel kelkaj pretendas, al ia pliflamiøo de 
+la inklino al tio mirakleca kaj supernatura. Supernatur-
 
-la inklino al tio mirakleca kaj supernatura. Supernatur- 
+a¼oj malaperas ĝe la torĝo de la scienco, de la filozofio
 
-a¼oj malaperas æe la toræo de la scienco, de la filozofio 
 
-30 
+ALLAN KARDEC
 
-ALLAN KARDEC 
 
+kaj de la racio, tiel same, kiel la dioj de la paganismo
 
+disfumiĝis ĝe la lumo de la Kristianismo.
 
-kaj de la racio, tiel same, kiel la dioj de la paganismo 
+Supernatura¼o estas io ekster la leĝoj de la Naturo.
 
-disfumiøis æe la lumo de la Kristianismo. 
+La pozitivismo akceptas nenion ekster tiuj leĝoj, sed —
 
-Supernatura¼o estas io ekster la leøoj de la Naturo. 
+ĝu ĝi ilin ĝiujn konas? En ĝiuj tempoj tiuj fenomenoj,
 
-La pozitivismo akceptas nenion ekster tiuj leøoj, sed — 
+kies kaŭzo estis nekonata, estis rigardataj kiel super-
 
-æu øi ilin æiujn konas? En æiuj tempoj tiuj fenomenoj, 
+naturaj; ĝiu nova leĝo, eltrovita de la scienco, forþovis
 
-kies kaýzo estis nekonata, estis rigardataj kiel super- 
+la limojn de tio supernatura; nu, Spiritismo elmontras
 
-naturaj; æiu nova leøo, eltrovita de la scienco, forþovis 
+iun novan leĝon, laŭ kiu la konversacio kun la Spirito
 
-la limojn de tio supernatura; nu, Spiritismo elmontras 
+de mortinto sin bazas sur leĝo tute same natura kiel tiu,
 
-iun novan leøon, laý kiu la konversacio kun la Spirito 
+laŭ kiu la elektro ebligas la interkomunikiĝon de du
 
-de mortinto sin bazas sur leøo tute same natura kiel tiu, 
+homoj en la distanco de du mil kilometroj unu de la
 
-laý kiu la elektro ebligas la interkomunikiøon de du 
+dua; kaj same pri ĝiuj ceteraj spiritismaj fenomenoj.
 
-homoj en la distanco de du mil kilometroj unu de la 
+Spiritismo, kio ĝncernas, forpuþas de si ĝian fakt-
 
-dua; kaj same pri æiuj ceteraj spiritismaj fenomenoj. 
+on miraklecan, t. e. ekster la leĝoj de la Naturo; ĝi far-
 
-Spiritismo, kio øin koncernas, forpuþas de si æian fakt- 
+as nek miraklojn, nek potenca¼ojn, sed klarigas, laŭ iu
 
-on miraklecan, t. e. ekster la leøoj de la Naturo; øi far- 
+leĝo, certajn faktojn, ĝis hodiaŭ rigardatajn kiel mirakl-
 
-as nek miraklojn, nek potenca¼ojn, sed klarigas, laý iu 
+ojn kaj potenca¼ojn, kaj ĝuste tiel ĝi pruvas ilian eblecon.
 
-leøo, certajn faktojn, øis hodiaý rigardatajn kiel mirakl- 
+Øi tiele plivastigas la kampon de la scienco, kaj pro tio
 
-ojn kaj potenca¼ojn, kaj øuste tiel øi pruvas ilian eblecon. 
+ĝi mem estas scienco; sed, ĝar la eltrovo de tiu nova
 
-Øi tiele plivastigas la kampon de la scienco, kaj pro tio 
+leĝo kuntrenas moralajn sekvojn, tial la kodo de tiuj
 
-øi mem estas scienco; sed, æar la eltrovo de tiu nova 
+sekvoj faras ĝin samtempe filozofia doktrino.
 
-leøo kuntrenas moralajn sekvojn, tial la kodo de tiuj 
+El ĝi tiu lasta punkto de vidado ĝi respondas sur
 
-sekvoj faras øin samtempe filozofia doktrino. 
+pozitivaj kaj raciaj bazoj al la aspiroj de la homo kon-
 
-El æi tiu lasta punkto de vidado øi respondas sur 
+cerne lian estontecon, tial ĝi konvenas al la pozitiva spi-
 
-pozitivaj kaj raciaj bazoj al la aspiroj de la homo kon- 
+rito de nia jarcento; tion vi komprenos, kiam vi prenos
 
-cerne lian estontecon, tial øi konvenas al la pozitiva spi- 
+sur vin la penon ĝin studi. (**La Libro de la Mediumoj, **
 
-rito de nia jarcento; tion vi komprenos, kiam vi prenos 
+Æap. II; **Revue Spirite, **, pĝ. 393, kaj Ja-
 
-sur vin la penon øin studi. \(**La Libro de la Mediumoj, **
-
-Æap. II; **Revue Spirite, **Decembro 1861, pø. 393, kaj Ja- 
-
-nuaro 1862, pø. 21; ankaý Æap. II de æi tiu verko.\) 
-
+nuaro 1862, pĝ. 21; ankaŭ Æap. II de ĝi tiu verko.)
 
 
 **Opono de la scienco **
 
-**V. — **Vi apogas vin, vi diras, sur faktoj, sed oni 
+**V. — **Vi apogas vin, vi diras, sur faktoj, sed oni
 
-kontraýmetas al vi la opinion de la scienculoj, kiuj ilin 
+kontraŭmetas al vi la opinion de la scienculoj, kiuj ilntestas aŭ klarigas alie ol vi. Kial ili ne atentis la
 
-kontestas aý klarigas alie ol vi. Kial ili ne atentis la 
+fenomenon de la turniĝantaj tabloj? Se ili en tio estus
 
-fenomenon de la turniøantaj tabloj? Se ili en tio estus 
+vidintaj ion seriozan, ili tute ne ekpensus, þajnas al mi,
 
-vidintaj ion seriozan, ili tute ne ekpensus, þajnas al mi, 
+preterlasi tiel eksterordinarajn faktojn, des malpli ilin
 
-preterlasi tiel eksterordinarajn faktojn, des malpli ilin 
+malþate repuþi de si, kaj tamen ili ĝiuj estas kontraŭ vi.
 
-malþate repuþi de si, kaj tamen ili æiuj estas kontraý vi. 
+Æu la scienculoj ne estas la lumilo de la nacioj, kaj ĝu
 
-Æu la scienculoj ne estas la lumilo de la nacioj, kaj æu 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+ilia devo ne estas disverþi la lumon? Kial ili kovrus la
 
-31 
+lumon ĝuste tiam, kiam ekmontriĝis al ili tiel bela okazo
 
+prezenti al la mondo novan forton?
 
 
-ilia devo ne estas disverþi la lumon? Kial ili kovrus la 
+**A. K. —** Jen vi ¼us mirinde pentris la devon de la
 
-lumon øuste tiam, kiam ekmontriøis al ili tiel bela okazo 
+scienculoj; estas bedaŭrinde, ke ili en pli ol unu cirkons-
 
-prezenti al la mondo novan forton? 
+tanco ĝin forgesis. Sed, antaŭ ol respondi tiun saĝan
 
+rimarkon, mi devas refuti gravan eraron, kiun vi faris
 
+dirante, ke ĝiuj scienculoj estas kontraŭ ni.
 
-**A. K. —** Jen vi ¼us mirinde pentris la devon de la 
+Kiel mi diris antaŭ momento, ĝuste ĝe la instruita
 
-scienculoj; estas bedaýrinde, ke ili en pli ol unu cirkons- 
+klaso Spiritismo rikoltas al si plej multe da prozelitoj,
 
-tanco øin forgesis. Sed, antaý ol respondi tiun saøan 
+kaj ĝi tio en ĝiuj landoj de la mondo; el tiuj granda
 
-rimarkon, mi devas refuti gravan eraron, kiun vi faris 
+nombro estas kuracistoj en ĝiuj nacioj, kaj la kuracistoj
 
-dirante, ke æiuj scienculoj estas kontraý ni. 
+estas ja scienculoj; la þtatadministrantoj, la instruistoj,
 
-Kiel mi diris antaý momento, øuste æe la instruita 
+la artistoj, la literatoroj, la oficistoj, la altaj funkciuloj,
 
-klaso Spiritismo rikoltas al si plej multe da prozelitoj, 
+la altranguloj, la ekleziuloj k. a., kiuj staras ĝirkaŭ ĝia
 
-kaj æi tio en æiuj landoj de la mondo; el tiuj granda 
+standardo, ĝiuj estas homoj, ĝe kiuj oni ne povas ne
 
-nombro estas kuracistoj en æiuj nacioj, kaj la kuracistoj 
+konfesi iom da klereco. Kleruloj ne ekzistas nur en la
 
-estas ja scienculoj; la þtatadministrantoj, la instruistoj, 
+oficiala scienco kaj en la leĝaj korporacioj.
 
-la artistoj, la literatoroj, la oficistoj, la altaj funkciuloj, 
+Æu tio, ke Spiritismo ankoraŭ ne havas civitanecon
 
-la altranguloj, la ekleziuloj k. a., kiuj staras æirkaý øia 
+en la oficiala scienco, estas motivo por ĝia kondamno?
 
-standardo, æiuj estas homoj, æe kiuj oni ne povas ne 
+Se la scienco neniam estus erarinta, ĝia opinio ĝi tie pov-
 
-konfesi iom da klereco. Kleruloj ne ekzistas nur en la 
+us pezi; bedaŭrinde la sperto montras la malon. Æu ĝi
 
-oficiala scienco kaj en la leøaj korporacioj. 
+ne repuþis kiel ¶imerojn multegon da elpensoj, kiuj poste
 
-Æu tio, ke Spiritismo ankoraý ne havas civitanecon 
+glorigis la memoron de iliaj aŭtoroj? Æu ne dank’al ra-
 
-en la oficiala scienco, estas motivo por øia kondamno? 
+porto de nia plej alta korporacio el kleruloj Francujo
 
-Se la scienco neniam estus erarinta, øia opinio æi tie pov- 
+perdis la iniciativon de la uzado de la vaporo? Kiam
 
-us pezi; bedaýrinde la sperto montras la malon. Æu øi 
+Fulton venis al la kampo de Bulonjo prezenti sian plan-
 
-ne repuþis kiel ¶imerojn multegon da elpensoj, kiuj poste 
+on al Napoleono I, kiu rekomendis ĝian tujan ekzamenon
 
-glorigis la memoron de iliaj aýtoroj? Æu ne dank’al ra- 
+al la Instituto de Francujo, ĝu ĝi tiu ne konkludis, ke
 
-porto de nia plej alta korporacio el kleruloj Francujo 
+tia plano estas **neefektivigebla **fantazio pri kiu oni ne
 
-perdis la iniciativon de la uzado de la vaporo? Kiam 
+devas zorgi? Æu el tio oni konkludu, ke la membroj de
 
-Fulton venis al la kampo de Bulonjo prezenti sian plan- 
+tiu Instituto estas malkleruloj? Æu tio pravigas la tri-
 
-on al Napoleono I, kiu rekomendis øian tujan ekzamenon 
+vialajn epitetojn, per kiuj certaj homoj el malnobla im-
 
-al la Instituto de Francujo, æu æi tiu ne konkludis, ke 
+pulso ilin plezure regalas? Certe ne; neniu saĝa homo
 
-tia plano estas **neefektivigebla **fantazio pri kiu oni ne 
+malkonfesas la meritojn de ilia eminenta klereco, kvan-
 
-devas zorgi? Æu el tio oni konkludu, ke la membroj de 
+kam rekonante, ke ili ne estas neeraremaj kaj ke sekve
 
-tiu Instituto estas malkleruloj? Æu tio pravigas la tri- 
+ilia juĝo ne estas la lasta vorto, precipe rilate novajn
 
-vialajn epitetojn, per kiuj certaj homoj el malnobla im- 
+ideojn.
 
-pulso ilin plezure regalas? Certe ne; neniu saøa homo 
 
-malkonfesas la meritojn de ilia eminenta klereco, kvan- 
+ALLAN KARDEC
 
-kam rekonante, ke ili ne estas neeraremaj kaj ke sekve 
 
-ilia juøo ne estas la lasta vorto, precipe rilate novajn 
+**V. **— Mi tute konsentas, ke ili ne estas neeraremaj,
 
-ideojn. 
+tamen ne malpli vera estas tio, ke, dank’al ilia sciaro,
 
-32 
+ilia opinio iom valoras kaj ke se ili estus el viaj, tio
 
-ALLAN KARDEC 
+alportus grandan gravecon al via sistemo.
 
 
+**A. K. **— Vi ja konsentu ankaŭ, ke ĝiu estas bona
 
-**V. **— Mi tute konsentas, ke ili ne estas neeraremaj, 
+juĝanto nur pri tio, kio apartenas al lia fako. Se vi
 
-tamen ne malpli vera estas tio, ke, dank’al ilia sciaro, 
+ekdeziros konstruigi domon, ĝu vi dungos muzikiston?
 
-ilia opinio iom valoras kaj ke se ili estus el viaj, tio 
+Se vi estas malsana, ĝu vi konfidus vian kuracadon al
 
-alportus grandan gravecon al via sistemo. 
+arkitekto? Se vi havas juĝan aferon, ĝu vi aŭdos danc-
 
+iston? Fine, se iu demando estas pri teologio, ĝu vi ko-
 
+misius ĝian solvon al ¶emiisto aŭ al astronomo? Ne, ĝiu
 
-**A. K. **— Vi ja konsentu ankaý, ke æiu estas bona 
+en sia metio. La ordinaraj sciencoj sin bazas sur la
 
-juøanto nur pri tio, kio apartenas al lia fako. Se vi 
+proprecoj de la materio, kiun oni povas manipuli laŭ-
 
-ekdeziros konstruigi domon, æu vi dungos muzikiston? 
+plaĝe; la fenomenoj, kiun ĝi okazigas, havas kiel agant-
 
-Se vi estas malsana, æu vi konfidus vian kuracadon al 
+ojn fortojn materiajn. Tiujn en Spiritismo okazigas in-
 
-arkitekto? Se vi havas juøan aferon, æu vi aýdos danc- 
+teligentoj, kiuj ĝuas sendependecon, havas sian liberan
 
-iston? Fine, se iu demando estas pri teologio, æu vi ko- 
+volon, ne estas submetitaj al niaj kapricoj; ili do ne
 
-misius øian solvon al ¶emiisto aý al astronomo? Ne, æiu 
+estas submeteblaj al niaj laboratoriaj procedoj kaj al
 
-en sia metio. La ordinaraj sciencoj sin bazas sur la 
+niaj kalkuloj, kaj sekve ne apartenas al la kadro de la
 
-proprecoj de la materio, kiun oni povas manipuli laý- 
+ĝustasenca scienco.
 
-plaæe; la fenomenoj, kiun øi okazigas, havas kiel agant- 
+La scienco do vojeraris, volante eksperimenti pri la
 
-ojn fortojn materiajn. Tiujn en Spiritismo okazigas in- 
+Spiritoj kiel pri ia voltaeca pilo; ĝi fiaskis, kiel ja devis
 
-teligentoj, kiuj øuas sendependecon, havas sian liberan 
+esti, ĝar ĝi procedis el analogeco ne ekzistanta; poste,
 
-volon, ne estas submetitaj al niaj kapricoj; ili do ne 
+ne irinte pluen, ĝi konkludis per neado: tro kuraĝa juĝo,
 
-estas submeteblaj al niaj laboratoriaj procedoj kaj al 
+kiun la tempo ĝiutage korektas, kiel multajn aliajn; kaj
 
-niaj kalkuloj, kaj sekve ne apartenas al la kadro de la 
+tiuj, kiuj ĝin eldiris, hontos, ke ili ventkape ribelis kon-
 
-øustasenca scienco. 
+traŭ la senlima povo de la Kreinto.
 
-La scienco do vojeraris, volante eksperimenti pri la 
+La klerulajn korporaciojn tute ne koncernas kaj
 
-Spiritoj kiel pri ia voltaeca pilo; øi fiaskis, kiel ja devis 
+neniam koncernos opinii pri ĝi tiu demando; ĝi tiu estas
 
-esti, æar øi procedis el analogeco ne ekzistanta; poste, 
+al ili tiel fremda, kiel tiu, proklami la ekziston aŭ ne-
 
-ne irinte pluen, øi konkludis per neado: tro kuraøa juøo, 
+ekziston de Dio; estas do eraro fari ilin juĝantoj de ĝi.
 
-kiun la tempo æiutage korektas, kiel multajn aliajn; kaj 
+Spiritismo estas demando de persona kredo, kiu ne pov-
 
-tiuj, kiuj øin eldiris, hontos, ke ili ventkape ribelis kon- 
+as dependi de la voĝo de iu institucio, ĝar tia voĝo, eĝ
 
-traý la senlima povo de la Kreinto. 
+se favora al ĝi, ne kapablas trudi konvjn. Kiam
 
-La klerulajn korporaciojn tute ne koncernas kaj 
+la publiko estos al si farinta opinion pri ĝi, tiuj kleruloj
 
-neniam koncernos opinii pri æi tiu demando; æi tiu estas 
+ĝin akceptos kiel individuoj, kliniĝos antaŭ la forto de
 
-al ili tiel fremda, kiel tiu, proklami la ekziston aý ne- 
+la faktoj. Lasu forpasi ĝi tiun generacion kaj, kune kun
 
-ekziston de Dio; estas do eraro fari ilin juøantoj de øi. 
+ĝi, la antaŭjuĝojn de la malmolnuka memestimo: vi vid-
 
-Spiritismo estas demando de persona kredo, kiu ne pov- 
+os, ke kun Spiritismo estos same, kiel kun tiom da aliaj
 
-as dependi de la voæo de iu institucio, æar tia voæo, eæ 
 
-se favora al øi, ne kapablas trudi konvinkojn. Kiam 
+KIO ESTAS SPIRITISMO ?
 
-la publiko estos al si farinta opinion pri øi, tiuj kleruloj 
 
-øin akceptos kiel individuoj, kliniøos antaý la forto de 
+vera¼oj, kiujn oni kontraŭbatalis kaj kiujn dubi estus
 
-la faktoj. Lasu forpasi æi tiun generacion kaj, kune kun 
+nun ridinde. Hodiaŭ frenezuloj oni alnomas la kredant-
 
-øi, la antaýjuøojn de la malmolnuka memestimo: vi vid- 
+ojn, morgaŭ estos la vico de la nekredantoj: tute same,
 
-os, ke kun Spiritismo estos same, kiel kun tiom da aliaj 
+kiel oni alnomis frenezuloj tiujn, kiuj kredis la turniĝ-
 
+on de la Tero.
 
+Sed ne ĝiuj kleruloj juĝis same, kaj kiel klerulojn
 
-KIO ESTAS SPIRITISMO ? 
+mi komprenas homojn, sin donantajn al la studoj kaj
 
-33 
+al la sciencoj, kun aŭ sen ia oficiala titolo. Multaj el ili
 
+faris jenan rezonon:
 
+"Ne estas efiko sen ia kaŭzo, kaj pli ordinaraj efik-
 
-vera¼oj, kiujn oni kontraýbatalis kaj kiujn dubi estus 
+oj povas havigi la þlosilon de la plej grandaj problemoj.
 
-nun ridinde. Hodiaý frenezuloj oni alnomas la kredant- 
+Se Neŭtono malatentus la falon de iu pomo, se Galvani
 
-ojn, morgaý estos la vico de la nekredantoj: tute same, 
+repuþus sian servistinon alnomante þin frenezulino, kiam
 
-kiel oni alnomis frenezuloj tiujn, kiuj kredis la turniø- 
+þi parolis al li pri la ranoj, dancantaj en la plado, ni
 
-on de la Tero. 
+eble ankoraŭ estus trovontaj la mirindan leĝon de la
 
-Sed ne æiuj kleruloj juøis same, kaj kiel klerulojn 
+universa gravito, kaj la fekundajn proprecojn de la pilo.
 
-mi komprenas homojn, sin donantajn al la studoj kaj 
+Tiu fenomeno, kiun oni burleske nomis "dancoj de la tabl-
 
-al la sciencoj, kun aý sen ia oficiala titolo. Multaj el ili 
+oj", ne estas pli ridinda, ol la dancoj de la ranoj, kaj
 
-faris jenan rezonon: 
+eble entenas ankaŭ kelkajn el tiuj sekretoj de la Naturo,
 
-"Ne estas efiko sen ia kaýzo, kaj pli ordinaraj efik- 
+kiuj agitas la homaron, kiam oni havas ilian þlosilon."
 
-oj povas havigi la þlosilon de la plej grandaj problemoj. 
+Ili en sia animo diris ankaŭ:
 
-Se Neýtono malatentus la falon de iu pomo, se Galvani 
+"Æar pri tio sin okupas tiom da homoj, ĝar homoj
 
-repuþus sian servistinon alnomante þin frenezulino, kiam 
+seriozaj ĝin studas, io sendube tie estas; ia iluzio, ia ka-
 
-þi parolis al li pri la ranoj, dancantaj en la plado, ni 
+prico, se oni volas ĝin tiel nomi, ne povas esti tiel ĝe-
 
-eble ankoraý estus trovontaj la mirindan leøon de la 
+nerala; ĝi povas enlogi iun rondon, iun grupeton, sed
 
-universa gravito, kaj la fekundajn proprecojn de la pilo. 
+ĝi ne ĝirkaŭiras la mondon. Ni do nin gardu neigi la
 
-Tiu fenomeno, kiun oni burleske nomis "dancoj de la tabl- 
+eblecon de io, kion ni ne komprenas, timante pli aŭ
 
-oj", ne estas pli ridinda, ol la dancoj de la ranoj, kaj 
+malpli frue ricevi malkonfirmon, kiu ne flatus nian sa-
 
-eble entenas ankaý kelkajn el tiuj sekretoj de la Naturo, 
+gacecon. "
 
-kiuj agitas la homaron, kiam oni havas ilian þlosilon." 
+**V. **— Tre bone; jen klerulo, kiu rezonas saĝe kaj
 
-Ili en sia animo diris ankaý: 
+prudente, kaj mi, kiu ne estas klerulo, mi pensas same
 
-"Æar pri tio sin okupas tiom da homoj, æar homoj 
+kiel li, sed rimarku, ke li asertas nenion: li dubas; nu,
 
-seriozaj øin studas, io sendube tie estas; ia iluzio, ia ka- 
+sur kio oni bazu la kredon je la ekzisto de la Spiritoj
 
-prico, se oni volas øin tiel nomi, ne povas esti tiel øe- 
+kaj precipe je la ebleco de komunikiĝo kun ili?
 
-nerala; øi povas enlogi iun rondon, iun grupeton, sed 
 
-øi ne æirkaýiras la mondon. Ni do nin gardu neigi la 
+**A. K. **— Tiu kredo sin bazas sur la rezonado kaj la
 
-eblecon de io, kion ni ne komprenas, timante pli aý 
+faktoj. Mi mem ĝin akceptis nur post matura ekzamen-
 
-malpli frue ricevi malkonfirmon, kiu ne flatus nian sa- 
+ado. Æerpinte el la studado de la ekzaktaj sciencoj la
 
-gacecon. " 
+kutimon al la pozitivaj aferoj, mi sondis, esploris tiun
 
-**V. **— Tre bone; jen klerulo, kiu rezonas saøe kaj 
 
-prudente, kaj mi, kiu ne estas klerulo, mi pensas same 
+ALLAN KARDEC
 
-kiel li, sed rimarku, ke li asertas nenion: li dubas; nu, 
 
-sur kio oni bazu la kredon je la ekzisto de la Spiritoj 
+novan sciencon en ĝiaj plej intimaj faldoj; mi penis klar-
 
-kaj precipe je la ebleco de komunikiøo kun ili? 
+igi al mi ĝion, ĝar mi akceptas iun ideon nur tiam, kiam
 
+mi scias ties kialon kaj kielon. Jen la rezono, kiun el-
 
+volvis al mi klera kuracisto antaŭe nekredanta kaj ho-
 
-**A. K. **— Tiu kredo sin bazas sur la rezonado kaj la 
+diaŭ fervora adepto:
 
-faktoj. Mi mem øin akceptis nur post matura ekzamen- 
+"Oni diras, ke nevideblaj estuloj komunikiĝas kun
 
-ado. Æerpinte el la studado de la ekzaktaj sciencoj la 
+la homoj: kial do ne? Æu antaŭ la elpenso de la mikros-
 
-kutimon al la pozitivaj aferoj, mi sondis, esploris tiun 
+kopo oni suspektis la ekziston de tiuj miliardoj da best-
 
-34 
+etoj, kiuj kaŭzas tiom da ruinoj al la ekonomio? Kial
 
-ALLAN KARDEC 
+ĝi estus materiale ne ebla, ke ekzistus en la spaco est-
 
+uloj, kiujn niaj sentumoj ne perceptas? Æu ni havus la
 
+ridindan pretendon ĝion scii kaj diri al Dio, ke Li povas
 
-novan sciencon en øiaj plej intimaj faldoj; mi penis klar- 
+nenion pli konigi al ni? Se tiuj nevideblaj estuloj, nin
 
-igi al mi æion, æar mi akceptas iun ideon nur tiam, kiam 
+ĝirkaŭantaj, estas inteligentaj, kial do ili ne komunikiĝus
 
-mi scias ties kialon kaj kielon. Jen la rezono, kiun el- 
+kun ni? Se ili rilatas kun la homoj, ili devas ludi ian
 
-volvis al mi klera kuracisto antaýe nekredanta kaj ho- 
+rolon en ties destinoj kaj en la okaza¼oj. Kiu scias? Ili
 
-diaý fervora adepto: 
+estas eble unu el la potencoj de la Naturo, unu el tiuj
 
-"Oni diras, ke nevideblaj estuloj komunikiøas kun 
+kaþitaj fortoj pri kiuj ni ne konjektas. Kian novan ho-
 
-la homoj: kial do ne? Æu antaý la elpenso de la mikros- 
+rizonton tio malkovrus al la pensado! Kia vasta obser-
 
-kopo oni suspektis la ekziston de tiuj miliardoj da best- 
+vokampo! La eltrovo de la mondo de la nevidebluloj
 
-etoj, kiuj kaýzas tiom da ruinoj al la ekonomio? Kial 
+estus tute io alia, ol tiu de la supermezure malgrandaj
 
-øi estus materiale ne ebla, ke ekzistus en la spaco est- 
+esta¼oj; tio estus pli ol iu eltrovo: tio estus ia revolucio
 
-uloj, kiujn niaj sentumoj ne perceptas? Æu ni havus la 
+en la ideoj. Kia lumo povas el ĝi þpruci! Kiom da mis -
 
-ridindan pretendon æion scii kaj diri al Dio, ke Li povas 
+teraj aferoj klarigitaj! Øiaj kredantoj estas ridindigat-
 
-nenion pli konigi al ni? Se tiuj nevideblaj estuloj, nin 
+aj, sed kion tio pruvas? Æu tio sama ne okazis al ĝiuj
 
-æirkaýantaj, estas inteligentaj, kial do ili ne komunikiøus 
+grandaj eltrovoj kaj elpensoj? Æu Kristoforo Kolumbo
 
-kun ni? Se ili rilatas kun la homoj, ili devas ludi ian 
+ne estis repuþita, super¼etata per malþato, traktata kva-
 
-rolon en ties destinoj kaj en la okaza¼oj. Kiu scias? Ili 
+zaŭ frenezulo?
 
-estas eble unu el la potencoj de la Naturo, unu el tiuj 
+"Tiuj ideoj, oni diras, estas tiel strangaj, ke oni ilin
 
-kaþitaj fortoj pri kiuj ni ne konjektas. Kian novan ho- 
+ne povas kredi, sed al iu, kiu antaŭ nur duona jarcento
 
-rizonton tio malkovrus al la pensado\! Kia vasta obser- 
+estus dirinta, ke en kelke da minutoj oni korespondos
 
-vokampo\! La eltrovo de la mondo de la nevidebluloj 
+de unu rando de la mondo al la kontraŭa; ke en kelke
 
-estus tute io alia, ol tiu de la supermezure malgrandaj 
+da horoj oni trairos Francujon; ke per la vaporo de iom
 
-esta¼oj; tio estus pli ol iu eltrovo: tio estus ia revolucio 
+da bolanta akvo þipo veturos kontraŭ la venton; ke oni
 
-en la ideoj. Kia lumo povas el øi þpruci\! Kiom da mis - 
+ĝerpos el la akvo rimedojn por lumigi al si kaj sin varm-
 
-teraj aferoj klarigitaj\! Øiaj kredantoj estas ridindigat- 
+igi; ke oni proponis lumigi la tutan Parizon en unu mo -
 
-aj, sed kion tio pruvas? Æu tio sama ne okazis al æiuj 
+mento per la sola tenujo de ia nevidebla substanco — al
 
-grandaj eltrovoj kaj elpensoj? Æu Kristoforo Kolumbo 
+tiu oni ridus ĝuste en la vizaĝon. Æu tio estas io pli
 
-ne estis repuþita, super¼etata per malþato, traktata kva- 
+mireginda ol tio, ke la spaco estus plena de prudentaj
 
-zaý frenezulo? 
 
-"Tiuj ideoj, oni diras, estas tiel strangaj, ke oni ilin 
+KIO ESTAS SPIRITISMO ?
 
-ne povas kredi, sed al iu, kiu antaý nur duona jarcento 
 
-estus dirinta, ke en kelke da minutoj oni korespondos 
+estuloj, kiuj, vivinte sur la Tero, ĝi tie demetis sian
 
-de unu rando de la mondo al la kontraýa; ke en kelke 
+materian envolva¼on? Æu en ĝi tiu fakto ne troviĝas
 
-da horoj oni trairos Francujon; ke per la vaporo de iom 
+la klarigo de multego da kredoj, kiuj datiĝas de la plej
 
-da bolanta akvo þipo veturos kontraý la venton; ke oni 
+antikva tempo? Tiaj aferoj ja meritas profundan stu-
 
-æerpos el la akvo rimedojn por lumigi al si kaj sin varm- 
+dadon."
 
-igi; ke oni proponis lumigi la tutan Parizon en unu mo - 
+Jen la konsideroj de klerulo, sed de klerulo sen an-
 
-mento per la sola tenujo de ia nevidebla substanco — al 
+taŭjuĝoj; tiaj estas ankaŭ tiuj de multego da klarmens-
 
-tiu oni ridus øuste en la vizaøon. Æu tio estas io pli 
+aj homoj: ili vidis, sed ne supra¼e kaj ne antaŭjuĝinte;
 
-mireginda ol tio, ke la spaco estus plena de prudentaj 
+ili studis serioze kaj sen antaŭdecido; ili estis tiel mo -
 
+destaj kaj ne diris: "Mi ĝin ne komprenas, sekve ĝi ne
 
+ekzistas"; ilia konv estiĝis el observado kaj rezon-
 
-KIO ESTAS SPIRITISMO ? 
+ado. Se tiuj ideoj estus ¶imeroj, ĝu vi pensas, ke ĝiuj tiuj
 
-35 
+elitaj homoj estus ilin alprenintaj? Ke ili tiel longe
 
+estus mokata¼oj de ia iluzio? Ne estas do materie ne-
 
+ebla la ekzisto de estuloj nevideblaj por ni kaj plenig-
 
-estuloj, kiuj, vivinte sur la Tero, æi tie demetis sian 
+antaj la spacon, kaj ĝi tiu konsidero sola devus postuli
 
-materian envolva¼on? Æu en æi tiu fakto ne troviøas 
+pli da singardemo. Kiu antaŭ nelonge iam pensis, ke
 
-la klarigo de multego da kredoj, kiuj datiøas de la plej 
+unu guto da klara akvo povas enhavi milojn da esta¼oj
 
-antikva tempo? Tiaj aferoj ja meritas profundan stu- 
+de tia malgrandeco, ke ĝi konfuzas nian imagpovon?
 
-dadon." 
+Nu, mi diras, ke estas por la prudento pli malfacile kon-
 
-Jen la konsideroj de klerulo, sed de klerulo sen an- 
+cepti esta¼ojn tiel subtilajn, kiuj havas ĝiujn organojn
 
-taýjuøoj; tiaj estas ankaý tiuj de multego da klarmens- 
+kaj vivas kiel ni, ol akcepti tiujn estulojn, kiujn ni nom-
 
-aj homoj: ili vidis, sed ne supra¼e kaj ne antaýjuøinte; 
+as Spiritoj.
 
-ili studis serioze kaj sen antaýdecido; ili estis tiel mo - 
 
-destaj kaj ne diris: "Mi øin ne komprenas, sekve øi ne 
+**V. **— Sendube, sed el tio, ke io estas ebla, ne sekv-
 
-ekzistas"; ilia konvinko estiøis el observado kaj rezon- 
+as ke ĝi ekzistas.
 
-ado. Se tiuj ideoj estus ¶imeroj, æu vi pensas, ke æiuj tiuj 
 
-elitaj homoj estus ilin alprenintaj? Ke ili tiel longe 
+**A. K. **— Konsentite, sed vi ja konsentu, ke, se ĝi
 
-estus mokata¼oj de ia iluzio? Ne estas do materie ne- 
+ne estas neebla, tio estas do io grava, ĝar ĝi jam havas
 
-ebla la ekzisto de estuloj nevideblaj por ni kaj plenig- 
+nenion, kion la prudento malakceptos. Restas do ĝnstati per la observado de la faktoj. Tiu observado
 
-antaj la spacon, kaj æi tiu konsidero sola devus postuli 
+ne estas io nova: la historio, kiel la religia, tiel ankaŭ
 
-pli da singardemo. Kiu antaý nelonge iam pensis, ke 
+la laika, pruvas la malnovecon kaj la ĝieecon de tiu
 
-unu guto da klara akvo povas enhavi milojn da esta¼oj 
+kredo, kiu daŭris tra ĝiuj þanĝiĝoj de la mondo kaj re-
 
-de tia malgrandeco, ke øi konfuzas nian imagpovon? 
+troviĝas ĝe la plej sovaĝaj popoloj en la stato de de-
 
-Nu, mi diras, ke estas por la prudento pli malfacile kon- 
+naskaj kaj intuiciaj ideoj, gravuritaj en la menso, kiel
 
-cepti esta¼ojn tiel subtilajn, kiuj havas æiujn organojn 
+tiu pri la Plejaltulo kaj la estonta ekzistado. Spiritismo
 
-kaj vivas kiel ni, ol akcepti tiujn estulojn, kiujn ni nom- 
+ne estas do ia moderna krea¼o, tute kontraŭe: ĝio pruv-
 
-as Spiritoj. 
+as, ke la antikvuloj ĝnis tiel bone aŭ eble pli bone
 
+ol ni; kio okazis, tio estis, ke ĝi estis instruata nur kun
 
 
-**V. **— Sendube, sed el tio, ke io estas ebla, ne sekv- 
+ALLAN KARDEC
 
-as ke øi ekzistas. 
 
+misteraj antaŭzorgoj, kiuj faris ĝin neatingebla por la
 
+vulgarularo, kiu estis intence forlasita en la þlimejo de
 
-**A. K. **— Konsentite, sed vi ja konsentu, ke, se øi 
+la superstiĝo.
 
-ne estas neebla, tio estas do io grava, æar øi jam havas 
+Koncerne la faktojn, ili estas duspecaj: unuj estas
 
-nenion, kion la prudento malakceptos. Restas do øin 
+spontaneaj, aliaj estas okazigataj. Inter la unuajn oni
 
-konstati per la observado de la faktoj. Tiu observado 
+envicigu la viziojn kaj la apera¼ojn, tre oftajn; ankaŭ
 
-ne estas io nova: la historio, kiel la religia, tiel ankaý 
+la bruojn, bruegojn kaj malordojn de objektoj sen ia
 
-la laika, pruvas la malnovecon kaj la æieecon de tiu 
+materia kaŭzo, kaj multegon da strangaj fenomenoj, ki-
 
-kredo, kiu daýris tra æiuj þanøiøoj de la mondo kaj re- 
+ujn oni konsideradis supernaturaj kaj kiuj hodiaŭ aspekt-
 
-troviøas æe la plej sovaøaj popoloj en la stato de de- 
+as al ni tute simplaj, ĝar laŭ ni nenio estas supernatura:
 
-naskaj kaj intuiciaj ideoj, gravuritaj en la menso, kiel 
+ĝio estas submetita al la senþanĝaj leĝoj de la Naturo.
 
-tiu pri la Plejaltulo kaj la estonta ekzistado. Spiritismo 
+La faktoj okazigataj estas tiuj, kiujn oni ricevas pere
 
-ne estas do ia moderna krea¼o, tute kontraýe: æio pruv- 
-
-as, ke la antikvuloj øin konis tiel bone aý eble pli bone 
-
-ol ni; kio okazis, tio estis, ke øi estis instruata nur kun 
-
-36 
-
-ALLAN KARDEC 
-
-
-
-misteraj antaýzorgoj, kiuj faris øin neatingebla por la 
-
-vulgarularo, kiu estis intence forlasita en la þlimejo de 
-
-la superstiæo. 
-
-Koncerne la faktojn, ili estas duspecaj: unuj estas 
-
-spontaneaj, aliaj estas okazigataj. Inter la unuajn oni 
-
-envicigu la viziojn kaj la apera¼ojn, tre oftajn; ankaý 
-
-la bruojn, bruegojn kaj malordojn de objektoj sen ia 
-
-materia kaýzo, kaj multegon da strangaj fenomenoj, ki- 
-
-ujn oni konsideradis supernaturaj kaj kiuj hodiaý aspekt- 
-
-as al ni tute simplaj, æar laý ni nenio estas supernatura: 
-
-æio estas submetita al la senþanøaj leøoj de la Naturo. 
-
-La faktoj okazigataj estas tiuj, kiujn oni ricevas pere 
-
-de mediumoj. 
-
+de mediumoj.
 
 
 **Malveraj klarigoj de la fenomenoj **
 
-****
 
 *Halucino. — Magneta fluida¼o. — Reradiado de la penso *
 
-*— Cerba superekscitiøo. — Somnambula stato de la *
+*— Cerba superekscitiĝo. — Somnambula stato de la *
 
 *mediumoj. *
 
 
+**V. **— La kritiko celas precipe la okazigitajn feno-
 
-**V. **— La kritiko celas precipe la okazigitajn feno- 
+menojn. Ni flanke lasu ĝian supozon pri ĝarlataneco kaj
 
-menojn. Ni flanke lasu æian supozon pri æarlataneco kaj 
+konsentu absolutan bonfidon: ĝu oni ne povus pensi, ke
 
-konsentu absolutan bonfidon: æu oni ne povus pensi, ke 
+la mediumoj mem estas ludilo de ia halucino?
 
-la mediumoj mem estas ludilo de ia halucino? 
 
+**A. K. **— Mi ne estas informita, ĝu oni jam plene
 
+klarigis la mekanismon de la halucino. Eĝ tia, kiel oni
 
-**A. K. **— Mi ne estas informita, æu oni jam plene 
+komprenas la halucinon, ĝi tamen estas forte stranga
 
-klarigis la mekanismon de la halucino. Eæ tia, kiel oni 
+kaj tre studinda okaza¼o. Kial do tiuj, kiuj pretendas
 
-komprenas la halucinon, øi tamen estas forte stranga 
+interpreti la spiritismajn fenomenojn kiel halucinon, ne
 
-kaj tre studinda okaza¼o. Kial do tiuj, kiuj pretendas 
+povas klarigi la halucinon? Kelkaj faktoj cetere nuligas
 
-interpreti la spiritismajn fenomenojn kiel halucinon, ne 
+tiun supozon: kiam iu tablo aŭ alia objekto moviĝas,
 
-povas klarigi la halucinon? Kelkaj faktoj cetere nuligas 
+leviĝas, frapas; kiam la tablo libere trakuras la ĝambr-
 
-tiun supozon: kiam iu tablo aý alia objekto moviøas, 
+on sen ies kontakto; kiam ĝi deteniĝas de la planko, kaj
 
-leviøas, frapas; kiam la tablo libere trakuras la æambr- 
+sen ia apogo sin tenas en la aero; fine, kiam, refalinte,
 
-on sen ies kontakto; kiam øi deteniøas de la planko, kaj 
+ĝi rompiĝas — tio certe ne estas ia halucino. Æe la
 
-sen ia apogo sin tenas en la aero; fine, kiam, refalinte, 
+supozo, ke la mediumo, kiel efiko de sia imagemo, kred-
 
-øi rompiøas — tio certe ne estas ia halucino. Æe la 
+as, ke li vidas ion, kio ne ekzistas, ĝu estas probable,
 
-supozo, ke la mediumo, kiel efiko de sia imagemo, kred- 
+ke tutan ĝeestantaron kaptas la sama senseraro, ke tia
 
-as, ke li vidas ion, kio ne ekzistas, æu estas probable, 
+sama eraro fariĝas ĝie, en ĝiuj landoj?
 
-ke tutan æeestantaron kaptas la sama senseraro, ke tia 
 
-sama eraro fariøas æie, en æiuj landoj? 
+KIO ESTAS SPIRITISMO ?
 
 
+Se tiel estus, la halucino estus io pli mireginda, ol
 
-KIO ESTAS SPIRITISMO ? 
+la fakto mem.
 
-37 
 
+**V. **— Se oni konsentas la realecon de la fenomeno
 
+de la turniĝantaj kaj frapantaj tabloj, ĝu ne estas pli
 
-Se tiel estus, la halucino estus io pli mireginda, ol 
+racie atribui ĝin al la agado de ia fluida¼o, ekzemple
 
-la fakto mem. 
+la magneta fluida¼o?
 
 
+**A. K. **— Tio estis la unua penso, kaj mi mem ĝin
 
-**V. **— Se oni konsentas la realecon de la fenomeno 
+havis, kiel tiom da aliaj. Se la faktoj estus simple fakt-
 
-de la turniøantaj kaj frapantaj tabloj, æu ne estas pli 
+oj materiaj, sen ia dubo oni ilin povus klarigi en tia
 
-racie atribui øin al la agado de ia fluida¼o, ekzemple 
+maniero; sed, kiam tiuj movoj kaj tiuj frapoj pruvas
 
-la magneta fluida¼o? 
+inteligentecon; kiam oni konstatis, ke ili tute libere res-
 
+pondas la penson, tiam oni tiris jenan sekvon: **Se ĝia **
 
+**efiko havas ian kaŭzon, ĝia efiko inteligenta havas do **
 
-**A. K. **— Tio estis la unua penso, kaj mi mem øin 
+**ian kaŭzon inteligentan. **Æu tio estas la efiko de ia fluid-
 
-havis, kiel tiom da aliaj. Se la faktoj estus simple fakt- 
+a¼o, se nur oni ne diras, ke tia fluida¼o estas inteligenta?
 
-oj materiaj, sen ia dubo oni ilin povus klarigi en tia 
+Kiam vi vidas la stangeton de telegrafo faranta signal-
 
-maniero; sed, kiam tiuj movoj kaj tiuj frapoj pruvas 
+ojn, kiuj transsendas la penson, vi ja scias, ke tiu stang-
 
-inteligentecon; kiam oni konstatis, ke ili tute libere res- 
+eto el ligno aŭ fero ne estas inteligenta: vi diras, ke ĝin
 
-pondas la penson, tiam oni tiris jenan sekvon: **Se æia **
+movas ia inteligento. Same estas kun la tablo. Æu ek-
 
-**efiko havas ian kaýzon, æia efiko inteligenta havas do **
+zistas aŭ ne ekzistas inteligentaj faktoj? Jen la de-
 
-**ian kaýzon inteligentan. **Æu tio estas la efiko de ia fluid- 
+mando. Tiuj, kiuj tion kontestas, estas homoj, kiuj ne
 
-a¼o, se nur oni ne diras, ke tia fluida¼o estas inteligenta? 
+ĝion vidis kaj kiuj rapidas konkludi laŭ siaj propraj ideoj
 
-Kiam vi vidas la stangeton de telegrafo faranta signal- 
+kaj el supra¼a observado.
 
-ojn, kiuj transsendas la penson, vi ja scias, ke tiu stang- 
 
-eto el ligno aý fero ne estas inteligenta: vi diras, ke øin 
+**V. **— Je tio oni respondas, ke, se fariĝas iu inteli-
 
-movas ia inteligento. Same estas kun la tablo. Æu ek- 
+genta efiko, tiu estas nenio alia ol la inteligento mem,
 
-zistas aý ne ekzistas inteligentaj faktoj? Jen la de- 
+ĝu de la mediumo, ĝu de la demandanto, ĝu de la ĝeest-
 
-mando. Tiuj, kiuj tion kontestas, estas homoj, kiuj ne 
+antoj, ĝar, oni diras, la respondo ĝiam troviĝas en ies
 
-æion vidis kaj kiuj rapidas konkludi laý siaj propraj ideoj 
+menso.
 
-kaj el supra¼a observado. 
 
+**A. K. **— Æi tio estas ankoraŭ unu eraro, frukto de
 
+neperfekta observado. Se tiuj, kiuj tiel pensas, estus pen-
 
-**V. **— Je tio oni respondas, ke, se fariøas iu inteli- 
+intaj studi la fenomenon laŭ ĝiuj ĝiaj aspektoj, ili estus
 
-genta efiko, tiu estas nenio alia ol la inteligento mem, 
+sur ĝiu paþo konstatintaj la absolutan sendependecon
 
-æu de la mediumo, æu de la demandanto, æu de la æeest- 
+de la manifestiĝanta inteligento. Kiel ĝi tiu tezo povus
 
-antoj, æar, oni diras, la respondo æiam troviøas en ies 
+akordi kun respondoj trans la komprenpovo kaj la ins-
 
-menso. 
+truiteco de la mediumo? respondoj, kontraŭantaj liajn
 
+ideojn, liajn dezirojn, liajn opiniojn, aŭ tute fiaskigantaj
 
+la antaŭvidojn de la ĝeestantoj? respondoj per medium-
 
-**A. K. **— Æi tio estas ankoraý unu eraro, frukto de 
 
-neperfekta observado. Se tiuj, kiuj tiel pensas, estus pen- 
+ALLAN KARDEC
 
-intaj studi la fenomenon laý æiuj øiaj aspektoj, ili estus 
 
-sur æiu paþo konstatintaj la absolutan sendependecon 
+oj, kiuj skribas en lingvo, de ili ne konata, aŭ en sia
 
-de la manifestiøanta inteligento. Kiel æi tiu tezo povus 
+propra lingvo, dum ili povoscias nek legi, nek skribi?
 
-akordi kun respondoj trans la komprenpovo kaj la ins- 
+Tiu opinio, ĝe la unua ekrigardo, neniel estas neracia, mi
 
-truiteco de la mediumo? respondoj, kontraýantaj liajn 
+konsentas, sed ĝin neigus tiom multaj kaj tiel konklud-
 
-ideojn, liajn dezirojn, liajn opiniojn, aý tute fiaskigantaj 
+igaj faktoj, ke oni jam neniel povas dubi ilian originon.
 
-la antaývidojn de la æeestantoj? respondoj per medium- 
+Cetere, eĝ se oni akceptus ĝi tiun teorion, la feno-
 
-38 
+meno, anstataŭ plisimpligita, estus multe pli eksteror-
 
-ALLAN KARDEC 
+dinara. Kio! ĝu la penso reradius de iu supra¼o, simile
 
+al la lumo, la sono, la varmo? Efektive, tie estus io,
 
+kio ekzercus la sagacecon de la scienculoj. Eĝ plue, kio
 
-oj, kiuj skribas en lingvo, de ili ne konata, aý en sia 
+aldoniĝus al la mireginda¼o, tio estas, ke el dudek kun-
 
-propra lingvo, dum ili povoscias nek legi, nek skribi? 
+sidantaj personoj reradius la penso de tia persono kaj
 
-Tiu opinio, æe la unua ekrigardo, neniel estas neracia, mi 
+ne la penso de tia alia. Tia sistemo estas netenebla.
 
-konsentas, sed øin neigus tiom multaj kaj tiel konklud- 
+Estas efektive kurioze vidi la kontraŭdirantojn streĝ-
 
-igaj faktoj, ke oni jam neniel povas dubi ilian originon. 
+antaj la cerbon serĝe de kaŭzoj centoble pli eksterordi-
 
-Cetere, eæ se oni akceptus æi tiun teorion, la feno- 
+naraj kaj pli malfacile kompreneblaj ol tiuj, kiujn oni
 
-meno, anstataý plisimpligita, estus multe pli eksteror- 
+al ili prezentas.
 
-dinara. Kio\! æu la penso reradius de iu supra¼o, simile 
 
-al la lumo, la sono, la varmo? Efektive, tie estus io, 
+**V. **— Æu oni ne povus akcepti, laŭ la opinio de kel-
 
-kio ekzercus la sagacecon de la scienculoj. Eæ plue, kio 
+kaj, ke la mediumo troviĝas en ia krizostato kaj ĝuas
 
-aldoniøus al la mireginda¼o, tio estas, ke el dudek kun- 
+ian mensklarecon, kiu havigas al li somnambulan per-
 
-sidantaj personoj reradius la penso de tia persono kaj 
+ceptokapablon, kvazaŭan duoblan vidadon, kio klarigus
 
-ne la penso de tia alia. Tia sistemo estas netenebla. 
+la momentan pliampleksiĝon de liaj intelektaj fakultoj?
 
-Estas efektive kurioze vidi la kontraýdirantojn streæ- 
+Tiel estus, ĝar, oni diras, la komunika¼oj, ricevitaj per
 
-antaj la cerbon seræe de kaýzoj centoble pli eksterordi- 
+la mediumoj, ne atingas pli malproksimen, ol tiuj per la
 
-naraj kaj pli malfacile kompreneblaj ol tiuj, kiujn oni 
+somnambuloj.
 
-al ili prezentas. 
 
+**A. K. **— Jen ankoraŭ unu sistemo, kiu ne eltenas
 
+profundan ekzamenon. La mediumo nek troviĝas en ia
 
-**V. **— Æu oni ne povus akcepti, laý la opinio de kel- 
+krizostato, nek dormas, sed tute maldormas, agas kaj
 
-kaj, ke la mediumo troviøas en ia krizostato kaj øuas 
+pensas kiel ĝiuj homoj, sen io eksterordinara. Eble cert-
 
-ian mensklarecon, kiu havigas al li somnambulan per- 
+aj unuopaj faktoj naskis tiun miskomprenon, sed kiu ĝe
 
-ceptokapablon, kvazaýan duoblan vidadon, kio klarigus 
+la juĝado de la aferoj ne rigardas nur unu el iliaj as-
 
-la momentan pliampleksiøon de liaj intelektaj fakultoj? 
+pektoj, tiu senpene konstatas, ke la mediumo estas dot-
 
-Tiel estus, æar, oni diras, la komunika¼oj, ricevitaj per 
+ita per ia speciala kapablo, laŭ kiu oni ne povas inter-
 
-la mediumoj, ne atingas pli malproksimen, ol tiuj per la 
+miksi lin kun la somnambulo; krom tio, plej evidentaj
 
-somnambuloj. 
+faktoj pruvas la absolutan sendependecon de lia pens-
 
+ado. Ne konsiderante la skribitajn komunika¼ojn, kia
 
+somnambulo iam þprucigis ian penson el iu inerta korpo?
 
-**A. K. **— Jen ankoraý unu sistemo, kiu ne eltenas 
+Kia estigis videblajn, eĝ tuþeblajn apera¼ojn? Kia povis
 
-profundan ekzamenon. La mediumo nek troviøas en ia 
 
-krizostato, nek dormas, sed tute maldormas, agas kaj 
+KIO ESTAS SPIRITISMO ?
 
-pensas kiel æiuj homoj, sen io eksterordinara. Eble cert- 
 
-aj unuopaj faktoj naskis tiun miskomprenon, sed kiu æe 
+tenadi multepezan korpon senapoge en la aero? Æu per
 
-la juøado de la aferoj ne rigardas nur unu el iliaj as- 
+somnambulismo unu mediumo foje desegnis en mia domo,
 
-pektoj, tiu senpene konstatas, ke la mediumo estas dot- 
+antaŭ dudek personoj, la portreton de junulino, mort-
 
-ita per ia speciala kapablo, laý kiu oni ne povas inter- 
+inta antaŭ dek ok monatoj kaj kiun li neniam vidis, por-
 
-miksi lin kun la somnambulo; krom tio, plej evidentaj 
+treton, kiun rekonis þia patro, ĝeestanta en la kunsido?
 
-faktoj pruvas la absolutan sendependecon de lia pens- 
+Æu per somnambulismo, tablo precize respondas proponit-
 
-ado. Ne konsiderante la skribitajn komunika¼ojn, kia 
+ajn demandojn, eĝ mensajn? Certe, se oni akceptas, ke
 
-somnambulo iam þprucigis ian penson el iu inerta korpo? 
+la mediumo troviĝas en ia magnetiza stato, þajnas al
 
-Kia estigis videblajn, eæ tuþeblajn apera¼ojn? Kia povis 
+mi malfacile kredi, ke la tablo estas somnambulo.
 
+Oni diras ankaŭ, ke la mediumoj parolas klare nur
 
+pri konataj aferoj. Kiel do klarigi jenan fakton kaj
 
-KIO ESTAS SPIRITISMO ? 
+multegon da aliaj similaj? Unu mia amiko, tre bona
 
-39 
+skribiva mediumo, demandis Spiriton, ĝu iu homo, kiun
 
+li jam de dek kvin jaroj ne vidis, ankoraŭ apartenas al
 
+ĝi tiu mondo. "Jes, li ankoraŭ vivas — tiu respondis —;
 
-tenadi multepezan korpon senapoge en la aero? Æu per 
+li loĝas en Parizo, strato tia, numero tioma." La me-
 
-somnambulismo unu mediumo foje desegnis en mia domo, 
+diumo tien iris kaj trovis la homon en la indikita loko.
 
-antaý dudek personoj, la portreton de junulino, mort- 
+Æu tio estis ia iluzio? Lia menso des malpli povus su-
 
-inta antaý dek ok monatoj kaj kiun li neniam vidis, por- 
+gesti al li ĝi tiun respondon, ĝar pro la aĝo de tiu homo
 
-treton, kiun rekonis þia patro, æeestanta en la kunsido? 
+tute probable estis, ke ĝi tiu jam tiam ne vivis sur la
 
-Æu per somnambulismo, tablo precize respondas proponit- 
+Tero. Se en iuj okazoj oni vidis, ke respondoj akordas
 
-ajn demandojn, eæ mensajn? Certe, se oni akceptas, ke 
+kun la penso, ĝu estas racie el tio konkludi, ke tia akor-
 
-la mediumo troviøas en ia magnetiza stato, þajnas al 
+do estas ĝenerala normo? En ĝi tiu, kiel en ĝiu alia
 
-mi malfacile kredi, ke la tablo estas somnambulo. 
+rilato, la trorapidaj juĝoj estas ĝiam danĝeraj, ĝar ilin
 
-Oni diras ankaý, ke la mediumoj parolas klare nur 
+povas neigi faktoj, kiujn oni ankoraŭ ne observis.
 
-pri konataj aferoj. Kiel do klarigi jenan fakton kaj 
 
-multegon da aliaj similaj? Unu mia amiko, tre bona 
+**La nekredemaj ne kapablas vidi por konvinkiĝi **
 
-skribiva mediumo, demandis Spiriton, æu iu homo, kiun 
 
-li jam de dek kvin jaroj ne vidis, ankoraý apartenas al 
+**V. **— Faktoj pozitivaj, jen kion la nekredemuloj
 
-æi tiu mondo. "Jes, li ankoraý vivas — tiu respondis —; 
+dezirus vidi kaj petas, sed kion oni plej ofte ne povas
 
-li loøas en Parizo, strato tia, numero tioma." La me- 
+al ili havigi. Se ĝiuj povus atesti tiajn faktojn, dubo
 
-diumo tien iris kaj trovis la homon en la indikita loko. 
+jam ne trovus al si lokon. Kial do tiom da homoj vidis
 
-Æu tio estis ia iluzio? Lia menso des malpli povus su- 
+nenion, malgraŭ sia bonvolo? Oni al ili kontraŭmetas,
 
-gesti al li æi tiun respondon, æar pro la aøo de tiu homo 
+ili diras, ilian mankon de fido; je tio ili rediras, ja prave,
 
-tute probable estis, ke æi tiu jam tiam ne vivis sur la 
+ke ili ne povas havi ian antaŭan fidon kaj ke, se oni vol-
 
-Tero. Se en iuj okazoj oni vidis, ke respondoj akordas 
+as, ke ili kredu, oni devas havigi al ili rimedojn por kredi.
 
-kun la penso, æu estas racie el tio konkludi, ke tia akor- 
 
-do estas øenerala normo? En æi tiu, kiel en æiu alia 
+**A. K. **— La motivo de tio estas tre simpla. Ili vol-
 
-rilato, la trorapidaj juøoj estas æiam danøeraj, æar ilin 
+as la faktojn sub sia ordono, sed la Spiritoj obeas neni-
 
-povas neigi faktoj, kiujn oni ankoraý ne observis. 
+ajn ordonojn: estas necese atendi ilian volontecon. Ne
 
 
+ALLAN KARDEC
 
-**La nekredemaj ne kapablas vidi por konvinkiøi **
 
-****
+sufiĝas do diri: "Montru al mi tian fakton, kaj mi kred-
 
-**V. **— Faktoj pozitivaj, jen kion la nekredemuloj 
+os"; oni devas voli persistadi, lasi la faktojn okazi per
 
-dezirus vidi kaj petas, sed kion oni plej ofte ne povas 
+si mem, ne volante ilin perforte estigi aŭ direkti; tiu,
 
-al ili havigi. Se æiuj povus atesti tiajn faktojn, dubo 
+kiun vi celas, eble ne estas ĝuste tiu, kiun vi ricevos, sed
 
-jam ne trovus al si lokon. Kial do tiom da homoj vidis 
+aliaj montriĝos, kaj tiu, kiun vi deziras, venos en la
 
-nenion, malgraý sia bonvolo? Oni al ili kontraýmetas, 
+momento, kiam vi tute ne pensas pri ĝi. Antaŭ la okul-
 
-ili diras, ilian mankon de fido; je tio ili rediras, ja prave, 
+oj de atenta kaj penema observanto aperas da ili amas-
 
-ke ili ne povas havi ian antaýan fidon kaj ke, se oni vol- 
+oj, kiuj konfirmas unu alian; sed homo, kiu pensas, ke
 
-as, ke ili kredu, oni devas havigi al ili rimedojn por kredi. 
+sufiĝas ekturni ian krankon, por ekfunkciigi la maþinon,
 
+tiu tute eraras. Kion faras naturisto, deziranta studi
 
+la kutimojn de iu besto? Æu li ordonas al ĝi fari tion
 
-**A. K. **— La motivo de tio estas tre simpla. Ili vol- 
+aŭ alian, por, nerapidante, ĝin laŭplaĝe observadi? Ne,
 
-as la faktojn sub sia ordono, sed la Spiritoj obeas neni- 
+ĝar li ja scias, ke ĝi lin ne obeos; li **spionas** la spontane-
 
-ajn ordonojn: estas necese atendi ilian volontecon. Ne 
+ajn manifestiĝojn de ĝia instinkto; li ilin atendas kaj
 
-40 
+preterpase kaptas. La sola komuna saĝo diras, ke des
 
-ALLAN KARDEC 
+pli prave same devas esti kun la Spiritoj, inteligentoj
 
+multe pli sendependaj ol la bestoj.
 
+Estas eraro pensi, ke por kredi estas necesa fido;
 
-sufiæas do diri: "Montru al mi tian fakton, kaj mi kred- 
+ne, sed **bonfido**, kio estas io alia; nu, ekzistas skeptik-
 
-os"; oni devas voli persistadi, lasi la faktojn okazi per 
+uloj, kiuj neas eĝ evidenta¼ojn kaj kiujn mireginda¼oj
 
-si mem, ne volante ilin perforte estigi aý direkti; tiu, 
+ne povus konvinki. Kiom da ili, vidinte, ĝiam ankoraŭ
 
-kiun vi celas, eble ne estas øuste tiu, kiun vi ricevos, sed 
+klarigas la faktojn laŭ sia maniero, dirante, ke tio pruv-
 
-aliaj montriøos, kaj tiu, kiun vi deziras, venos en la 
+as nenion? Tiaj homoj taŭgas nur por malordigi la
 
-momento, kiam vi tute ne pensas pri øi. Antaý la okul- 
+seancojn, sen ia profito por ili mem; tial oni ilin for-
 
-oj de atenta kaj penema observanto aperas da ili amas- 
+tenas kaj oni ne volas perdi sian tempon kun ili. Kelkaj
 
-oj, kiuj konfirmas unu alian; sed homo, kiu pensas, ke 
+eĝ estus malkontentaj, se ili estus devigitaj kredi, ĝar
 
-sufiæas ekturni ian krankon, por ekfunkciigi la maþinon, 
+ilian memestimon vundus la konfeso, ke ili eraras. Kion
 
-tiu tute eraras. Kion faras naturisto, deziranta studi 
+oni respondu al tiaj homoj, kiuj ĝie vidas nur iluzion
 
-la kutimojn de iu besto? Æu li ordonas al øi fari tion 
+kaj ĝarlatanismon? Nenion; oni ilin flanke lasu kaj diru,
 
-aý alian, por, nerapidante, øin laýplaæe observadi? Ne, 
+se ili tiel deziras, ke ili vidis nenion kaj eĝ, ke oni povis
 
-æar li ja scias, ke øi lin ne obeos; li **spionas** la spontane- 
+aŭ volis vidigi al ili nenion.
 
-ajn manifestiøojn de øia instinkto; li ilin atendas kaj 
+Krom ĝi tiuj harditaj skeptikuloj estas ankaŭ aliaj,
 
-preterpase kaptas. La sola komuna saøo diras, ke des 
+kiuj volas vidi laŭ sia maniero, kiuj, farinte al si iun
 
-pli prave same devas esti kun la Spiritoj, inteligentoj 
+opinion, volas ĝion rilatigi al ĝi; ili ne komprenas, ke
 
-multe pli sendependaj ol la bestoj. 
+fenomenoj ne povas obei al ilia arbitro; ili ne scias aŭ
 
-Estas eraro pensi, ke por kredi estas necesa fido; 
+ne volas trudi al si la necesajn kondiĝojn. Kiu volas
 
-ne, sed **bonfido**, kio estas io alia; nu, ekzistas skeptik- 
+observi bonafide, tiu devas, mi ne diras blinde kredi,
 
-uloj, kiuj neas eæ evidenta¼ojn kaj kiujn mireginda¼oj 
+sed flanken meti ĝian antaŭjuĝon; ne voli intersimiligi
 
-ne povus konvinki. Kiom da ili, vidinte, æiam ankoraý 
+aferojn neakordigeblajn inter si; li devas atendi, sekvi,
 
-klarigas la faktojn laý sia maniero, dirante, ke tio pruv- 
 
-as nenion? Tiaj homoj taýgas nur por malordigi la 
+KIO ESTAS SPIRITISMO ?
 
-seancojn, sen ia profito por ili mem; tial oni ilin for- 
 
-tenas kaj oni ne volas perdi sian tempon kun ili. Kelkaj 
+observi kun senlaca pacienco; ĝi tiu kondiĝo eĝ utilas al
 
-eæ estus malkontentaj, se ili estus devigitaj kredi, æar 
+la adeptoj, ĝar ĝi pruvas, ke ilia konvinkiteco ne estiĝis
 
-ilian memestimon vundus la konfeso, ke ili eraras. Kion 
+ventanime. Æu vi estas tiel pacienca? Ne, vi diras, mi
 
-oni respondu al tiaj homoj, kiuj æie vidas nur iluzion 
+ne havas tempon por tio. Vi do ne okupu vin pri ĝi,
 
-kaj æarlatanismon? Nenion; oni ilin flanke lasu kaj diru, 
+pri ĝi ne pensu: neniu devigas vin al tio.
 
-se ili tiel deziras, ke ili vidis nenion kaj eæ, ke oni povis 
 
-aý volis vidigi al ili nenion. 
+**Volonto aŭ malvolonto de la Spiritoj por konvinki **
 
-Krom æi tiuj harditaj skeptikuloj estas ankaý aliaj, 
+**V. **— Tamen la Spiritoj devas plej klopodi, por fari
 
-kiuj volas vidi laý sia maniero, kiuj, farinte al si iun 
+prozelitojn; kial ili ne volontas pli, ol ĝis nun, uzi ri-
 
-opinion, volas æion rilatigi al øi; ili ne komprenas, ke 
+medojn, por konvinki certajn homojn, kies opinio estus
 
-fenomenoj ne povas obei al ilia arbitro; ili ne scias aý 
+tre influa?
 
-ne volas trudi al si la necesajn kondiæojn. Kiu volas 
 
-observi bonafide, tiu devas, mi ne diras blinde kredi, 
+**A. K. **— Tiel estas, ĝar tute verþajne ilin ne inte-
 
-sed flanken meti æian antaýjuøon; ne voli intersimiligi 
+resas por momento konvinki certajn homojn, kies grav-
 
-aferojn neakordigeblajn inter si; li devas atendi, sekvi, 
+econ ili ne same mezuras, kiel tiuj mem. Øi estas ne-
 
+multe flata, mi konsentas, sed ni ne preskribas ilian opi-
 
+nion; la Spiritoj havas tian manieron juĝi la aferojn,
 
-KIO ESTAS SPIRITISMO ? 
+kian ne ĝiam ni havas; ili vidas, pensas kaj agas laŭ aliaj
 
-41 
+elementoj; dum nia vidado estas ĝirkaŭlimita de la ma-
 
+terio, ne transiras la malvastan rondon, kie ni staras,
 
+ili ĝirkaŭrigardas la tuton; la tempo, kiu aspektas al ni
 
-observi kun senlaca pacienco; æi tiu kondiæo eæ utilas al 
+tiel longa, estas por ili momento; distanco estas nura
 
-la adeptoj, æar øi pruvas, ke ilia konvinkiteco ne estiøis 
+paþo; iaj detaloj, kiuj þajnas al ni ekstreme gravaj, en
 
-ventanime. Æu vi estas tiel pacienca? Ne, vi diras, mi 
+iliaj okuloj estas infana¼oj, kaj kontraŭe, ili opinias grav-
 
-ne havas tempon por tio. Vi do ne okupu vin pri øi, 
+aj aferojn, kies profundecon ni ne komprenas. Por ilmpreni, ni devas per la penso leviĝi super nian ma-
 
-pri øi ne pensu: neniu devigas vin al tio. 
+terialan kaj moralan horizonton kaj loki nin sur ilia pun-
 
+kto de vidado; ne ilncernas malsuprenveni ĝis ni,
 
+sed nin supreniri ĝis ili: jen al kio kondukas nin la stud-
 
-**Volonto aý malvolonto de la Spiritoj por konvinki **
+ado kaj la observado.
 
-**V. **— Tamen la Spiritoj devas plej klopodi, por fari 
+La Spiritoj amas la observantojn diligentajn kaj
 
-prozelitojn; kial ili ne volontas pli, ol øis nun, uzi ri- 
+konsciencajn; por tiaj ili multigas la fontojn de lumo;
 
-medojn, por konvinki certajn homojn, kies opinio estus 
+kio ilin mallogas, tio estas ne la dubo, frukto de la nesci-
 
-tre influa? 
+eco, sed la vantamo de tiaj pseŭdoobservantoj, kiuj ob-
 
-****
+servas nenion, kiuj pretendas sidigi ilin sur la benketon
 
-**A. K. **— Tiel estas, æar tute verþajne ilin ne inte- 
+de la juĝatoj kaj igi ilin moviĝi kvazaŭ marionetoj; tio
 
-resas por momento konvinki certajn homojn, kies grav- 
+estas la malamikemo kaj la diskreditemo, kiujn tiuj hom-
 
-econ ili ne same mezuras, kiel tiuj mem. Øi estas ne- 
+oj portas en la menso, eĝ se tiaj sentoj ne manifestiĝas
 
-multe flata, mi konsentas, sed ni ne preskribas ilian opi- 
+per ties paroloj. Por tiuj la Spiritoj faras nenion, kaj
 
-nion; la Spiritoj havas tian manieron juøi la aferojn, 
 
-kian ne æiam ni havas; ili vidas, pensas kaj agas laý aliaj 
+ALLAN KARDEC
 
-elementoj; dum nia vidado estas æirkaýlimita de la ma- 
 
-terio, ne transiras la malvastan rondon, kie ni staras, 
+tre malmulte zorgas pri tio, kion ili povas diri aŭ pensi,
 
-ili æirkaýrigardas la tuton; la tempo, kiu aspektas al ni 
+ĝar ties vico ja venos. Tial mi diris, ke necesa estas
 
-tiel longa, estas por ili momento; distanco estas nura 
-
-paþo; iaj detaloj, kiuj þajnas al ni ekstreme gravaj, en 
-
-iliaj okuloj estas infana¼oj, kaj kontraýe, ili opinias grav- 
-
-aj aferojn, kies profundecon ni ne komprenas. Por ilin 
-
-kompreni, ni devas per la penso leviøi super nian ma- 
-
-terialan kaj moralan horizonton kaj loki nin sur ilia pun- 
-
-kto de vidado; ne ilin koncernas malsuprenveni øis ni, 
-
-sed nin supreniri øis ili: jen al kio kondukas nin la stud- 
-
-ado kaj la observado. 
-
-La Spiritoj amas la observantojn diligentajn kaj 
-
-konsciencajn; por tiaj ili multigas la fontojn de lumo; 
-
-kio ilin mallogas, tio estas ne la dubo, frukto de la nesci- 
-
-eco, sed la vantamo de tiaj pseýdoobservantoj, kiuj ob- 
-
-servas nenion, kiuj pretendas sidigi ilin sur la benketon 
-
-de la juøatoj kaj igi ilin moviøi kvazaý marionetoj; tio 
-
-estas la malamikemo kaj la diskreditemo, kiujn tiuj hom- 
-
-oj portas en la menso, eæ se tiaj sentoj ne manifestiøas 
-
-per ties paroloj. Por tiuj la Spiritoj faras nenion, kaj 
-
-42 
-
-ALLAN KARDEC 
-
-
-
-tre malmulte zorgas pri tio, kion ili povas diri aý pensi, 
-
-æar ties vico ja venos. Tial mi diris, ke necesa estas 
-
-ne la fido, sed la bonfido. 
-
+ne la fido, sed la bonfido.
 
 
 **Origino de la modernaj spiritismaj ideoj **
 
-****
 
-**V. **— Unu afero, kiun mi dezirus scii, sinjoro, estas 
+**V. **— Unu afero, kiun mi dezirus scii, sinjoro, estas
 
-la deirpunkto de la modernaj spiritismaj ideoj: æu ili 
+la deirpunkto de la modernaj spiritismaj ideoj: ĝu ili
 
-estas frukto de ia meminiciata malkaþo de la Spiritoj 
+estas frukto de ia meminiciata malkaþo de la Spiritoj
 
-aý la rezultato de ia antaýiranta kredo je ilia ekzisto? 
+aŭ la rezultato de ia antaŭiranta kredo je ilia ekzisto?
 
-Vi ja komprenas la gravecon de æi tiu mia demando, 
+Vi ja komprenas la gravecon de ĝi tiu mia demando,
 
-æar, en æi tiu lasta okazo, oni povus supozi la parto- 
+ĝar, en ĝi tiu lasta okazo, oni povus supozi la parto-
 
-prenon de la imagemo. 
+prenon de la imagemo.
 
 
+**A. K. **— Æi tiu demando, kiel vi diras, sinjoro, est-
 
-**A. K. **— Æi tiu demando, kiel vi diras, sinjoro, est- 
+as grava el tiu vidpunkto, kvankam estas malfacile ak-
 
-as grava el tiu vidpunkto, kvankam estas malfacile ak- 
+cepti — supozante, ke tiuj ideoj naskiĝis el ia antaŭa
 
-cepti — supozante, ke tiuj ideoj naskiøis el ia antaýa 
+kredo —, ke la imagemo povis okazigi ĝiujn observitajn
 
-kredo —, ke la imagemo povis okazigi æiujn observitajn 
+materiajn faktojn. Efektive, se Spiritismo estus bazita
 
-materiajn faktojn. Efektive, se Spiritismo estus bazita 
+sur la antaŭa ideo pri la ekzisto de la Spiritoj, oni pov-
 
-sur la antaýa ideo pri la ekzisto de la Spiritoj, oni pov- 
+us, kun iel verþajna praveco, dubi la realecon de tiu
 
-us, kun iel verþajna praveco, dubi la realecon de tiu 
+ekzisto, ĝar ja, se iu kaŭzo estas ¶imero, la sekvoj devas
 
-ekzisto, æar ja, se iu kaýzo estas ¶imero, la sekvoj devas 
+mem esti ¶imeroj; sed ne tiel okazis.
 
-mem esti ¶imeroj; sed ne tiel okazis. 
+Rimarku unue, ke tiu sinsekvo estus tute senlogika;
 
-Rimarku unue, ke tiu sinsekvo estus tute senlogika; 
+la Spiritoj estas ne efiko, sed kaŭzo; vidante iun efikon,
 
-la Spiritoj estas ne efiko, sed kaýzo; vidante iun efikon, 
+oni povas serĝi ĝian kaŭzon, sed ne nature estas imagi
 
-oni povas seræi øian kaýzon, sed ne nature estas imagi 
+ian kaŭzon, **antaŭ ol esti vidinta la efikojn. ** Oni do ne
 
-ian kaýzon, **antaý ol esti vidinta la efikojn. ** Oni do ne 
+povus koncepti la Spiritojn, se ne estus mo ntriĝintaj
 
-povus koncepti la Spiritojn, se ne estus mo ntriøintaj 
+efikoj, kies probabla klarigo estis la ekzisto de nevid-
 
-efikoj, kies probabla klarigo estis la ekzisto de nevid- 
+eblaj estuloj. Nu, ne ĝuste tiel elkoviĝis tiu ideo, t. e.
 
-eblaj estuloj. Nu, ne øuste tiel elkoviøis tiu ideo, t. e. 
+ĝi ne estas ia imagata hipotezo, por klarigi certajn fe-
 
-øi ne estas ia imagata hipotezo, por klarigi certajn fe- 
+nomenojn; la unua farita supozo estas tiu pri ia kaŭzo
 
-nomenojn; la unua farita supozo estas tiu pri ia kaýzo 
+tute materia. Tiel do, anstataŭ ke la Spiritoj estis ia
 
-tute materia. Tiel do, anstataý ke la Spiritoj estis ia 
+antaŭnaskita ideo, oni deiris de la vidpunkto **material- **
 
-antaýnaskita ideo, oni deiris de la vidpunkto **material- **
+**isma. ** Æar ĝi tiu vidpunkto ne ĝion kapablas klarigi, tial
 
-**isma. ** Æar æi tiu vidpunkto ne æion kapablas klarigi, tial 
+nur la observado kondukis al la kaŭzo spirita. Mi pa-
 
-nur la observado kondukis al la kaýzo spirita. Mi pa- 
+rolas pri la modernaj spiritismaj ideoj, ĝar, ni scias, ĝi
 
-rolas pri la modernaj spiritismaj ideoj, æar, ni scias, æi 
+tiu kredo estas tiel malnova kiel la mondo. Jen la irado
 
-tiu kredo estas tiel malnova kiel la mondo. Jen la irado 
+de la aferoj.
 
-de la aferoj. 
+Okazis spontaneaj fenomenoj, kiel strangaj bruoj,
 
-Okazis spontaneaj fenomenoj, kiel strangaj bruoj, 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+frapoj, movoj de objektoj k. a., sen ia konata videbla
 
-43 
+kaŭzo, fenomenoj, kiuj povis refariĝi sub la influo de
 
+certaj personoj. Øis tiam nenio rajtigas, ke oni serĝu
 
+ilian kaŭzon aliloke ol en la agado de ia magneta aŭ
 
-frapoj, movoj de objektoj k. a., sen ia konata videbla 
+alispeca fluida¼o, kies proprecoj ankoraŭ estis nekonataj.
 
-kaýzo, fenomenoj, kiuj povis refariøi sub la influo de 
+Sed oni baldaŭ konstatis en tiuj bruoj kaj movoj ian
 
-certaj personoj. Øis tiam nenio rajtigas, ke oni seræu 
+intencan kaj inteligentan karakteron, el kio oni konklud-
 
-ilian kaýzon aliloke ol en la agado de ia magneta aý 
+is, kiel mi jam diris, ke: Se ĝia efiko havas ian kaŭzon,
 
-alispeca fluida¼o, kies proprecoj ankoraý estis nekonataj. 
+ĝia efiko inteligenta havas do ian kaŭzon inteligentan.
 
-Sed oni baldaý konstatis en tiuj bruoj kaj movoj ian 
+Tiu inteligento ne povas troviĝi en la objekto mem, ĝar
 
-intencan kaj inteligentan karakteron, el kio oni konklud- 
+la materio ja ne estas inteligenta. Æu ĝi estis la refi-
 
-is, kiel mi jam diris, ke: Se æia efiko havas ian kaýzon, 
+gura¼o de tiu de la homo aŭ homoj ĝeestantaj? En la
 
-æia efiko inteligenta havas do ian kaýzon inteligentan. 
+komenco oni tiel pensis, kiel mi ankaŭ diris; nur la sper-
 
-Tiu inteligento ne povas troviøi en la objekto mem, æar 
+to povus juĝi, kaj la sperto per nerefuteblaj pruvoj, en
 
-la materio ja ne estas inteligenta. Æu øi estis la refi- 
+multe da okazoj, elmontris la absolutan sendependecon
 
-gura¼o de tiu de la homo aý homoj æeestantaj? En la 
+de tiu inteligento. Øi do troviĝis ekster la objekto kaj
 
-komenco oni tiel pensis, kiel mi ankaý diris; nur la sper- 
+ekster la persono. Kio ĝi estis? Øi mem respondis; ĝi
 
-to povus juøi, kaj la sperto per nerefuteblaj pruvoj, en 
+diris, ke ĝi apartenas al la kategorio de la senkorpaj
 
-multe da okazoj, elmontris la absolutan sendependecon 
+estuloj, nomataj "Spiritoj". Sekve, la ideo pri la Spi-
 
-de tiu inteligento. Øi do troviøis ekster la objekto kaj 
+ritoj ne antaŭekzistis, eĝ ne estis konsekvenca. Per unu
 
-ekster la persono. Kio øi estis? Øi mem respondis; øi 
+vorto, ĝi ne elþprucis el la cerbo, sed estas donita de la
 
-diris, ke øi apartenas al la kategorio de la senkorpaj 
+Spiritoj mem, kaj ĝion, kion ni poste eksciis pri ili, ankaŭ
 
-estuloj, nomataj "Spiritoj". Sekve, la ideo pri la Spi- 
+ili al ni informis.
 
-ritoj ne antaýekzistis, eæ ne estis konsekvenca. Per unu 
+Post la malkaþo de la ekzisto de la Spiritoj kaj la
 
-vorto, øi ne elþprucis el la cerbo, sed estas donita de la 
+starigo de la komunikrimedoj, oni povis teni konstantajn
 
-Spiritoj mem, kaj æion, kion ni poste eksciis pri ili, ankaý 
+konversaciojn kaj ekhavi informojn pri la naturo de tiuj
 
-ili al ni informis. 
+estuloj, la kondiĝoj de ilia vivado, ilia rolo en la videbla
 
-Post la malkaþo de la ekzisto de la Spiritoj kaj la 
+mondo. Se tiel same oni povus demandi la esta¼ojn de
 
-starigo de la komunikrimedoj, oni povis teni konstantajn 
+la mondo de la supermezure malgrandaj, kiom da kurioz-
 
-konversaciojn kaj ekhavi informojn pri la naturo de tiuj 
+aj aferoj oni lernus pri ili!
 
-estuloj, la kondiæoj de ilia vivado, ilia rolo en la videbla 
+Ni supozu, ke antaŭ la eltrovo de Ameriko ekzistis
 
-mondo. Se tiel same oni povus demandi la esta¼ojn de 
+iu elektra drato tra Atlantiko kaj ke ĝe ĝia ekstrema¼o
 
-la mondo de la supermezure malgrandaj, kiom da kurioz- 
+en Eŭropo oni ekrimarkis inteligentajn signojn: oni kon-
 
-aj aferoj oni lernus pri ili\! 
+kludus, ke ĝe la transa ekstrema¼o staras inteligentaj
 
-Ni supozu, ke antaý la eltrovo de Ameriko ekzistis 
+estuloj, penantaj komunikiĝi; oni povus demandi ilin kaj
 
-iu elektra drato tra Atlantiko kaj ke æe øia ekstrema¼o 
+ili respondus. Oni tiele certiĝus pri ilia ekzisto, oni
 
-en Eýropo oni ekrimarkis inteligentajn signojn: oni kon- 
+ekscius iliajn morojn, iliajn kutimojn, ilian estecon, ilin
 
-kludus, ke æe la transa ekstrema¼o staras inteligentaj 
+neniam antaŭe vidinte. Tiel same okazis pri la interri-
 
-estuloj, penantaj komunikiøi; oni povus demandi ilin kaj 
+latoj kun la nevidebla mondo; la materiaj manifestiĝoj
 
-ili respondus. Oni tiele certiøus pri ilia ekzisto, oni 
 
-ekscius iliajn morojn, iliajn kutimojn, ilian estecon, ilin 
+ALLAN KARDEC
 
-neniam antaýe vidinte. Tiel same okazis pri la interri- 
 
-latoj kun la nevidebla mondo; la materiaj manifestiøoj 
+estis kvazaŭ signoj, atentigiloj, kiuj ebligis al ni pli re-
 
-44 
+gulajn kaj pli konstantajn komunikiĝojn. Kaj, kio estas
 
-ALLAN KARDEC 
+rimarkinda, laŭgrade kiel ni disponas pli facilajn komu -
 
+nikrimedojn, la Spiritoj forlasas tiujn primitivajn, ne-
 
+sufiĝajn kaj neoportunajn, same kiel mutulo, ricevinte
 
-estis kvazaý signoj, atentigiloj, kiuj ebligis al ni pli re- 
+la parolon, ne plu uzas la signolingvon.
 
-gulajn kaj pli konstantajn komunikiøojn. Kaj, kio estas 
+Kiuj estis la loĝantoj de tiu mondo? Æu estuloj
 
-rimarkinda, laýgrade kiel ni disponas pli facilajn komu - 
+apartaj, fremdaj al la homaro? Æu bonaj aŭ malbonaj?
 
-nikrimedojn, la Spiritoj forlasas tiujn primitivajn, ne- 
+Ankoraŭ al la sperto estis donita la solvo de ĝi tiuj
 
-sufiæajn kaj neoportunajn, same kiel mutulo, ricevinte 
+demandoj, sed ĝis multenombraj observoj prilumis la
 
-la parolon, ne plu uzas la signolingvon. 
+aferon, la kampo de la konjektoj kaj sistemoj estis mal-
 
-Kiuj estis la loøantoj de tiu mondo? Æu estuloj 
+fermita, kaj Dio scias, kiom da tiaj aperis! Unuj homoj
 
-apartaj, fremdaj al la homaro? Æu bonaj aý malbonaj? 
+pensis, ke la Spiritoj estas superaj en ĝio, aliaj vidis en
 
-Ankoraý al la sperto estis donita la solvo de æi tiuj 
+ili nur demonojn; oni povis ilin juĝi nur laŭ iliaj paroloj
 
-demandoj, sed øis multenombraj observoj prilumis la 
+kaj agoj. Ni imagu, ke el tiuj nekonataj transatlantikaj
 
-aferon, la kampo de la konjektoj kaj sistemoj estis mal- 
+loĝantoj, pri kiuj mi ¼us parolis, unuj diris tre bonajn
 
-fermita, kaj Dio scias, kiom da tiaj aperis\! Unuj homoj 
+vortojn, dum aliaj distingiĝis per la cinikeco de siaj es-
 
-pensis, ke la Spiritoj estas superaj en æio, aliaj vidis en 
+primoj: oni el tio konkludus, ke inter ili ekzistas bonaj
 
-ili nur demonojn; oni povis ilin juøi nur laý iliaj paroloj 
+kaj malbonaj. Tiel same estas kun la Spiritoj; tiel oni
 
-kaj agoj. Ni imagu, ke el tiuj nekonataj transatlantikaj 
+agnoskis ĝe ili ĝiujn gradojn da boneco kaj da maliceco,
 
-loøantoj, pri kiuj mi ¼us parolis, unuj diris tre bonajn 
+da malklareco kaj da klareco. Æe la perfekta informiĝo
 
-vortojn, dum aliaj distingiøis per la cinikeco de siaj es- 
+pri iliaj bonaj kaj malbonaj ecoj, koncernas nian pru-
 
-primoj: oni el tio konkludus, ke inter ili ekzistas bonaj 
+denton apartigi bonan de malbona, veran de malvera en
 
-kaj malbonaj. Tiel same estas kun la Spiritoj; tiel oni 
+iliaj rilatoj kun ni, tute tiel, kiel ni agadas kun la homoj.
 
-agnoskis æe ili æiujn gradojn da boneco kaj da maliceco, 
+La observado klarigis al ni ne nur la moralajn ecojn
 
-da malklareco kaj da klareco. Æe la perfekta informiøo 
+de la Spiritoj, sed ankaŭ ilian naturon kaj tion, kion ni
 
-pri iliaj bonaj kaj malbonaj ecoj, koncernas nian pru- 
+povus nomi ilia fiziologia stato. Oni de la Spiritoj mem
 
-denton apartigi bonan de malbona, veran de malvera en 
+eksciis, ke unuj estas tre feliĝaj kaj aliaj tre malfeliĝaj;
 
-iliaj rilatoj kun ni, tute tiel, kiel ni agadas kun la homoj. 
+ke ili estas ne iaj apartaj estuloj, de escepta naturo sed la
 
-La observado klarigis al ni ne nur la moralajn ecojn 
+animoj mem de tiuj, vivintaj sur la Tero, kie ili forlasis
 
-de la Spiritoj, sed ankaý ilian naturon kaj tion, kion ni 
+sian korpan envolva¼on, animoj, kiuj okupas la spacegon,
 
-povus nomi ilia fiziologia stato. Oni de la Spiritoj mem 
+nin senĝese ĝirkaŭas kaj tuþas, kaj inter kiuj ĝiu el ni
 
-eksciis, ke unuj estas tre feliæaj kaj aliaj tre malfeliæaj; 
+povis rekoni, laŭ nekontesteblaj signoj, ** siajn parencojn, **
 
-ke ili estas ne iaj apartaj estuloj, de escepta naturo sed la 
+**siajn amikojn kaj siajn surterajn konatojn; ** oni povis
 
-animoj mem de tiuj, vivintaj sur la Tero, kie ili forlasis 
+sekvi ilin en ĝiuj fazoj de ilia transtomba ekzistado, de
 
-sian korpan envolva¼on, animoj, kiuj okupas la spacegon, 
+post la momento, kiam ili forlasis la korpon, kaj observi
 
-nin senæese æirkaýas kaj tuþas, kaj inter kiuj æiu el ni 
+ilian situacion laŭ la speco de ilia morto kaj la maniero,
 
-povis rekoni, laý nekontesteblaj signoj, ** siajn parencojn, **
+kiel ili vivis sur la Tero. Fine oni eksciis, ke ili ne estas
 
-**siajn amikojn kaj siajn surterajn konatojn; ** oni povis 
+iaj estuloj abstraktaj, senmateriaj, laŭ la absoluta senco
 
-sekvi ilin en æiuj fazoj de ilia transtomba ekzistado, de 
 
-post la momento, kiam ili forlasis la korpon, kaj observi 
+KIO ESTAS SPIRITISMO ?
 
-ilian situacion laý la speco de ilia morto kaj la maniero, 
 
-kiel ili vivis sur la Tero. Fine oni eksciis, ke ili ne estas 
+de la vorto; ili portas ian envolva¼on, kiun ni nomas
 
-iaj estuloj abstraktaj, senmateriaj, laý la absoluta senco 
+**perispirito, **ian korpon fluidecan, vaporecan, diafanan, ne-
 
+videblan en sia normala stato, sed kiu, en certaj okazoj,
 
+kaj per ia plidensiĝo aŭ molekula aranĝo, povas momen-
 
-KIO ESTAS SPIRITISMO ? 
+te fariĝi videbla, eĝ tuþebla; ĝe tio klariĝis la fenomeno
 
-45 
+de la apera¼oj kaj tuþoj. Tiu envolva¼o ekzistas dum
 
+la vivo de la korpo: ĝi estas la ligilo inter la Spirito kaj
 
+la materio; ĝe la morto de la korpo, la animo aŭ Spirito
 
-de la vorto; ili portas ian envolva¼on, kiun ni nomas 
+— kio estas io sama — demetas de si nur la envolva¼on
 
-**perispirito, **ian korpon fluidecan, vaporecan, diafanan, ne- 
+maldelikatan: ĝi konservas la duan, simile kiel ni de-
 
-videblan en sia normala stato, sed kiu, en certaj okazoj, 
+metas supran veston, por plue porti nur tiun suban, kiel
 
-kaj per ia plidensiøo aý molekula aranøo, povas momen- 
+ankaŭ la semo seniĝas je sia þelo kaj konservas nur
 
-te fariøi videbla, eæ tuþebla; æe tio klariøis la fenomeno 
+sian perispermon. Øuste tiu duonmateria envolva¼o de
 
-de la apera¼oj kaj tuþoj. Tiu envolva¼o ekzistas dum 
+la Spirito estas la rimedo por la diversaj fenomenoj, per
 
-la vivo de la korpo: øi estas la ligilo inter la Spirito kaj 
+kiuj li manifestas sian ĝeeston.
 
-la materio; æe la morto de la korpo, la animo aý Spirito 
+Jen, per malmulte da vortoj, sinjoro, la historio
 
-— kio estas io sama — demetas de si nur la envolva¼on 
+de Spiritismo; vi ja vidas, kaj tion ankoraŭ pli bone kons-
 
-maldelikatan: øi konservas la duan, simile kiel ni de- 
+tatos, kiam vi ĝin funde estos studinta, ke ĝio en ĝi estas
 
-metas supran veston, por plue porti nur tiun suban, kiel 
+la rezultato de la observado sed ne de ia antaŭforĝita
 
-ankaý la semo seniøas je sia þelo kaj konservas nur 
-
-sian perispermon. Øuste tiu duonmateria envolva¼o de 
-
-la Spirito estas la rimedo por la diversaj fenomenoj, per 
-
-kiuj li manifestas sian æeeston. 
-
-Jen, per malmulte da vortoj, sinjoro, la historio 
-
-de Spiritismo; vi ja vidas, kaj tion ankoraý pli bone kons- 
-
-tatos, kiam vi øin funde estos studinta, ke æio en øi estas 
-
-la rezultato de la observado sed ne de ia antaýforøita 
-
-sistemo. 
-
+sistemo.
 
 
 **Rimedoj por komunikado **
 
-****
 
-**V. ** — Vi parolis pri la rimedoj por komunikado: Æu 
+**V. ** — Vi parolis pri la rimedoj por komunikado: Æu
 
-vi povus havigi al mi ian ideon pri ili, æar estas mal- 
+vi povus havigi al mi ian ideon pri ili, ĝar estas mal-
 
-facile kompreni, kiel tiuj nevideblaj estuloj povas kon- 
+facile kompreni, kiel tiuj nevideblaj estuloj povas kon-
 
-versacii kun ni? 
+versacii kun ni?
 
 
+**A. K. **— Volonte, sed mi ĝin faros malmultvorte,
 
-**A. K. **— Volonte, sed mi øin faros malmultvorte, 
+ĝar tio postulus tro longan elvolvadon, kion vi legos pre-
 
-æar tio postulus tro longan elvolvadon, kion vi legos pre- 
+cipe en **La Libro de la Mediumoj. ** Tamen la malmulto,
 
-cipe en **La Libro de la Mediumoj. ** Tamen la malmulto, 
+kiun mi nun diros al vi pri la afero, sufiĝos, por konigi
 
-kiun mi nun diros al vi pri la afero, sufiæos, por konigi 
+al vi ĝian me¶anismon kaj precipe servos por igi vmpreni kelkajn el la eksperimentoj, kiujn vi povus ĝe-
 
-al vi øian me¶anismon kaj precipe servos por igi vin 
+esti, antaŭ ol komenci vian efektivan inicadon.
 
-kompreni kelkajn el la eksperimentoj, kiujn vi povus æe- 
+La ekzisto de tiu duonmateria envolva¼o, aŭ peris -
 
-esti, antaý ol komenci vian efektivan inicadon. 
+pirito, estas jam ia þlosilo, kiu klarigas multajn aferojn
 
-La ekzisto de tiu duonmateria envolva¼o, aý peris - 
+kaj montras la eblecon de certaj fenomenoj. Rilate la ri-
 
-pirito, estas jam ia þlosilo, kiu klarigas multajn aferojn 
+medojn, ili estas tre diversaj kaj dependas, ĝu de la pli
 
-kaj montras la eblecon de certaj fenomenoj. Rilate la ri- 
+aŭ malpli puriĝinta naturo de la Spirito, ĝu de la aparta
 
-medojn, ili estas tre diversaj kaj dependas, æu de la pli 
 
-aý malpli puriøinta naturo de la Spirito, æu de la aparta 
+ALLAN KARDEC
 
-46 
 
-ALLAN KARDEC 
+humoro de la homoj, servantaj al ili kiel perantoj. Tiu
 
+plej ordinara, tiu, kiun oni povus nomi universala, estas
 
+la intuicio, t. e. la ideoj kaj pensoj, kiujn ili inspiras
 
-humoro de la homoj, servantaj al ili kiel perantoj. Tiu 
+al ni, sed ĝi tiu rimedo plejparte estas tro malmulte sent-
 
-plej ordinara, tiu, kiun oni povus nomi universala, estas 
+ebla: ekzistas aliaj pli materiaj.
 
-la intuicio, t. e. la ideoj kaj pensoj, kiujn ili inspiras 
+Iuj Spiritoj komunikiĝas per frapoj, respondantaj al
 
-al ni, sed æi tiu rimedo plejparte estas tro malmulte sent- 
+**jes** kaj **ne**, aŭ signantaj la literojn, kiuj devas konstrui la vortojn. Oni povas ricevi la frapojn per la baskul-movado de iu objekto, ekzemple tablo, kiu frapas la
 
-ebla: ekzistas aliaj pli materiaj. 
+plankon per unu piedo. Ofte ili aŭdiĝas en la materio
 
-Iuj Spiritoj komunikiøas per frapoj, respondantaj al 
+mem de la korpoj sen ties moviĝo. Æi tiu primitiva pro-
 
-**jes** kaj **ne**, aý signantaj la literojn, kiuj devas konstrui la vortojn. Oni povas ricevi la frapojn per la baskul-movado de iu objekto, ekzemple tablo, kiu frapas la 
+cedo estas tro malrapida kaj apenaŭ taŭgas por iom
 
-plankon per unu piedo. Ofte ili aýdiøas en la materio 
+vastaj komunika¼oj; la skribado ĝin anstataŭis kaj far-
 
-mem de la korpoj sen ties moviøo. Æi tiu primitiva pro- 
+iĝas en pluraj manieroj. Oni unue uzis, kaj oni ankoraŭ
 
-cedo estas tro malrapida kaj apenaý taýgas por iom 
+kelkafoje uzas, ian oportune moveblan objekton, kiel ta-
 
-vastaj komunika¼oj; la skribado øin anstataýis kaj far- 
+buleto, korbo, skatolo, al kiu oni adaptas krajonon, kies
 
-iøas en pluraj manieroj. Oni unue uzis, kaj oni ankoraý 
+pinto sin apogas sur la papero. La speco kaj la substanco
 
-kelkafoje uzas, ian oportune moveblan objekton, kiel ta- 
+de la objekto estas indiferentaj. La mediumo apogas la
 
-buleto, korbo, skatolo, al kiu oni adaptas krajonon, kies 
+manojn sur tiu objekto, al kiu li transigas la influon,
 
-pinto sin apogas sur la papero. La speco kaj la substanco 
+kiun li ricevas de la Spirito, kaj la krajono strekas la
 
-de la objekto estas indiferentaj. La mediumo apogas la 
+literojn. Tiu objekto estas ja, ĝustadire, simpla kontinu-
 
-manojn sur tiu objekto, al kiu li transigas la influon, 
+a¼o de la mano, ia krajoningo. Oni poste konstatis la
 
-kiun li ricevas de la Spirito, kaj la krajono strekas la 
+senutilecon de tiu perilo, kiu estas nura kvina rado ĝe
 
-literojn. Tiu objekto estas ja, øustadire, simpla kontinu- 
+veturado kaj kies sola merito estas pli materie montri
 
-a¼o de la mano, ia krajoningo. Oni poste konstatis la 
+la nedependecon de la mediumo; ĝi tiu povas skribi, ten-
 
-senutilecon de tiu perilo, kiu estas nura kvina rado æe 
+ante mem la krajonon.
 
-veturado kaj kies sola merito estas pli materie montri 
+La Spiritoj manifestiĝas ankaŭ kaj povas transigi
 
-la nedependecon de la mediumo; æi tiu povas skribi, ten- 
+siajn pensojn per artikitaj sonoj, kiuj rebruas ĝu ie en
 
-ante mem la krajonon. 
+la aero, ĝu en la orelo; per la voĝo de la mediumo, per
 
-La Spiritoj manifestiøas ankaý kaj povas transigi 
+la vidado, per desegnoj, per la muziko kaj per aliaj
 
-siajn pensojn per artikitaj sonoj, kiuj rebruas æu ie en 
+rimedoj, kiujn kompleta studado konigas. Por ĝi tiuj di-
 
-la aero, æu en la orelo; per la voæo de la mediumo, per 
+versaj rimedoj la mediumoj posedas specialajn kapabl-
 
-la vidado, per desegnoj, per la muziko kaj per aliaj 
+ojn, kiuj dependas de ilia esteco. Tiel do ekzistas me-
 
-rimedoj, kiujn kompleta studado konigas. Por æi tiuj di- 
+diumoj por fizikaj efikoj, t. e. tiuj kapablaj okazigi ma-
 
-versaj rimedoj la mediumoj posedas specialajn kapabl- 
+teriajn fenomenojn, kiel la frapoj, la movado de korpoj
 
-ojn, kiuj dependas de ilia esteco. Tiel do ekzistas me- 
+k. a.; la mediumoj aŭdivaj, parolivaj, vidivaj, por de-
 
-diumoj por fizikaj efikoj, t. e. tiuj kapablaj okazigi ma- 
+segnado, por muzikado, skribivaj. Æi tiu lasta kapableco
 
-teriajn fenomenojn, kiel la frapoj, la movado de korpoj 
+estas la plej ordinara, tiu, kiu plej bone disvolviĝas per
 
-k. a.; la mediumoj aýdivaj, parolivaj, vidivaj, por de- 
+ekzerciĝado; ĝi estas ankaŭ la plej valora, ĝar ĝuste ĝi
 
-segnado, por muzikado, skribivaj. Æi tiu lasta kapableco 
 
-estas la plej ordinara, tiu, kiu plej bone disvolviøas per 
+KIO ESTAS SPIRITISMO ?
 
-ekzerciøado; øi estas ankaý la plej valora, æar øuste øi 
 
+ebligas la plej longajn kaj plej rapidajn komunikiĝojn.
 
+La skribiva mediumo prezentas multenombrajn va-
 
-KIO ESTAS SPIRITISMO ? 
+ria¼ojn, el kiuj du forte distingiĝas de la ceteraj. Por
 
-47 
+ilmpreni, oni devas ekscii, kiel fariĝas la fenomeno.
 
+La Spirito agas iafoje rekte sur la manon de la mediumo,
 
+donante al ĝi impulson tute ne dependantan de lia volo
 
-ebligas la plej longajn kaj plej rapidajn komunikiøojn. 
+kaj sen la konscio de la mediumo pri tio, kion li skribas:
 
-La skribiva mediumo prezentas multenombrajn va- 
+tio estas la **skribiva mediumo mekanika. **Aliajn fojojn
 
-ria¼ojn, el kiuj du forte distingiøas de la ceteraj. Por 
+la Spirito agas sur la cerbon; lia penso trafluas la cerb-
 
-ilin kompreni, oni devas ekscii, kiel fariøas la fenomeno. 
+on de la mediumo, kiu tiam, kvankam skribante preter-
 
-La Spirito agas iafoje rekte sur la manon de la mediumo, 
+vole, tamen pli aŭ malpli klare konscias tion, kion li
 
-donante al øi impulson tute ne dependantan de lia volo 
+ricevas: tio estas la **skribiva mediumo intuicia**; lia rolo
 
-kaj sen la konscio de la mediumo pri tio, kion li skribas: 
+estas ĝuste tiu de iu interpretanto, kiu transdiras pens-
 
-tio estas la **skribiva mediumo mekanika. **Aliajn fojojn 
+on, kiu estas ne lia, sed kiun tamen li devas kompreni.
 
-la Spirito agas sur la cerbon; lia penso trafluas la cerb- 
+Kvankam en ĝi tiu okazo la pensoj de la Spirito kaj de
 
-on de la mediumo, kiu tiam, kvankam skribante preter- 
+la mediumo iafoje interkonfuziĝas, tamen la sperto ins-
 
-vole, tamen pli aý malpli klare konscias tion, kion li 
+truas ilin klare distingi unu de alia. Per ĝi tiuj du spec-
 
-ricevas: tio estas la **skribiva mediumo intuicia**; lia rolo 
+oj de mediumoj oni ricevas egale bonajn komunika¼ojn;
 
-estas øuste tiu de iu interpretanto, kiu transdiras pens- 
+tiuj mekanikaj estas preferindaj precipe rilate la anko-
 
-on, kiu estas ne lia, sed kiun tamen li devas kompreni. 
+raŭ ne konvinkitajn homojn. Cetere la esenca eco de iu
 
-Kvankam en æi tiu okazo la pensoj de la Spirito kaj de 
+mediumo kuþas en la naturo de la lin influantaj Spiritoj
 
-la mediumo iafoje interkonfuziøas, tamen la sperto ins- 
+kaj en la komunika¼oj, kiujn li ricevas, multe pli bone,
 
-truas ilin klare distingi unu de alia. Per æi tiuj du spec- 
+ol en la maniero de tiu ricevo.
 
-oj de mediumoj oni ricevas egale bonajn komunika¼ojn; 
 
-tiuj mekanikaj estas preferindaj precipe rilate la anko- 
+**V. **— Æi tiu procedo þajnas al mi el la plej simplaj.
 
-raý ne konvinkitajn homojn. Cetere la esenca eco de iu 
+Æu mi povus mem ĝin provi?
 
-mediumo kuþas en la naturo de la lin influantaj Spiritoj 
 
-kaj en la komunika¼oj, kiujn li ricevas, multe pli bone, 
+**A. K. **— Sendube, mi eĝ diras, ke se vi posedus la
 
-ol en la maniero de tiu ricevo. 
+mediuman kapablecon, tio estus la plej bona rimedo, per
 
+kiu vi mem konvinkiĝus, ĝar vi ne povus suspekti vian
 
+propran bonfidon. Mi nur vin forte admonas fari nenian
 
-**V. **— Æi tiu procedo þajnas al mi el la plej simplaj. 
+provon, antaŭ ol esti zorge studinta la aferon. La trans-
 
-Æu mi povus mem øin provi? 
+tombajn komunikiĝojn implikas pli da malfacila¼oj, ol
 
+kiom oni imagas; ili ne estas liberaj de malbona¼oj kaj
 
+eĝ ne de danĝeroj por homoj sen la necesa sperto. Æi
 
-**A. K. **— Sendube, mi eæ diras, ke se vi posedus la 
+tie okazas tio sama al senspertulo, kiel al iu, kiu volus
 
-mediuman kapablecon, tio estus la plej bona rimedo, per 
+fari ¶emiajn manipuladojn, ne konante ¶emion tiu risk-
 
-kiu vi mem konvinkiøus, æar vi ne povus suspekti vian 
+us brulan kripliĝon.
 
-propran bonfidon. Mi nur vin forte admonas fari nenian 
 
-provon, antaý ol esti zorge studinta la aferon. La trans- 
+**V. ** — Æu ekzistas ia signo, laŭ kiu oni povus kons-
 
-tombajn komunikiøojn implikas pli da malfacila¼oj, ol 
+tati tiun kapablecon?
 
-kiom oni imagas; ili ne estas liberaj de malbona¼oj kaj 
 
-eæ ne de danøeroj por homoj sen la necesa sperto. Æi 
+ALLAN KARDEC
 
-tie okazas tio sama al senspertulo, kiel al iu, kiu volus 
 
-fari ¶emiajn manipuladojn, ne konante ¶emion tiu risk- 
+**A. K. **— Øis hodiaŭ oni konas neniajn simptomojn
 
-us brulan kripliøon. 
+de la mediumeco; ĝiuj, pri kiuj oni pensis, ke oni ilin
 
+rekonis, havas neniom da valoro; iu provo estas la sola
 
+rimedo, por sciiĝi, ĝu oni ĝin posedas. Cetere mediumoj
 
-**V. ** — Æu ekzistas ia signo, laý kiu oni povus kons- 
+estas multenombraj, kaj tre malofte, se oni ne estas mem
 
-tati tiun kapablecon? 
+mediumo, oni ne trovas iun en iu sia familiano aŭ inter
 
-48 
+siaj konatoj. Sekso, aĝo kaj temperamento ne gravas:
 
-ALLAN KARDEC 
+mediumeco ekzistas ĝe viroj kaj virinoj, ĝe infanoj kaj
 
+maljunuloj, ĝe bonfartantoj kaj malsanuloj.
 
+Se la mediumeco elmontriĝus per ia ekstera signo,
 
-**A. K. **— Øis hodiaý oni konas neniajn simptomojn 
+tio kuntrenus la konstantecon de tiu kapablo, dum ĝi
 
-de la mediumeco; æiuj, pri kiuj oni pensis, ke oni ilin 
+estas esence moviĝema kaj pasema. Øia kaŭzo fizika
 
-rekonis, havas neniom da valoro; iu provo estas la sola 
+troviĝas en la pli aŭ malpli facila asimilado de la peris -
 
-rimedo, por sciiøi, æu oni øin posedas. Cetere mediumoj 
+piritaj fluida¼oj de la enkarnulo kaj de la elkarniĝinta
 
-estas multenombraj, kaj tre malofte, se oni ne estas mem 
+Spirito; ĝia kaŭzo morala kuþas en la volo de la Spirito,
 
-mediumo, oni ne trovas iun en iu sia familiano aý inter 
+kiu komunikiĝas tiam, kiam tio plaĝas al li, sed ne laŭ
 
-siaj konatoj. Sekso, aøo kaj temperamento ne gravas: 
+nia volo; el tio sekvas, ke: 1-e, ne ĝiuj Spiritoj povas
 
-mediumeco ekzistas æe viroj kaj virinoj, æe infanoj kaj 
+komunikiĝi tute egale per ĝiaj mediumoj; 2-e, ĝiu me-
 
-maljunuloj, æe bonfartantoj kaj malsanuloj. 
+diumo povas perdi aŭ vidi interrompiĝi sian kapablon
 
-Se la mediumeco elmontriøus per ia ekstera signo, 
+ĝuste en la momento, kiam li tion tute ne pensis. Æi tiuj
 
-tio kuntrenus la konstantecon de tiu kapablo, dum øi 
+malmultaj vortoj sufiĝas, por montri al vi, ke pri ĝi tio
 
-estas esence moviøema kaj pasema. Øia kaýzo fizika 
+ekzistas vasta studado farenda, por ke oni sciiĝu pri la
 
-troviøas en la pli aý malpli facila asimilado de la peris - 
+multaj flankoj de ĝi tiu fenomeno.
 
-piritaj fluida¼oj de la enkarnulo kaj de la elkarniøinta 
+Estus do eraro pensi, ke ĝiu Spirito povas veni al
 
-Spirito; øia kaýzo morala kuþas en la volo de la Spirito, 
+la elvoko, kiun oni al li faris, kaj komunikiĝi per ĝia
 
-kiu komunikiøas tiam, kiam tio plaæas al li, sed ne laý 
+mediumo. Por ke iu Spirito komunikiĝu, estas necese
 
-nia volo; el tio sekvas, ke: 1-e, ne æiuj Spiritoj povas 
+unue, ke tio estu lia intereso; due, ke lia situacio aŭ liaj
 
-komunikiøi tute egale per æiaj mediumoj; 2-e, æiu me- 
+okupoj tion ebligos al li; trie, ke li trovu en la mediumo
 
-diumo povas perdi aý vidi interrompiøi sian kapablon 
+ilon taŭgan, konforman al lia naturo.
 
-øuste en la momento, kiam li tion tute ne pensis. Æi tiuj 
+En principo oni povas komunikiĝi kun ĝiaklasaj
 
-malmultaj vortoj sufiæas, por montri al vi, ke pri æi tio 
+Spiritoj, kun siaj parencoj kaj amikoj, kiel kun la Spirit-
 
-ekzistas vasta studado farenda, por ke oni sciiøu pri la 
+oj plej alte sidantaj, tiel ankaŭ kun tiuj plej vulgaraj,
 
-multaj flankoj de æi tiu fenomeno. 
+sed, ne konsiderante la individuajn kondiĝojn de ebleco,
 
-Estus do eraro pensi, ke æiu Spirito povas veni al 
+ili venas pli aŭ malpli volonte laŭ la cirkonstancoj kaj
 
-la elvoko, kiun oni al li faris, kaj komunikiøi per æia 
+**precipe** dank’al sia simpatio al la elvokantoj, sed ne laŭ
 
-mediumo. Por ke iu Spirito komunikiøu, estas necese 
+la peto de iu ajn, kiu ekhavas la fantazion elvoki ilin
 
-unue, ke tio estu lia intereso; due, ke lia situacio aý liaj 
+el scivolo; en tia okazo ili ne farus al si klopodon, kiam
 
-okupoj tion ebligos al li; trie, ke li trovu en la mediumo 
+sur la Tero, kaj des malpli post sia morto.
 
-ilon taýgan, konforman al lia naturo. 
+La seriozaj Spiritoj venas nur al seriozaj kunsidoj,
 
-En principo oni povas komunikiøi kun æiaklasaj 
 
-Spiritoj, kun siaj parencoj kaj amikoj, kiel kun la Spirit- 
+KIO ESTAS SPIRITISMO ?
 
-oj plej alte sidantaj, tiel ankaý kun tiuj plej vulgaraj, 
 
-sed, ne konsiderante la individuajn kondiæojn de ebleco, 
+kien ili estas elvokataj **kun pia enpensiĝo kaj por temoj **
 
-ili venas pli aý malpli volonte laý la cirkonstancoj kaj 
+**seriozaj**; ili estas pretaj al nenia afero pri scivolo, pri
 
-**precipe** dank’al sia simpatio al la elvokantoj, sed ne laý 
+elprovo aŭ havanta bagatelan celon, kaj ankaŭ al nenia
 
-la peto de iu ajn, kiu ekhavas la fantazion elvoki ilin 
+eksperimento.
 
-el scivolo; en tia okazo ili ne farus al si klopodon, kiam 
+La frivolaj Spiritoj iras ĝien, sed en la seriozaj
 
-sur la Tero, kaj des malpli post sia morto. 
+seancoj ili silentas kaj tenadas sin aparte, por aŭskulti,
 
-La seriozaj Spiritoj venas nur al seriozaj kunsidoj, 
+kiel farus lernejanoj inter klera kunsidantaro. En la ko-
 
+lektiĝoj de ventkapuloj ili donas liberan kurson al sia
 
+petolemo, faras al si amuzon el ĝio, ofte mokas la ĝeest-
 
-KIO ESTAS SPIRITISMO ? 
+antojn kaj je ĝio respondas, ne zorgante pri la vero.
 
-49 
+La tiel nomataj "frapantaj" Spiritoj, kaj entute ĝiuj,
 
+kiuj okazigas fizikajn manifestiĝojn, apartenas al mal-
 
+supera ordo, tamen pro tio ili ne estas esence malicaj;
 
-kien ili estas elvokataj **kun pia enpensiøo kaj por temoj **
+ili havas iel specialan kapablecon por la materiaj efikoj;
 
-**seriozaj**; ili estas pretaj al nenia afero pri scivolo, pri 
+la Superaj Spiritoj sin ne okupas pri tiaj aferoj, tiel
 
-elprovo aý havanta bagatelan celon, kaj ankaý al nenia 
+same, kiel niaj kleruloj ne sin donas al akrobata¼oj; se
 
-eksperimento. 
+ili trovas necesaj tiujn efikojn, ili uzas la servemon de
 
-La frivolaj Spiritoj iras æien, sed en la seriozaj 
+tiuj Spiritoj, simile kiel ni uzas manlaboristojn por mal-
 
-seancoj ili silentas kaj tenadas sin aparte, por aýskulti, 
-
-kiel farus lernejanoj inter klera kunsidantaro. En la ko- 
-
-lektiøoj de ventkapuloj ili donas liberan kurson al sia 
-
-petolemo, faras al si amuzon el æio, ofte mokas la æeest- 
-
-antojn kaj je æio respondas, ne zorgante pri la vero. 
-
-La tiel nomataj "frapantaj" Spiritoj, kaj entute æiuj, 
-
-kiuj okazigas fizikajn manifestiøojn, apartenas al mal- 
-
-supera ordo, tamen pro tio ili ne estas esence malicaj; 
-
-ili havas iel specialan kapablecon por la materiaj efikoj; 
-
-la Superaj Spiritoj sin ne okupas pri tiaj aferoj, tiel 
-
-same, kiel niaj kleruloj ne sin donas al akrobata¼oj; se 
-
-ili trovas necesaj tiujn efikojn, ili uzas la servemon de 
-
-tiuj Spiritoj, simile kiel ni uzas manlaboristojn por mal- 
-
-delikataj taskoj. 
-
+delikataj taskoj.
 
 
 **Profitamaj mediumoj **
 
-****
 
-**V. **— Antaý ol sin doni al grandampleksa studado, 
+**V. **— Antaŭ ol sin doni al grandampleksa studado,
 
-iuj homoj dezirus esti certaj, ke ili ne perdos sian temp - 
+iuj homoj dezirus esti certaj, ke ili ne perdos sian temp -
 
-on, kaj tiun certecon havigus al ili iu decidiga fakto, 
+on, kaj tiun certecon havigus al ili iu decidiga fakto,
 
-ricevita eæ interþanøe kontraý mono. 
+ricevita eĝ interþanĝe kontraŭ mono.
 
 
+**A. K. **— Kiu ne volas doni al si la penon studi, tiu
 
-**A. K. **— Kiu ne volas doni al si la penon studi, tiu 
+portas prefere scivolon, ol efektivan soifon instruiĝi; nu,
 
-portas prefere scivolon, ol efektivan soifon instruiøi; nu, 
+la Spiritoj, same kiel mi mem, ne þatas la scivolulojn.
 
-la Spiritoj, same kiel mi mem, ne þatas la scivolulojn. 
+Cetere la profitamo estas al ili aparte antipatia kaj ili
 
-Cetere la profitamo estas al ili aparte antipatia kaj ili 
+submetiĝas al nenio, kio taŭgas por ĝntentigi; oni
 
-submetiøas al nenio, kio taýgas por øin kontentigi; oni 
+devus fari pri la Spiritoj tre eraran ideon, por pensi, ke
 
-devus fari pri la Spiritoj tre eraran ideon, por pensi, ke 
+Superaj Spiritoj, kiel ekzemple Fénelon, Bossuet, Pascal,
 
-Superaj Spiritoj, kiel ekzemple Fénelon, Bossuet, Pascal, 
+Sankta Aŭgusteno, sin metas al la dispono de ĝiu ajn
 
-Sankta Aýgusteno, sin metas al la dispono de æiu ajn 
+po tia monsumo hore. Ne, sinjoro; la komunikiĝado kun
 
-po tia monsumo hore. Ne, sinjoro; la komunikiøado kun 
+la transtombo estas io treege serioza kaj postulas tro
 
-la transtombo estas io treege serioza kaj postulas tro 
+da respekto, ke ĝi taŭgus por parada elmontrado.
 
-da respekto, ke øi taýgus por parada elmontrado. 
+Cetere ni scias, ke la spiritismaj fenomenoj ne okaz-
 
-Cetere ni scias, ke la spiritismaj fenomenoj ne okaz- 
+as tiel, kiel turniĝas la radoj de iu me¶anismo, ĝar ili
 
-as tiel, kiel turniøas la radoj de iu me¶anismo, æar ili 
 
-50 
+ALLAN KARDEC
 
-ALLAN KARDEC 
 
+ja dependas de la volo de la Spiritoj; eĝ se mediumo,
 
+neniu povas garantii, ke li ilin okazigos en iu difinita
 
-ja dependas de la volo de la Spiritoj; eæ se mediumo, 
+momento. Se la nekredemuloj inklinas suspekti la ho-
 
-neniu povas garantii, ke li ilin okazigos en iu difinita 
+nestecon de la mediumoj ĝenerale, tio estus multe pli
 
-momento. Se la nekredemuloj inklinas suspekti la ho- 
+danĝera, se la mediumojn stimulus ia intereso: oni ja
 
-nestecon de la mediumoj øenerale, tio estus multe pli 
+prave povus suspekti pagatan mediumon, ke li mem agas,
 
-danøera, se la mediumojn stimulus ia intereso: oni ja 
+se la Spirito mem ne agus, ĝar li ja antaŭ ĝio devus gajni
 
-prave povus suspekti pagatan mediumon, ke li mem agas, 
+sian monon. Krom tio ke neprofitamo absoluta estas
 
-se la Spirito mem ne agus, æar li ja antaý æio devus gajni 
+la plej bona garantio pri sincereco, naŭzus la prudenton
 
-sian monon. Krom tio ke neprofitamo absoluta estas 
+venigi pro mono la Spiritojn de homoj por ni karaj, ĝe
 
-la plej bona garantio pri sincereco, naýzus la prudenton 
+la supozo ke ili tion konsentus, kio estas plej duba; ĝia-
 
-venigi pro mono la Spiritojn de homoj por ni karaj, æe 
+okaze tio estus Spiritoj malaltklasaj, malmulte skrupulaj
 
-la supozo ke ili tion konsentus, kio estas plej duba; æia- 
+pri la rimedoj kaj meritantaj nenian konfidon, kaj eĝ
 
-okaze tio estus Spiritoj malaltklasaj, malmulte skrupulaj 
+tiuj ofte faras al si la malican plezuron fiaskigi la aranĝ-
 
-pri la rimedoj kaj meritantaj nenian konfidon, kaj eæ 
+ojn kaj kalkulojn de sia entreprenisto.
 
-tiuj ofte faras al si la malican plezuron fiaskigi la aranø- 
+La naturo de la mediumeco kontraŭas do al tio, ke
 
-ojn kaj kalkulojn de sia entreprenisto. 
+ĝi fariĝu ia profesio, ĝar ĝi dependas de iu volo fremda
 
-La naturo de la mediumeco kontraýas do al tio, ke 
+al la mediumo, kaj povas ekmanki al li en tiu momento,
 
-øi fariøu ia profesio, æar øi dependas de iu volo fremda 
+kiam li ĝin bezonus, escepte se li ĝin anstataŭigas per
 
-al la mediumo, kaj povas ekmanki al li en tiu momento, 
+ia artifiko. Sed, eĝ ĝe absoluta bonfido, ĝar la fenomen-
 
-kiam li øin bezonus, escepte se li øin anstataýigas per 
+ojn oni ne ricevas laŭplaĝe, tial estus efiko de hazardo,
 
-ia artifiko. Sed, eæ æe absoluta bonfido, æar la fenomen- 
+se en iu pagata seanco okazus ĝuste tio, kion oni dezirus
 
-ojn oni ne ricevas laýplaæe, tial estus efiko de hazardo, 
+vidi, por konvinkiĝi. Eĝ se vi donos al mediumo cent
 
-se en iu pagata seanco okazus øuste tio, kion oni dezirus 
+mil frankojn, vi ne igus lin ricevi de la Spiritoj tion,
 
-vidi, por konvinkiøi. Eæ se vi donos al mediumo cent 
+kion ili ne volas fari; tiu logilo, kiu falsus la intencon
 
-mil frankojn, vi ne igus lin ricevi de la Spiritoj tion, 
+kaj ĝin aliigus en iun perfortan profitavidecon, eĝ, kon-
 
-kion ili ne volas fari; tiu logilo, kiu falsus la intencon 
+traŭe, estus motivo, por ke li fiasku. Se oni estas pro-
 
-kaj øin aliigus en iun perfortan profitavidecon, eæ, kon- 
+funde konvinkita pri ĝi tiu vera¼o, ke la korinklino kaj
 
-traýe, estus motivo, por ke li fiasku. Se oni estas pro- 
+la simpatio estas la plej potencaj motoroj, por altiri la
 
-funde konvinkita pri æi tiu vera¼o, ke la korinklino kaj 
+Spiritojn, oni komprenos, ke oni ilin ne povas venigi,
 
-la simpatio estas la plej potencaj motoroj, por altiri la 
+celante uzi ilin, por gajni monon.
 
-Spiritojn, oni komprenos, ke oni ilin ne povas venigi, 
+Kiu do bezonas faktojn por konvinkiĝi, tiu devas
 
-celante uzi ilin, por gajni monon. 
+elmontri al la Spiritoj sian bonvolon per serioza kaj pa-
 
-Kiu do bezonas faktojn por konvinkiøi, tiu devas 
+cienca observado, se li volas esti helpata; sed, se vero
 
-elmontri al la Spiritoj sian bonvolon per serioza kaj pa- 
+estas, ke la fido ne estas io trudebla, ne malpli vere
 
-cienca observado, se li volas esti helpata; sed, se vero 
+estas, ke ĝi ne estas aĝetebla.
 
-estas, ke la fido ne estas io trudebla, ne malpli vere 
 
-estas, ke øi ne estas aæetebla. 
+**V. **— Mi komprenas ĝi tiun rezonadon el la morala
 
+vidpunkto, tamen ĝu ne estas juste, ke kiu oferas sian
 
 
-**V. **— Mi komprenas æi tiun rezonadon el la morala 
+KIO ESTAS SPIRITISMO ?
 
-vidpunkto, tamen æu ne estas juste, ke kiu oferas sian 
 
+tempon al la afero, tiu ricevus ian kompenson, se tio
 
+malhelpas lin labori por vivi?
 
-KIO ESTAS SPIRITISMO ? 
 
-51 
+**A. K. ** — Unue: ĝu li tion faras por la intereso de
 
+la afero aŭ por sia propra? Se li forlasis sian oficon,
 
+tiel estas, ĝar li ne estis kontenta de ĝi kaj esperis pli
 
-tempon al la afero, tiu ricevus ian kompenson, se tio 
+multe gajni aŭ malpli peni en la nova metio. Nenia sin-
 
-malhelpas lin labori por vivi? 
+forgeso estas oferi sian tempon, se tio celas ĝerpi el ĝi
 
+ian profiton. Tio estas tute sama, kiel se oni dirus,
 
+ke la bakisto faras panon por la intereso de la homaro.
 
-**A. K. ** — Unue: æu li tion faras por la intereso de 
+La mediumeco ne estas la sola vivgajnilo; sen ĝi oni ja
 
-la afero aý por sia propra? Se li forlasis sian oficon, 
+devus alie perlabori sian vivon. La vere seriozaj kaj
 
-tiel estas, æar li ne estis kontenta de øi kaj esperis pli 
+sindonemaj mediumoj, kiam ne sufiĝe bonstataj, serĝas
 
-multe gajni aý malpli peni en la nova metio. Nenia sin- 
+vivrimedojn en sia ordinara laborado kaj ne forlasas sian
 
-forgeso estas oferi sian tempon, se tio celas æerpi el øi 
+oficon; ili dediĝas al la mediumeco nur la tempon, kiun
 
-ian profiton. Tio estas tute sama, kiel se oni dirus, 
+ili povas al ĝi oferi sen malutilo por sia ofico; se ili de-
 
-ke la bakisto faras panon por la intereso de la homaro. 
+prenas tempon de siaj liberaj aŭ ripozaj horoj, tiam tio
 
-La mediumeco ne estas la sola vivgajnilo; sen øi oni ja 
+estas ja sinofero, por kiu ili estas dankindaj: oni ilin
 
-devus alie perlabori sian vivon. La vere seriozaj kaj 
+tial pli profunde estimas kaj respektas.
 
-sindonemaj mediumoj, kiam ne sufiæe bonstataj, seræas 
+La multeco de mediumoj en la familioj cetere faras
 
-vivrimedojn en sia ordinara laborado kaj ne forlasas sian 
+senutilaj la profesiajn mediumojn, eĝ supozante, ke ili
 
-oficon; ili dediæas al la mediumeco nur la tempon, kiun 
+prezentu ĝiujn dezirindajn garantiojn, kio estas tre mal-
 
-ili povas al øi oferi sen malutilo por sia ofico; se ili de- 
+ofta. Se ne estus la senkreditiĝo, kiu ligiĝis al ĝi tiu
 
-prenas tempon de siaj liberaj aý ripozaj horoj, tiam tio 
+speco de ekspluatado, senkreditiĝo pri kiu mi gratulas
 
-estas ja sinofero, por kiu ili estas dankindaj: oni ilin 
+min, ke mi forte kunhelpis por ĝi, oni estus vidinta svar-
 
-tial pli profunde estimas kaj respektas. 
+mi la komercemaĝajn mediumojn kaj la gazetojn kun
 
-La multeco de mediumoj en la familioj cetere faras 
+paĝoj þmiritaj per iliaj reklamoj; nu, se unu povus esti
 
-senutilaj la profesiajn mediumojn, eæ supozante, ke ili 
+lojala, cent ĝarlatanoj, misuzante realan aŭ **þajnigitan **
 
-prezentu æiujn dezirindajn garantiojn, kio estas tre mal- 
+kapablecon, farus la plej grandan malutilon al Spiritismo.
 
-ofta. Se ne estus la senkreditiøo, kiu ligiøis al æi tiu 
+Oni do prenu kiel principon, ke ĝiuj, kiuj vidas en Spi-
 
-speco de ekspluatado, senkreditiøo pri kiu mi gratulas 
+ritismo ion alian, ol ia elmontrado de kuriozaj fenomen-
 
-min, ke mi forte kunhelpis por øi, oni estus vidinta svar- 
+oj, tiuj, kiuj komprenas kaj þatas la dignon, la estimon
 
-mi la komercemaæajn mediumojn kaj la gazetojn kun 
+kaj la verajn interesojn de la Doktrino, malaprobas ĝian
 
-paøoj þmiritaj per iliaj reklamoj; nu, se unu povus esti 
+ekspluaton, sub kia ajn formo aŭ **masko**, kiun ĝi pre-
 
-lojala, cent æarlatanoj, misuzante realan aý **þajnigitan **
+zentus. La seriozaj kaj sinceraj mediumoj — mi tiaj
 
-kapablecon, farus la plej grandan malutilon al Spiritismo. 
+nomas la mediumojn, kiuj komprenas la sanktecon de
 
-Oni do prenu kiel principon, ke æiuj, kiuj vidas en Spi- 
+la misio, kiun Dio al ili konfidis — evitas eĝ la þajnojn
 
-ritismo ion alian, ol ia elmontrado de kuriozaj fenomen- 
+de ĝio, kio povus ¼eti sur ilin eĝ la plej malgrandan sus-
 
-oj, tiuj, kiuj komprenas kaj þatas la dignon, la estimon 
+pekton pri profitamo; la akuzon, ke ili iel ajn profitus
 
-kaj la verajn interesojn de la Doktrino, malaprobas æian 
+el sia kapableco, ili rigardus kiel insulton.
 
-ekspluaton, sub kia ajn formo aý **masko**, kiun øi pre- 
 
-zentus. La seriozaj kaj sinceraj mediumoj — mi tiaj 
+ALLAN KARDEC
 
-nomas la mediumojn, kiuj komprenas la sanktecon de 
 
-la misio, kiun Dio al ili konfidis — evitas eæ la þajnojn 
+Konsentu, sinjoro, kvankam vi estas nekredema, ke
 
-de æio, kio povus ¼eti sur ilin eæ la plej malgrandan sus- 
+tia honesta mediumo impresus vin tute alie, ol se vi est-
 
-pekton pri profitamo; la akuzon, ke ili iel ajn profitus 
+us paginta monon, por vidi lin labori, aŭ eĝ se vi estus
 
-el sia kapableco, ili rigardus kiel insulton. 
+ricevinta senpagan enlason, se vi scius, ke tio kaþas en
 
-52 
+si ian demandon pri mono. Konsentu, ke ĝe tia konduto,
 
-ALLAN KARDEC 
+de iu instigata de vere religia sento, nur de la fido, sed
 
+ne de ia monavidemo, li pretervole trudus vian respekton,
 
+eĝ se li estas la plej maleminenta proleto, kaj ins-
 
-Konsentu, sinjoro, kvankam vi estas nekredema, ke 
+pirus al vi pli da konfido, ĝar vi havus nenian motivon,
 
-tia honesta mediumo impresus vin tute alie, ol se vi est- 
+por suspekti lian lojalecon. Nu, sinjoro, vi trovos mil
 
-us paginta monon, por vidi lin labori, aý eæ se vi estus 
+tiajn mediumojn kontraŭ unu ne tia, kaj tio estas unu
 
-ricevinta senpagan enlason, se vi scius, ke tio kaþas en 
+el la kaŭzoj, kiuj forte kunhelpis por la fidindeco kaj
 
-si ian demandon pri mono. Konsentu, ke æe tia konduto, 
+disvatiĝo de la Doktrino, dum, se ĝi havus nur profit-
 
-de iu instigata de vere religia sento, nur de la fido, sed 
+amajn perantojn, ĝi hodiaŭ ne enkalkulus eĝ la kvaronon
 
-ne de ia monavidemo, li pretervole trudus vian respekton, 
+de ĝiaj nunaj adeptoj.
 
-eæ se li estas la plej maleminenta proleto, kaj ins- 
+Oni ja bone komprenas, ke profesiaj mediumoj est-
 
-pirus al vi pli da konfido, æar vi havus nenian motivon, 
+as treege malmultaj, almenaŭ en Franclando; ke, ankaŭ,
 
-por suspekti lian lojalecon. Nu, sinjoro, vi trovos mil 
+tiaj ne ekzistas en la plimulto el la provincaj spiri-
 
-tiajn mediumojn kontraý unu ne tia, kaj tio estas unu 
+tistaj grupoj, kie la reputacio de dungatoj sufiĝus, por
 
-el la kaýzoj, kiuj forte kunhelpis por la fidindeco kaj 
+forigi ilin de ĝiuj seriozaj societoj, kaj kie ili neniom
 
-disvatiøo de la Doktrino, dum, se øi havus nur profit- 
+profitus el tia metio dank’al la senkreditigo, kies objekto
 
-amajn perantojn, øi hodiaý ne enkalkulus eæ la kvaronon 
+ili estus, kaj la konkurado de la neprofitamaj mediumoj,
 
-de øiaj nunaj adeptoj. 
+kiuj troviĝas ĝie. Por anstataŭigi la al si mankantan ka-
 
-Oni ja bone komprenas, ke profesiaj mediumoj est- 
+pablecon, aŭ pligrandigi sian klientaron, pseŭdo-medium-
 
-as treege malmultaj, almenaý en Franclando; ke, ankaý, 
+oj pluroficas, manipulante ludkartojn, ovoblankon, kafre-
 
-tiaj ne ekzistas en la plimulto el la provincaj spiri- 
+krementon k. a., por kontentigi ĝiajn gustojn, tiamaniere
 
-tistaj grupoj, kie la reputacio de dungatoj sufiæus, por 
+esperante, manke de la Spiritoj, enlogi homojn, kiuj
 
-forigi ilin de æiuj seriozaj societoj, kaj kie ili neniom 
+ankoraŭ kredas tiajn malsaĝa¼ojn. Se ili malutilus nur
 
-profitus el tia metio dank’al la senkreditigo, kies objekto 
+sin mem, ne tre malbone estus, sed iuj homoj, sen plua
 
-ili estus, kaj la konkurado de la neprofitamaj mediumoj, 
+esplorado, intermiksas falsa¼on kaj reala¼on, kaj ankaŭ
 
-kiuj troviøas æie. Por anstataýigi la al si mankantan ka- 
+malicintenculoj profitas el tiu konfuzo por diri, ke ja en
 
-pablecon, aý pligrandigi sian klientaron, pseýdo-medium- 
+tio konsistas Spiritismo. Vi do vidas, sinjoro, ke ĝar la
 
-oj pluroficas, manipulante ludkartojn, ovoblankon, kafre- 
+ekspluatado de la mediumeco kuntrenas misuzojn mal-
 
-krementon k. a., por kontentigi æiajn gustojn, tiamaniere 
+utilajn al la Doktrino, tial la serioza Spiritismo ĝin prave
 
-esperante, manke de la Spiritoj, enlogi homojn, kiuj 
+malaprobas kaj forpuþas kiel sian helpanton.
 
-ankoraý kredas tiajn malsaøa¼ojn. Se ili malutilus nur 
 
-sin mem, ne tre malbone estus, sed iuj homoj, sen plua 
+**V. **— Æio ĝi estas tre logika, mi konsentas, sed la
 
-esplorado, intermiksas falsa¼on kaj reala¼on, kaj ankaý 
+neprofitamaj mediumoj ne estas sub la dispono de ĝiu
 
-malicintenculoj profitas el tiu konfuzo por diri, ke ja en 
+ajn, kiu al ili venus, kaj oni ne povas permesi al si ilin
 
-tio konsistas Spiritismo. Vi do vidas, sinjoro, ke æar la 
+ĝeni, dum oni ne farus al si skrupulon iri al tiu, kiu
 
-ekspluatado de la mediumeco kuntrenas misuzojn mal- 
 
-utilajn al la Doktrino, tial la serioza Spiritismo øin prave 
+KIO ESTAS SPIRITISMO ?
 
-malaprobas kaj forpuþas kiel sian helpanton. 
 
+postulas pagon, ĝar oni ja scias, ke oni ne igas lin perdi
 
+sian tempon. Se ekzistus **mediumoj publikaj, **tio favor-
 
-**V. **— Æio æi estas tre logika, mi konsentas, sed la 
+us al la homoj, kiuj volas konvinkiĝi.
 
-neprofitamaj mediumoj ne estas sub la dispono de æiu 
 
-ajn, kiu al ili venus, kaj oni ne povas permesi al si ilin 
+**A. K. **— Sed, se la mediumoj publikaj, kiel vi ilin
 
-øeni, dum oni ne farus al si skrupulon iri al tiu, kiu 
+nomas, ne prezentas la deziratajn garantiojn, kion do
 
+ili povas utili por ies konv? La malbona¼o, kiun vi
 
+montras, ne detruas tiujn multe pli gravajn, pri kiuj mi
 
-KIO ESTAS SPIRITISMO ? 
+vaste parolis. Oni irus al ili prefere por amuziĝi aŭ por
 
-53 
+ilnsulti pri la estonteco, ol por instruiĝi. Kiu serioze
 
+volas konvinkiĝi, tiu pli aŭ malpli frue ektrovos por tio
 
+la rimedojn, se en tio li uzas persistecon kaj bonvolon;
 
-postulas pagon, æar oni ja scias, ke oni ne igas lin perdi 
+sed, se li por tio ne estas preparita, li ne konvinkiĝas
 
-sian tempon. Se ekzistus **mediumoj publikaj, **tio favor- 
+nur de tio, ke li ĝeestis unu seancon. Se el ĝi tiu li kun-
 
-us al la homoj, kiuj volas konvinkiøi. 
+portos malfavoran impreson, li estos malpli konvinkita
 
+ĝe la eliro, ol ĝe la eniro, kaj eble malinklina daŭrigi
 
+la studon de iu afero, kie li vidis nenion seriozan: jen
 
-**A. K. **— Sed, se la mediumoj publikaj, kiel vi ilin 
+kion montras la sperto.
 
-nomas, ne prezentas la deziratajn garantiojn, kion do 
+Sed ekster la morala flanko la progresoj de la spi-
 
-ili povas utili por ies konvinko? La malbona¼o, kiun vi 
+ritisma scienco, pli funde konigante al ni la kondiĝojn,
 
-montras, ne detruas tiujn multe pli gravajn, pri kiuj mi 
+en kiuj okazas la manifestiĝoj, prezentas al ni hodiaŭ iun
 
-vaste parolis. Oni irus al ili prefere por amuziøi aý por 
+materialan malfacila¼on, kiun oni ne suspektis en la ko-
 
-ilin konsulti pri la estonteco, ol por instruiøi. Kiu serioze 
+menco: tiu malfacila¼o estas la neceso, ke ekzistu afineco
 
-volas konvinkiøi, tiu pli aý malpli frue ektrovos por tio 
+de fluida¼oj de la elvokita Spirito kaj de la mediumo.
 
-la rimedojn, se en tio li uzas persistecon kaj bonvolon; 
+Mi flanken metas ĝian penson pri ruza¼oj kaj artifikoj,
 
-sed, se li por tio ne estas preparita, li ne konvinkiøas 
+kaj supozas la plej absolutan honestecon. Por ke iu
 
-nur de tio, ke li æeestis unu seancon. Se el æi tiu li kun- 
+profesia mediumo povu havigi al si la plenan konfidon
 
-portos malfavoran impreson, li estos malpli konvinkita 
+de la personoj, kiuj venus por konsulti lin, estus necese,
 
-æe la eliro, ol æe la eniro, kaj eble malinklina daýrigi 
+ke li posedu ĝiaman kaj universalan kapablon, t. e. ke
 
-la studon de iu afero, kie li vidis nenion seriozan: jen 
+li povu komunikiĝi facile kun ĝiu ajn Spirito kaj ĝe ĝiu
 
-kion montras la sperto. 
+difinita momento, por esti konstante al la dispono de la
 
-Sed ekster la morala flanko la progresoj de la spi- 
+publiko, tiel same, kiel iu kuracisto, kaj plenumi ĝiajn
 
-ritisma scienco, pli funde konigante al ni la kondiæojn, 
+elvokojn, pri kiuj oni lin petus; nu, jen kio ekzistas en
 
-en kiuj okazas la manifestiøoj, prezentas al ni hodiaý iun 
+nenia mediumo, ĝu inter tiuj neprofitamaj, ĝu inter la
 
-materialan malfacila¼on, kiun oni ne suspektis en la ko- 
+aliaj, kaj tio pro kaŭzoj, ne dependantaj de la volo de
 
-menco: tiu malfacila¼o estas la neceso, ke ekzistu afineco 
+la Spirito, sed kiujn mi ne povas ĝi tie vaste pritrakti,
 
-de fluida¼oj de la elvokita Spirito kaj de la mediumo. 
+ĝar mi ne faras al vi kurson pri Spiritismo. Mi diras
 
-Mi flanken metas æian penson pri ruza¼oj kaj artifikoj, 
+nur, ke la afineco de fluida¼oj, kiu estas la principo mem
 
-kaj supozas la plej absolutan honestecon. Por ke iu 
+de la mediumaj kapabloj, estas ne **ĝenerala**, sed **indivi- **
 
-profesia mediumo povu havigi al si la plenan konfidon 
+**dua**; ke ĝi povas ekzisti kiel fluo de la mediumo al tia
 
-de la personoj, kiuj venus por konsulti lin, estus necese, 
 
-ke li posedu æiaman kaj universalan kapablon, t. e. ke 
+ALLAN KARDEC
 
-li povu komunikiøi facile kun æiu ajn Spirito kaj æe æiu 
 
-difinita momento, por esti konstante al la dispono de la 
+Spirito kaj ne al tia alia; ke sen tiu afineco, kies nuanc-
 
-publiko, tiel same, kiel iu kuracisto, kaj plenumi æiajn 
+oj estas sennombraj, la komunikiĝoj estas nekompletaj,
 
-elvokojn, pri kiuj oni lin petus; nu, jen kio ekzistas en 
+malveraj aŭ neeblaj; ke plej ofte la asimiliĝo de fluida¼oj
 
-nenia mediumo, æu inter tiuj neprofitamaj, æu inter la 
+de la Spirito kun tiuj de la mediumo ekestas nur kun
 
-aliaj, kaj tio pro kaýzoj, ne dependantaj de la volo de 
+la tempo, kaj nur **unu fojon el dek **ĝi estas perfekta tuj
 
-la Spirito, sed kiujn mi ne povas æi tie vaste pritrakti, 
+ĝe la unua okazo. Kiel vi vidas, sinjoro, la mediumeco
 
-æar mi ne faras al vi kurson pri Spiritismo. Mi diras 
+estas submetita al iel organaj leĝoj, al kiuj ĝiu mediumo
 
-nur, ke la afineco de fluida¼oj, kiu estas la principo mem 
+estas subordigita; nu, oni ne povas nei, ke ĝi tio estas
 
-de la mediumaj kapabloj, estas ne **øenerala**, sed **indivi- **
+rifo por la profesia mediumeco, ĝar la ebleco kaj la ĝust-
 
-**dua**; ke øi povas ekzisti kiel fluo de la mediumo al tia 
+eco de la komunikiĝoj fontas el kaŭzoj, dependantaj nek
 
-54 
+de la mediumo, nek de la Spirito. (Vd. tuj poste, Æap II,
 
-ALLAN KARDEC 
+paragrafon pri la **mediumoj**.)
 
+Se do ni malkonsentas la ekspluatadon de la me-
 
+diumeco, tiel estas nek el kapricemo, nek el sistememo,
 
-Spirito kaj ne al tia alia; ke sen tiu afineco, kies nuanc- 
+sed tial, ĝar la principoj mem, kiuj kontrolas la inter-
 
-oj estas sennombraj, la komunikiøoj estas nekompletaj, 
+rilatojn kun la nevidebla mondo, kontraŭas la regulecon
 
-malveraj aý neeblaj; ke plej ofte la asimiliøo de fluida¼oj 
+kaj precizecon necesajn al iu, kiu sin metas sub la dis -
 
-de la Spirito kun tiuj de la mediumo ekestas nur kun 
+ponon de la publiko kaj kiun la deziro kontentigi pag-
 
-la tempo, kaj nur **unu fojon el dek **øi estas perfekta tuj 
+antan klientaron instigas al misuzado de sia kapableco.
 
-æe la unua okazo. Kiel vi vidas, sinjoro, la mediumeco 
+El ĝi tio mi ja ne konkludas, ke ĝiuj profitamaj medium-
 
-estas submetita al iel organaj leøoj, al kiuj æiu mediumo 
+oj estas ĝarlatanoj, sed mi diras, ke la allogo de la gajno
 
-estas subordigita; nu, oni ne povas nei, ke æi tio estas 
+kondukas al ĝarlatanismo kaj permesas, se ĝi ne prav-
 
-rifo por la profesia mediumeco, æar la ebleco kaj la øust- 
+igas, la suspekton pri friponeco. Kiu volas konvinkiĝi,
 
-eco de la komunikiøoj fontas el kaýzoj, dependantaj nek 
+tiu devas antaŭ ĝio serĝi al si sincerajn homojn.
 
-de la mediumo, nek de la Spirito. \(Vd. tuj poste, Æap II, 
 
-paragrafon pri la **mediumoj**.\) 
+**Mediumoj kaj sorĝistoj **
 
-Se do ni malkonsentas la ekspluatadon de la me- 
 
-diumeco, tiel estas nek el kapricemo, nek el sistememo, 
+**V. ** — Æar la mediumeco estas rimedo por la rilatoj
 
-sed tial, æar la principoj mem, kiuj kontrolas la inter- 
+kun la okultaj inteligentoj, tial þajnas al mi, ke medium-
 
-rilatojn kun la nevidebla mondo, kontraýas la regulecon 
+oj kaj sorĝistoj estas pli aŭ malpli la sama unu.
 
-kaj precizecon necesajn al iu, kiu sin metas sub la dis - 
 
-ponon de la publiko kaj kiun la deziro kontentigi pag- 
+**A. K. **— En ĝiuj tempoj ekzistis naturaj kaj nekons-
 
-antan klientaron instigas al misuzado de sia kapableco. 
+ciaj mediumoj, kiuj, nur pro tio, ke ili okazigas strang-
 
-El æi tio mi ja ne konkludas, ke æiuj profitamaj medium- 
+ajn kaj ne komprenatajn fenomenojn, estis kvalitigitaj
 
-oj estas æarlatanoj, sed mi diras, ke la allogo de la gajno 
+kiel sorĝistoj kaj akuzitaj pri interligo kun la diablo; tio
 
-kondukas al æarlatanismo kaj permesas, se øi ne prav- 
+sama estis kun la plej multaj kleruloj, kies scioj staris
 
-igas, la suspekton pri friponeco. Kiu volas konvinkiøi, 
+super tiu vulgara. La malkleruloj trovalorigis al si ilian
 
-tiu devas antaý æio seræi al si sincerajn homojn. 
+povon, kaj ili mem ofte ekspluatis la publikan kredem-
 
+on; el tio la justa riproĝo, kiu ilin trafis. Sufiĝas kom-
 
+pari la povon, atribuatan al la sorĝistoj, kun la kapabl-
 
-**Mediumoj kaj soræistoj **
 
-****
+KIO ESTAS SPIRITISMO ?
 
-**V. ** — Æar la mediumeco estas rimedo por la rilatoj 
 
-kun la okultaj inteligentoj, tial þajnas al mi, ke medium- 
+eco de la veraj mediumoj, por distingi unu de la dua,
 
-oj kaj soræistoj estas pli aý malpli la sama unu. 
+sed la plimulto el la kritikantoj ne donas al si ĝi tiun
 
+penon. Anstataŭ revivigi la sorĝarton, Spiritismo ĝin per
 
+unu fojo disbatas, senigante ĝin je ĝia supozita super-
 
-**A. K. **— En æiuj tempoj ekzistis naturaj kaj nekons- 
+natura potenco, je ĝiaj formuloj, sorĝolibroj, amuletoj kaj
 
-ciaj mediumoj, kiuj, nur pro tio, ke ili okazigas strang- 
+talismanoj, kaj kondukante la eblajn fenomenojn al ilia
 
-ajn kaj ne komprenatajn fenomenojn, estis kvalitigitaj 
+ĝusta valoro, ne flanken metante la naturajn leĝojn.
 
-kiel soræistoj kaj akuzitaj pri interligo kun la diablo; tio 
+La identiĝo, kiun iuj personoj pretendas estigi, ori-
 
-sama estis kun la plej multaj kleruloj, kies scioj staris 
+ginas el ilia eraro, ke la **Spiritoj troviĝas sub la dispono **
 
-super tiu vulgara. La malkleruloj trovalorigis al si ilian 
+**de la mediumoj**; ilia prudento malvolontas akcepti, ke
 
-povon, kaj ili mem ofte ekspluatis la publikan kredem- 
+povas dependi de iu ajn laŭplaĝe kaj en iu difinita mo -
 
-on; el tio la justa riproæo, kiu ilin trafis. Sufiæas kom- 
+mento venigi la Spiriton de tia aŭ alia pli aŭ malpli klera
 
-pari la povon, atribuatan al la soræistoj, kun la kapabl- 
+homo; pri tio ili pensas tute laŭ la vero, kaj se, antaŭ
 
+ol ataki Spiritismon, ili penus ĝin ekkoni, tiam ili scius,
 
+ke ĝi formale asertas, ke **la Spiritoj obeas nenies ka- **
 
-KIO ESTAS SPIRITISMO ? 
+**pricojn kaj ke neniu povas ilin arbitre kaj kontraŭvole **
 
-55 
+**venigi**; el tio sekvas, ke la mediumoj ne estas iaj sorĝ-
 
+istoj.
 
 
-eco de la veraj mediumoj, por distingi unu de la dua, 
+**V. ** — Laŭ ĝi tio, ĝiuj efikoj, kiujn certaj fidindaj
 
-sed la plimulto el la kritikantoj ne donas al si æi tiun 
+mediumoj laŭplaĝe kaj antaŭ la publiko okazigas, en viaj
 
-penon. Anstataý revivigi la soræarton, Spiritismo øin per 
+okuloj estas nuraj ¼ongla¼oj?
 
-unu fojo disbatas, senigante øin je øia supozita super- 
 
-natura potenco, je øiaj formuloj, soræolibroj, amuletoj kaj 
+**A. K. **— Mi tion ne asertas en maniero absoluta.
 
-talismanoj, kaj kondukante la eblajn fenomenojn al ilia 
+Tiaj fenomenoj ne estas neeblaj, ĝar kelkaj malaltklasaj
 
-øusta valoro, ne flanken metante la naturajn leøojn. 
+Spiritoj povas esti pretaj al tiaj aferoj kaj amuziĝas ĝe
 
-La identiøo, kiun iuj personoj pretendas estigi, ori- 
+tio, eble estinte ¼onglistoj sur la Tero, kaj ankaŭ kelkaj
 
-ginas el ilia eraro, ke la **Spiritoj troviøas sub la dispono **
+mediumoj speciale taŭgas por tiu speco de manifestiĝoj;
 
-**de la mediumoj**; ilia prudento malvolontas akcepti, ke 
+sed la plej simpla komuna saĝo forpuþas de si la ideon,
 
-povas dependi de iu ajn laýplaæe kaj en iu difinita mo - 
+ke Spiritoj, kiel ajn malaltrangaj ili estas, venas paradi
 
-mento venigi la Spiriton de tia aý alia pli aý malpli klera 
+kaj fari ¼ongla¼ojn, por amuzi scivolulojn.
 
-homo; pri tio ili pensas tute laý la vero, kaj se, antaý 
+La okazigo de tiuj fenomenoj laŭplaĝe, kaj precipe
 
-ol ataki Spiritismon, ili penus øin ekkoni, tiam ili scius, 
+antaŭ la publiko, estas ĝiam suspektinda; en ĝi tiu okazo
 
-ke øi formale asertas, ke **la Spiritoj obeas nenies ka- **
+la mediumeco kaj la prestidigitarto estas tiel proksimaj
 
-**pricojn kaj ke neniu povas ilin arbitre kaj kontraývole **
+unu de la dua, ke ofte estas malfacile ilin distingi inter
 
-**venigi**; el tio sekvas, ke la mediumoj ne estas iaj soræ- 
+si; antaŭ ol vidi tie la agadon de la Spiritoj, oni devas
 
-istoj. 
+fari detalajn observojn kaj konsideri ne nur la karak-
 
+teron kaj la antecedentojn de la mediumo, sed ankaŭ
 
+multe da cirkonstancoj, kiujn nur profunda studado de
 
-**V. ** — Laý æi tio, æiuj efikoj, kiujn certaj fidindaj 
+la teorio de la fenomenoj spiritismaj povas instrui ĝuste
 
-mediumoj laýplaæe kaj antaý la publiko okazigas, en viaj 
 
-okuloj estas nuraj ¼ongla¼oj? 
+ALLAN KARDEC
 
 
+taksi. Estas rimarkende, ke ĝi tiu speco de mediumeco
 
-**A. K. **— Mi tion ne asertas en maniero absoluta. 
+— se nur mediumeco tie ekzistas — limiĝas je la okaz-
 
-Tiaj fenomenoj ne estas neeblaj, æar kelkaj malaltklasaj 
+igo de unu sama fenomeno, eventuale je iaj varia¼oj de
 
-Spiritoj povas esti pretaj al tiaj aferoj kaj amuziøas æe 
+tiu, kio ne sufiĝas por forigi dubojn. La plej bona ga-
 
-tio, eble estinte ¼onglistoj sur la Tero, kaj ankaý kelkaj 
+rantio de sincereco estus absoluta neprofitamo.
 
-mediumoj speciale taýgas por tiu speco de manifestiøoj; 
+Kiel ajn realaj tiuj fenomenoj kiel mediumaj efikoj,
 
-sed la plej simpla komuna saøo forpuþas de si la ideon, 
+ili havas bonan rezulton, nome, ke ili alportas famon al
 
-ke Spiritoj, kiel ajn malaltrangaj ili estas, venas paradi 
+la spiritisma ideo. La diskutado, kiu naskiĝas pri ĝi tiu
 
-kaj fari ¼ongla¼ojn, por amuzi scivolulojn. 
+objekto, instigas multajn homojn al pli profunda stud-
 
-La okazigo de tiuj fenomenoj laýplaæe, kaj precipe 
+ado. Certe ne tie oni iru ĝerpi seriozajn sciojn pri Spi-
 
-antaý la publiko, estas æiam suspektinda; en æi tiu okazo 
+ritismo aŭ la filozofion de la Doktrino, sed tio estas tamen
 
-la mediumeco kaj la prestidigitarto estas tiel proksimaj 
+ia rimedo por altiri la atenton de la indiferentaj kaj dev-
 
-unu de la dua, ke ofte estas malfacile ilin distingi inter 
-
-si; antaý ol vidi tie la agadon de la Spiritoj, oni devas 
-
-fari detalajn observojn kaj konsideri ne nur la karak- 
-
-teron kaj la antecedentojn de la mediumo, sed ankaý 
-
-multe da cirkonstancoj, kiujn nur profunda studado de 
-
-la teorio de la fenomenoj spiritismaj povas instrui øuste 
-
-56 
-
-ALLAN KARDEC 
-
-
-
-taksi. Estas rimarkende, ke æi tiu speco de mediumeco 
-
-— se nur mediumeco tie ekzistas — limiøas je la okaz- 
-
-igo de unu sama fenomeno, eventuale je iaj varia¼oj de 
-
-tiu, kio ne sufiæas por forigi dubojn. La plej bona ga- 
-
-rantio de sincereco estus absoluta neprofitamo. 
-
-Kiel ajn realaj tiuj fenomenoj kiel mediumaj efikoj, 
-
-ili havas bonan rezulton, nome, ke ili alportas famon al 
-
-la spiritisma ideo. La diskutado, kiu naskiøas pri æi tiu 
-
-objekto, instigas multajn homojn al pli profunda stud- 
-
-ado. Certe ne tie oni iru æerpi seriozajn sciojn pri Spi- 
-
-ritismo aý la filozofion de la Doktrino, sed tio estas tamen 
-
-ia rimedo por altiri la atenton de la indiferentaj kaj dev- 
-
-igi tiujn plej obstine kontraýstarantajn paroli pri øi. 
-
+igi tiujn plej obstine kontraŭstarantajn paroli pri ĝi.
 
 
 **Diverseco de la Spiritoj **
 
-**V. **— Vi parolas pri Spiritoj bonaj aý malicaj, se- 
+**V. **— Vi parolas pri Spiritoj bonaj aŭ malicaj, se-
 
-riozaj aý senkonsideraj; mi konfesas, ke mi ne kompren- 
+riozaj aŭ senkonsideraj; mi konfesas, ke mi ne kompren-
 
-as tian distingon; þajnas al mi, ke, demetante sian korp- 
+as tian distingon; þajnas al mi, ke, demetante sian korp-
 
-an envolva¼on, ili devas seniøi je la neperfekta¼oj propraj 
+an envolva¼on, ili devas seniĝi je la neperfekta¼oj propraj
 
-al la materio; ke lumo devas fariøi al ili pri la vera¼oj, 
+al la materio; ke lumo devas fariĝi al ili pri la vera¼oj,
 
-al ni kaþitaj, kaj ke ili devas esti liberaj de la surteraj 
+al ni kaþitaj, kaj ke ili devas esti liberaj de la surteraj
 
-antaýjuøoj. 
+antaŭjuĝoj.
 
-**A. K. **— Sendube ili sin liberigas de la fizikaj ne- 
+**A. K. **— Sendube ili sin liberigas de la fizikaj ne-
 
-perfekta¼oj, t. e. de la malsanoj kaj korpaj kaduka¼oj, 
+perfekta¼oj, t. e. de la malsanoj kaj korpaj kaduka¼oj,
 
-sed la neperfekta¼oj moralaj apartenas ne al la korpo, 
+sed la neperfekta¼oj moralaj apartenas ne al la korpo,
 
-sed al la Spirito. Inter ili ekzistas unuj, intelekte aý 
+sed al la Spirito. Inter ili ekzistas unuj, intelekte aŭ
 
-morale pli aý malpli progresintaj ol aliaj. Estus eraro 
+morale pli aŭ malpli progresintaj ol aliaj. Estus eraro
 
-pensi, ke, forlasinte sian materian korpon, la Spiritoj 
+pensi, ke, forlasinte sian materian korpon, la Spiritoj
 
-tuj ricevas la lumon de la vero. Æu vi kredas ekzemple, 
+tuj ricevas la lumon de la vero. Æu vi kredas ekzemple,
 
-ke, kiam vi mortos, estos nenia diferenco inter via Spi- 
+ke, kiam vi mortos, estos nenia diferenco inter via Spi-
 
-rito kaj tiu de iu sovaøulo aý malbonfaranto? Se tiel 
+rito kaj tiu de iu sovaĝulo aŭ malbonfaranto? Se tiel
 
-estus, kion tio al vi utilus, ke vi klopodis por instruiøi 
+estus, kion tio al vi utilus, ke vi klopodis por instruiĝi
 
-kaj pliboniøi, æar ia sentaýgulo estus egala al vi post la 
+kaj pliboniĝi, ĝar ia sentaŭgulo estus egala al vi post la
 
-morto? La progresado de la Spiritoj fariøas nur grade, 
+morto? La progresado de la Spiritoj fariĝas nur grade,
 
-kaj iafoje forte malrapide. Inter ili — tio dependas 
+kaj iafoje forte malrapide. Inter ili — tio dependas
 
-de la grado da puriøo de æiu — unuj vidas la aferojn 
+de la grado da puriĝo de ĝiu — unuj vidas la aferojn
 
-el vidpunkto pli øusta ol tiam, kiam ili estis sur la Tero; 
+el vidpunkto pli ĝusta ol tiam, kiam ili estis sur la Tero;
 
-aliaj, kontraýe, ankoraý havas la samajn inklinojn, la 
+aliaj, kontraŭe, ankoraŭ havas la samajn inklinojn, la
 
 
+KIO ESTAS SPIRITISMO ?
 
-KIO ESTAS SPIRITISMO ? 
 
-57 
+samajn antaŭjuĝojn kaj la samajn erarojn, tiel longe,
 
+ĝis la tempo kaj novaj elprova¼oj ebligos al ili klariĝon
 
+de la menso. Notu al vi, ke ĝi tio, kion mi diras, estas
 
-samajn antaýjuøojn kaj la samajn erarojn, tiel longe, 
+frukto de la sperto, ĝar ja tiele ili sin montras en siaj
 
-øis la tempo kaj novaj elprova¼oj ebligos al ili klariøon 
+komunikiĝoj. Tio estas do elementa principo de Spi-
 
-de la menso. Notu al vi, ke æi tio, kion mi diras, estas 
+ritismo, ke ĝe la Spiritoj ekzistas ĝiuj gradoj da inteli-
 
-frukto de la sperto, æar ja tiele ili sin montras en siaj 
+genteco kaj moraleco.
 
-komunikiøoj. Tio estas do elementa principo de Spi- 
 
-ritismo, ke æe la Spiritoj ekzistas æiuj gradoj da inteli- 
+**V. **— Sed, kial do la Spiritoj ne estas ĝiuj perfekt-
 
-genteco kaj moraleco. 
+aj? Sekve, Dio kreis ilin de ĝiaj kategorioj?
 
 
+**A. K. **— Tio estas tiel sama, kiel se mi demandus,
 
-**V. **— Sed, kial do la Spiritoj ne estas æiuj perfekt- 
+kial ne ĝiuj kolegianoj lernas Filozofion. Æiuj Spiritoj
 
-aj? Sekve, Dio kreis ilin de æiaj kategorioj? 
+havas saman originon kaj egalan destinon. La diferencoj
 
+inter ili ne signifas malsamajn specojn, sed diversajn
 
+gradojn da progreso.
 
-**A. K. **— Tio estas tiel sama, kiel se mi demandus, 
+La Spiritoj ne estas perfektaj, ĝar ili estas la animoj
 
-kial ne æiuj kolegianoj lernas Filozofion. Æiuj Spiritoj 
+de la homoj, kaj la homoj ja ne estas perfektaj; pro
 
-havas saman originon kaj egalan destinon. La diferencoj 
+la sama motivo, la homo j ne estas perfektaj, ĝar ili est-
 
-inter ili ne signifas malsamajn specojn, sed diversajn 
+as la enkarniĝo de pli aŭ malpli evoluintaj Spiritoj. La
 
-gradojn da progreso. 
+enkorpa kaj la spirita mondoj senĝese enverþiĝas unu
 
-La Spiritoj ne estas perfektaj, æar ili estas la animoj 
+en alian: ĝe la morto de la korpo la enkorpa mondo
 
-de la homoj, kaj la homoj ja ne estas perfektaj; pro 
+liveras sian kontigenton al la spirita; per la naskiĝoj
 
-la sama motivo, la homo j ne estas perfektaj, æar ili est- 
+la spirita mondo nutras la homaron.
 
-as la enkarniøo de pli aý malpli evoluintaj Spiritoj. La 
+Dum ĝiu nova ekzistado la Spirito faras pli aŭ mal-
 
-enkorpa kaj la spirita mondoj senæese enverþiøas unu 
+pli grandan paþon antaŭen, kaj kiam li sur la Tero akiris
 
-en alian: æe la morto de la korpo la enkorpa mondo 
+al si la kvanton da konoj kaj moralan altecon konform-
 
-liveras sian kontigenton al la spirita; per la naskiøoj 
+ajn al nia planedo, li ĝi tiun forlasas kaj iras en iun
 
-la spirita mondo nutras la homaron. 
+pli altrangan mondon, kie li lernas novajn aferojn.
 
-Dum æiu nova ekzistado la Spirito faras pli aý mal- 
+La Spiritoj, konsistigantaj la nevideblan loĝantaron
 
-pli grandan paþon antaýen, kaj kiam li sur la Tero akiris 
+de la Tero, estas kvazaŭ ia refigura¼o de la enkorpa
 
-al si la kvanton da konoj kaj moralan altecon konform- 
+mondo: tie troviĝas samaj virtoj kaj samaj malvirtoj;
 
-ajn al nia planedo, li æi tiun forlasas kaj iras en iun 
+inter ili vivas kleraj, malkleraj kaj pseŭdo-kleraj, saĝaj
 
-pli altrangan mondon, kie li lernas novajn aferojn. 
+kaj stultaj, filozofaj, rezonemaj, sistememaj; ĝar ne ĝiuj
 
-La Spiritoj, konsistigantaj la nevideblan loøantaron 
+seniĝis je siaj antaŭjuĝoj, tial ĝiuj politikaj kaj religiaj
 
-de la Tero, estas kvazaý ia refigura¼o de la enkorpa 
+opinioj tie havas siajn reprezentantojn; ĝiu parolas laŭ
 
-mondo: tie troviøas samaj virtoj kaj samaj malvirtoj; 
+siaj ideoj, kaj kion ili diras, tio ofte estas nur ilia per-
 
-inter ili vivas kleraj, malkleraj kaj pseýdo-kleraj, saøaj 
+sona opinio: jen kial oni ne devas blinde kredi ĝion, kion
 
-kaj stultaj, filozofaj, rezonemaj, sistememaj; æar ne æiuj 
+la Spiritoj diras.
 
-seniøis je siaj antaýjuøoj, tial æiuj politikaj kaj religiaj 
 
-opinioj tie havas siajn reprezentantojn; æiu parolas laý 
+ALLAN KARDEC
 
-siaj ideoj, kaj kion ili diras, tio ofte estas nur ilia per- 
 
-sona opinio: jen kial oni ne devas blinde kredi æion, kion 
+**V. **— Se tiel estas, mi vidas grandegan malfacila¼-
 
-la Spiritoj diras. 
+on: en tiu konflikto de malsamaj opinioj, kiel distingi inter
 
-58 
+eraro kaj vera¼o? Mi ne vidas, kiel utilaj por ni estus
 
-ALLAN KARDEC 
+la Spiritoj kaj ke ni ion gajnus el interparoloj kun ili.
 
 
+**A. K. **— Se eĝ ili utilus por sciigi nin, ke Spi-
 
-**V. **— Se tiel estas, mi vidas grandegan malfacila¼- 
+ritoj ekzistas kaj ke tiuj Spiritoj estas la animoj de la
 
-on: en tiu konflikto de malsamaj opinioj, kiel distingi inter 
+homoj, ĝu tio ne estus tre grava por ĝiuj, kiuj dubas,
 
-eraro kaj vera¼o? Mi ne vidas, kiel utilaj por ni estus 
+ĝu ili havas ian animon, kaj ne scias, kio ili fariĝos post
 
-la Spiritoj kaj ke ni ion gajnus el interparoloj kun ili. 
+la morto?
 
+Kiel ĝiuj filozofiaj sciencoj, tiel ĝi tiu postulas long-
 
+an studadon kaj detalan observadon: tiam oni lernas
 
-**A. K. **— Se eæ ili utilus por sciigi nin, ke Spi- 
+distingi inter vero kaj friponeco, kiel ankaŭ la rimedojn
 
-ritoj ekzistas kaj ke tiuj Spiritoj estas la animoj de la 
+forigi la trompemajn Spiritojn. Super tiu bando da mal-
 
-homoj, æu tio ne estus tre grava por æiuj, kiuj dubas, 
+altklasuloj staras la Superaj Spiritoj, kiuj celas nur la
 
-æu ili havas ian animon, kaj ne scias, kio ili fariøos post 
+bonon kaj havas la mision gvidi la homojn sur la bona
 
-la morto? 
+vojo: nncernas scii ilin þati kaj kompreni. Æi tiuj
 
-Kiel æiuj filozofiaj sciencoj, tiel æi tiu postulas long- 
+instruas al ni grandajn aferojn, sed ne pensu, ke la stud-
 
-an studadon kaj detalan observadon: tiam oni lernas 
+ado de tiuj aliaj estas senutila: por koni iun popolon,
 
-distingi inter vero kaj friponeco, kiel ankaý la rimedojn 
+oni devas observi ĝiujn ĝiajn klasojn.
 
-forigi la trompemajn Spiritojn. Super tiu bando da mal- 
+Vi mem estas la pruvo de ĝi tio: vi pensis, ke sufiĝ-
 
-altklasuloj staras la Superaj Spiritoj, kiuj celas nur la 
+as al la Spiritoj demeti sian korpan envolva¼on, por li-
 
-bonon kaj havas la mision gvidi la homojn sur la bona 
+berigi sin de siaj neperfekta¼oj; nu, la interrilatoj kun
 
-vojo: nin koncernas scii ilin þati kaj kompreni. Æi tiuj 
+ili sciigis al ni la malon kaj konigis al ni la veran est-
 
-instruas al ni grandajn aferojn, sed ne pensu, ke la stud- 
+econ de la spirita mondo, kiu nin ĝiujn plej altgrade
 
-ado de tiuj aliaj estas senutila: por koni iun popolon, 
+interesas, ĝar ni ĝiuj devas tien iri. Koncerne la erar-
 
-oni devas observi æiujn øiajn klasojn. 
+ojn, kiuj povas veni de la malsameco de opinioj ĝe la
 
-Vi mem estas la pruvo de æi tio: vi pensis, ke sufiæ- 
+Spiritoj, ili forviþiĝas per si mem laŭmezure, kiel oni
 
-as al la Spiritoj demeti sian korpan envolva¼on, por li- 
+lernas distingi inter la bonaj kaj la malicaj, inter kleraj
 
-berigi sin de siaj neperfekta¼oj; nu, la interrilatoj kun 
+kaj malkleraj, inter sinceraj kaj hipokritaj, tute same
 
-ili sciigis al ni la malon kaj konigis al ni la veran est- 
+kiel ĝe ni; tiam la komuna saĝo nudigos la malverajn
 
-econ de la spirita mondo, kiu nin æiujn plej altgrade 
+doktrinojn.
 
-interesas, æar ni æiuj devas tien iri. Koncerne la erar- 
 
-ojn, kiuj povas veni de la malsameco de opinioj æe la 
+**V. **— Mia konsiderado ĝiam ankoraŭ firme staras
 
-Spiritoj, ili forviþiøas per si mem laýmezure, kiel oni 
+koncerne la sciencajn kaj aliajn demandojn, kiujn oni
 
-lernas distingi inter la bonaj kaj la malicaj, inter kleraj 
+povas submeti al la Spiritoj. La malsameco de iliaj opi-
 
-kaj malkleraj, inter sinceraj kaj hipokritaj, tute same 
+nioj pri la teorioj, kiuj disapartigas la scienculojn, nnsternas. Mi ja komprenas, ke, ne egale instruitaj,
 
-kiel æe ni; tiam la komuna saøo nudigos la malverajn 
+ili ne povas ĝion scii, sed, kion do valoras la opinio de
 
-doktrinojn. 
+la sciantoj, se ni ja ne povas certiĝi, kiu pravas kaj kiu
 
 
+KIO ESTAS SPIRITISMO ?
 
-**V. **— Mia konsiderado æiam ankoraý firme staras 
 
-koncerne la sciencajn kaj aliajn demandojn, kiujn oni 
+malpravas? Tiel do estus tute egale turni sin al la homoj
 
-povas submeti al la Spiritoj. La malsameco de iliaj opi- 
+aŭ al la Spiritoj.
 
-nioj pri la teorioj, kiuj disapartigas la scienculojn, nin 
 
-konsternas. Mi ja komprenas, ke, ne egale instruitaj, 
+**A. K. **— Æi tiu konsiderado estas ankoraŭ sekvo de
 
-ili ne povas æion scii, sed, kion do valoras la opinio de 
+la nesciado de la vera karaktero de Spiritismo. Kiu pens-
 
-la sciantoj, se ni ja ne povas certiøi, kiu pravas kaj kiu 
+as, ke li tie trovas ian facilan rimedon, por ĝion scii, tiu
 
+forte eraras. La Spiritoj ne estas komisiitaj por veni
 
+alporti al ni la klerecon tute pretan: tio ja estus tro
 
-KIO ESTAS SPIRITISMO ? 
+oportuna, se ni devus nur pridemandi, por esti kontent-
 
-59 
+igataj, tiamaniere þparante al ni la penon de la esploroj.
 
+Dio volas, ke ni laboru, ke nia menso ekzerciĝu: kler-
 
+econ ni akiras al ni nur por ĝi tiu prezo; la Spiritoj ne
 
-malpravas? Tiel do estus tute egale turni sin al la homoj 
+liberigas nin de ĝi tiu devo; **ili estas tio, kio ili estas; **
 
-aý al la Spiritoj. 
+**Spiritismo celas ilin studi, **por ekscii, laŭ analogeco, kio
 
+ni iam estos, sed ne konigi al ni tion, kio devas resti
 
+kaþita for de ni, aŭ senvualigi al niaj okuloj la aferojn
 
-**A. K. **— Æi tiu konsiderado estas ankoraý sekvo de 
+pli frue ol konvene.
 
-la nesciado de la vera karaktero de Spiritismo. Kiu pens- 
+La Spiritoj same ne estas iaj antaŭdiristoj de ies
 
-as, ke li tie trovas ian facilan rimedon, por æion scii, tiu 
+sorto, kaj kiu ajn flatas al si, ke li ekhavas de ili siajn
 
-forte eraras. La Spiritoj ne estas komisiitaj por veni 
-
-alporti al ni la klerecon tute pretan: tio ja estus tro 
-
-oportuna, se ni devus nur pridemandi, por esti kontent- 
-
-igataj, tiamaniere þparante al ni la penon de la esploroj. 
-
-Dio volas, ke ni laboru, ke nia menso ekzerciøu: kler- 
-
-econ ni akiras al ni nur por æi tiu prezo; la Spiritoj ne 
-
-liberigas nin de æi tiu devo; **ili estas tio, kio ili estas; **
-
-**Spiritismo celas ilin studi, **por ekscii, laý analogeco, kio 
-
-ni iam estos, sed ne konigi al ni tion, kio devas resti 
-
-kaþita for de ni, aý senvualigi al niaj okuloj la aferojn 
-
-pli frue ol konvene. 
-
-La Spiritoj same ne estas iaj antaýdiristoj de ies 
-
-sorto, kaj kiu ajn flatas al si, ke li ekhavas de ili siajn 
-
-sekretojn, tiu, eble fariøas mokata¼o de malsuperaj Spi- 
+sekretojn, tiu, eble fariĝas mokata¼o de malsuperaj Spi-
 
 ritoj, per unu vorto: **Spiritismo estas scienco de observ- **
 
-**ado, sed ne ia scienco de divenado aý de ekspluatado. **
+**ado, sed ne ia scienco de divenado aŭ de ekspluatado. **
 
-Ni øin studas, por ekkoni la staton de la estuloj de la 
+Ni ĝin studas, por ekkoni la staton de la estuloj de la
 
-nevidebla mondo, la rilatojn, ekzistantajn inter ili kaj 
+nevidebla mondo, la rilatojn, ekzistantajn inter ili kaj
 
-ni, ilian kaþitan agadon sur la videblan mondon, sed ne 
+ni, ilian kaþitan agadon sur la videblan mondon, sed ne
 
-celante ian materian utilon, kiun ni povus el tio æerpi. 
+celante ian materian utilon, kiun ni povus el tio ĝerpi.
 
-El æi tiu vidpunkto ekzistas nenia Spirito, kies studado 
+El ĝi tiu vidpunkto ekzistas nenia Spirito, kies studado
 
-estus senutila; de æiu ni lernas ion, iliaj neperfekta¼oj, 
+estus senutila; de ĝiu ni lernas ion, iliaj neperfekta¼oj,
 
-iliaj malvirtoj, ilia nekapableco, eæ ilia malklereco estas 
+iliaj malvirtoj, ilia nekapableco, eĝ ilia malklereco estas
 
-observobjektoj, kiuj enkondukas nin en la intiman na- 
+observobjektoj, kiuj enkondukas nin en la intiman na-
 
-turon de tiu mondo, kaj se ne ili klerigas nin per sia 
+turon de tiu mondo, kaj se ne ili klerigas nin per sia
 
-instruado, tiam ni mem nin instruas studante ilin, tiel 
+instruado, tiam ni mem nin instruas studante ilin, tiel
 
-same, kiel ni agas, observante la morojn de iu al ni ne- 
+same, kiel ni agas, observante la morojn de iu al ni ne-
 
-konata popolo. 
+konata popolo.
 
-Koncerne la klerajn Spiritojn, tiuj nin multe ins- 
+Koncerne la klerajn Spiritojn, tiuj nin multe ins-
 
-truas, sed en la limoj de tio ebla; oni ilin ne demandu 
+truas, sed en la limoj de tio ebla; oni ilin ne demandu
 
-pri io, kion ili ne povas aý ne devas malkaþi; oni kon- 
+pri io, kion ili ne povas aŭ ne devas malkaþi; oni kon-
 
-tentiøu per tio, kion ili diras al ni; voli iri pluen estas 
+tentiĝu per tio, kion ili diras al ni; voli iri pluen estas
 
-elmeti sin al mistifikoj de frivolaj Spiritoj, æiam pretaj 
+elmeti sin al mistifikoj de frivolaj Spiritoj, ĝiam pretaj
 
-60 
 
-ALLAN KARDEC 
+ALLAN KARDEC
 
 
+respondi je ĝio. La sperto instruas nin difini la kiomon
 
-respondi je æio. La sperto instruas nin difini la kiomon 
+da konfido, kiun ni povas havi al ili.
 
-da konfido, kiun ni povas havi al ili. 
 
+**Praktika utileco de la manifestiĝoj **
 
 
-**Praktika utileco de la manifestiøoj **
+**V. **— Mi supozas, ke ĝio ĝi estas konstatita kaj ke
 
-****
+Spiritismo estas rekonata kiel vera¼o: kia povas esti ĝia
 
-**V. **— Mi supozas, ke æio æi estas konstatita kaj ke 
+praktika utileco? Øis hodiaŭ oni ĝin malbezonis, tial þajn-
 
-Spiritismo estas rekonata kiel vera¼o: kia povas esti øia 
+as al mi, ke oni povus ĝin plue malhavi kaj tre trankvile
 
-praktika utileco? Øis hodiaý oni øin malbezonis, tial þajn- 
+vivi sen tio.
 
-as al mi, ke oni povus øin plue malhavi kaj tre trankvile 
 
-vivi sen tio. 
+**A. K. **— Tion saman oni povus diri rilate la fervoj-
 
+ojn kaj la vaporon, sen kiuj oni tre bone vivadis.
 
+Se, laŭ via kompreno, praktika utileco estas la ri-
 
-**A. K. **— Tion saman oni povus diri rilate la fervoj- 
+medoj, por glate vivi, akiri al si riĝecon, koni la estont-
 
-ojn kaj la vaporon, sen kiuj oni tre bone vivadis. 
+econ, eltrovi karbominojn aŭ kaþitajn trezorojn, ekscii
 
-Se, laý via kompreno, praktika utileco estas la ri- 
+pri hereda¼oj, þpari al si la penon pri esploroj, tiam Spi-
 
-medoj, por glate vivi, akiri al si riæecon, koni la estont- 
+ritismo taŭgas por nenio; ĝi ne povas okazigi, ke la
 
-econ, eltrovi karbominojn aý kaþitajn trezorojn, ekscii 
+borso altiĝu aŭ malaltiĝu, ne povas esti disdividita en
 
-pri hereda¼oj, þpari al si la penon pri esploroj, tiam Spi- 
+akciojn, eĝ ne liveri elpensojn tute elfaritajn, pretajn
 
-ritismo taýgas por nenio; øi ne povas okazigi, ke la 
+por ekspluatado. En ĝi tiu rilato, kiom da sciencoj estus
 
-borso altiøu aý malaltiøu, ne povas esti disdividita en 
+senutilaj! Kiom da ili estas neprofitaj, el la komerca vid-
 
-akciojn, eæ ne liveri elpensojn tute elfaritajn, pretajn 
+punkto! La homoj vivadis tute same bone antaŭ la el-
 
-por ekspluatado. En æi tiu rilato, kiom da sciencoj estus 
+trovo de ĝiuj novaj planedoj; antaŭ ol oni sciis, ke ne
 
-senutilaj\! Kiom da ili estas neprofitaj, el la komerca vid- 
+la suno rondiras ĝirkaŭ la Tero, sed kontraŭe; antaŭ ol
 
-punkto\! La homoj vivadis tute same bone antaý la el- 
+oni kalkulis la fariĝon de la eklipsoj; antaŭ ol oni konis
 
-trovo de æiuj novaj planedoj; antaý ol oni sciis, ke ne 
+la mikroskopan mo ndon kaj multegon da aliaj aferoj.
 
-la suno rondiras æirkaý la Tero, sed kontraýe; antaý ol 
+Por vivi kaj kreskigi sian tritikon, la kamparano ne be-
 
-oni kalkulis la fariøon de la eklipsoj; antaý ol oni konis 
+zonas scii, kio estas kometo. Kial do la scienculoj sin
 
-la mikroskopan mo ndon kaj multegon da aliaj aferoj. 
+donadas al tiaj esploroj, kaj kiu kuraĝus diri, ke ili perd-
 
-Por vivi kaj kreskigi sian tritikon, la kamparano ne be- 
+as sian tempon?
 
-zonas scii, kio estas kometo. Kial do la scienculoj sin 
+Æio, kio taŭgas por levi unu angulon de la vualo,
 
-donadas al tiaj esploroj, kaj kiu kuraøus diri, ke ili perd- 
+helpas la disvolviĝon de la intelekto, plivastigas la kadr-
 
-as sian tempon? 
+on de la ideoj, ebligante al ni penetri pli profunde en
 
-Æio, kio taýgas por levi unu angulon de la vualo, 
+la leĝojn de la Naturo. Nu, la mondo de la Spiritoj
 
-helpas la disvolviøon de la intelekto, plivastigas la kadr- 
+ekzistas dank’al unu el tiuj leĝoj de la Naturo; Spirit-
 
-on de la ideoj, ebligante al ni penetri pli profunde en 
+ismo konigas al ni tiun leĝon; ĝi sciigas nin pri la influo
 
-la leøojn de la Naturo. Nu, la mondo de la Spiritoj 
+de la mondo nevidebla sur la mondon videblan kaj pri
 
-ekzistas dank’al unu el tiuj leøoj de la Naturo; Spirit- 
+la rilatoj inter ili, tiel same, kiel la Astronomio konigas
 
-ismo konigas al ni tiun leøon; øi sciigas nin pri la influo 
+al ni la rilatojn de la ceteraj astroj kun la Tero; ĝi
 
-de la mondo nevidebla sur la mondon videblan kaj pri 
 
-la rilatoj inter ili, tiel same, kiel la Astronomio konigas 
+KIO ESTAS SPIRITISMO ?
 
-al ni la rilatojn de la ceteraj astroj kun la Tero; øi 
 
+montras tiun mondon kiel unu el la fortoj, kiuj kontrol-
 
+as la Universon kaj kunhelpas por la tenado de la ĝe-
 
-KIO ESTAS SPIRITISMO ? 
+nerala harmonio. Eĝ ĝe la supozo, ke ĝia utileco estas
 
-61 
+nur tio, ĝu la malkaþo de tia potenco ne estus tre grava,
 
+aparte de ĝia morala doktrino? Æu tio do neniom valoras,
 
+ke tuta nova mondo elmontriĝas al ni, se precipe la kon-
 
-montras tiun mondon kiel unu el la fortoj, kiuj kontrol- 
+ado de tiu mondo havigas al ni la þlosilon de multego
 
-as la Universon kaj kunhelpas por la tenado de la øe- 
+da ĝis tiam nesolveblaj demandoj; se ĝi inicas nin pri
 
-nerala harmonio. Eæ æe la supozo, ke øia utileco estas 
+la transtombaj misteroj, kiuj nin almenaŭ iomete inte-
 
-nur tio, æu la malkaþo de tia potenco ne estus tre grava, 
+resas, ĝar ja ni ĝiuj senescepte devas pli aŭ malpli frue
 
-aparte de æia morala doktrino? Æu tio do neniom valoras, 
+transiri la fatalan limon? Sed Spiritismo havas alian pli
 
-ke tuta nova mondo elmontriøas al ni, se precipe la kon- 
+pozitivan utilon, nome la moralan influon sur la homojn
 
-ado de tiu mondo havigas al ni la þlosilon de multego 
+per la altrudo de la faktoj. Spiritismo estas la evidenta
 
-da øis tiam nesolveblaj demandoj; se øi inicas nin pri 
+pruvo de la ekzisto de la animo, de ties individueco post
 
-la transtombaj misteroj, kiuj nin almenaý iomete inte- 
+la morto, de ties senmorteco, de ties venonta sorto; ĝi
 
-resas, æar ja ni æiuj senescepte devas pli aý malpli frue 
+estas do la ruiniĝo de la materialismo, ne per la rezon-
 
-transiri la fatalan limon? Sed Spiritismo havas alian pli 
+ado, sed per la faktoj.
 
-pozitivan utilon, nome la moralan influon sur la homojn 
+Oni ne petu de Spiritismo tion, kion ĝi ne povas doni,
 
-per la altrudo de la faktoj. Spiritismo estas la evidenta 
+kaj oni en ĝi ne serĝu ion trans ĝia providenca celo.
 
-pruvo de la ekzisto de la animo, de ties individueco post 
+Antaŭ ol fariĝis la seriozaj progresoj de la astronomio,
 
-la morto, de ties senmorteco, de ties venonta sorto; øi 
+oni kredis la astrologion: ĝu estus saĝe aserti, ke la as-
 
-estas do la ruiniøo de la materialismo, ne per la rezon- 
+tronomio taŭgas por nenio, ĝar oni jam ne povas trovi
 
-ado, sed per la faktoj. 
+en la influado de la astroj la antaŭscion pri sia destino?
 
-Oni ne petu de Spiritismo tion, kion øi ne povas doni, 
+Tiel same, kiel la astronomio detronigis la astrologojn,
 
-kaj oni en øi ne seræu ion trans øia providenca celo. 
+tiel Spiritismo detronigas la divenistojn, la sorĝistojn kaj
 
-Antaý ol fariøis la seriozaj progresoj de la astronomio, 
+la antaŭdiristojn de homaj sortoj. Øi estas rilate al la
 
-oni kredis la astrologion: æu estus saøe aserti, ke la as- 
+magio tio sama, kiel la astronomio rilate al la astrologio,
 
-tronomio taýgas por nenio, æar oni jam ne povas trovi 
-
-en la influado de la astroj la antaýscion pri sia destino? 
-
-Tiel same, kiel la astronomio detronigis la astrologojn, 
-
-tiel Spiritismo detronigas la divenistojn, la soræistojn kaj 
-
-la antaýdiristojn de homaj sortoj. Øi estas rilate al la 
-
-magio tio sama, kiel la astronomio rilate al la astrologio, 
-
-kiel la ¶emio rilate al la alkemio. 
-
+kiel la ¶emio rilate al la alkemio.
 
 
 **Frenezeco, memmortigo, obsedo **
 
-****
 
-**V. **— Iuj homoj konsideras la spiritismajn ideojn ka- 
+**V. **— Iuj homoj konsideras la spiritismajn ideojn ka-
 
-pablaj konfuzi la mensajn fakultojn, pro kio ili opinias 
+pablaj konfuzi la mensajn fakultojn, pro kio ili opinias
 
-prudente reteni ilian disvastiøon. 
+prudente reteni ilian disvastiĝon.
 
 
+**A. K. **— Vi ja konas jenan proverbon: "Por hundon
 
-**A. K. **— Vi ja konas jenan proverbon: "Por hundon 
+dronigi, oni nomas ĝin rabia". Ne estas do mirige, ke
 
-dronigi, oni nomas øin rabia". Ne estas do mirige, ke 
+la malamikoj de Spiritismo penas uzi ĝiujn pretekstojn;
 
-la malamikoj de Spiritismo penas uzi æiujn pretekstojn; 
+tiu preteksto, pri kiu vi parolas, þajnas al ili taŭga por
 
-tiu preteksto, pri kiu vi parolas, þajnas al ili taýga por 
 
-62 
+ALLAN KARDEC
 
-ALLAN KARDEC 
 
+veki la timemon kaj la ofendiĝemon, kaj tial ili ĝin fer-
 
+vore ekprenis; sed ĝi falas ĝe la plej malprofunda ek-
 
-veki la timemon kaj la ofendiøemon, kaj tial ili øin fer- 
+zameno. Aŭdu do pri tia frenezeco la rezonadon de iu
 
-vore ekprenis; sed øi falas æe la plej malprofunda ek- 
+frenezulo.
 
-zameno. Aýdu do pri tia frenezeco la rezonadon de iu 
+Æiaj grandaj zorgoj de la spirito povas okazigi fre-
 
-frenezulo. 
+nezon: la sciencoj, la artoj, eĝ la religio liveras sian kon-
 
-Æiaj grandaj zorgoj de la spirito povas okazigi fre- 
+tingenton. La frenezo havas kiel principon ian patolo-
 
-nezon: la sciencoj, la artoj, eæ la religio liveras sian kon- 
+gian staton de la cerbo, ilo de la pensado: se la ilo estas
 
-tingenton. La frenezo havas kiel principon ian patolo- 
+difektita, la pensado estas do konfuzita. La frenezo estas
 
-gian staton de la cerbo, ilo de la pensado: se la ilo estas 
+do sekva efiko, kies unua kaŭzo estas ia organa an-
 
-difektita, la pensado estas do konfuzita. La frenezo estas 
+taŭinklino, kiu faras la cerbon pli aŭ malpli frapebla por
 
-do sekva efiko, kies unua kaýzo estas ia organa an- 
+certaj impresoj, kaj ĝi tio estas des pli vera, ĝar ekzist-
 
-taýinklino, kiu faras la cerbon pli aý malpli frapebla por 
+as homoj, kiuj ekstreme streĝas la cerbon kaj tamen ne
 
-certaj impresoj, kaj æi tio estas des pli vera, æar ekzist- 
+freneziĝas, aliaj, kiuj freneziĝas sub la potenco de eĝ la
 
-as homoj, kiuj ekstreme streæas la cerbon kaj tamen ne 
+plej malgranda superekscitiĝo. Æe la ekzisto de ia an-
 
-freneziøas, aliaj, kiuj freneziøas sub la potenco de eæ la 
+taŭinklino al frenezeco, ĝi tiu prenas la karakteron de
 
-plej malgranda superekscitiøo. Æe la ekzisto de ia an- 
+precipa absorba zorgo, kiu do fariĝas fiksa ideo. Tiu
 
-taýinklino al frenezeco, æi tiu prenas la karakteron de 
+fiksa ideo povas esti tiu pri la Spiritoj ĝe iu, kiu sin
 
-precipa absorba zorgo, kiu do fariøas fiksa ideo. Tiu 
+okupas pri ili, tiel same, kiel pri Dio, la anĝeloj, la diablo,
 
-fiksa ideo povas esti tiu pri la Spiritoj æe iu, kiu sin 
+la riĝeco, la povo, iu arto, iu scienco, la patrineco, iu
 
-okupas pri ili, tiel same, kiel pri Dio, la anøeloj, la diablo, 
+politika aŭ socia sistemo. Estas probable, ke iu religia
 
-la riæeco, la povo, iu arto, iu scienco, la patrineco, iu 
+frenezulo estus fariĝinta spiritisma frenezulo, se Spirit-
 
-politika aý socia sistemo. Estas probable, ke iu religia 
+ismo antaŭe estus lia plej ĝefa absorba zorgo. Estas
 
-frenezulo estus fariøinta spiritisma frenezulo, se Spirit- 
+vero, ke unu gazeto diris, ke en unu sola loko en Usono,
 
-ismo antaýe estus lia plej æefa absorba zorgo. Estas 
+kies nomon mi jam ne memoras, oni kalkulis kvar mil
 
-vero, ke unu gazeto diris, ke en unu sola loko en Usono, 
+okazojn de frenezeco pro Spiritismo; sed oni scias, ke
 
-kies nomon mi jam ne memoras, oni kalkulis kvar mil 
+inter niaj kontraŭuloj estas prempenso kredi, ke nur ili
 
-okazojn de frenezeco pro Spiritismo; sed oni scias, ke 
+havas prudenton, kaj jen tio estas ja manio, kiel ĝiu alia.
 
-inter niaj kontraýuloj estas prempenso kredi, ke nur ili 
+En iliaj okuloj ni ĝiuj meritus enþloson en frenezulejoj,
 
-havas prudenton, kaj jen tio estas ja manio, kiel æiu alia. 
+kaj sekve la kvar mil spiritistoj en tiu citita loko certe
 
-En iliaj okuloj ni æiuj meritus enþloson en frenezulejoj, 
+estis tiaj samnombraj frenezuloj. Laŭ ĝi tiu vidmaniero
 
-kaj sekve la kvar mil spiritistoj en tiu citita loko certe 
+Usono havas centojn da miloj da frenezuloj kaj ĝiuj
 
-estis tiaj samnombraj frenezuloj. Laý æi tiu vidmaniero 
+ceteraj landoj multe pli grandan nombron. Æi tiu tri-
 
-Usono havas centojn da miloj da frenezuloj kaj æiuj 
+viala þerco nun komencas fariĝi sengusta, de tiam, kiam
 
-ceteraj landoj multe pli grandan nombron. Æi tiu tri- 
+oni vidas tiun frenezon ekposedi la plej altajn rangojn
 
-viala þerco nun komencas fariøi sengusta, de tiam, kiam 
+de la socio. Oni forte bruas ĝe iu konata ekzemplo, nome
 
-oni vidas tiun frenezon ekposedi la plej altajn rangojn 
+de Victor Hennequin, sed oni forgesas, ke antaŭ ol okupi
 
-de la socio. Oni forte bruas æe iu konata ekzemplo, nome 
+sin pri la Spiritoj, li jam antaŭe elmontradis ekscentr-
 
-de Victor Hennequin, sed oni forgesas, ke antaý ol okupi 
+econ de la ideoj; se ne estus aperintaj la turniĝantaj
 
-sin pri la Spiritoj, li jam antaýe elmontradis ekscentr- 
+tabloj, kiuj, laŭ tre sprita vortludo de niaj kontraŭuloj,
 
-econ de la ideoj; se ne estus aperintaj la turniøantaj 
 
-tabloj, kiuj, laý tre sprita vortludo de niaj kontraýuloj, 
+KIO ESTAS SPIRITISMO ?
 
 
+turnis al li la kapon, lia frenezeco estus preninta alian
 
-KIO ESTAS SPIRITISMO ? 
+direkton.
 
-63 
+Mi diras do, ke Spiritismo ĝuas nenian privilegion
 
+en ĝi tiu rilato, kaj mi iras pluen: mi diras, ke, bone
 
+komprenata, ĝi estas antaŭgardilo kontraŭ freneziĝo kaj
 
-turnis al li la kapon, lia frenezeco estus preninta alian 
+memmortigo.
 
-direkton. 
+Inter la plej multenombraj kaŭzoj de cerba super-
 
-Mi diras do, ke Spiritismo øuas nenian privilegion 
+ekscitiĝo oni menciu la disreviĝojn, la malfeliĝa¼ojn, la
 
-en æi tiu rilato, kaj mi iras pluen: mi diras, ke, bone 
+kontraŭatajn korinklinojn, kiuj estas ankaŭ la plej oftaj
 
-komprenata, øi estas antaýgardilo kontraý freneziøo kaj 
+kaŭzoj de memmortigo. Nu, la vera spiritisto rigardas
 
-memmortigo. 
+la aferojn de ĝi tiu mondo el tiel alta vidpunkto, ke la
 
-Inter la plej multenombraj kaýzoj de cerba super- 
+ĝagrenoj estas en liaj okuloj nur malagrablaj incidentoj
 
-ekscitiøo oni menciu la disreviøojn, la malfeliæa¼ojn, la 
+de iu vojaĝo. Kio al iu alia kaŭzus fortegan afekcion,
 
-kontraýatajn korinklinojn, kiuj estas ankaý la plej oftaj 
+tio lin apenaŭ tuþas. Li cetere scias, ke la ĝagrenoj de
 
-kaýzoj de memmortigo. Nu, la vera spiritisto rigardas 
+la vivo estas provoj, kiuj utilas al lia progresado, se li
 
-la aferojn de æi tiu mondo el tiel alta vidpunkto, ke la 
+ilin suferas sen plendo, ĝar li estos iam rekompencita
 
-æagrenoj estas en liaj okuloj nur malagrablaj incidentoj 
+laŭ la braveco, kun kiu li ilin elportis. Liaj konvj
 
-de iu vojaøo. Kio al iu alia kaýzus fortegan afekcion, 
+havigas do al li ian rezignacion, kiu gardas lntraŭ
 
-tio lin apenaý tuþas. Li cetere scias, ke la æagrenoj de 
+malespero kaj, sekve, kontraŭ senĝesa kaŭzo de freneziĝo
 
-la vivo estas provoj, kiuj utilas al lia progresado, se li 
+kaj memmortigo. Li scias, krom tio, laŭ la scenoj, kiujn
 
-ilin suferas sen plendo, æar li estos iam rekompencita 
+al li prezentas la komunikiĝoj kun la Spiritoj, la plor-
 
-laý la braveco, kun kiu li ilin elportis. Liaj konvinkoj 
+indan sorton de tiuj, kiuj propravole mallongigas siajn
 
-havigas do al li ian rezignacion, kiu gardas lin kontraý 
+surterajn tagojn, kaj tiu sceno estas sufiĝe efekta, por
 
-malespero kaj, sekve, kontraý senæesa kaýzo de freneziøo 
+igi lin pripensi sian intencon; tial grandega estas la nom-
 
-kaj memmortigo. Li scias, krom tio, laý la scenoj, kiujn 
+bro de tiuj, kiuj haltis sur tiu pereiga deklivo. Jen unu
 
-al li prezentas la komunikiøoj kun la Spiritoj, la plor- 
+el la rezultatoj de Spiritismo.
 
-indan sorton de tiuj, kiuj propravole mallongigas siajn 
+En la nombron de la kaŭzoj de freneziĝo ni enkal-
 
-surterajn tagojn, kaj tiu sceno estas sufiæe efekta, por 
+kulu ankoraŭ la timegon, kaj la timego al la diablo jam
 
-igi lin pripensi sian intencon; tial grandega estas la nom- 
+difektis pli ol unu cerbon. Æu oni konas la nombron da
 
-bro de tiuj, kiuj haltis sur tiu pereiga deklivo. Jen unu 
+viktimoj, kiujn oni faris el homoj kun malforta imag-
 
-el la rezultatoj de Spiritismo. 
+povo, frapante ĝi tiun per tia bildo, kiun oni plej penas
 
-En la nombron de la kaýzoj de freneziøo ni enkal- 
+aspektigi pli timegiga per teruraj detaloj? La diablo, oni
 
-kulu ankoraý la timegon, kaj la timego al la diablo jam 
+diras, teruras nur infanojn, li estas ia brido, por ilia saĝ-
 
-difektis pli ol unu cerbon. Æu oni konas la nombron da 
+iĝo, jes, same kiel la infanmanĝanto kaj la lupkoboldo;
 
-viktimoj, kiujn oni faris el homoj kun malforta imag- 
+sed, kiam ili tion ne plu timas, ili fariĝas pli malbon-
 
-povo, frapante æi tiun per tia bildo, kiun oni plej penas 
+aj ol antaŭe, kaj jen, kiel rezulto, nekalkulebla estas la
 
-aspektigi pli timegiga per teruraj detaloj? La diablo, oni 
+nombro da epilepsioj, kaŭzita de la difekto de delikat-
 
-diras, teruras nur infanojn, li estas ia brido, por ilia saø- 
+aj cerboj.
 
-iøo, jes, same kiel la infanmanøanto kaj la lupkoboldo; 
+Oni ne intermiksu la **patologian fenezecon **kun la
 
-sed, kiam ili tion ne plu timas, ili fariøas pli malbon- 
 
-aj ol antaýe, kaj jen, kiel rezulto, nekalkulebla estas la 
+ALLAN KARDEC
 
-nombro da epilepsioj, kaýzita de la difekto de delikat- 
 
-aj cerboj. 
+**obsedo**: ĝi tiu lasta ne originas de ia cerba difektiĝo, sed
 
-Oni ne intermiksu la **patologian fenezecon **kun la 
+de la subjugigo, al kiu malicaj Spiritoj submetas iujn
 
-64 
+homojn, kaj iafoje mienas kvazaŭ la ĝustasenca frenezo.
 
-ALLAN KARDEC 
+Æi tiu afekcio, tre ofta, estas sendependa de ĝia kredo
 
+je Spiritismo kaj ekzistis en ĝiuj tempoj. En ĝi tiu okazo
 
+la ordinara kuracado estas senpova kaj eĝ malutila. Kon-
 
-**obsedo**: æi tiu lasta ne originas de ia cerba difektiøo, sed 
+igante ĝi tiun novan kaŭzon de organisma perturbo, Spi-
 
-de la subjugigo, al kiu malicaj Spiritoj submetas iujn 
+ritismo samtempe havigas la solan rimedon por ĝin ven-
 
-homojn, kaj iafoje mienas kvazaý la øustasenca frenezo. 
+ki, agante ne sur la malsanulon, sed sur la obsedantan
 
-Æi tiu afekcio, tre ofta, estas sendependa de æia kredo 
+Spiriton. Øi estas ne la kaŭzo, sed la forigilo de la
 
-je Spiritismo kaj ekzistis en æiuj tempoj. En æi tiu okazo 
-
-la ordinara kuracado estas senpova kaj eæ malutila. Kon- 
-
-igante æi tiun novan kaýzon de organisma perturbo, Spi- 
-
-ritismo samtempe havigas la solan rimedon por øin ven- 
-
-ki, agante ne sur la malsanulon, sed sur la obsedantan 
-
-Spiriton. Øi estas ne la kaýzo, sed la forigilo de la 
-
-malordo. 
-
+malordo.
 
 
 **Forgeso pri la pasinteco **
 
-****
 
-**V. **— Mi ne sukcesas klarigi al mi, kiel la homo 
+**V. **— Mi ne sukcesas klarigi al mi, kiel la homo
 
-povas profiti de la sperto, kiun li akiris al si en siaj an- 
+povas profiti de la sperto, kiun li akiris al si en siaj an-
 
-taýaj ekzistadoj, se li ilin ne memoras, æar, se li ilin ne 
+taŭaj ekzistadoj, se li ilin ne memoras, ĝar, se li ilin ne
 
-memoras, æiu ekzistado estas por li kvazaý la unua, kaj 
+memoras, ĝiu ekzistado estas por li kvazaŭ la unua, kaj
 
-tio estas senfina rekomencado. Ni supozu, ke æiutage, 
+tio estas senfina rekomencado. Ni supozu, ke ĝiutage,
 
-æe vekiøo, ni forgesus tion, kion ni faris hieraý: aøante 
+ĝe vekiĝo, ni forgesus tion, kion ni faris hieraŭ: aĝante
 
-sepdek jarojn, ni ne estus pli progresintaj, ol tiam, kiam 
+sepdek jarojn, ni ne estus pli progresintaj, ol tiam, kiam
 
-ni estis dekjaraj, dum, se ni memorus niajn erarojn, 
+ni estis dekjaraj, dum, se ni memorus niajn erarojn,
 
-niajn mallerta¼ojn kaj la punojn, kiujn ni altiris sur nin, 
+niajn mallerta¼ojn kaj la punojn, kiujn ni altiris sur nin,
 
-ni penus ne rekomenci. Uzante la komparon, kiun vi 
+ni penus ne rekomenci. Uzante la komparon, kiun vi
 
-faris pri la homo sur la Tero, kun la kolegiano, mi ne 
+faris pri la homo sur la Tero, kun la kolegiano, mi ne
 
-komprenas, kiel tiu lernanto povus profiti el la lecionoj 
+komprenas, kiel tiu lernanto povus profiti el la lecionoj
 
-de la kvara klaso, ekzemple, se li ne memoras tion, kion 
+de la kvara klaso, ekzemple, se li ne memoras tion, kion
 
-li lernis en la tria klaso. Tiuj rompoj de la kontinueco 
+li lernis en la tria klaso. Tiuj rompoj de la kontinueco
 
-en la vivo de la Spirito æesigas æiujn rilatojn kaj faras 
+en la vivo de la Spirito ĝesigas ĝiujn rilatojn kaj faras
 
-el li kvazaý ian novan estulon; el tio ni povas diri, ke 
+el li kvazaŭ ian novan estulon; el tio ni povas diri, ke
 
-niaj pensoj mortas æe æiu ekzistado kaj ne renaskiøas, 
+niaj pensoj mortas ĝe ĝiu ekzistado kaj ne renaskiĝas,
 
-kaj sekve oni ne konscias, kio oni iam estis; tio estas 
+kaj sekve oni ne konscias, kio oni iam estis; tio estas
 
-ia neniiøo. 
+ia neniiĝo.
 
 
+**A. K. **— Demando post demando, vi kondukus min
 
-**A. K. **— Demando post demando, vi kondukus min 
+al la farado de kompleta kurso pri Spiritismo. Æiuj viaj
 
-al la farado de kompleta kurso pri Spiritismo. Æiuj viaj 
+kontraŭdiroj estas ja naturaj de la flanko de iu, kiu scias
 
-kontraýdiroj estas ja naturaj de la flanko de iu, kiu scias 
+nenion, sed kiu per serioza studado trovas iun solvon
 
-nenion, sed kiu per serioza studado trovas iun solvon 
+multe pli eksplicitan ol tiu, kiun mi povus doni per mal-
 
-multe pli eksplicitan ol tiu, kiun mi povus doni per mal- 
+longa klarigo, kiu siavice devas senĝese almovi novajn
 
-longa klarigo, kiu siavice devas senæese almovi novajn 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+demandojn. Æio interrilatas en Spiritismo, kaj kiam oni
 
-65 
+observas la tuton, tiam oni vidas, ke la principoj fluas
 
+unu de alia kaj sin reciproke apogas; kaj tiam, kio þajn-
 
+is anomalio kontraŭa al la justeco kaj la saĝeco de Dio,
 
-demandojn. Æio interrilatas en Spiritismo, kaj kiam oni 
+tio montriĝas tute natura kaj konfirmas tiun justecon
 
-observas la tuton, tiam oni vidas, ke la principoj fluas 
+kaj tiun saĝecon.
 
-unu de alia kaj sin reciproke apogas; kaj tiam, kio þajn- 
+Jen la demando rilata al la forgeso pri la pasinteco,
 
-is anomalio kontraýa al la justeco kaj la saøeco de Dio, 
+kiu estas ligita al aliaj egale gravaj demandoj, kaj tial
 
-tio montriøas tute natura kaj konfirmas tiun justecon 
+mi ĝi tie ĝin nur supra¼e pritraktas.
 
-kaj tiun saøecon. 
+Æe ĝiu ekzistado ia vualo ja envolvas la pasintecon,
 
-Jen la demando rilata al la forgeso pri la pasinteco, 
+tamen pro tio la Spirito perdas neniom el tio, kion li iam
 
-kiu estas ligita al aliaj egale gravaj demandoj, kaj tial 
+akiris al si: li forgesas nur la manieron, kiel li ĝin hav-
 
-mi æi tie øin nur supra¼e pritraktas. 
+igis al si. Uzante la komparon pri la kolegiano, mi diras,
 
-Æe æiu ekzistado ia vualo ja envolvas la pasintecon, 
+ke por li ne gravas scii, kie, kiel kaj ĝe kiuj instruistoj
 
-tamen pro tio la Spirito perdas neniom el tio, kion li iam 
+li kursis la trian klason, se venante al la kvara klaso,
 
-akiris al si: li forgesas nur la manieron, kiel li øin hav- 
+li scias, kion oni lernas en la tria klaso. Kio grava ĝi
 
-igis al si. Uzante la komparon pri la kolegiano, mi diras, 
+estas al li, scii, ke li estis vergita pro sia maldiligenteco
 
-ke por li ne gravas scii, kie, kiel kaj æe kiuj instruistoj 
+kaj ekribelo, se tiuj punoj faris lin laborema kaj obe-
 
-li kursis la trian klason, se venante al la kvara klaso, 
+ema? En ĝi tiu maniero la Spirito, reenkarniĝante, kun-
 
-li scias, kion oni lernas en la tria klaso. Kio grava øi 
+portas, intuicie, kaj kiel denaskajn ideojn, ĝion, kion li
 
-estas al li, scii, ke li estis vergita pro sia maldiligenteco 
+lernis pri scienco kaj pri moraleco. Mi diras "pri mo -
 
-kaj ekribelo, se tiuj punoj faris lin laborema kaj obe- 
+raleco", ĝar, se dum iu ekzistado li pliboniĝis, se li pro-
 
-ema? En æi tiu maniero la Spirito, reenkarniøante, kun- 
+fitis el la lecionoj de la sperto, tiam, kiam li revenos,
 
-portas, intuicie, kaj kiel denaskajn ideojn, æion, kion li 
+li estos per si mem pli bona; hardite en la forĝejo de
 
-lernis pri scienco kaj pri moraleco. Mi diras "pri mo - 
+sufero kaj laboro, li estos pli solida; anstataŭ devi ĝion
 
-raleco", æar, se dum iu ekzistado li pliboniøis, se li pro- 
+rekomenci, li posedas fundon ĝiam pli riĝan, sur kiu li
 
-fitis el la lecionoj de la sperto, tiam, kiam li revenos, 
+sin apogas por pluaj akiroj.
 
-li estos per si mem pli bona; hardite en la forøejo de 
+La dua parto de via kontraŭdiro, tuþanta la neni-
 
-sufero kaj laboro, li estos pli solida; anstataý devi æion 
+iĝon de la pensado, ne staras sur pli bona bazo, ĝar tiu
 
-rekomenci, li posedas fundon æiam pli riæan, sur kiu li 
+forgeso fariĝas nur dum la enkorpa vivo; forlasinte ĝi
 
-sin apogas por pluaj akiroj. 
+tiun, la Spirito rericevas la memoron pri sia pasinteco:
 
-La dua parto de via kontraýdiro, tuþanta la neni- 
+li tiam povas juĝi pri la irita vojo kaj pri tiu ankoraŭ
 
-iøon de la pensado, ne staras sur pli bona bazo, æar tiu 
+irota; ne ekzistas do ia rompo de la kontinueco en la
 
-forgeso fariøas nur dum la enkorpa vivo; forlasinte æi 
+spirita vivo, kiu estas la normala vivo de la Spirito.
 
-tiun, la Spirito rericevas la memoron pri sia pasinteco: 
+La kelkatempa forgeso estas bonfaro de la Provi-
 
-li tiam povas juøi pri la irita vojo kaj pri tiu ankoraý 
+denco; sperton oni akiras al si ofte per severaj elprovoj
 
-irota; ne ekzistas do ia rompo de la kontinueco en la 
+kaj teruraj pagoj, kies memoro estus tre suferiga kaj
 
-spirita vivo, kiu estas la normala vivo de la Spirito. 
+pliakrigus la turmentojn de la sortobatoj en la nuna vivo.
 
-La kelkatempa forgeso estas bonfaro de la Provi- 
+Se la suferoj dum la vivo þajnas longaj, kio do estus al
 
-denco; sperton oni akiras al si ofte per severaj elprovoj 
 
-kaj teruraj pagoj, kies memoro estus tre suferiga kaj 
+ALLAN KARDEC
 
-pliakrigus la turmentojn de la sortobatoj en la nuna vivo. 
 
-Se la suferoj dum la vivo þajnas longaj, kio do estus al 
+ni, se al ili aldoniĝus la memoro pri la suferoj en la pas-
 
-66 
+inteco? Vi ekzemple, sinjoro, hodiaŭ estas digna homo,
 
-ALLAN KARDEC 
+sed vi tia estas tre verþajne dnak’al la severaj punoj,
 
+kiujn vi ricevis pro la malbonfaroj, kiuj nun naŭzus al
 
+via konscienco; ĝu estus al vi agrabla la memoro, ke
 
-ni, se al ili aldoniøus la memoro pri la suferoj en la pas- 
+vi pro tio estis iam pendigita? Æu honto vin ne perse-
 
-inteco? Vi ekzemple, sinjoro, hodiaý estas digna homo, 
+kutus ĝe via penso, ke la mondo scias la malica¼on, kiun
 
-sed vi tia estas tre verþajne dnak’al la severaj punoj, 
+vi faris? Kio do grava tio estas, kion vi eble faris kaj
 
-kiujn vi ricevis pro la malbonfaroj, kiuj nun naýzus al 
+kion vi eble elportis por ĝin pagi, se nun vi estas estim-
 
-via konscienco; æu estus al vi agrabla la memoro, ke 
+inda homo! En la okuloj de la mondo vi estas nova homo
 
-vi pro tio estis iam pendigita? Æu honto vin ne perse- 
+kaj en la okuloj de Dio vi estas renobliĝinta Spirito.
 
-kutus æe via penso, ke la mondo scias la malica¼on, kiun 
+Sen la memoro pri ia ĝena pasinteco, vi agas pli libere;
 
-vi faris? Kio do grava tio estas, kion vi eble faris kaj 
+vi staras ĝe nova deirpunkto; viaj antaŭaj þuldoj estas
 
-kion vi eble elportis por øin pagi, se nun vi estas estim- 
+pagitaj, koncernas vin ne fari al vi novajn.
 
-inda homo\! En la okuloj de la mondo vi estas nova homo 
+Kiom da homoj dezirus same povi, dum la vivo,
 
-kaj en la okuloj de Dio vi estas renobliøinta Spirito. 
+sterni ian vualon sur siaj unuaj jaroj! Kiom multaj, ĝe
 
-Sen la memoro pri ia øena pasinteco, vi agas pli libere; 
+la fino de sia migrado, diris en sia animo: "Se mi devus
 
-vi staras æe nova deirpunkto; viaj antaýaj þuldoj estas 
+rekomenci, mi ja ne farus, kion mi faris!" Nu, kion ili
 
-pagitaj, koncernas vin ne fari al vi novajn. 
+ne povas refari dum ĝi tiu vivo, tion ili refaros dum iu
 
-Kiom da homoj dezirus same povi, dum la vivo, 
+alia; ĝe iu nova ekzistado iliaj Spiritoj kunportos en for-
 
-sterni ian vualon sur siaj unuaj jaroj\! Kiom multaj, æe 
+mo de intuicio la bonajn decidojn, kiujn ili prenis. Jen
 
-la fino de sia migrado, diris en sia animo: "Se mi devus 
+kiel þtupo post þtupo fariĝas la progresado de la homaro.
 
-rekomenci, mi ja ne farus, kion mi faris\!" Nu, kion ili 
+Ni supozu ankaŭ — kio estas io tre ordinara —, ke
 
-ne povas refari dum æi tiu vivo, tion ili refaros dum iu 
+inter viaj konatoj, inter viaj familianoj mem, iu donis
 
-alia; æe iu nova ekzistado iliaj Spiritoj kunportos en for- 
+al vi motivon por via plendo kontraŭ li, eble vin ruinigis
 
-mo de intuicio la bonajn decidojn, kiujn ili prenis. Jen 
+aŭ nigrigis vian honoron en iu alia akzistado, kaj nun,
 
-kiel þtupo post þtupo fariøas la progresado de la homaro. 
+pentinta Spirito, enkarniĝis en via medio, ligiĝis al vi
 
-Ni supozu ankaý — kio estas io tre ordinara —, ke 
+kiel samfamiliano, por kompensi al vi, per sia sindoneco
 
-inter viaj konatoj, inter viaj familianoj mem, iu donis 
+kaj korligiteco, la malutilojn, kiujn li faris kontraŭ vi:
 
-al vi motivon por via plendo kontraý li, eble vin ruinigis 
+ĝu vi ne starus unu kontraŭ la dua en plej ĝena situacio,
 
-aý nigrigis vian honoron en iu alia akzistado, kaj nun, 
+se vi ambaŭ memorus vian malamikecon? Anstataŭ kviet-
 
-pentinta Spirito, enkarniøis en via medio, ligiøis al vi 
+iĝi, la malamoj eterniĝus.
 
-kiel samfamiliano, por kompensi al vi, per sia sindoneco 
+Vi el tio povas konkludi, ke la memoro pri la pasint-
 
-kaj korligiteco, la malutilojn, kiujn li faris kontraý vi: 
+eco malordigus la sociajn interrilatojn kaj malhelpus la
 
-æu vi ne starus unu kontraý la dua en plej øena situacio, 
+progreson. Æu vi volas pri tio efektivan pruvon? Ni pre-
 
-se vi ambaý memorus vian malamikecon? Anstataý kviet- 
+zentu al ni, ke unu homo, kondamnita al punlaboroj, ek-
 
-iøi, la malamoj eterniøus. 
+prenas la firman decidon fariĝi honesta: kio okazos ĝe
 
-Vi el tio povas konkludi, ke la memoro pri la pasint- 
+lia liberiĝo? La socio lin repuþos, kaj tia repuþo preskaŭ
 
-eco malordigus la sociajn interrilatojn kaj malhelpus la 
+ĝiam redronigas lin en la malvirton. Ni supozu, kon-
 
-progreson. Æu vi volas pri tio efektivan pruvon? Ni pre- 
 
-zentu al ni, ke unu homo, kondamnita al punlaboroj, ek- 
+KIO ESTAS SPIRITISMO ?
 
-prenas la firman decidon fariøi honesta: kio okazos æe 
 
-lia liberiøo? La socio lin repuþos, kaj tia repuþo preskaý 
+traŭe, ke neniu scias liajn antecedentojn: li do estos
 
-æiam redronigas lin en la malvirton. Ni supozu, kon- 
+plaĝe akceptata; se li mem povus ilin forgesi, li pro tio
 
+ne estus malpli honesta kaj povus vivi, tenante la kapon
 
+alte anstataŭ klinite, sub la honto de la rememoro.
 
-KIO ESTAS SPIRITISMO ? 
+Æi tio absolute akordas kun la doktrino de la Spirit-
 
-67 
+oj pri la mondoj superaj ol nia. En tiuj mondoj regas
 
+nur bono, la memoro pri la pasinteco estas neniel mal-
 
+agrabla; jen kial oni tie memoras sian antaŭan ekzist-
 
-traýe, ke neniu scias liajn antecedentojn: li do estos 
+adon tiel same, kiel ni memoras tion, kion ni faris hie-
 
-plaæe akceptata; se li mem povus ilin forgesi, li pro tio 
+raŭ. Rilate la migradon, kiun oni eble faris en la mal-
 
-ne estus malpli honesta kaj povus vivi, tenante la kapon 
+superaj mondoj, la memoro pri ĝi estas tia sama, kiel
 
-alte anstataý klinite, sub la honto de la rememoro. 
+pri ia malbela sonĝo.
 
-Æi tio absolute akordas kun la doktrino de la Spirit- 
 
-oj pri la mondoj superaj ol nia. En tiuj mondoj regas 
+**Rimedoj por konv **
 
-nur bono, la memoro pri la pasinteco estas neniel mal- 
 
-agrabla; jen kial oni tie memoras sian antaýan ekzist- 
+**V. **— Mi konsentas, sinjoro, ke el la vidpunkto filo-
 
-adon tiel same, kiel ni memoras tion, kion ni faris hie- 
+zofia la spiritisma doktrino estas absolute racionala, ta-
 
-raý. Rilate la migradon, kiun oni eble faris en la mal- 
+men ĝiam restas la demando pri la manifestiĝoj, kiun nur
 
-superaj mondoj, la memoro pri øi estas tia sama, kiel 
+la faktoj povas solvi; nu, ĝuste la realecon de la faktoj
 
-pri ia malbela sonøo. 
+multaj homoj kontestas; vi do devus ne trovi miriga
 
+la deziron, kiun oni esprimas, ilin atesti.
 
 
-**Rimedoj por konvinko **
+**A. K. **— Mi opinias ĝin tute natura, tamen, ĝar mi
 
-****
+penas, ke la faktoj estu profitaj, mi tial klarigas, kiujn
 
-**V. **— Mi konsentas, sinjoro, ke el la vidpunkto filo- 
+kondiĝojn oni devas kontentigi, por pli bone observi kaj
 
-zofia la spiritisma doktrino estas absolute racionala, ta- 
+precipe por ilmpreni; nu, kiu ne volas kontentigi
 
-men æiam restas la demando pri la manifestiøoj, kiun nur 
+tiujn kondiĝojn, tiu ja ne serioze deziras instruiĝi, kaj
 
-la faktoj povas solvi; nu, øuste la realecon de la faktoj 
+tiam estas senutile perdi sian tempon kun li.
 
-multaj homoj kontestas; vi do devus ne trovi miriga 
+Vi ja ankaŭ konsentos, sinjoro, ke io stranga tio
 
-la deziron, kiun oni esprimas, ilin atesti. 
+estus, se iu racionala filozofio elkoviĝus el iluziaj kaj
 
+kontesteblaj faktoj. Laŭ sana logiko la realeco de iu
 
+efiko kuntrenas la realecon de ĝia kaŭzo; se unu estas
 
-**A. K. **— Mi opinias øin tute natura, tamen, æar mi 
+vera, la alia ne povas do esti malvera, ĝar, kie arbo tute
 
-penas, ke la faktoj estu profitaj, mi tial klarigas, kiujn 
+ne estas, tie oni povus rikolti neniajn fruktojn.
 
-kondiæojn oni devas kontentigi, por pli bone observi kaj 
+Ne ĝiuj homoj, estas vero, povis konstati la faktojn,
 
-precipe por ilin kompreni; nu, kiu ne volas kontentigi 
+ĝar ja ne ĝiuj kontentigis la kondiĝojn necesajn por ties
 
-tiujn kondiæojn, tiu ja ne serioze deziras instruiøi, kaj 
+observado kaj al tio ne oferis la necesajn paciencon kaj
 
-tiam estas senutile perdi sian tempon kun li. 
+persiston. Sed ĝi tie okazas same, kiel en ĝiuj sciencoj:
 
-Vi ja ankaý konsentos, sinjoro, ke io stranga tio 
+kion unuj ne faras, tion faras aliaj; oni ĝiutage akceptas
 
-estus, se iu racionala filozofio elkoviøus el iluziaj kaj 
+la rezultaton de la astronomiaj kalkuloj, ilin ne farinte
 
-kontesteblaj faktoj. Laý sana logiko la realeco de iu 
 
-efiko kuntrenas la realecon de øia kaýzo; se unu estas 
+ALLAN KARDEC
 
-vera, la alia ne povas do esti malvera, æar, kie arbo tute 
 
-ne estas, tie oni povus rikolti neniajn fruktojn. 
+mem. Kiel ajn ĝi estas, se vi trovas bona la filozofion,
 
-Ne æiuj homoj, estas vero, povis konstati la faktojn, 
+vi do povas akcepti ĝin, tiel same, kiel vi akceptus alian,
 
-æar ja ne æiuj kontentigis la kondiæojn necesajn por ties 
+rezervante vian opinion pri la vojoj kaj rimedoj, kiuj
 
-observado kaj al tio ne oferis la necesajn paciencon kaj 
+kondukis al ĝi, aŭ almenaŭ, akceptante ĝi tiujn nur kiel
 
-persiston. Sed æi tie okazas same, kiel en æiuj sciencoj: 
+hipotezon ĝis plena konstato.
 
-kion unuj ne faras, tion faras aliaj; oni æiutage akceptas 
+La rimedoj por konv ne estas unuj samaj por
 
-la rezultaton de la astronomiaj kalkuloj, ilin ne farinte 
+ĝiuj homoj; kio konvinkas unujn, tio neniel impresas ali-
 
-68 
+ajn: jen kial estas necese iom de ĝio. Sed estas eraro
 
-ALLAN KARDEC 
+pensi, ke la sola rimedo por konv estas la fizikaj
 
+eksperimentoj. Mi vidis homojn, kiujn la plej frapantaj
 
+fenomenoj ne kapablis þanceli, kaj kiujn simpla respondo
 
-mem. Kiel ajn øi estas, se vi trovas bona la filozofion, 
+skribita konvinkis. Kiam oni vidas iun fakton, kiun oni
 
-vi do povas akcepti øin, tiel same, kiel vi akceptus alian, 
+ne komprenas, ju pli eksterordinara ĝi estas, des pli sus-
 
-rezervante vian opinion pri la vojoj kaj rimedoj, kiuj 
+pektinda ĝi aspektas, kaj tiam la menso tie ĝiam el-
 
-kondukis al øi, aý almenaý, akceptante æi tiujn nur kiel 
+serĝas ian kaŭzon ordinaran; se oni ĝin klarigas al si,
 
-hipotezon øis plena konstato. 
+oni ĝin pli facile akceptas, ĝar ĝi havas ian pravon de
 
-La rimedoj por konvinko ne estas unuj samaj por 
+ekzisto: tio mirakleca kaj tio supernatura forviþiĝas.
 
-æiuj homoj; kio konvinkas unujn, tio neniel impresas ali- 
+Certe la klarigoj, kiujn mi ¼us donis al vi dum ĝi tiu
 
-ajn: jen kial estas necese iom de æio. Sed estas eraro 
+konversacio, tute ne estas kompletaj; tamen, kiel ajn
 
-pensi, ke la sola rimedo por konvinko estas la fizikaj 
+supra¼aj ili estas, mi estas konvinkita, ke ili instigos
 
-eksperimentoj. Mi vidis homojn, kiujn la plej frapantaj 
+vin al pripensado, kaj se la cirkonstancoj havigas al vi
 
-fenomenoj ne kapablis þanceli, kaj kiujn simpla respondo 
+okazon, por vidi kelkajn manifestiĝojn, vi ilin vidos per
 
-skribita konvinkis. Kiam oni vidas iun fakton, kiun oni 
+okuloj kun malpli da antaŭjuĝo, ĝar vi povos starigi
 
-ne komprenas, ju pli eksterordinara øi estas, des pli sus- 
+rezonadon sur iu bazo.
 
-pektinda øi aspektas, kaj tiam la menso tie æiam el- 
+Ekzistas du aferoj en Spiritismo, nome: la ekspe-
 
-seræas ian kaýzon ordinaran; se oni øin klarigas al si, 
+rimenta parto de la manifestiĝoj kaj la filozofia doktri-
 
-oni øin pli facile akceptas, æar øi havas ian pravon de 
+no. Nu, ĝiutage vizitas min personoj, kiuj vidis nenion,
 
-ekzisto: tio mirakleca kaj tio supernatura forviþiøas. 
+sed kiuj kredas tiel solide, kiel mi, dank’al la sola stud-
 
-Certe la klarigoj, kiujn mi ¼us donis al vi dum æi tiu 
+ado, kiun ili faris pri la filozofia parto; laŭ ilia sento,
 
-konversacio, tute ne estas kompletaj; tamen, kiel ajn 
+la manifestiĝoj estas io akcesora, la fundo estas la doktri-
 
-supra¼aj ili estas, mi estas konvinkita, ke ili instigos 
+no, la scienco; ili vidas ĝin tiel granda, tiel racionala,
 
-vin al pripensado, kaj se la cirkonstancoj havigas al vi 
+ke ili en ĝi trovas ĝion, kio povas kontentigi iliajn anim-
 
-okazon, por vidi kelkajn manifestiøojn, vi ilin vidos per 
+ajn aspirojn, aparte de la manifestiĝoj mem; el tio ili
 
-okuloj kun malpli da antaýjuøo, æar vi povos starigi 
+konkludas, ke, eĝ ĝe la supozo, ke la manifestiĝoj ne
 
-rezonadon sur iu bazo. 
+ekzistas, tamen la doktrino estus ankoraŭ tiu, kiu plej
 
-Ekzistas du aferoj en Spiritismo, nome: la ekspe- 
+bone solvas multegon da problemoj, kiujn oni opinias
 
-rimenta parto de la manifestiøoj kaj la filozofia doktri- 
+nesolveblaj.
 
-no. Nu, æiutage vizitas min personoj, kiuj vidis nenion, 
+Kiom da homoj diris al mi, ke tiuj ideoj ja ekĝermis
 
-sed kiuj kredas tiel solide, kiel mi, dank’al la sola stud- 
+en ilia cerbo, sed ĝio tie estis konfuza! Spiritismo ord-
 
-ado, kiun ili faris pri la filozofia parto; laý ilia sento, 
 
-la manifestiøoj estas io akcesora, la fundo estas la doktri- 
+KIO ESTAS SPIRITISMO ?
 
-no, la scienco; ili vidas øin tiel granda, tiel racionala, 
 
-ke ili en øi trovas æion, kio povas kontentigi iliajn anim- 
+igis, korpigis tiujn ideojn, kaj por tiuj homoj estis kva-
 
-ajn aspirojn, aparte de la manifestiøoj mem; el tio ili 
+zaŭ ia lumradio. Jen kio klarigas la nombron da adeptoj,
 
-konkludas, ke, eæ æe la supozo, ke la manifestiøoj ne 
+kiujn varbis al ĝi la sola legado de **La Libro de la Spi - **
 
-ekzistas, tamen la doktrino estus ankoraý tiu, kiu plej 
+**ritoj **. Æu vi opinias, ke tiel okazus, se oni restadus plu
 
-bone solvas multegon da problemoj, kiujn oni opinias 
+ĝe la turniĝantaj kaj parolantaj tabloj?
 
-nesolveblaj. 
 
-Kiom da homoj diris al mi, ke tiuj ideoj ja ekøermis 
+**V. **— Vi estis prava, sinjoro, dirante, ke el la turn-
 
-en ilia cerbo, sed æio tie estis konfuza\! Spiritismo ord- 
+iĝantaj tabloj ekfontis filozofia doktrino, kaj mi tute ne
 
+imagis al mi la sekvojn, kiuj povus rezulti el afero, kiun
 
+oni rigardis kiel nuran scivolobjekton. Mi nun vidas, kiel
 
-KIO ESTAS SPIRITISMO ? 
+vasta estas la kampo, kiun malfermis via sistemo.
 
-69 
 
+**A. K. **— Æi tie mi interrompas vin, sinjoro; vi min
 
+tro honoras atribuante tiun sistemon al mi, ĝar ĝi ne al
 
-igis, korpigis tiujn ideojn, kaj por tiuj homoj estis kva- 
+mi apartenas: ĝi tute elfluis el la instruado de la Spi-
 
-zaý ia lumradio. Jen kio klarigas la nombron da adeptoj, 
+ritoj; mi vidis, observis, kunaranĝis, kaj penas kompren-
 
-kiujn varbis al øi la sola legado de **La Libro de la Spi - **
+igi al la ceteraj homoj, tion, kion mi mem komprenas:
 
-**ritoj **. Æu vi opinias, ke tiel okazus, se oni restadus plu 
+jen el tio la tuta parto, kiu mncernas. Inter Spirit-
 
-æe la turniøantaj kaj parolantaj tabloj? 
+ismo kaj la ceteraj filozofiaj sistemoj ekzistas jena esen-
 
+ca diferenco, ke ĝi tiuj lastaj ĝiuj estas verko de pli aŭ
 
+malpli klarmensaj homoj, dum en tiu, kiun vi atribuas
 
-**V. **— Vi estis prava, sinjoro, dirante, ke el la turn- 
+al mi, mi ne meritiĝas je la elpenso eĝ de unu sola prin-
 
-iøantaj tabloj ekfontis filozofia doktrino, kaj mi tute ne 
+cipo. Oni diras: la filozofio de Platono, de Descartes, de
 
-imagis al mi la sekvojn, kiuj povus rezulti el afero, kiun 
+Leibniz, sed oni tute ne diras la doktrino de Allan Kar-
 
-oni rigardis kiel nuran scivolobjekton. Mi nun vidas, kiel 
+dec, kaj ĝi tio estas feliĝo, ĝar, kiom pezus ia nomo en
 
-vasta estas la kampo, kiun malfermis via sistemo. 
+tiel grava demando? Spiritismo havas helpantojn multe
 
+pli elstarajn, ĝe kies flanko ni estas nenio krom iaj
 
-
-**A. K. **— Æi tie mi interrompas vin, sinjoro; vi min 
-
-tro honoras atribuante tiun sistemon al mi, æar øi ne al 
-
-mi apartenas: øi tute elfluis el la instruado de la Spi- 
-
-ritoj; mi vidis, observis, kunaranøis, kaj penas kompren- 
-
-igi al la ceteraj homoj, tion, kion mi mem komprenas: 
-
-jen el tio la tuta parto, kiu min koncernas. Inter Spirit- 
-
-ismo kaj la ceteraj filozofiaj sistemoj ekzistas jena esen- 
-
-ca diferenco, ke æi tiuj lastaj æiuj estas verko de pli aý 
-
-malpli klarmensaj homoj, dum en tiu, kiun vi atribuas 
-
-al mi, mi ne meritiøas je la elpenso eæ de unu sola prin- 
-
-cipo. Oni diras: la filozofio de Platono, de Descartes, de 
-
-Leibniz, sed oni tute ne diras la doktrino de Allan Kar- 
-
-dec, kaj æi tio estas feliæo, æar, kiom pezus ia nomo en 
-
-tiel grava demando? Spiritismo havas helpantojn multe 
-
-pli elstarajn, æe kies flanko ni estas nenio krom iaj 
-
-atomoj. 
-
+atomoj.
 
 
 **Societo por la kontinuigo de la spiritismaj laboroj **
 
 **De Allan Kardec, Strato de Lille, 7. **
 
-****
 
-**V. **— Vi havas societon, kiu sin okupas pri æi tiuj 
+**V. **— Vi havas societon, kiu sin okupas pri ĝi tiuj
 
-studoj; æu mi povus esti ano de øi? 
-
+studoj; ĝu mi povus esti ano de ĝi?
 
 
-**A. K. **— Por la momento ja ne, æar se, por esti ak- 
+**A. K. **— Por la momento ja ne, ĝar se, por esti ak-
 
-ceptata, oni ne bezonas esti doktoro de Spiritismo, oni 
+ceptata, oni ne bezonas esti doktoro de Spiritismo, oni
 
-tamen devas almenaý havi pri æi tiu afero ideojn pli 
+tamen devas almenaŭ havi pri ĝi tiu afero ideojn pli
 
-solidajn ol la viaj. Æar la societo ne volas esti malordig- 
-
-70 
-
-ALLAN KARDEC 
+solidajn ol la viaj. Æar la societo ne volas esti malordig-
 
 
+ALLAN KARDEC
 
-ata en siaj studoj, øi tial ne povas akcepti homojn, kiuj 
 
-igus øin perdi tempon por elementaj demandoj, kaj an- 
+ata en siaj studoj, ĝi tial ne povas akcepti homojn, kiuj
 
-kaý ne tiujn, kiuj, ne simpatiante øiajn principojn kaj 
+igus ĝin perdi tempon por elementaj demandoj, kaj an-
 
-konvinkojn, tumultigus øin per maløustatempaj diskutoj 
+kaŭ ne tiujn, kiuj, ne simpatiante ĝiajn principojn kaj
 
-aý per ia kontraýemo. Øi estas societo scienca, kiel tiom 
+konvjn, tumultigus ĝin per malĝustatempaj diskutoj
 
-da aliaj, kiu sin okupas pri la profunda studado de la 
+aŭ per ia kontraŭemo. Øi estas societo scienca, kiel tiom
 
-diversaj punktoj de la spiritisma scienco kaj penas ins- 
+da aliaj, kiu sin okupas pri la profunda studado de la
 
-truiøi; øi estas la centro, kien venas la informoj el æiuj 
+diversaj punktoj de la spiritisma scienco kaj penas ins-
 
-flankoj de la mondo kaj kie ellaboriøas kaj kunordiøas 
+truiĝi; ĝi estas la centro, kien venas la informoj el ĝiuj
 
-tiuj demandoj, rilatantaj al la progresado de la scienco, 
+flankoj de la mondo kaj kie ellaboriĝas kaj kunordiĝas
 
-sed øi ja ne estas ia lernejo aý kursejo de elementa ins- 
+tiuj demandoj, rilatantaj al la progresado de la scienco,
 
-truado. Post kelka tempo, kiam via konvinkiteco ella- 
+sed ĝi ja ne estas ia lernejo aŭ kursejo de elementa ins-
 
-boriøos per la studado, øi esploros, æu estas oportune 
+truado. Post kelka tempo, kiam via konvinkiteco ella-
 
-enlasi vin. Vi dume povos maksimume æeesti unu aý du 
+boriĝos per la studado, ĝi esploros, ĝu estas oportune
 
-el øiaj kunsidoj kiel aýdanto, se nur vi tie faros nenian 
+enlasi vin. Vi dume povos maksimume ĝeesti unu aŭ du
 
-rimarkon, kiu ofendus iun, alie mi kiu vin estus enkon- 
+el ĝiaj kunsidoj kiel aŭdanto, se nur vi tie faros nenian
 
-dukinta, riskus riproæojn de miaj kolegoj, kaj øia pordo 
+rimarkon, kiu ofendus iun, alie mi kiu vin estus enkon-
 
-estus de tiam fermita al vi por æiam. Vi tie vidos ko- 
+dukinta, riskus riproĝojn de miaj kolegoj, kaj ĝia pordo
 
-lekton da gravaj kaj bonsocietaj homoj, kies plimulto 
+estus de tiam fermita al vi por ĝiam. Vi tie vidos ko-
 
-rekomendas sin pro la supereco de sia klereco kaj pro 
+lekton da gravaj kaj bonsocietaj homoj, kies plimulto
 
-sia socia pozicio, kaj kiuj ne tolerus, ke tiuj, kiujn øi 
+rekomendas sin pro la supereco de sia klereco kaj pro
 
-bonvolas akcepti, eæ la plej malmulte dekliniøu de la 
+sia socia pozicio, kaj kiuj ne tolerus, ke tiuj, kiujn ĝi
 
-dececo; æar ne pensu, ke al siaj seancoj øi invitas la pu- 
+bonvolas akcepti, eĝ la plej malmulte dekliniĝu de la
 
-blikon kaj enlasas la unuan veninton. Ne farante el- 
+dececo; ĝar ne pensu, ke al siaj seancoj ĝi invitas la pu-
 
-montra¼ojn, por kontentigi scivolulojn, øi æi tiujn zorge 
+blikon kaj enlasas la unuan veninton. Ne farante el-
 
-forpuþas de si. Kiuj do pensus, ke ili tie trovus ian 
+montra¼ojn, por kontentigi scivolulojn, ĝi ĝi tiujn zorge
 
-temp opasigilon kaj ian spektaklon, tiuj estus desapont- 
+forpuþas de si. Kiuj do pensus, ke ili tie trovus ian
 
-itaj kaj pli bone farus tien ne irante. Jen kial øi rifuzas 
+temp opasigilon kaj ian spektaklon, tiuj estus desapont-
 
-akcepti, eæ kiel nurajn aýdantojn, personojn, kiujn øi 
+itaj kaj pli bone farus tien ne irante. Jen kial ĝi rifuzas
 
-ne konas aý kies malamikaj sentoj kontraý la Doktrino 
+akcepti, eĝ kiel nurajn aŭdantojn, personojn, kiujn ĝi
 
-estas æiekonataj. 
+ne konas aŭ kies malamikaj sentoj kontraŭ la Doktrino
 
+estas ĝiekonataj.
 
 
 **Malpermeso de Spiritismo **
 
-****
 
-**V. **— Unu lasta demando, mi petas. Spiritismo hav- 
+**V. **— Unu lasta demando, mi petas. Spiritismo hav-
 
-as potencajn malamikojn: æu ili ne povus fari, ke oni 
+as potencajn malamikojn: ĝu ili ne povus fari, ke oni
 
-malpermesu øian praktikadon kaj øiajn societojn, kaj, 
+malpermesu ĝian praktikadon kaj ĝiajn societojn, kaj,
 
-per æi tiu rimedo, ke æesu øia disvastiøo? 
-
+per ĝi tiu rimedo, ke ĝesu ĝia disvastiĝo?
 
 
-KIO ESTAS SPIRITISMO ? 
-
-71 
+KIO ESTAS SPIRITISMO ?
 
 
+**A. K. **— Tio estus la rimedo, por iom pli rapide
 
-**A. K. **— Tio estus la rimedo, por iom pli rapide 
+perdi la ludon, ĝar perforto estas la argumento de tiuj,
 
-perdi la ludon, æar perforto estas la argumento de tiuj, 
+kiuj povas kontraŭmeti nenion valoran. Se Spiritismo
 
-kiuj povas kontraýmeti nenion valoran. Se Spiritismo 
+estas ia ¶imero, ĝi falos per si mem sen la neceso de tia
 
-estas ia ¶imero, øi falos per si mem sen la neceso de tia 
+granda peno, kiun oni por tio donas al si; se oni ĝin
 
-granda peno, kiun oni por tio donas al si; se oni øin 
+persekutas, oni do ĝin timas, kaj oni timas nur ion se-
 
-persekutas, oni do øin timas, kaj oni timas nur ion se- 
+riozan. Se ĝi estas reala¼o, ĝi troviĝas, kiel mi jam
 
-riozan. Se øi estas reala¼o, øi troviøas, kiel mi jam 
+diris, en la Naturo, kaj oni ne nuligas iun leĝon naturan
 
-diris, en la Naturo, kaj oni ne nuligas iun leøon naturan 
+per ia nura plumstreko.
 
-per ia nura plumstreko. 
+Se la manifestiĝoj de Spiritoj estus privilegio de unu
 
-Se la manifestiøoj de Spiritoj estus privilegio de unu 
+sola homo, tiam, forigante tiun homon, oni sendube met-
 
-sola homo, tiam, forigante tiun homon, oni sendube met- 
+us finon al tiuj manifestiĝoj; bedaŭrinde por la kontraŭ-
 
-us finon al tiuj manifestiøoj; bedaýrinde por la kontraý- 
+uloj, tiuj fenomenoj estas ia mistero por neniu: nenio
 
-uloj, tiuj fenomenoj estas ia mistero por neniu: nenio 
+sekreta, nenio kaþita, ĝio okazas tagohele; ili estas al
 
-sekreta, nenio kaþita, æio okazas tagohele; ili estas al 
+la dispono de ĝiuj kaj estas konataj ekde palacoj ĝis
 
-la dispono de æiuj kaj estas konataj ekde palacoj øis 
+mansardoj. Oni povas malpermesi ilian plenumadon an-
 
-mansardoj. Oni povas malpermesi ilian plenumadon an- 
+taŭ la publiko, sed oni precize scias, ke ne antaŭ la publi-
 
-taý la publiko, sed oni precize scias, ke ne antaý la publi- 
+ko ili la plej bone fariĝas, sed en intima rondo; nu, ĝar
 
-ko ili la plej bone fariøas, sed en intima rondo; nu, æar 
+ĝiu povas esti mediumo, tial, kiu povas malhelpi iun
 
-æiu povas esti mediumo, tial, kiu povas malhelpi iun 
+familion en sia domo, iun homon en la silento de sia ka-
 
-familion en sia domo, iun homon en la silento de sia ka- 
+bineto, iun malliberulon en la karcero, komunikiĝi kun
 
-bineto, iun malliberulon en la karcero, komunikiøi kun 
+la Spiritoj sen la scio kaj antaŭ la nazo de la provosoj?
 
-la Spiritoj sen la scio kaj antaý la nazo de la provosoj? 
+Ni tamen konsentu, ke iu registaro estas sufiĝe forta,
 
-Ni tamen konsentu, ke iu registaro estas sufiæe forta, 
+por malhelpi tiujn manifestiĝojn en sia lando: ĝu ĝi ilin
 
-por malhelpi tiujn manifestiøojn en sia lando: æu øi ilin 
+malhelpus en la najbaraj landoj, en la tuta mondo, ĝar
 
-malhelpus en la najbaraj landoj, en la tuta mondo, æar 
+en nenia lando, en la du hemisferoj, ne ekzistas me-
 
-en nenia lando, en la du hemisferoj, ne ekzistas me- 
+diumoj?
 
-diumoj? 
+Cetere Spiritismo havas sian fonton ne inter la hom-
 
-Cetere Spiritismo havas sian fonton ne inter la hom- 
+oj; ĝi estas farita¼o de la Spiritoj, estuloj, kiujn oni
 
-oj; øi estas farita¼o de la Spiritoj, estuloj, kiujn oni 
+povas nek bruligi, nek enkarcerigi. Øi konsistas en la
 
-povas nek bruligi, nek enkarcerigi. Øi konsistas en la 
+individua kredo, sed ne en la societoj, kiuj estas neniel
 
-individua kredo, sed ne en la societoj, kiuj estas neniel 
+necesaj. Se oni sukcesus eldetrui ĝiujn spiritismajn libr-
 
-necesaj. Se oni sukcesus eldetrui æiujn spiritismajn libr- 
+ojn, la Spiritoj diktus ilin denove.
 
-ojn, la Spiritoj diktus ilin denove. 
+Per unu vorto, Spiritismo estas hodiaŭ plenumita
 
-Per unu vorto, Spiritismo estas hodiaý plenumita 
+fakto; ĝi gajnis sian lokon ĝe la publika opinio kaj inter
 
-fakto; øi gajnis sian lokon æe la publika opinio kaj inter 
+la filozofiaj doktrinoj; tiuj, al kiuj ĝi ne konvenas, devas
 
-la filozofiaj doktrinoj; tiuj, al kiuj øi ne konvenas, devas 
+rezignacii, vidante ĝin ĝe ilia flanko, kaj restante tute
 
-rezignacii, vidante øin æe ilia flanko, kaj restante tute 
-
-liberaj ne ekrilati kun øi. 
-
-72 
-
-ALLAN KARDEC 
+liberaj ne ekrilati kun ĝi.
 
 
+ALLAN KARDEC
 
-TRIA DIALOGO 
 
+TRIA DIALOGO
 
 
 **LA PASTRO **
 
-****
 
-**Abato **— Æu vi, sinjoro, permesus al mi miavice fari 
+**Abato **— Æu vi, sinjoro, permesus al mi miavice fari
 
-al vi kelke da demandoj? 
+al vi kelke da demandoj?
 
 
+**A. K. **— Jes, volonte, via abata moþto, sed antaŭ ol
 
-**A. K. **— Jes, volonte, via abata moþto, sed antaý ol 
+respondi al vi, mi opinias utile konigi al vi la terenon,
 
-respondi al vi, mi opinias utile konigi al vi la terenon, 
+sur kiu mi intencas stari kune kun vi.
 
-sur kiu mi intencas stari kune kun vi. 
+Mi antaŭ ĝio diru al vi, ke mi tute ne penos konverti
 
-Mi antaý æio diru al vi, ke mi tute ne penos konverti 
+vin al miaj ideoj. Se vi volas ilin detale koni, vi ilin
 
-vin al miaj ideoj. Se vi volas ilin detale koni, vi ilin 
+trovos en la verkoj, kie ili estas pritraktitaj; tie vi povos
 
-trovos en la verkoj, kie ili estas pritraktitaj; tie vi povos 
+ilin ne rapidante studi, kaj vi estos libera ilin akcepti
 
-ilin ne rapidante studi, kaj vi estos libera ilin akcepti 
+aŭ malakcepti.
 
-aý malakcepti. 
+Spiritismo celas batali kontraŭ la nekredemo kaj ties
 
-Spiritismo celas batali kontraý la nekredemo kaj ties 
+pereigaj sekvoj, prezentante evidentajn pruvojn pri la
 
-pereigaj sekvoj, prezentante evidentajn pruvojn pri la 
+ekzisto de la animo kaj pri ties estonta vivo; ĝi do sin
 
-ekzisto de la animo kaj pri ties estonta vivo; øi do sin 
+turnas al tiuj homoj, kiuj kredas nenion aŭ kiuj dubas
 
-turnas al tiuj homoj, kiuj kredas nenion aý kiuj dubas 
+la religiajn vera¼ojn, kaj la nombro de tiaj estas granda,
 
-la religiajn vera¼ojn, kaj la nombro de tiaj estas granda, 
+kiel vi scias; kiuj havas ian religian kredon kaj al kiuj
 
-kiel vi scias; kiuj havas ian religian kredon kaj al kiuj 
+**tiu kredo sufiĝas, **tiuj ne bezonas Spiritismon. Al homo,
 
-**tiu kredo sufiæas, **tiuj ne bezonas Spiritismon. Al homo, 
+kiu diras: "Mi kredas la aŭtoritatecon de la Eklezio kaj
 
-kiu diras: "Mi kredas la aýtoritatecon de la Eklezio kaj 
+mi tenas min je ĝiaj instruoj, nenion serĝante ekster ĝi
 
-mi tenas min je øiaj instruoj, nenion seræante ekster æi 
+tiuj", Spiritismo respondas, ke ĝi altrudas sin al neniu
 
-tiuj", Spiritismo respondas, ke øi altrudas sin al neniu 
+kaj devigas neniun konvinkiĝi pri ĝia vereco.
 
-kaj devigas neniun konvinkiøi pri øia vereco. 
+La libereco de konscienco estas sekvo de la libereco
 
-La libereco de konscienco estas sekvo de la libereco 
+de pensado, kiu estas unu el la propra¼oj de la homo;
 
-de pensado, kiu estas unu el la propra¼oj de la homo; 
+Spiritismo kontraŭus siajn principojn pri karito kaj to-
 
-Spiritismo kontraýus siajn principojn pri karito kaj to- 
+leremo, se ĝi ne respektus ĝi tiun liberecon. En ĝiaj
 
-leremo, se øi ne respektus æi tiun liberecon. En øiaj 
+okuloj ĝia kredo, se nur sincera kaj ne instiganta mal-
 
-okuloj æia kredo, se nur sincera kaj ne instiganta mal- 
+utili la proksimulon, estas respektinda, eĝ se erara. Se
 
-utili la proksimulon, estas respektinda, eæ se erara. Se 
+iun lia konscienco kondukus al la kredo, ke, ekzemple,
 
-iun lia konscienco kondukus al la kredo, ke, ekzemple, 
+tio estas la Suno, kiu rondiras ĝirkaŭ la Tero, ni dirus
 
-tio estas la Suno, kiu rondiras æirkaý la Tero, ni dirus 
+al tiu: "Kredu tion, se ĝi al vi plaĝas, ĝar tiu via kredo
 
-al tiu: "Kredu tion, se øi al vi plaæas, æar tiu via kredo 
+ne malhelpas, ke la Tero ja rondiras, ĝirkaŭ la Suno;
 
-ne malhelpas, ke la Tero ja rondiras, æirkaý la Suno; 
+tamen, same kiel ni ne penas perforti vian konvinkiĝon,
 
-tamen, same kiel ni ne penas perforti vian konvinkiøon, 
+tiel vi ne penu perforti aliulan. Se el iu kredo, per si
 
-tiel vi ne penu perforti aliulan. Se el iu kredo, per si 
+mem senkulpa, vi faras ilon por persekutado, ĝi fariĝas
 
-mem senkulpa, vi faras ilon por persekutado, øi fariøas 
+malutila kaj povas esti kontraŭbatalata".
 
-malutila kaj povas esti kontraýbatalata". 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+Jen, via abata moþto, la normo de konduto, kiun mi
 
-73 
+tenadas kontraŭ la servantoj de la diversaj kultoj, kiuj
 
+venas al mi. Kiam ili demandis min pri kelkaj el la
 
+punktoj de la Doktrino, mi donis al ili la necesajn klar-
 
-Jen, via abata moþto, la normo de konduto, kiun mi 
+igojn, tute detenante min diskuti certajn dogmojn, pri
 
-tenadas kontraý la servantoj de la diversaj kultoj, kiuj 
+kiuj Spiritismo tute ne zorgas, ĝar ĝiu juĝas libere; sed
 
-venas al mi. Kiam ili demandis min pri kelkaj el la 
+mi neniam iris propramove al ili, celante þanceli ilian
 
-punktoj de la Doktrino, mi donis al ili la necesajn klar- 
+kredon per ia ajn premo. Kiu venas al ni kiel frato, tiun
 
-igojn, tute detenante min diskuti certajn dogmojn, pri 
+ni akceptas frate; kiu nin repuþas, tiun ni lasa trankvila.
 
-kiuj Spiritismo tute ne zorgas, æar æiu juøas libere; sed 
+Jen la konsilo, kiun mi ne ĝesas doni al la spiritistoj,
 
-mi neniam iris propramove al ili, celante þanceli ilian 
+ĝar mi neniam konsentis kun tiuj, kiuj atribuas al si
 
-kredon per ia ajn premo. Kiu venas al ni kiel frato, tiun 
+la mision konverti la klerikaron. Mi al ili ĝiam diras:
 
-ni akceptas frate; kiu nin repuþas, tiun ni lasa trankvila. 
+"Semu en kampon de la nekredemaj, ĝar tie estas riĝa
 
-Jen la konsilo, kiun mi ne æesas doni al la spiritistoj, 
+rikolto por fari."
 
-æar mi neniam konsentis kun tiuj, kiuj atribuas al si 
+Spiritismo sin ne altrudas, ĝar, kiel mi diris, ĝi res-
 
-la mision konverti la klerikaron. Mi al ili æiam diras: 
+pektas la liberecon de konscienco; ĝi cetere scias, ke ĝia
 
-"Semu en kampon de la nekredemaj, æar tie estas riæa 
+altrudita kredo estas supra¼a kaj havigas nur la ekster-
 
-rikolto por fari." 
+a¼on de la fido, sed ne la fidon sinceran. Øi elvolvas si-
 
-Spiritismo sin ne altrudas, æar, kiel mi diris, øi res- 
+ajn principojn antaŭ la okuloj de ĝiuj, en tia maniero, ke
 
-pektas la liberecon de konscienco; øi cetere scias, ke æia 
+ĝiu povu fari al si iun opinion, plene konante la aferon.
 
-altrudita kredo estas supra¼a kaj havigas nur la ekster- 
+Tiuj, kiuj ilin akceptas, ĝu ekleziuloj, ĝu laikoj, agas li-
 
-a¼on de la fido, sed ne la fidon sinceran. Øi elvolvas si- 
+bere, kaj tial, ke ili trovas tiujn principojn racionalaj,
 
-ajn principojn antaý la okuloj de æiuj, en tia maniero, ke 
+sed ni neniel koleras kontraŭ tiuj, ne opiniantaj same
 
-æiu povu fari al si iun opinion, plene konante la aferon. 
+kiel ni. Se hodiaŭ ekzistas lukto inter la Eklezio kaj
 
-Tiuj, kiuj ilin akceptas, æu ekleziuloj, æu laikoj, agas li- 
+Spiritismo, nia konscienco diras, ke ne ni ĝin elmovis.
 
-bere, kaj tial, ke ili trovas tiujn principojn racionalaj, 
 
-sed ni neniel koleras kontraý tiuj, ne opiniantaj same 
+**Pastro **— Se la Eklezio, vidante elkoviĝi ian novan
 
-kiel ni. Se hodiaý ekzistas lukto inter la Eklezio kaj 
+doktrinon, konstatas en ĝi tiu principojn, pri kiuj, en sia
 
-Spiritismo, nia konscienco diras, ke ne ni øin elmovis. 
+konscienco, ĝi pensas, ke ĝi devas ilndamni, ĝu vi
 
+do kontestas al ĝi la rajton ilin diskuti kaj kontraŭbatali,
 
+la rajton averti la fidelulojn kontraŭ io, kion ĝi konsi-
 
-**Pastro **— Se la Eklezio, vidante elkoviøi ian novan 
+deras eraroj?
 
-doktrinon, konstatas en æi tiu principojn, pri kiuj, en sia 
 
-konscienco, øi pensas, ke øi devas ilin kondamni, æu vi 
+**A. K. **— Ni neniel kontestas rajton, kiun ni postul-
 
-do kontestas al øi la rajton ilin diskuti kaj kontraýbatali, 
+as por ni mem. Se la Eklezio estus teninta sin en la
 
-la rajton averti la fidelulojn kontraý io, kion øi konsi- 
+limoj de la diskutado, nenio pli bona estus; sed legu la
 
-deras eraroj? 
+plimulton el la skriba¼oj, venintaj de ĝiaj anoj aŭ pu-
 
+blikigitaj en la nomo de la religio, kaj el la faritaj predikoj,
 
+kaj vi tie vidos insulton kaj kalumnion, elbordiĝantajn
 
-**A. K. **— Ni neniel kontestas rajton, kiun ni postul- 
+el ili ĝiuj, la principojn de la Doktrino ĝie indignige kaj
 
-as por ni mem. Se la Eklezio estus teninta sin en la 
 
-limoj de la diskutado, nenio pli bona estus; sed legu la 
+ALLAN KARDEC
 
-plimulton el la skriba¼oj, venintaj de øiaj anoj aý pu- 
 
-blikigitaj en la nomo de la religio, kaj el la faritaj predikoj, 
+malice falsitaj. Æu oni ne aŭdis el la predikseĝoj, ke la
 
-kaj vi tie vidos insulton kaj kalumnion, elbordiøantajn 
+partianoj de tiu Doktrino estas malamikoj de la socio
 
-el ili æiuj, la principojn de la Doktrino æie indignige kaj 
+kaj de la publika ordo? Æu oni ne vidis la homojn, kiujn
 
-74 
+ĝi regajnis al la kredo, anatemitaj kaj elpelitaj de la
 
-ALLAN KARDEC 
+Eklezio pro tio, ĝar estas preferinde esti nekredanto, ol
 
+kredi je Dio kaj je sia animo per Spiritismo? Æu oni ne
 
+resopiris la þtiparojn de la Inkvizicio, ke ili tie mortus?
 
-malice falsitaj. Æu oni ne aýdis el la predikseøoj, ke la 
+Æu en iuj lokoj oni ne montris ilin al la malamikemo
 
-partianoj de tiu Doktrino estas malamikoj de la socio 
+de iliaj samlokanoj, ĝis ĝi tiuj ilin persekutis kaj insultis
 
-kaj de la publika ordo? Æu oni ne vidis la homojn, kiujn 
+sur la stratoj? Æu oni ne ordonis al ĝiuj fideluloj foriĝi
 
-øi regajnis al la kredo, anatemitaj kaj elpelitaj de la 
+de ili, kvazaŭ de pestuloj; ĝu oni ne deadmonis servant-
 
-Eklezio pro tio, æar estas preferinde esti nekredanto, ol 
+ojn dungi sin ĝe ili? Æu oni ne instigis edzinojn disiĝi
 
-kredi je Dio kaj je sia animo per Spiritismo? Æu oni ne 
+de siaj edzoj, kaj edzojn de siaj edzinoj kaŭze de Spirit-
 
-resopiris la þtiparojn de la Inkvizicio, ke ili tie mortus? 
+ismo? Æu oni ne igis oficistojn perdi siajn servolokojn,
 
-Æu en iuj lokoj oni ne montris ilin al la malamikemo 
+ĝu oni ne forprenis de laboristoj la panon el ilia laboro,
 
-de iliaj samlokanoj, øis æi tiuj ilin persekutis kaj insultis 
+de mizeruloj tiun de la karito, ĝar ili estis spiritistoj?
 
-sur la stratoj? Æu oni ne ordonis al æiuj fideluloj foriøi 
+Æu oni ne forpelis de iuj hospitaloj eĝ blindulojn, ĝar
 
-de ili, kvazaý de pestuloj; æu oni ne deadmonis servant- 
+ili ne volis fornei sian kredon? Diru al mi, via abata
 
-ojn dungi sin æe ili? Æu oni ne instigis edzinojn disiøi 
+moþto, ĝu tio estas la lojala diskutado? Æu la spiritistoj
 
-de siaj edzoj, kaj edzojn de siaj edzinoj kaýze de Spirit- 
+iam repagis insulton per insulto, malbonon per malbono?
 
-ismo? Æu oni ne igis oficistojn perdi siajn servolokojn, 
+Ne. Al ĝio ili kontraŭmetis serenecon kaj moderecon.
 
-æu oni ne forprenis de laboristoj la panon el ilia laboro, 
+La publika konscienco jam faris al ili tiun justa¼on, ke
 
-de mizeruloj tiun de la karito, æar ili estis spiritistoj? 
+ne ili estas la atakintoj.
 
-Æu oni ne forpelis de iuj hospitaloj eæ blindulojn, æar 
 
-ili ne volis fornei sian kredon? Diru al mi, via abata 
+**Pastro **— Æiu saĝa homo bedaŭras tiujn ekscesojn,
 
-moþto, æu tio estas la lojala diskutado? Æu la spiritistoj 
+sed la Eklezio ne povus respondi por la ekscesoj de kel-
 
-iam repagis insulton per insulto, malbonon per malbono? 
+kaj el ĝiaj ne tre klarmensaj anoj.
 
-Ne. Al æio ili kontraýmetis serenecon kaj moderecon. 
 
-La publika konscienco jam faris al ili tiun justa¼on, ke 
+**A. K. **— Mi konsentas, sed, ĝu la purpuruloj estas
 
-ne ili estas la atakintoj. 
+ne tre klarmensaj? Vidu la cirkuleron de la episkopo
 
-****
+de Alĝero kaj kelke da aliaj. Æu ne iu episkopo ordonis
 
-**Pastro **— Æiu saøa homo bedaýras tiujn ekscesojn, 
+la aŭtodafeon en Barcelono? Æu la supera eklezia aŭto-
 
-sed la Eklezio ne povus respondi por la ekscesoj de kel- 
+ritatulo ne havas plenan povon super siaj subuloj? Se
 
-kaj el øiaj ne tre klarmensaj anoj. 
+do li toleras predikojn ne indajn de la evangelia katedro,
 
+se li favoras la publikigon de insultoj kaj misfamigaj
 
+skriba¼oj kontraŭ iu klaso da civitanoj, se li ne kontraŭ-
 
-**A. K. **— Mi konsentas, sed, æu la purpuruloj estas 
+staras al persekutoj, farataj en la nomo de la religio, li
 
-ne tre klarmensaj? Vidu la cirkuleron de la episkopo 
+do ilin aprobas.
 
-de Aløero kaj kelke da aliaj. Æu ne iu episkopo ordonis 
+Resume: sisteme repuþante la spiritistojn, revenant-
 
-la aýtodafeon en Barcelono? Æu la supera eklezia aýto- 
+ajn al ĝi, la Eklezio devigis ilin organiziĝi ekster ĝi;
 
-ritatulo ne havas plenan povon super siaj subuloj? Se 
 
-do li toleras predikojn ne indajn de la evangelia katedro, 
+KIO ESTAS SPIRITISMO ?
 
-se li favoras la publikigon de insultoj kaj misfamigaj 
 
-skriba¼oj kontraý iu klaso da civitanoj, se li ne kontraý- 
+dank’al la naturo kaj la malmodereco de siaj atakoj, ĝi
 
-staras al persekutoj, farataj en la nomo de la religio, li 
+pliampleksigis la diskutadon kaj ĝi tiun kondukis sur
 
-do ilin aprobas. 
+novan terenon. Spiritismo estis simpla filozofia doktri-
 
-Resume: sisteme repuþante la spiritistojn, revenant- 
+no, kaj jen ĝuste la Eklezio ĝin pligravigis, prezentante
 
-ajn al øi, la Eklezio devigis ilin organiziøi ekster øi; 
+ĝin kiel timindan malamikon; ankaŭ la Eklezio, fine,
 
+proklamis ĝin ia nova religio. Tio estis mallerta¼o, sed
 
+la pasio ne rezonas.
 
-KIO ESTAS SPIRITISMO ? 
 
-75 
+**Liberpensulo** — Vi antaŭ nelonge parolis pri la li-
 
+bereco de la pensado kaj de la konscienco kaj asertis,
 
+ke ĝiu sincera kredo estas respektinda. La materialismo
 
-dank’al la naturo kaj la malmodereco de siaj atakoj, øi 
+estas kredo tia sama, kiel ĝiu alia; kial do ĝi ne ĝuus
 
-pliampleksigis la diskutadon kaj æi tiun kondukis sur 
+tian saman liberecon, kian vi konsentas al ĝiuj ceteraj
 
-novan terenon. Spiritismo estis simpla filozofia doktri- 
+kredoj?
 
-no, kaj jen øuste la Eklezio øin pligravigis, prezentante 
 
-øin kiel timindan malamikon; ankaý la Eklezio, fine, 
+**A. K. **— Æiu certe estas libera kredi tion, kio al li
 
-proklamis øin ia nova religio. Tio estis mallerta¼o, sed 
+plaĝas, aŭ kredi nenion ajn, kaj ni ne plipravigus iun
 
-la pasio ne rezonas. 
+persekuton kontraŭ iu, kiu kredas la nenion post la mor-
 
+to, ol kontraŭ iu defalinto de ia religio. Batalante kon-
 
+traŭ la materialismo, ni atakas ne la individuojn, sed la
 
-**Liberpensulo** — Vi antaý nelonge parolis pri la li- 
+doktrinon, kiu, se ĝi estas sendanĝera por la socio, kiam
 
-bereco de la pensado kaj de la konscienco kaj asertis, 
+ĝi tenas sin en la profundo de la konscienco de klar-
 
-ke æiu sincera kredo estas respektinda. La materialismo 
+mensaj homoj, tamen fariĝas ia socia kancero, se ĝi
 
-estas kredo tia sama, kiel æiu alia; kial do øi ne øuus 
+ĝeneraliĝas.
 
-tian saman liberecon, kian vi konsentas al æiuj ceteraj 
+La kredo, ke ĝio por la homo finiĝas post la morto,
 
-kredoj? 
+ke ĝia solidareco ĝesas kune kun la vivo, kondukas lin
 
+al tio, ke li konsideras ia moktrompo la oferon de sia
 
+nuna komforteco al la aliula bono; el tio la maksimo:
 
-**A. K. **— Æiu certe estas libera kredi tion, kio al li 
+"Æiu por si dum la vivo sur la Tero, ĝar nenio transe
 
-plaæas, aý kredi nenion ajn, kaj ni ne plipravigus iun 
+estas". La karito, la frateco, per unu vorto la moralo
 
-persekuton kontraý iu, kiu kredas la nenion post la mor- 
+havas nenian bazon, nenian pravon de ekzisto. Kial sin
 
-to, ol kontraý iu defalinto de ia religio. Batalante kon- 
+ĝeni, sin perforti, sin deteni de ia ĝuo hodiaŭ, se eble
 
-traý la materialismo, ni atakas ne la individuojn, sed la 
+morgaŭ ni jam estos nenio? La neado de la estonteco,
 
-doktrinon, kiu, se øi estas sendanøera por la socio, kiam 
+la sola dubo pri la estonta vivo estas la plej fortaj sti-
 
-øi tenas sin en la profundo de la konscienco de klar- 
+muliloj de egoismo, fonto de la plej multaj mizera¼oj
 
-mensaj homoj, tamen fariøas ia socia kancero, se øi 
+de la homaro. Oni devas esti tre virta, por halti sur la
 
-øeneraliøas. 
+deklivo de malvirto kaj krimo sen alia brido krom la for-
 
-La kredo, ke æio por la homo finiøas post la morto, 
+to de sia volo. La moktimo povas reteni la monduman-
 
-ke æia solidareco æesas kune kun la vivo, kondukas lin 
+on, sed ne homon kiu tute ne timas la publikan opinion.
 
-al tio, ke li konsideras ia moktrompo la oferon de sia 
+Montrante la ĝiamecon de la rilatoj inter la homoj,
 
-nuna komforteco al la aliula bono; el tio la maksimo: 
 
-"Æiu por si dum la vivo sur la Tero, æar nenio transe 
+ALLAN KARDEC
 
-estas". La karito, la frateco, per unu vorto la moralo 
 
-havas nenian bazon, nenian pravon de ekzisto. Kial sin 
+la kredo al la estonta vivo kreas inter ili solidarecon,
 
-øeni, sin perforti, sin deteni de ia øuo hodiaý, se eble 
+kiu ne rompiĝas ĝe la tombo; ĝi tiel þanĝas la iradon
 
-morgaý ni jam estos nenio? La neado de la estonteco, 
+de la ideoj. Se tiu kredo estus nenio krom ia vana tim-
 
-la sola dubo pri la estonta vivo estas la plej fortaj sti- 
+igilo, ĝi daŭrus nur kelkan tempon, sed ĝar ĝia realeco
 
-muliloj de egoismo, fonto de la plej multaj mizera¼oj 
+estas fakto akirita el la sperto, tial oni devas propa-
 
-de la homaro. Oni devas esti tre virta, por halti sur la 
+gandi ĝin kaj batali kontraŭ la mala kredo, por la in-
 
-deklivo de malvirto kaj krimo sen alia brido krom la for- 
+tereso mem de la socia ordo. Øuste tiel Spiritismo agas,
 
-to de sia volo. La moktimo povas reteni la monduman- 
+kaj ja sukcese, ĝar ĝi havigas pruvon pri tiu vivo kaj,
 
-on, sed ne homon kiu tute ne timas la publikan opinion. 
+vere, la homo preferas esti certa, ke li vivos kaj povos
 
-Montrante la æiamecon de la rilatoj inter la homoj, 
+vivi feliĝe en iu pli bona mondo, kompense por la mi-
 
-76 
+zera¼oj de nia, ol kredi, ke li estos mortinta por eterne.
 
-ALLAN KARDEC 
+La penso vidi sin por ĝiam neniiĝinta, opinii, ke filoj
 
+kaj karuloj estas senrevene perditaj, ridas al tre mal-
 
+multaj, kredu al mi; jen kial la atakoj kontraŭ Spirit-
 
-la kredo al la estonta vivo kreas inter ili solidarecon, 
+ismo en la nomo de la nekredemo tiel malmulte sukcesas
 
-kiu ne rompiøas æe la tombo; øi tiel þanøas la iradon 
+kaj eĝ momente ĝin ne þancelis.
 
-de la ideoj. Se tiu kredo estus nenio krom ia vana tim- 
 
-igilo, øi daýrus nur kelkan tempon, sed æar øia realeco 
+**Pastro **— La religio ĝion ĝi instruas; ĝis hodiaŭ ĝi
 
-estas fakto akirita el la sperto, tial oni devas propa- 
+sufiĝis: kial do necesa ia nova doktrino?
 
-gandi øin kaj batali kontraý la mala kredo, por la in- 
 
-tereso mem de la socia ordo. Øuste tiel Spiritismo agas, 
+**A. K. **— Se la religio sufiĝas, kial do ekzistas tiom
 
-kaj ja sukcese, æar øi havigas pruvon pri tiu vivo kaj, 
+da nekredemuloj laŭ la religia senco? La religio ĝion ĝi
 
-vere, la homo preferas esti certa, ke li vivos kaj povos 
+ja instruas al ni, vere; ĝi admonas nin kredi, sed kiom
 
-vivi feliæe en iu pli bona mondo, kompense por la mi- 
+da homoj ne kredas el simpla aserto de alia! Spiritismo
 
-zera¼oj de nia, ol kredi, ke li estos mortinta por eterne. 
+pruvas kaj elmontras tion, kion la religio instruas teorie.
 
-La penso vidi sin por æiam neniiøinta, opinii, ke filoj 
+Cetere, de kie venas tiuj pruvoj? De la manifestiĝado
 
-kaj karuloj estas senrevene perditaj, ridas al tre mal- 
+de la Spiritoj. Nu, estas probable, ke la Spiritoj mani-
 
-multaj, kredu al mi; jen kial la atakoj kontraý Spirit- 
+festiĝas nur kun la permeso de Dio; se do Dio favor-
 
-ismo en la nomo de la nekredemo tiel malmulte sukcesas 
+kore sendas al la homoj tian helpon, por ilin preni for de
 
-kaj eæ momente øin ne þancelis. 
+nekredemo, forpuþi tiun helpon estas ja malpia¼o.
 
 
+**Pastro **— Vi tamen ne malkonsentus, ke Spiritismo
 
-**Pastro **— La religio æion æi instruas; øis hodiaý øi 
+ne ĝe ĝiuj punktoj akordas kun la religio.
 
-sufiæis: kial do necesa ia nova doktrino? 
 
+**A. K. **— Pro Dio, via abata moþto! Æiuj religioj
 
+tion saman asertas: protestantoj, judoj, muzulmanoj, tiel
 
-**A. K. **— Se la religio sufiæas, kial do ekzistas tiom 
+same, kiel katolikoj. Se Spiritismo neus la ekziston de
 
-da nekredemuloj laý la religia senco? La religio æion æi 
+Dio, de la animo, de ties individueco kaj senmorteco, de
 
-ja instruas al ni, vere; øi admonas nin kredi, sed kiom 
+la estontaj punoj kaj rekompencoj, de la libera volo de la
 
-da homoj ne kredas el simpla aserto de alia\! Spiritismo 
+homo; se ĝi instruus, ke ĝiu troviĝas en ĝi tiu mondo
 
-pruvas kaj elmontras tion, kion la religio instruas teorie. 
 
-Cetere, de kie venas tiuj pruvoj? De la manifestiøado 
+KIO ESTAS SPIRITISMO ?
 
-de la Spiritoj. Nu, estas probable, ke la Spiritoj mani- 
 
-festiøas nur kun la permeso de Dio; se do Dio favor- 
+sole nur por si kaj devas pensi sole nur pri si, ĝi do kon-
 
-kore sendas al la homoj tian helpon, por ilin preni for de 
+traŭus ne nur la religion katolikan, sed ankaŭ ĝiujn re-
 
-nekredemo, forpuþi tiun helpon estas ja malpia¼o. 
+ligiojn de la mondo; ĝi estus la neado de ĝiuj moralaj
 
+leĝoj, bazoj de la homa socio. Tute kontraŭe: la Spiritoj
 
+proklamas unu solan Dion, superege justan kaj bonan;
 
-**Pastro **— Vi tamen ne malkonsentus, ke Spiritismo 
+ili diras, ke la homo havas liberecon de agado kaj res-
 
-ne æe æiuj punktoj akordas kun la religio. 
+pondas por siaj agoj, estas premiata aŭ punata laŭ la
 
+bono aŭ malbono, kiun li faris; ili super ĝiuj virtoj star-
 
+igas la evangelian kariton kaj jenan superbelan regulon,
 
-**A. K. **— Pro Dio, via abata moþto\! Æiuj religioj 
+instruitan de la Kristo: "Kiel vi volas, ke la homoj faru
 
-tion saman asertas: protestantoj, judoj, muzulmanoj, tiel 
+al vi, faru ankaŭ al ili tiel same." (*) Æu tio ne estas
 
-same, kiel katolikoj. Se Spiritismo neus la ekziston de 
+la fundamentoj de la religio? La Spiritoj faras pli: ili
 
-Dio, de la animo, de ties individueco kaj senmorteco, de 
+inicas nin en la misterojn de la estonta vivo, kiu por ni
 
-la estontaj punoj kaj rekompencoj, de la libera volo de la 
+jam ne estas ia abstrakta¼o, sed reala¼o, ĝar tiuj mem,
 
-homo; se øi instruus, ke æiu troviøas en æi tiu mondo 
+kiujn ni konis, venas pentri sian situacion, diri, kial kaj
 
+kial ili suferas aŭ estas feliĝaj. Kio tie estas kontraŭ-
 
+religia? Æu tiu certeco pri la estonteco, ke ni retrovos
 
-KIO ESTAS SPIRITISMO ? 
+tiujn, kiujn ni amis, ne estas ja konsolo? Æu tiu gran-
 
-77 
+diozeco de la spirita vivo, kiu estas nia esenco, kompar-
 
+ata kun la mizeraj absorbaj zorgoj de la surtera vivo,
 
+ne estas taŭga, por altigi nian animon kaj por vigligi
 
-sole nur por si kaj devas pensi sole nur pri si, øi do kon- 
+nin al la farado de bono?
 
-traýus ne nur la religion katolikan, sed ankaý æiujn re- 
 
-ligiojn de la mondo; øi estus la neado de æiuj moralaj 
+**Pastro **— Mi konsentas, ke en la ĝeneralaj demand-
 
-leøoj, bazoj de la homa socio. Tute kontraýe: la Spiritoj 
+oj Spiritismo estas konforma al la grandaj vera¼oj de
 
-proklamas unu solan Dion, superege justan kaj bonan; 
+la Kristianismo, sed ĝu same estas koncerne la dogmojn?
 
-ili diras, ke la homo havas liberecon de agado kaj res- 
+Æu ĝi ne kontraŭparolas iujn principojn, kiujn la Eklezio
 
-pondas por siaj agoj, estas premiata aý punata laý la 
+instruas al ni?
 
-bono aý malbono, kiun li faris; ili super æiuj virtoj star- 
 
-igas la evangelian kariton kaj jenan superbelan regulon, 
+**A. K. **— Spiritismo estas antaŭ ĝio scienco, ne zorg-
 
-instruitan de la Kristo: "Kiel vi volas, ke la homoj faru 
+as pri dogmaj demandoj. Kiel ĝiuj filozofiaj sciencoj,
 
-al vi, faru ankaý al ili tiel same." \(\*\) Æu tio ne estas 
+tiel ĝi tiu scienco havas moralajn sekvojn; ĝu tiuj sekv-
 
-la fundamentoj de la religio? La Spiritoj faras pli: ili 
+oj estas bonaj aŭ malbonaj? Oni povas ilin juĝi laŭ la
 
-inicas nin en la misterojn de la estonta vivo, kiu por ni 
+ĝeneralaj principoj, kiujn mi ¼us rememorigis. Iuj per-
 
-jam ne estas ia abstrakta¼o, sed reala¼o, æar tiuj mem, 
+sonoj tute eraris pri la vera karaktero de Spiritismo.
 
-kiujn ni konis, venas pentri sian situacion, diri, kial kaj 
+Æi tiu demando estas sufiĝe grava, por meriti iom vastan
 
-kial ili suferas aý estas feliæaj. Kio tie estas kontraý- 
+priparoladon. Ni unue faru komparon. Estante natura
 
-religia? Æu tiu certeco pri la estonteco, ke ni retrovos 
 
-tiujn, kiujn ni amis, ne estas ja konsolo? Æu tiu gran- 
+( * ) Luko, 6:31. — *La Trad*.
 
-diozeco de la spirita vivo, kiu estas nia esenco, kompar- 
 
-ata kun la mizeraj absorbaj zorgoj de la surtera vivo, 
+ALLAN KARDEC
 
-ne estas taýga, por altigi nian animon kaj por vigligi 
 
-nin al la farado de bono? 
+elemento, la elektro ĝiam ekzistis kaj ĝiam okazigis la
 
+efikojn, kiujn ni konas, krom multaj aliaj, kiujn ni an-
 
+koraŭ ne konas. Ne sciante la veran kaŭzon, la homoj
 
-**Pastro **— Mi konsentas, ke en la øeneralaj demand- 
+klarigis tiujn efikojn en pli aŭ malpli stranga maniero.
 
-oj Spiritismo estas konforma al la grandaj vera¼oj de 
+La eltrovo de la elektro kaj de ties proprecoj renversis
 
-la Kristianismo, sed æu same estas koncerne la dogmojn? 
+multegon da absurdaj teorioj, prilumante plurajn mis -
 
-Æu øi ne kontraýparolas iujn principojn, kiujn la Eklezio 
+terojn de la Naturo. Kiel agis la elektro kaj ĝenerale
 
-instruas al ni? 
+la fizikaj sciencoj rilate certajn fenomenojn, tiel Spirit-
 
+ismo agis rilate alispecajn fenomenojn.
 
+Spiritismo estas bazita sur la ekzisto de ia nevidebla
 
-**A. K. **— Spiritismo estas antaý æio scienco, ne zorg- 
+mondo, konsistanta el senkorpaj estuloj, kiuj plenigas
 
-as pri dogmaj demandoj. Kiel æiuj filozofiaj sciencoj, 
+la spacon kaj kiuj estas neniuj aliaj, ol la animoj de
 
-tiel æi tiu scienco havas moralajn sekvojn; æu tiuj sekv- 
+homoj, kiuj vivis sur la Tero, aŭ en aliaj mondoj, kie ili
 
-oj estas bonaj aý malbonaj? Oni povas ilin juøi laý la 
+forlasis sian materian envolva¼on. Ili estas la estuloj,
 
-øeneralaj principoj, kiujn mi ¼us rememorigis. Iuj per- 
+kiujn ni nomas Spiritoj. Ili ĝiam staras apud ni, havas
 
-sonoj tute eraris pri la vera karaktero de Spiritismo. 
+sur la homojn, sen ties konscio, grandan influon, ludas
 
-Æi tiu demando estas sufiæe grava, por meriti iom vastan 
+tie aktivan rolon en la morala mondo kaj eĝ, ĝis certa
 
-priparoladon. Ni unue faru komparon. Estante natura 
+grado, en la mondo fizika. Spiritismo troviĝas do en
 
+la Naturo, kaj oni povas diri, ke ĝiamaniere ĝi estas
 
+ia potenco, same kiel la elektro el alia vidpunkto, kiel la
 
-\( \* \) Luko, 6:31. — *La Trad*. 
+gravito el ankoraŭ alia. La fenomenoj, kies fonto estas
 
-78 
+la nevidebla mondo, efektive okazis en ĝiuj tempoj, kaj
 
-ALLAN KARDEC 
+tial ilin mencias la historio de ĝiuj popoloj. Nur, en sia
 
+neklereco, kiel pri la elektro, la homoj atribuis tiujn feno-
 
+menojn al pli aŭ malpli raciaj kaŭzoj kaj en ĝi tiu rilato
 
-elemento, la elektro æiam ekzistis kaj æiam okazigis la 
+donis liberan kuron al sia imagpovo.
 
-efikojn, kiujn ni konas, krom multaj aliaj, kiujn ni an- 
+Pli bone observata de tiam, kiam ĝi vulgariĝis, Spi-
 
-koraý ne konas. Ne sciante la veran kaýzon, la homoj 
+ritismo prilumas multegon da demandoj ĝis hodiaŭ ne-
 
-klarigis tiujn efikojn en pli aý malpli stranga maniero. 
+solveblaj aŭ miskomprenitaj. Øia vera karaktero estas
 
-La eltrovo de la elektro kaj de ties proprecoj renversis 
+do tiu scienco, sed ne religio, kaj la pruvo de ĝi tio
 
-multegon da absurdaj teorioj, prilumante plurajn mis - 
+estas, ke inter ĝiaj aliĝintoj troviĝas homoj de ĝiaj kred-
 
-terojn de la Naturo. Kiel agis la elektro kaj øenerale 
+oj, kiuj pro sia aliĝo ne rezignis siajn konvjn: fer-
 
-la fizikaj sciencoj rilate certajn fenomenojn, tiel Spirit- 
+voraj katolikoj, kiuj ĝiam ankoraŭ plenumas ĝiujn devojn
 
-ismo agis rilate alispecajn fenomenojn. 
+de sia religio, se nur la Eklezio ilin ne forpuþas, ĝiusektaj
 
-Spiritismo estas bazita sur la ekzisto de ia nevidebla 
+protestantoj, izraelidoj, muzulmanoj kaj eĝ budhistoj kaj
 
-mondo, konsistanta el senkorpaj estuloj, kiuj plenigas 
+bramanoj. Øi do staras sur principoj, dependantaj de
 
-la spacon kaj kiuj estas neniuj aliaj, ol la animoj de 
+nenia ajn dogma demando. Øiaj moralaj sekvoj iras tian
 
-homoj, kiuj vivis sur la Tero, aý en aliaj mondoj, kie ili 
+saman linion kiel la Kristanismo, ĝar la Kristanismo est-
 
-forlasis sian materian envolva¼on. Ili estas la estuloj, 
+as el ĝiuj doktrinoj la plej spirita kaj plej pura, kaj tial
 
-kiujn ni nomas Spiritoj. Ili æiam staras apud ni, havas 
 
-sur la homojn, sen ties konscio, grandan influon, ludas 
+KIO ESTAS SPIRITISMO ?
 
-tie aktivan rolon en la morala mondo kaj eæ, øis certa 
 
-grado, en la mondo fizika. Spiritismo troviøas do en 
+el ĝiuj religiuloj en la mondo la kristanoj la plej bone
 
-la Naturo, kaj oni povas diri, ke æiamaniere øi estas 
+kapablas ĝmpreni laŭ ĝia vera esenco. Æu oni ĝin
 
-ia potenco, same kiel la elektro el alia vidpunkto, kiel la 
+riproĝus je tio? Æiu sendube povas fari al si el siaj
 
-gravito el ankoraý alia. La fenomenoj, kies fonto estas 
+opinioj ian religion, laŭplaĝe interpreti la konatajn re-
 
-la nevidebla mondo, efektive okazis en æiuj tempoj, kaj 
+ligiojn, sed inter tion fari kaj starigi ian novan eklezion
 
-tial ilin mencias la historio de æiuj popoloj. Nur, en sia 
+oscedas abismo.
 
-neklereco, kiel pri la elektro, la homoj atribuis tiujn feno- 
 
-menojn al pli aý malpli raciaj kaýzoj kaj en æi tiu rilato 
+**Pastro **— Æu vi tamen ne faras la elvokojn laŭ ia
 
-donis liberan kuron al sia imagpovo. 
+religia formulo?
 
-Pli bone observata de tiam, kiam øi vulgariøis, Spi- 
 
-ritismo prilumas multegon da demandoj øis hodiaý ne- 
+**A. K. **— Ni certe portas ian religian senton ĝe la
 
-solveblaj aý miskomprenitaj. Øia vera karaktero estas 
+elvokoj kaj en niaj kunsidoj, sed ĝe tio ekzistas nenia
 
-do tiu scienco, sed ne religio, kaj la pruvo de æi tio 
+rita formulo; por la Spiritoj la penso estas ĝio, la formo
 
-estas, ke inter øiaj aliøintoj troviøas homoj de æiaj kred- 
+nenio estas. Ni vokas ilin en la nomo de Dio, ĝar ni
 
-oj, kiuj pro sia aliøo ne rezignis siajn konvinkojn: fer- 
+kredas je Dio kaj scias, ke nenio fariĝas en ĝi tiu mondo
 
-voraj katolikoj, kiuj æiam ankoraý plenumas æiujn devojn 
+sen Lia permeso kaj ke, se Dio ne permesas al ili veni,
 
-de sia religio, se nur la Eklezio ilin ne forpuþas, æiusektaj 
+ili do ne venas; ni plenumas niajn laborojn kviete kaj
 
-protestantoj, izraelidoj, muzulmanoj kaj eæ budhistoj kaj 
+enmemiĝe, ĝar tio estas kondiĝo necesa por la observoj,
 
-bramanoj. Øi do staras sur principoj, dependantaj de 
+kaj ankaŭ tial, ĝar ni ja scias, ke oni devas respekti
 
-nenia ajn dogma demando. Øiaj moralaj sekvoj iras tian 
+tiujn, jam ne vivantajn sur la Tero, kia ajn ilia stato,
 
-saman linion kiel la Kristanismo, æar la Kristanismo est- 
+feliĝa aŭ malfeliĝa, en la mondo de la Spiritoj; ni al-
 
-as el æiuj doktrinoj la plej spirita kaj plej pura, kaj tial 
+vokas la bonajn Spiritojn, ĝar, sciante, ke ekzistas inter
 
+ili bonaj kaj malbonaj, tial ni penas, ke ĝi tiuj lastaj sin
 
+trompe ne enmiksu en la komunika¼ojn, kiujn ni ricevas.
 
-KIO ESTAS SPIRITISMO ? 
+Kion ĝio ĝi montras? Ke ni ne estas ateistoj, sed ĝi tute
 
-79 
+ne kuntrenas, ke ni estus iaj reformistoj.
 
 
+**Pastro **— Nu, kion diras la Superaj Spiritoj, tuþ-
 
-el æiuj religiuloj en la mondo la kristanoj la plej bone 
+ante la religion? Tiuj bonaj devas nnsili, nin gvidi.
 
-kapablas øin kompreni laý øia vera esenco. Æu oni øin 
+Ni imagu, ke mi havas nenian religion: mi do deziras
 
-riproæus je tio? Æiu sendube povas fari al si el siaj 
+elekti unu el ili. Se mi pridemandos la Spiritojn: "Æu
 
-opinioj ian religion, laýplaæe interpreti la konatajn re- 
+vi konsilas al mi fariĝi katoliko, protestanto, anglikano,
 
-ligiojn, sed inter tion fari kaj starigi ian novan eklezion 
+kvakero, judo, mahometano aŭ mormonano", kion ili res-
 
-oscedas abismo. 
+pondos?
 
 
+**A. K. **— Ekzistas du konsiderendaj punktoj en la re-
 
-**Pastro **— Æu vi tamen ne faras la elvokojn laý ia 
+ligioj: la principoj ĝeneralaj, komunaj al ili ĝiuj, kaj la
 
-religia formulo? 
+principoj propraj al ĝiu. La unuaj estas tiuj, pri kiuj
 
+ni ¼us parolis; tiujn ĝiuj Spiritoj proklamas, kia ajn ilia
 
+rango. Rilate la duajn, la Spiritoj **vulgaraj**, mem ne mal-
 
-**A. K. **— Ni certe portas ian religian senton æe la 
 
-elvokoj kaj en niaj kunsidoj, sed æe tio ekzistas nenia 
+ALLAN KARDEC
 
-rita formulo; por la Spiritoj la penso estas æio, la formo 
 
-nenio estas. Ni vokas ilin en la nomo de Dio, æar ni 
+bonaj, povas havi preferojn, opiniojn, povas rekomendi
 
-kredas je Dio kaj scias, ke nenio fariøas en æi tiu mondo 
+tian aŭ alian formon. Ili do povas stimuli la homojn
 
-sen Lia permeso kaj ke, se Dio ne permesas al ili veni, 
+pri certaj agoj, ĝu el persona konvinkiteco, ĝu tial, ke
 
-ili do ne venas; ni plenumas niajn laborojn kviete kaj 
+ili konservas la ideojn el la surtera vivo, ĝu el prudento,
 
-enmemiøe, æar tio estas kondiæo necesa por la observoj, 
+por ne teruri la timemajn mensojn. Æu vi kredas, ke
 
-kaj ankaý tial, æar ni ja scias, ke oni devas respekti 
+ekzemple iu klera Spirito, eĝ Fénelon, parolante al mu-
 
-tiujn, jam ne vivantajn sur la Tero, kia ajn ilia stato, 
+zulmano, mallerte dirus al li, ke Mahomet estas tromp -
 
-feliæa aý malfeliæa, en la mondo de la Spiritoj; ni al- 
+isto kaj ke li estos damnita, se li ne fariĝos kristano?
 
-vokas la bonajn Spiritojn, æar, sciante, ke ekzistas inter 
+Tia Spirito ja gardus sin tiel agi, ĝar li estus repuþita.
 
-ili bonaj kaj malbonaj, tial ni penas, ke æi tiuj lastaj sin 
+La Superaj Spiritoj ĝenerale, kaj kiam ilin ne instig-
 
-trompe ne enmiksu en la komunika¼ojn, kiujn ni ricevas. 
+as ia aparta konsidero, ne zorgas pri detala¼oj; ili diras
 
-Kion æio æi montras? Ke ni ne estas ateistoj, sed øi tute 
+sole nur jenon: "Dio estas bona kaj justa; Li volas nur
 
-ne kuntrenas, ke ni estus iaj reformistoj. 
+bonon. La plej bona el ĝiuj religioj estas do tiu, kiu
 
+instruas nur tion konforman al la boneco kaj justeco
 
+de Dio; kiu pri Dio donas la ideon plej grandan, plej
 
-**Pastro **— Nu, kion diras la Superaj Spiritoj, tuþ- 
+superbelan, kaj Lin ne malaltigas atribuante al Li la
 
-ante la religion? Tiuj bonaj devas nin konsili, nin gvidi. 
+mizera¼ojn kaj pasiojn de la homaro; kiu faras la hom-
 
-Ni imagu, ke mi havas nenian religion: mi do deziras 
+ojn bonaj kaj virtaj, kaj instruas ilin ami ĝiujn kiel frat-
 
-elekti unu el ili. Se mi pridemandos la Spiritojn: "Æu 
+ojn; kiu kondamnas ĝian malbonon, kiun oni faras al
 
-vi konsilas al mi fariøi katoliko, protestanto, anglikano, 
+sia proksimulo; kiu ne rajtigas maljusta¼on sub ĝia ajn
 
-kvakero, judo, mahometano aý mormonano", kion ili res- 
+formo aŭ preteksto; kiu ordonas nenion kontraŭan al
 
-pondos? 
+la senþanĝaj leĝoj de la Naturo, ĝar Dio ne povas Sin
 
+mem kontraŭdiri; tiu, kies servantoj donas la plej bonan
 
+ekzemplon de boneco, karitemo kaj moraleco; tiu, kiu
 
-**A. K. **— Ekzistas du konsiderendaj punktoj en la re- 
+plej forte inklinas batali kontraŭ la egoismo kaj malplej
 
-ligioj: la principoj øeneralaj, komunaj al ili æiuj, kaj la 
+flatas la fieron kaj la vantamon de la homoj; tiu, fine,
 
-principoj propraj al æiu. La unuaj estas tiuj, pri kiuj 
+en kies nomo oni faras malplej multe da malbono, ĝar
 
-ni ¼us parolis; tiujn æiuj Spiritoj proklamas, kia ajn ilia 
+bona religio povas esti preteksto por nenia malbono: ĝi
 
-rango. Rilate la duajn, la Spiritoj **vulgaraj**, mem ne mal- 
+al ĝi tiu devas lasi nenian pordon malfermita, ĝu rekte,
 
-80 
+ĝu per interpreto. Esploru, juĝu kaj elektu."
 
-ALLAN KARDEC 
 
+**Pastro **— Mi pensas, ke iuj punktoj de la katolika
 
+doktrino estas kontestataj de tiuj Spiritoj, kiujn vi ri-
 
-bonaj, povas havi preferojn, opiniojn, povas rekomendi 
+gardas kiel superajn; mi eĝ pensas, ke tiuj punktoj estas
 
-tian aý alian formon. Ili do povas stimuli la homojn 
+eraraj; ĝu pri iu, kiu prave aŭ malprave konsideras tiujn
 
-pri certaj agoj, æu el persona konvinkiteco, æu tial, ke 
+punktojn sanktaj dogmoj kaj kiu do ilin observas, tia
 
-ili konservas la ideojn el la surtera vivo, æu el prudento, 
+kredo povas, laŭ tiaj Spiritoj, malutili lian savon?
 
-por ne teruri la timemajn mensojn. Æu vi kredas, ke 
 
-ekzemple iu klera Spirito, eæ Fénelon, parolante al mu- 
+**A. K. **— Certe ne, se nur tia kredo lin ne deklinas
 
-zulmano, mallerte dirus al li, ke Mahomet estas tromp - 
+de bonfarado, sed, kontraŭe, lin admonas al tio; aliflan-
 
-isto kaj ke li estos damnita, se li ne fariøos kristano? 
 
-Tia Spirito ja gardus sin tiel agi, æar li estus repuþita. 
+KIO ESTAS SPIRITISMO ?
 
-La Superaj Spiritoj øenerale, kaj kiam ilin ne instig- 
 
-as ia aparta konsidero, ne zorgas pri detala¼oj; ili diras 
+ke, kredo, eĝ la plej solide bazita, lin evidente malutilus,
 
-sole nur jenon: "Dio estas bona kaj justa; Li volas nur 
+se ĝi por li estus instigilo por fari malbonon, por ne esti
 
-bonon. La plej bona el æiuj religioj estas do tiu, kiu 
+karitema por sia proksimulo, se ĝi faras lin kruda kaj
 
-instruas nur tion konforman al la boneco kaj justeco 
+egoista, ĝar tiam li ne kondutas konforme al la leĝo de
 
-de Dio; kiu pri Dio donas la ideon plej grandan, plej 
+Dio, kaj Dio konsideras la penson antaŭ ol la agojn.
 
-superbelan, kaj Lin ne malaltigas atribuante al Li la 
+Kiu kuraĝus aserti la malon?
 
-mizera¼ojn kaj pasiojn de la homaro; kiu faras la hom- 
+Æu vi pensas, ke ekzemple por iu, kiu plene kredas
 
-ojn bonaj kaj virtaj, kaj instruas ilin ami æiujn kiel frat- 
+je Dio, sed, kiu, en la nomo de Dio, farus agojn malhu-
 
-ojn; kiu kondamnas æian malbonon, kiun oni faras al 
+manajn aŭ kontraŭ karito, lia fido lin tre utilus? Æu li
 
-sia proksimulo; kiu ne rajtigas maljusta¼on sub æia ajn 
+ne estus des pli kulpa, ĝar li disponas je pli da rimedoj,
 
-formo aý preteksto; kiu ordonas nenion kontraýan al 
+por sin instrui?
 
-la senþanøaj leøoj de la Naturo, æar Dio ne povas Sin 
 
-mem kontraýdiri; tiu, kies servantoj donas la plej bonan 
+**Pastro** — Æu do fervora katoliko, skrupule plenum-
 
-ekzemplon de boneco, karitemo kaj moraleco; tiu, kiu 
+anta la devojn de sia kulto, ne ricevas riproĝon de la
 
-plej forte inklinas batali kontraý la egoismo kaj malplej 
+Spiritoj?
 
-flatas la fieron kaj la vantamon de la homoj; tiu, fine, 
 
-en kies nomo oni faras malplej multe da malbono, æar 
+**A. K. ** — Ne, se tio estas por li demando de kons-
 
-bona religio povas esti preteksto por nenia malbono: øi 
+cienco, se nur li ĝin faras sincere; jes, tute certe jes, se
 
-al æi tiu devas lasi nenian pordon malfermita, æu rekte, 
+hipokrite kaj se li estas nur þajne pia.
 
-æu per interpreto. Esploru, juøu kaj elektu." 
+La Superaj Spiritoj, havantaj kiel mision la progres-
 
+adon de la homaro, leviĝas kontraŭ ĝiajn malbonuzojn,
 
+kiuj povas bridi tiun progresadon, kiaj ajn tiuj malbon-
 
-**Pastro **— Mi pensas, ke iuj punktoj de la katolika 
+uzoj kaj kiaj ajn la individuoj aŭ la klasoj de la socio,
 
-doktrino estas kontestataj de tiuj Spiritoj, kiujn vi ri- 
+kiuj el ili profitas. Nu, vi ja ne malkonfesus, ke la re-
 
-gardas kiel superajn; mi eæ pensas, ke tiuj punktoj estas 
+ligio ne ĝiam estis libera de malbonuzoj; se inter ĝiaj
 
-eraraj; æu pri iu, kiu prave aý malprave konsideras tiujn 
+ekleziuloj kelkaj plenumas sian mision kun absolute krist-
 
-punktojn sanktaj dogmoj kaj kiu do ilin observas, tia 
+ana sindoneco, faras ĝin granda, bela kaj respektinda,
 
-kredo povas, laý tiaj Spiritoj, malutili lian savon? 
+vi tamen konsentas, ke ne ĝiuj ili ĝiam komprenis la
 
+sanktecon de sia pastrado. La Spiritoj vipas la malbon-
 
+on ĝie, kie ĝi troviĝas; ĝu montri la ekscesa¼ojn de la
 
-**A. K. **— Certe ne, se nur tia kredo lin ne deklinas 
+religio estas ĝi tiun ataki? Øi ne havas malamikojn pli
 
-de bonfarado, sed, kontraýe, lin admonas al tio; aliflan- 
+grandajn, ol tiuj, kiuj defendas tiujn malbonuzojn, ĝar
 
+ĝuste tiuj malbonuzoj inspiras la penso, ke io pli bona
 
+povus ĝin anstataŭi. Se la religion minacus iu danĝero,
 
-KIO ESTAS SPIRITISMO ? 
+oni devus por tio respondigi tiujn, kiuj donas pri ĝi mal-
 
-81 
+veran ideon, farante el ĝi ian arenon de la homaj pasioj,
 
+kaj kiuj ekspluatas ĝin profite al sia ambicio.
 
 
-ke, kredo, eæ la plej solide bazita, lin evidente malutilus, 
+**Pastro **— Vi diras, ke Spiritismo ne diskutas la
 
-se øi por li estus instigilo por fari malbonon, por ne esti 
+dogmojn, tamen ĝi akceptas iajn aferojn, kontraŭbatal-
 
-karitema por sia proksimulo, se øi faras lin kruda kaj 
 
-egoista, æar tiam li ne kondutas konforme al la leøo de 
+ALLAN KARDEC
 
-Dio, kaj Dio konsideras la penson antaý ol la agojn. 
 
-Kiu kuraøus aserti la malon? 
+atajn de la Eklezio, kiel ekzemple la reenkarniĝon, la
 
-Æu vi pensas, ke ekzemple por iu, kiu plene kredas 
+estadon de la homo sur la Tero pli frue ol Adamo; ĝi
 
-je Dio, sed, kiu, en la nomo de Dio, farus agojn malhu- 
+neas la eternecon de punoj, la ekziston de demonoj, la
 
-manajn aý kontraý karito, lia fido lin tre utilus? Æu li 
+purgatorion, la fajron de la infero.
 
-ne estus des pli kulpa, æar li disponas je pli da rimedoj, 
 
-por sin instrui? 
+**A. K. **— Tiuj aferoj estas diskutataj jam de longe,
 
+kaj ne Spiritismo elmovis tiun diskuton; tio estas opini-
 
+oj, el kiuj kelkaj estas debatataj de la teologio kaj kiujn
 
-**Pastro** — Æu do fervora katoliko, skrupule plenum- 
+juĝos la estonteco. Super ili ĝiuj staras granda prin-
 
-anta la devojn de sia kulto, ne ricevas riproæon de la 
+cipo, nome la bonfarado, kiu estas la plej alta leĝo, la
 
-Spiritoj? 
+nepra kondiĝo de nia estonteco, kiel pruvas la stato de
 
+la Spiritoj, kiuj komunikiĝas kun ni. Tiel longe, ĝis por
 
+vi ne fariĝos lumo pri tiuj demandoj, kredu, se vi tion
 
-**A. K. ** — Ne, se tio estas por li demando de kons- 
+volas, la materiajn flamojn kaj torturojn se tio povas
 
-cienco, se nur li øin faras sincere; jes, tute certe jes, se 
+deteni vin fari malbonon: se ili efektive ne ekzistas, tiu
 
-hipokrite kaj se li estas nur þajne pia. 
+kredo ja ne faras ilin realaj. Kredu, ke ni havas nur
 
-La Superaj Spiritoj, havantaj kiel mision la progres- 
+unu solan enkorpan ekzistadon, se tio al vi plaĝas: tio
 
-adon de la homaro, leviøas kontraý æiajn malbonuzojn, 
 
-kiuj povas bridi tiun progresadon, kiaj ajn tiuj malbon- 
+tamen ne malhelpas, ke vi renaskiĝos ĝi tie aŭ aliloke,
 
-uzoj kaj kiaj ajn la individuoj aý la klasoj de la socio, 
+se tio devas okazi kaj kontraŭ via volo; kredu, ke la
 
-kiuj el ili profitas. Nu, vi ja ne malkonfesus, ke la re- 
+mondo estas kreita per unu fojo en sesoble dudek kvar
 
-ligio ne æiam estis libera de malbonuzoj; se inter øiaj 
+horoj, se vi tiel opinias: tio ne malhelpas, ke la Tero
 
-ekleziuloj kelkaj plenumas sian mision kun absolute krist- 
+portas signitan en siaj geologiaj tavoloj la pruvon de io
 
-ana sindoneco, faras øin granda, bela kaj respektinda, 
+malsama; kredu, se vi volas, ke Josuo haltigis la sunon:
 
-vi tamen konsentas, ke ne æiuj ili æiam komprenis la 
+tio ne malhelpas la Teron turniĝi; kredu, ke la homo
 
-sanktecon de sia pastrado. La Spiritoj vipas la malbon- 
+estas sur la Tero nur de ses mil jaroj: tio ne malhelpas,
 
-on æie, kie øi troviøas; æu montri la ekscesa¼ojn de la 
+ke la faktoj pruvas la neeblecon de tia difino. Kaj kion
 
-religio estas æi tiun ataki? Øi ne havas malamikojn pli 
+vi diros, se unu belan tagon tiu senemocia geologio per
 
-grandajn, ol tiuj, kiuj defendas tiujn malbonuzojn, æar 
+evidentaj postsignoj pruvas la pli fruan ekaperon de la
 
-øuste tiuj malbonuzoj inspiras la penso, ke io pli bona 
+homo, simile kiel ĝi pruvis tiom da aliaj aferoj? Kredu
 
-povus øin anstataýi. Se la religion minacus iu danøero, 
+do ĝion, kion vi volos, eĝ je la diablo, se tia kredo povas
 
-oni devus por tio respondigi tiujn, kiuj donas pri øi mal- 
+fari vin bona, humana kaj karitema por viaj similuloj.
 
-veran ideon, farante el øi ian arenon de la homaj pasioj, 
+Spiritis mo, kiel doktrino morala, trudas nur unu aferon,
 
-kaj kiuj ekspluatas øin profite al sia ambicio. 
+nome la neceson fari bonon kaj tute ne fari malbonon.
 
+Øi estas observoscienco, kiu, mi ripetas, havas moralajn
 
+sekvojn, kaj tiuj sekvoj estas la jesigo kaj la pruvo de
 
-**Pastro **— Vi diras, ke Spiritismo ne diskutas la 
+la grandaj principoj de la religio; koncerne la duarang-
 
-dogmojn, tamen øi akceptas iajn aferojn, kontraýbatal- 
+ajn demandojn, ĝi ilin lasas al la konscienco de ĝiu homo.
 
-82 
+Via pastra moþto bonvolu rimarki, ke kelkajn el tiuj
 
-ALLAN KARDEC 
+malsame rigardataj aferoj, pri kiuj vi antaŭ momento
 
+parolis, Spiritismo ilin principe ne kontestas. Se vi estus
 
 
-atajn de la Eklezio, kiel ekzemple la reenkarniøon, la 
+KIO ESTAS SPIRITISMO ?
 
-estadon de la homo sur la Tero pli frue ol Adamo; øi 
 
-neas la eternecon de punoj, la ekziston de demonoj, la 
+leginta ĝion, kion mi pri tio skribis, vi estus rimarkinta,
 
-purgatorion, la fajron de la infero. 
+ke ĝi simple donas al ili interpreton pli logikan kaj raci-
 
+an, ol la interpreto vulgara. Tiel, ekzemple, ĝi ne neas
 
+la ekziston de la purgatorio: ĝi, kontraŭe, pruvas ties
 
-**A. K. **— Tiuj aferoj estas diskutataj jam de longe, 
+neceson kaj justecon, kaj eĝ plue, ĝi tiun difinas. La
 
-kaj ne Spiritismo elmovis tiun diskuton; tio estas opini- 
+infero estas priskribita, kvazaŭ ia grandega fajrejo, sed
 
-oj, el kiuj kelkaj estas debatataj de la teologio kaj kiujn 
+ja tiel ĝmprenas la alta teologio? Ne, evidente; la
 
-juøos la estonteco. Super ili æiuj staras granda prin- 
+altaj teologoj tute prave diras, ke tio estas ia figuro, ke
 
-cipo, nome la bonfarado, kiu estas la plej alta leøo, la 
+la fajro, en kiu oni brulas, estas fajro morala, simbolo
 
-nepra kondiæo de nia estonteco, kiel pruvas la stato de 
+de la plej akraj doloroj.
 
-la Spiritoj, kiuj komunikiøas kun ni. Tiel longe, øis por 
+Koncerne la eternecon de punoj, se estus farebla ia
 
-vi ne fariøos lumo pri tiuj demandoj, kredu, se vi tion 
+voĝdonado pri ĝi tiu punkto, por ekkoni la intiman opi-
 
-volas, la materiajn flamojn kaj torturojn se tio povas 
+nion de ĝiu homo kapabla rezoni aŭ kompreni, eĝ ĝe tiuj
 
-deteni vin fari malbonon: se ili efektive ne ekzistas, tiu 
+plej religiemaj, tiam oni vidus, sur kiu flanko staras la
 
-kredo ja ne faras ilin realaj. Kredu, ke ni havas nur 
+plimulto, ĝar la ideo pri ia eterneco de torturoj estas
 
-unu solan enkorpan ekzistadon, se tio al vi plaæas: tio 
+la neado de la senlima kompatemeco de Dio.
 
+Jen cetere, kion la spiritisma doktrino asertas en ĝi
 
+tiu rilato:
 
-tamen ne malhelpas, ke vi renaskiøos æi tie aý aliloke, 
+La daŭro de la puno dependas de la pliboniĝo de
 
-se tio devas okazi kaj kontraý via volo; kredu, ke la 
+la kulpa Spirito. Kontraŭ li estas eldirata nenia kon-
 
-mondo estas kreita per unu fojo en sesoble dudek kvar 
+damno por iu difinita tempo. Kion Dio postulas, por
 
-horoj, se vi tiel opinias: tio ne malhelpas, ke la Tero 
+meti finon al la suferoj, tio estas la pento, la kulpelaĝeto
 
-portas signitan en siaj geologiaj tavoloj la pruvon de io 
+kaj la kompenso de ofendoj, unuvorte, serioza, efektiva
 
-malsama; kredu, se vi volas, ke Josuo haltigis la sunon: 
+pliboniĝo kaj sincera reveno al bono. La Spirito estas
 
-tio ne malhelpas la Teron turniøi; kredu, ke la homo 
+do la absoluta decidanto de sia propra sorto; siajn su-
 
-estas sur la Tero nur de ses mil jaroj: tio ne malhelpas, 
+ferojn li povas plidaŭrigi per sia obstinado en malbono,
 
-ke la faktoj pruvas la neeblecon de tia difino. Kaj kion 
+mildigi aŭ malplidaŭrigi per siaj klopodoj por fari bonon.
 
-vi diros, se unu belan tagon tiu senemocia geologio per 
+Æar la daŭro de iu puno dependas de la pento, tial
 
-evidentaj postsignoj pruvas la pli fruan ekaperon de la 
+sekvas, ke iu kulpa Spirito, kiu neniam pentus nek pli-
 
-homo, simile kiel øi pruvis tiom da aliaj aferoj? Kredu 
+boniĝus, ĝiam suferus, kaj ke laŭ lia sento la puno estus
 
-do æion, kion vi volos, eæ je la diablo, se tia kredo povas 
+eterna. La eterneco de punoj oni do devas kompreni ne
 
-fari vin bona, humana kaj karitema por viaj similuloj. 
+laŭ la senco absoluta, sed laŭ la relativa.
 
-Spiritis mo, kiel doktrino morala, trudas nur unu aferon, 
+Situacio propra al la malsupereco de la Spiritoj, est-
 
-nome la neceson fari bonon kaj tute ne fari malbonon. 
+as tio, ke ili ne vidas la finon de sia situacio kaj pensas,
 
-Øi estas observoscienco, kiu, mi ripetas, havas moralajn 
+ke ili suferos ĝiam: tio estas por ili puno. Sed de la
 
-sekvojn, kaj tiuj sekvoj estas la jesigo kaj la pruvo de 
+momento, kiam ilia koro malfermiĝas al pento, Dio duon-
 
-la grandaj principoj de la religio; koncerne la duarang- 
+vidigas al ili radion da espero.
 
-ajn demandojn, øi ilin lasas al la konscienco de æiu homo. 
+Æi tiu doktrino evidente estas pli konforma al la
 
-Via pastra moþto bonvolu rimarki, ke kelkajn el tiuj 
+justeco de Dio, kiu punas tiel longe, dum oni persistas
 
-malsame rigardataj aferoj, pri kiuj vi antaý momento 
 
-parolis, Spiritismo ilin principe ne kontestas. Se vi estus 
+ALLAN KARDEC
 
 
+en la malbono, kaj korfavoras, kiam oni ekiras la bonan
 
-KIO ESTAS SPIRITISMO ? 
+vojon. Kiu ĝin imagis? Æu ni? Ne, sed la Spiritoj, kiuj
 
-83 
+ĝin instruas kaj pruvas ĝian verecon per la ekzemploj,
 
+kiujn ili ĝiutage elmetas antaŭ niaj okuloj.
 
+La Spiritoj do ne neas la estontajn punojn, ĝar ili
 
-leginta æion, kion mi pri tio skribis, vi estus rimarkinta, 
+ja priskribas siajn proprajn suferojn, kaj tia bildo tuþas
 
-ke øi simple donas al ili interpreton pli logikan kaj raci- 
+nin pli forte, ol tiu de la ĝiamaj flamoj, ĝar tie ĝio estas
 
-an, ol la interpreto vulgara. Tiel, ekzemple, øi ne neas 
+absolute logika. Oni ja komprenas, ke tio estas ebla, ke
 
-la ekziston de la purgatorio: øi, kontraýe, pruvas ties 
+tiel devas esti, ke tia situacio estas tute natura sekvo
 
-neceson kaj justecon, kaj eæ plue, øi tiun difinas. La 
+de la aferoj; la filozofia pensulo mem povas ĝin akcepti,
 
-infero estas priskribita, kvazaý ia grandega fajrejo, sed 
+ĝar tie nenio malplaĝas al la racio. Jen kial la spiritismaj
 
-ja tiel øin komprenas la alta teologio? Ne, evidente; la 
+kredoj rekondukis al bono multegon da homoj, eĝ mate-
 
-altaj teologoj tute prave diras, ke tio estas ia figuro, ke 
+rialistojn, kiujn la timo antaŭ la infero, tia, kia oni ĝi
 
-la fajro, en kiu oni brulas, estas fajro morala, simbolo 
+tiun pentras, ne tuþis, ne deturnis de ilia sintenado.
 
-de la plej akraj doloroj. 
 
-Koncerne la eternecon de punoj, se estus farebla ia 
+**Pastro **— Se oni akceptas tiun vian rezonadon, ĝu
 
-voædonado pri æi tiu punkto, por ekkoni la intiman opi- 
+vi ne pensas, ke la vulgarularo bezonas prefere frapant-
 
-nion de æiu homo kapabla rezoni aý kompreni, eæ æe tiuj 
+ajn bildojn, ol ian filozofion, kiun ili ne komprenas?
 
-plej religiemaj, tiam oni vidus, sur kiu flanko staras la 
 
-plimulto, æar la ideo pri ia eterneco de torturoj estas 
+**A. K. **— Jen eraro, kiu naskis pli ol unu material-
 
-la neado de la senlima kompatemeco de Dio. 
+iston aŭ almenaŭ deturnis de la religio pli ol unu homon.
 
-Jen cetere, kion la spiritisma doktrino asertas en æi 
+Venas momento, kiam tiuj bildoj jam ne frapas, kaj
 
-tiu rilato: 
+tiam la homoj, kiuj ne profunde observas la aferojn, ne
 
-La daýro de la puno dependas de la pliboniøo de 
+akceptante unu parton, rifuzas la tuton, ĝar, ili diras:
 
-la kulpa Spirito. Kontraý li estas eldirata nenia kon- 
+"Se oni instruis al mi, kiel nekontesteblan vera¼on, mal-
 
-damno por iu difinita tempo. Kion Dio postulas, por 
+veran aferon, se oni donis al mi ian imagon, ian figuron
 
-meti finon al la suferoj, tio estas la pento, la kulpelaæeto 
+por la reala¼o, kiel do mi estu certa, ke la cetera¼o estas
 
-kaj la kompenso de ofendoj, unuvorte, serioza, efektiva 
+pli vera?" Se, kontraŭe, la racio, krestante, havas neni-
 
-pliboniøo kaj sincera reveno al bono. La Spirito estas 
+on por malakcepti, la fido fortikiĝas. La religio ĝiam
 
-do la absoluta decidanto de sia propra sorto; siajn su- 
+gajnos, sekvante la progresadon de la ideoj; se ĝi iam
 
-ferojn li povas plidaýrigi per sia obstinado en malbono, 
+devis minaci falon, tiel estis tial, ke la homoj probable
 
-mildigi aý malplidaýrigi per siaj klopodoj por fari bonon. 
+marþis antaŭen, dum ĝi restis malantaŭe. Tiu eraras
 
-Æar la daýro de iu puno dependas de la pento, tial 
+pri epoko, kiu pensas, ke oni hodiaŭ povas kondukadi
 
-sekvas, ke iu kulpa Spirito, kiu neniam pentus nek pli- 
+la homojn per la timo antaŭ la demono kaj la eternaj
 
-boniøus, æiam suferus, kaj ke laý lia sento la puno estus 
+turmentoj.
 
-eterna. La eterneco de punoj oni do devas kompreni ne 
 
-laý la senco absoluta, sed laý la relativa. 
+**Pastro **— Efektive, la Eklezio hodiaŭ rekonas, ke
 
-Situacio propra al la malsupereco de la Spiritoj, est- 
+la materia infero estas figuro, sed tio ne esceptas la ek-
 
-as tio, ke ili ne vidas la finon de sia situacio kaj pensas, 
+ziston de la demonoj: sen ĝi tiuj, kiel do oni klarigus
 
-ke ili suferos æiam: tio estas por ili puno. Sed de la 
+la influon de la malbono, io, kio ne povas veni de Dio?
 
-momento, kiam ilia koro malfermiøas al pento, Dio duon- 
 
-vidigas al ili radion da espero. 
+KIO ESTAS SPIRITISMO ?
 
-Æi tiu doktrino evidente estas pli konforma al la 
 
-justeco de Dio, kiu punas tiel longe, dum oni persistas 
+**A. K. **— Spiritismo ne rekonas iajn demonojn, laŭ
 
-84 
+la ordinara senco de ĝi tiu vorto, sed ĝi akceptas la
 
-ALLAN KARDEC 
+ekziston de la malicaj Spiritoj, kiuj ne estas pli dignaj
 
+ol tiuj kaj kiuj faras tiom same da malbono, enblovante
 
+pereigajn pensojn; estas nur tiu diferenco, ke ĝi diras,
 
-en la malbono, kaj korfavoras, kiam oni ekiras la bonan 
+ke tiuj ne estas aparte starantaj estuloj, kreitaj por mal-
 
-vojon. Kiu øin imagis? Æu ni? Ne, sed la Spiritoj, kiuj 
+bono kaj eterne sin dediĝantaj al malbono, iaj parioj
 
-øin instruas kaj pruvas øian verecon per la ekzemploj, 
+de la Kreita¼aro kaj ekzekutistoj de la homa genro; ili
 
-kiujn ili æiutage elmetas antaý niaj okuloj. 
+estas ja estuloj nemulte progresintaj, ankoraŭ neperfekt-
 
-La Spiritoj do ne neas la estontajn punojn, æar ili 
+aj, sed al kiuj Dio malfermas la estontecon. Pri ĝi tio
 
-ja priskribas siajn proprajn suferojn, kaj tia bildo tuþas 
+ĝi akordas kun la greka katolika Eklezio, kiu akceptas
 
-nin pli forte, ol tiu de la æiamaj flamoj, æar tie æio estas 
+la konvertiĝon de Satano, aludante al la revirtiĝo de la
 
-absolute logika. Oni ja komprenas, ke tio estas ebla, ke 
+malicaj Spiritoj. Rimarku ankaŭ, ke la vorto **demono**
 
-tiel devas esti, ke tia situacio estas tute natura sekvo 
+implicas la ideon de malica Spirito nur laŭ la hodiaŭa
 
-de la aferoj; la filozofia pensulo mem povas øin akcepti, 
+senco, kiun oni donis al ĝi, ĝar la greka vorto **daimôn **
 
-æar tie nenio malplaæas al la racio. Jen kial la spiritismaj 
+signifas **genio, inteligento. ** Iel ajn, oni nun ĝm-
 
-kredoj rekondukis al bono multegon da homoj, eæ mate- 
+prenas nur en la malbona senco. Nu, akcepti la komu -
 
-rialistojn, kiujn la timo antaý la infero, tia, kia oni æi 
+nikadon kun malicaj Spiritoj estas ja rekoni principe la
 
-tiun pentras, ne tuþis, ne deturnis de ilia sintenado. 
+realecon de la manifestiĝoj de Spiritoj. Estas necese scii,
 
+ĝu nur tiuj solaj komunikiĝas, kiel asertas la Eklezio,
 
+por motivi sian malpermeson je komunikado kun la Spi-
 
-**Pastro **— Se oni akceptas tiun vian rezonadon, æu 
+ritoj. En ĝi tiu rilato mi alvokas la rezonadon kaj la
 
-vi ne pensas, ke la vulgarularo bezonas prefere frapant- 
+faktojn. Se la Spiritoj, kiaj ajn ili estas, komunikiĝas,
 
-ajn bildojn, ol ian filozofion, kiun ili ne komprenas? 
+tiel estas nur laŭ la permeso de Dio: ĝu oni akceptus
 
+en sia animo, ke Li tion permesas nur al la malicaj?
 
+Kiel do! dum Li al ĝi tiuj havigus plenan liberecon, por
 
-**A. K. **— Jen eraro, kiu naskis pli ol unu material- 
+veni trompi la homojn, Li malpermesus al la bonaj veni
 
-iston aý almenaý deturnis de la religio pli ol unu homon. 
+kontraŭpezi tian agadon, nuligi iliajn pereigajn doktrin-
 
-Venas momento, kiam tiuj bildoj jam ne frapas, kaj 
+ojn! Æu kredi, ke tiel estus, ne estus pridubi Lian po-
 
-tiam la homoj, kiuj ne profunde observas la aferojn, ne 
+tencon, Lian bonecon, kaj fari el Satano ian konkuranton
 
-akceptante unu parton, rifuzas la tuton, æar, ili diras: 
+de Dio? La Biblio, la Evangelio, la Patroj de la Eklezio
 
-"Se oni instruis al mi, kiel nekontesteblan vera¼on, mal- 
+plene rekonas la eblecon de komunikado kun la nevid-
 
-veran aferon, se oni donis al mi ian imagon, ian figuron 
+ebla mondo, kaj el tiu mondo la bonaj Spiritoj ne est-
 
-por la reala¼o, kiel do mi estu certa, ke la cetera¼o estas 
+as esceptitaj: kial do ĝi tiuj hodiaŭ estus eksterlasitaj?
 
-pli vera?" Se, kontraýe, la racio, krestante, havas neni- 
+Cetere, akceptante la aŭtentikecon de iuj apera¼oj kaj
 
-on por malakcepti, la fido fortikiøas. La religio æiam 
+komunikiĝoj de sanktuloj, la Eklezio ĝuste tial forigas
 
-gajnos, sekvante la progresadon de la ideoj; se øi iam 
+la ideon, ke oni havas aferon nur al la malicaj Spiritoj.
 
-devis minaci falon, tiel estis tial, ke la homoj probable 
+Efektive, kiam komunika¼oj enhavas nur bonajn aferojn,
 
-marþis antaýen, dum øi restis malantaýe. Tiu eraras 
+kiam per ili estas predikataj nur la plej pura kaj plej
 
-pri epoko, kiu pensas, ke oni hodiaý povas kondukadi 
+alta evangelia moralo, la abnegacio, la neprofitamo kaj
 
-la homojn per la timo antaý la demono kaj la eternaj 
 
-turmentoj. 
+ALLAN KARDEC
 
 
+la amo al la proksimulo; kiam per ili oni vipas la mal-
 
-**Pastro **— Efektive, la Eklezio hodiaý rekonas, ke 
+bonon, kia ajn la farbo, per kiu ĝi sin þmiras, ĝu do estas
 
-la materia infero estas figuro, sed tio ne esceptas la ek- 
+racie pensi, ke la malbonulo tiel laboras por sia celo?
 
-ziston de la demonoj: sen æi tiuj, kiel do oni klarigus 
 
-la influon de la malbono, io, kio ne povas veni de Dio? 
+**Pastro **— La Evangelio instruas al ni, ke la anĝelo
 
+de mallumo, aŭ Satano, sin aliformas kvazaŭ anĝelon de
 
+lumo (*), por delogi la homojn.
 
-KIO ESTAS SPIRITISMO ? 
 
-85 
+**A. K. **— Satano, laŭ Spiritismo kaj la opinio de mult-
 
+aj kristanaj filozofoj, estas ne ia reala estulo, sed la per-
 
+soniĝo de la malbono, simile kiel pasintatempe Saturno
 
-**A. K. **— Spiritismo ne rekonas iajn demonojn, laý 
+personigis la tempon. Tiun alegorian figuron la Eklezio
 
-la ordinara senco de æi tiu vorto, sed øi akceptas la 
+rigardas laŭlitere: tio estas demando de opinio, kiun mi
 
-ekziston de la malicaj Spiritoj, kiuj ne estas pli dignaj 
+ne diskutos. Ni por momento konsentu, ke Satano estas
 
-ol tiuj kaj kiuj faras tiom same da malbono, enblovante 
+reala estulo; la Eklezio tiel trograndigis lian potencon,
 
-pereigajn pensojn; estas nur tiu diferenco, ke øi diras, 
+celante semi teruron en la korojn, ke ĝi venis al tute
 
-ke tiuj ne estas aparte starantaj estuloj, kreitaj por mal- 
+mala rezultato, t. e. al la neniigo ne nur de ĝia timo, sed
 
-bono kaj eterne sin dediæantaj al malbono, iaj parioj 
+ankaŭ de ĝia kredo al lia persono, laŭ la proverbo: "Kiu
 
-de la Kreita¼aro kaj ekzekutistoj de la homa genro; ili 
+volas tro multe pruvi, tiu pruvas nenion". Øi prezentas
 
-estas ja estuloj nemulte progresintaj, ankoraý neperfekt- 
+lin kiel eminente sagacan, lertan kaj ruzan, sed en la
 
-aj, sed al kiuj Dio malfermas la estontecon. Pri æi tio 
+kadro de Spiritismo ĝi igas lin ludi rolon de ia stultulo
 
-øi akordas kun la greka katolika Eklezio, kiu akceptas 
+aŭ mallertulo.
 
-la konvertiøon de Satano, aludante al la revirtiøo de la 
+Æar la celo de Satano estas nutri la inferon per siaj
 
-malicaj Spiritoj. Rimarku ankaý, ke la vorto **demono** 
+viktimoj kaj forpreni de Dio la animojn, tial oni kom-
 
-implicas la ideon de malica Spirito nur laý la hodiaýa 
+prenas, ke li iras al tiuj, kiuj troviĝas en bono, por ilin
 
-senco, kiun oni donis al øi, æar la greka vorto **daimôn **
+faligi en malbonon, kaj ke por tio li aliiĝas, laŭ tre bela
 
-signifas **genio, inteligento. ** Iel ajn, oni nun øin kom- 
+alegorio, en anĝelon de lumo, t. e. ke li hipokritu, þajn-
 
-prenas nur en la malbona senco. Nu, akcepti la komu - 
+igante virton; sed ke li lasas forgliti tiujn, kiujn li jam
 
-nikadon kun malicaj Spiritoj estas ja rekoni principe la 
+tenas en siaj ungegoj, jen kion oni ja ne komprenas.
 
-realecon de la manifestiøoj de Spiritoj. Estas necese scii, 
+Tiuj, kiuj kredas nek je Dio, nek je sia animo, tiuj, kiuj
 
-æu nur tiuj solaj komunikiøas, kiel asertas la Eklezio, 
+malþatas la preĝon kaj dronas en la malvirtoj, tiom, kiom
 
-por motivi sian malpermeson je komunikado kun la Spi- 
+eble, apartenas al li; jam nenion li bezonas fari, por ilin
 
-ritoj. En æi tiu rilato mi alvokas la rezonadon kaj la 
+pli profunde enigi en la þlimon; nu, admoni ilin reveni
 
-faktojn. Se la Spiritoj, kiaj ajn ili estas, komunikiøas, 
+al Dio, preĝi al ĝi Tiu, submeti al Ties volo, ilin sti-
 
-tiel estas nur laý la permeso de Dio: æu oni akceptus 
+muli rezigni la malbonon, montrante al ili la feliĝecon
 
-en sia animo, ke Li tion permesas nur al la malicaj? 
+de la elektitoj kaj la plorindan sorton, kiu atendas la
 
-Kiel do\! dum Li al æi tiuj havigus plenan liberecon, por 
+malbonulojn, tio estus ago de ia stultulo, ago pli mal-
 
-veni trompi la homojn, Li malpermesus al la bonaj veni 
 
-kontraýpezi tian agadon, nuligi iliajn pereigajn doktrin- 
+( * ) Laŭ II Korintanoj, 11:14. — *La Trad*.
 
-ojn\! Æu kredi, ke tiel estus, ne estus pridubi Lian po- 
 
-tencon, Lian bonecon, kaj fari el Satano ian konkuranton 
+KIO ESTAS SPIRITISMO ?
 
-de Dio? La Biblio, la Evangelio, la Patroj de la Eklezio 
 
-plene rekonas la eblecon de komunikado kun la nevid- 
+saĝa ol tio, se oni ellasus birdojn el kaĝo, pensante ilin
 
-ebla mondo, kaj el tiu mondo la bonaj Spiritoj ne est- 
+poste rekapti.
 
-as esceptitaj: kial do æi tiuj hodiaý estus eksterlasitaj? 
+Estas do en la doktrino de la ekskluziva komunik-
 
-Cetere, akceptante la aýtentikecon de iuj apera¼oj kaj 
+iĝado de la demonoj memkontraŭa¼o, kiu frapas ĝiun saĝ-
 
-komunikiøoj de sanktuloj, la Eklezio øuste tial forigas 
+an homon; tial oni neniam iun konvinkus, ke la Spiritoj,
 
-la ideon, ke oni havas aferon nur al la malicaj Spiritoj. 
+kiuj rekondukas al Dio tiujn, kiuj Lin forneis, al bono,
 
-Efektive, kiam komunika¼oj enhavas nur bonajn aferojn, 
+tiujn, kiuj faradis malbonon, Spiritoj, kiuj konsolas la
 
-kiam per ili estas predikataj nur la plej pura kaj plej 
+afliktitojn, havigas viglecon kaj kuraĝon al la malfort-
 
-alta evangelia moralo, la abnegacio, la neprofitamo kaj 
+aj; kiuj per la superbeleco de siaj instruoj altigas la
 
-86 
+animon super la materialan vivon, tiuj estus satelitoj de
 
-ALLAN KARDEC 
+Satano, kaj tial oni devas malpermesi ĝian rilaton kun
 
+la nevidebla mondo.
 
 
-la amo al la proksimulo; kiam per ili oni vipas la mal- 
+**Pastro **— La Eklezio malpermesas la komunikadon
 
-bonon, kia ajn la farbo, per kiu øi sin þmiras, æu do estas 
+kun la Spiritoj de la mortintoj, ĝar tio estas kontraŭa
 
-racie pensi, ke la malbonulo tiel laboras por sia celo? 
+al la religio, tion formale kondamnas la Evangelio kaj
 
+Moseo. Æi tiu lasta, kondamnante tian agadon, klare
 
+montras, kiel riproĝinda ĝi estas en la okuloj de Dio.
 
-**Pastro **— La Evangelio instruas al ni, ke la anøelo 
 
-de mallumo, aý Satano, sin aliformas kvazaý anøelon de 
+**A. K. **— Mi petas de vi pardonon; tiu malpermeso
 
-lumo \(\*\), por delogi la homojn. 
+troviĝas nenie en la Evangelio, sed nur en la mosea leĝ-
 
+aro. Oni do devas scii, ĝu la Eklezio starigas la mosean
 
+leĝaron super la leĝaro evangelia, aŭ alivorte, ĝu ĝi est-
 
-**A. K. **— Satano, laý Spiritismo kaj la opinio de mult- 
+as pli juda ol kristana. Estas eĝ rimarkinde, ke el ĝiuj
 
-aj kristanaj filozofoj, estas ne ia reala estulo, sed la per- 
+religioj tiu, kiu la plej malmulte oponas al Spiritismo,
 
-soniøo de la malbono, simile kiel pasintatempe Saturno 
+estas la juda, kaj ke kontraŭ la elvokoj ĝi ne faris uzon
 
-personigis la tempon. Tiun alegorian figuron la Eklezio 
+el la mosea leĝaro, sur kiu sin bazas la kristanaj sekt-
 
-rigardas laýlitere: tio estas demando de opinio, kiun mi 
+oj. Se la bibliaj preskriboj estas la kodo de la kristana
 
-ne diskutos. Ni por momento konsentu, ke Satano estas 
+kredo, kial do malpermesi la legadon de la Biblio? Kion
 
-reala estulo; la Eklezio tiel trograndigis lian potencon, 
+oni diru, se al iu civitano estus malpermesite studi la
 
-celante semi teruron en la korojn, ke øi venis al tute 
+leĝaron de sia regno?
 
-mala rezultato, t. e. al la neniigo ne nur de æia timo, sed 
+La malpermeso, ordonita de Moseo, havis tiam sian
 
-ankaý de æia kredo al lia persono, laý la proverbo: "Kiu 
+pravon de ekzisto, ĝar tiu hebrea leĝdonanto volis, ke lia
 
-volas tro multe pruvi, tiu pruvas nenion". Øi prezentas 
+popolo rompu kun ĝiuj kutimoj, kiujn ili faris al si ĝe
 
-lin kiel eminente sagacan, lertan kaj ruzan, sed en la 
+la egiptoj kaj el kiuj tiun, nun pritraktatan, ili misuz-
 
-kadro de Spiritismo øi igas lin ludi rolon de ia stultulo 
+adis. Oni ne elvokadis la mortintojn pro la respekto kaj
 
-aý mallertulo. 
+korinklino al ili, nek kun pia sento; tio estis ia diven-
 
-Æar la celo de Satano estas nutri la inferon per siaj 
+rimedo, objekto de hontinda komercado, ekspluatata de
 
-viktimoj kaj forpreni de Dio la animojn, tial oni kom- 
+la ĝarlatanismo kaj superstiĝo: Moseo estis do prava,
 
-prenas, ke li iras al tiuj, kiuj troviøas en bono, por ilin 
+ĝin malpermesante. Kontraŭ tiu misuzado li eldiris se-
 
-faligi en malbonon, kaj ke por tio li aliiøas, laý tre bela 
 
-alegorio, en anøelon de lumo, t. e. ke li hipokritu, þajn- 
+ALLAN KARDEC
 
-igante virton; sed ke li lasas forgliti tiujn, kiujn li jam 
 
-tenas en siaj ungegoj, jen kion oni ja ne komprenas. 
+veran verdikton, ĝar li bezonis rigorajn rimedojn, por
 
-Tiuj, kiuj kredas nek je Dio, nek je sia animo, tiuj, kiuj 
+regi tiun sendisciplinan popolon; tial la mortpuno abund-
 
-malþatas la preøon kaj dronas en la malvirtoj, tiom, kiom 
+is en lia leĝaro. Oni erare sin apogas sur la severeco de
 
-eble, apartenas al li; jam nenion li bezonas fari, por ilin 
+la puno, por pruvi la gradon da kulpeco de elvokado
 
-pli profunde enigi en la þlimon; nu, admoni ilin reveni 
+de la mortintoj.
 
-al Dio, preøi al æi Tiu, submeti al Ties volo, ilin sti- 
+Se la malpermeso elvoki la mortintojn, venis de Dio
 
-muli rezigni la malbonon, montrante al ili la feliæecon 
+mem, kiel pretendas la Eklezio, tiam ankaŭ Dio ordon-
 
-de la elektitoj kaj la plorindan sorton, kiu atendas la 
+is la mortpunon kontraŭ la krimintoj. La puno havas do
 
-malbonulojn, tio estus ago de ia stultulo, ago pli mal- 
+originon tiel sanktan, kiel la malpermeso: kial oni ĝin
 
+ne konservis? Moseo eldonis ĝiujn siajn leĝojn en la
 
+nomo kaj laŭ la ordono de Dio. Se oni kredas, ke Dio
 
-\( \* \) Laý II Korintanoj, 11:14. — *La Trad*. 
+estas ilia aŭtoro, kial do ili ne estas plu observataj? Se
 
+la leĝaro de Moseo estas Sankta dogmo pri unu artikolo,
 
+kial do ne pri ĝiuj? Kial peti ĝian helpon pri tio, kion
 
-KIO ESTAS SPIRITISMO ? 
+oni bezonis, kaj ĝin forpuþi ĝe tio nekonvena? Kial oni
 
-87 
+ne obeas ĝiujn ĝiajn preskribojn, inter kiuj estas la
 
+cirkumcido, al kiu Jesuo sin submetis kaj kiun li ne
 
+aboliciis?
 
-saøa ol tio, se oni ellasus birdojn el kaøo, pensante ilin 
+En la mosea leĝaro estis du partoj: — 1-a, la leĝo
 
-poste rekapti. 
+de Dio, mallonge prezentita sur la Sinajaj tabeloj; tiu
 
-Estas do en la doktrino de la ekskluziva komunik- 
+leĝo restis plu, ĝar ĝi estas dia, kaj la Kristo ĝin simple
 
-iøado de la demonoj memkontraýa¼o, kiu frapas æiun saø- 
+nur disvolvis; 2-a, la leĝo civila aŭ disciplina, alkonform-
 
-an homon; tial oni neniam iun konvinkus, ke la Spiritoj, 
+igita al la tiutempaj moroj kaj kiun la Kristo forstrekis.
 
-kiuj rekondukas al Dio tiujn, kiuj Lin forneis, al bono, 
+Hodiaŭ la cirkonstancoj jam ne estas tiaj samaj, kaj
 
-tiujn, kiuj faradis malbonon, Spiritoj, kiuj konsolas la 
+la malpermeso de Moseo jam havas nenian pravon de
 
-afliktitojn, havigas viglecon kaj kuraøon al la malfort- 
+ekzisto. Cetere, se la Eklezio malpermesas la elvokadon
 
-aj; kiuj per la superbeleco de siaj instruoj altigas la 
+de la Spiritoj, ĝu ĝi malhelpas ilin veni ne vokite? Æu
 
-animon super la materialan vivon, tiuj estus satelitoj de 
+oni ĝiutage ne vidas, trafatajn de ĝiaspecaj manifestiĝoj
 
-Satano, kaj tial oni devas malpermesi æian rilaton kun 
+de Spiritoj, homojn, kiuj neniam sin okupis pri Spirit-
 
-la nevidebla mondo. 
+ismo, kaj ĝu same oni ne vidis homojn ĝe tiuj manifest-
 
+iĝoj, longe antaŭ ol oni parolis pri Spiritismo?
 
+Ankoraŭ unu kontraŭdira¼o: se Moseo malpermesis,
 
-**Pastro **— La Eklezio malpermesas la komunikadon 
+ke oni elvoku la Spiritojn de la mortintoj, la Spiritoj pov-
 
-kun la Spiritoj de la mortintoj, æar tio estas kontraýa 
+as do veni, alie lia malpermeso estus vana. Se ili povis
 
-al la religio, tion formale kondamnas la Evangelio kaj 
+veni en lia tempo, ili do povas veni ankoraŭ hodiaŭ; se
 
-Moseo. Æi tiu lasta, kondamnante tian agadon, klare 
+ili estas la Spiritoj de la mortintoj, ili do ne estas sole
 
-montras, kiel riproæinda øi estas en la okuloj de Dio. 
+nur demonoj. Antaŭ ĝio oni devas esti logika.
 
 
+**Pastro **— La Eklezio ne neas, ke bonaj Spiritoj pov-
 
-**A. K. **— Mi petas de vi pardonon; tiu malpermeso 
+as komunikiĝi, ĝar ĝi rekonas, ke la sanktuloj manifest-
 
-troviøas nenie en la Evangelio, sed nur en la mosea leø- 
 
-aro. Oni do devas scii, æu la Eklezio starigas la mosean 
+KIO ESTAS SPIRITISMO ?
 
-leøaron super la leøaro evangelia, aý alivorte, æu øi est- 
 
-as pli juda ol kristana. Estas eæ rimarkinde, ke el æiuj 
+iĝas, tamen ĝi ne povas rigardi kiel **bonajn** tiujn, kiuj
 
-religioj tiu, kiu la plej malmulte oponas al Spiritismo, 
+kontraŭdiras ĝiajn neþanĝemajn pricipojn. La Spiritoj
 
-estas la juda, kaj ke kontraý la elvokoj øi ne faris uzon 
+diras, ke ekzistas estontaj punoj kaj rekompencoj, sed
 
-el la mosea leøaro, sur kiu sin bazas la kristanaj sekt- 
+ili tiujn pentras malsame ol ĝi; nur ĝi sola povas juĝi
 
-oj. Se la bibliaj preskriboj estas la kodo de la kristana 
+iliajn asertojn kaj distingi inter bonaj kaj malbonaj.
 
-kredo, kial do malpermesi la legadon de la Biblio? Kion 
 
-oni diru, se al iu civitano estus malpermesite studi la 
+**A. K. **— Jen la granda demando. Galileo Galilei est-
 
-leøaron de sia regno? 
+is akuzita kiel herezulo kaj inspirato de la demono, ĝar
 
-La malpermeso, ordonita de Moseo, havis tiam sian 
+li malkaþis leĝon de la Naturo, kiu pruvis la erarecon
 
-pravon de ekzisto, æar tiu hebrea leødonanto volis, ke lia 
+de iu kredo, tiam rigardata kiel neatakebla, kaj tial li
 
-popolo rompu kun æiuj kutimoj, kiujn ili faris al si æe 
+estis komdamnita kaj ekskomunikita. Se la Spiritoj estus
 
-la egiptoj kaj el kiuj tiun, nun pritraktatan, ili misuz- 
+pri ĝiuj punktoj opiniintaj tiel same, kiel la Eklezio, se
 
-adis. Oni ne elvokadis la mortintojn pro la respekto kaj 
+ili ne estus proklamintaj la liberecon de la konscienco
 
-korinklino al ili, nek kun pia sento; tio estis ia diven- 
+kaj kondamnintaj certajn malbonuzojn, ili estus kore ak-
 
-rimedo, objekto de hontinda komercado, ekspluatata de 
+ceptitaj kaj oni ilin ne estus alnominta demonoj.
 
-la æarlatanismo kaj superstiæo: Moseo estis do prava, 
+Ankaŭ tio estas la kaŭzo, kial ĝiuj religioj, kiel la
 
-øin malpermesante. Kontraý tiu misuzado li eldiris se- 
+muzulmanoj, tiel ankaŭ la katolikoj, kredante sin eks-
 
-88 
+kluzivaj posedantoj de la absoluta vero, konsideras verko
 
-ALLAN KARDEC 
+de la demono ĝian doktrinon ne absolute ortodoksan laŭ
 
+ilia vidpunkto. Nu, la Spiritoj ne renversas la religion,
 
+sed, same kiel Galileo Galilei, malkaþas novajn leĝojn de
 
-veran verdikton, æar li bezonis rigorajn rimedojn, por 
+la Naturo. Se iuj dogmoj suferas de tio, tiel estas, ĝar,
 
-regi tiun sendisciplinan popolon; tial la mortpuno abund- 
+simile al la kredo pri la rondirado de la Suno, ili kon-
 
-is en lia leøaro. Oni erare sin apogas sur la severeco de 
+traŭas tiujn leĝojn. Estas necese scii, ĝu iu kredartikolo
 
-la puno, por pruvi la gradon da kulpeco de elvokado 
+povas nuligi leĝon de la Naturo, kiu estas verko de Dio,
 
-de la mortintoj. 
+kaj ĝu, post la akcepto de tiu leĝo, ne estas pli saĝe in-
 
-Se la malpermeso elvoki la mortintojn, venis de Dio 
+terpreti la dogmon konforme al la leĝo, anstataŭ atribui
 
-mem, kiel pretendas la Eklezio, tiam ankaý Dio ordon- 
+ĝi tiun al la demono.
 
-is la mortpunon kontraý la krimintoj. La puno havas do 
 
-originon tiel sanktan, kiel la malpermeso: kial oni øin 
+**Pastro **— Ni flanken metu la demandon pri la de-
 
-ne konservis? Moseo eldonis æiujn siajn leøojn en la 
+monoj; mi ja scias, ke ĝi estas diverse interpretata de
 
-nomo kaj laý la ordono de Dio. Se oni kredas, ke Dio 
+la teologoj; kio þajnas al mi pli malfacile akordigebla
 
-estas ilia aýtoro, kial do ili ne estas plu observataj? Se 
+kun la dogmoj, tio estas la doktrino pri la reenkarniĝo,
 
-la leøaro de Moseo estas Sankta dogmo pri unu artikolo, 
+ĝar ĝi ja estas nenio alia, ol la renaskita metempsikozo,
 
-kial do ne pri æiuj? Kial peti øian helpon pri tio, kion 
+de Pitagoro.
 
-oni bezonis, kaj øin forpuþi æe tio nekonvena? Kial oni 
 
-ne obeas æiujn øiajn preskribojn, inter kiuj estas la 
+**A. K. **— Nun ne estas oportuna momento, por dis -
 
-cirkumcido, al kiu Jesuo sin submetis kaj kiun li ne 
+kuti demandon, kiu postulos longan paroladon; vi ĝin
 
-aboliciis? 
+trovos pritraktita en "La Libro de la Spiritoj" kaj en
 
-En la mosea leøaro estis du partoj: — 1-a, la leøo 
 
-de Dio, mallonge prezentita sur la Sinajaj tabeloj; tiu 
+ALLAN KARDEC
 
-leøo restis plu, æar øi estas dia, kaj la Kristo øin simple 
 
-nur disvolvis; 2-a, la leøo civila aý disciplina, alkonform- 
+"La Evangelio laŭ Spiritismo" (*) tial mi ĝi tie diros pri ĝi nur iajn kelke da vortoj.
 
-igita al la tiutempaj moroj kaj kiun la Kristo forstrekis. 
+La metempsikozo, kiel ĝe la antikvuloj, konsistis en
 
-Hodiaý la cirkonstancoj jam ne estas tiaj samaj, kaj 
+la transmigrado de la animo de la homo en la bestojn,
 
-la malpermeso de Moseo jam havas nenian pravon de 
+kio kuntrenis ian malaltigon. Cetere tiu doktrino ne est-
 
-ekzisto. Cetere, se la Eklezio malpermesas la elvokadon 
+is tio, kion oni ordinare prezentas al si. La transmigr-
 
-de la Spiritoj, æu øi malhelpas ilin veni ne vokite? Æu 
+ado en la bestojn estis rigardata ne kiel ia kondiĝo esence
 
-oni æiutage ne vidas, trafatajn de æiaspecaj manifestiøoj 
+propra al la naturo de la homa animo, sed kelkatempa
 
-de Spiritoj, homojn, kiuj neniam sin okupis pri Spirit- 
+puno; tiel ekzemple la animoj de la murdintoj eniradis
 
-ismo, kaj æu same oni ne vidis homojn æe tiuj manifest- 
+en la korpojn de la sovaĝbestoj, por tie ricevi sian pun-
 
-iøoj, longe antaý ol oni parolis pri Spiritismo? 
+on; tiuj de la malĝastaj en la porkojn kaj aprojn; tiu
 
-Ankoraý unu kontraýdira¼o: se Moseo malpermesis, 
+de la þanĝanimaj kaj ventkapaj en la birdojn; tiuj de
 
-ke oni elvoku la Spiritojn de la mortintoj, la Spiritoj pov- 
+la mallaboremaj kaj malkleraj en la akvovivajn bestojn.
 
-as do veni, alie lia malpermeso estus vana. Se ili povis 
+Post miloj da jaroj, pli aŭ malpli longe laŭ la kulpeco,
 
-veni en lia tempo, ili do povas veni ankoraý hodiaý; se 
+en tiu speco de malliberejo, la animo revenadis en la
 
-ili estas la Spiritoj de la mortintoj, ili do ne estas sole 
+homaron.
 
-nur demonoj. Antaý æio oni devas esti logika. 
+La enkarniĝo kiel animalo ne estis do nepre necesa
 
+kondiĝo; ĝi povis esti kiel homo, kaj la pruvo pri ĝi tio
 
+estas, ke la puno de la timemaj viroj estis ilia transiĝo
 
-**Pastro **— La Eklezio ne neas, ke bonaj Spiritoj pov- 
+en virinajn korpojn submetitajn al malestimo kaj ofend-
 
-as komunikiøi, æar øi rekonas, ke la sanktuloj manifest- 
+oj (1). Øi estis pli timigilo por la simpluloj, ol dogmo
 
+ĝe la filozofoj. Same kiel oni diras al la infanoj: "Se vi
 
+estos malbonaj la lupo vin manĝos". La antikvuloj diris
 
-KIO ESTAS SPIRITISMO ? 
+al la krimuloj: "Vi fariĝos lupoj". Hodiaŭ oni diras al
 
-89 
+ili: "La diablo vin prenos kaj vin portos en la inferon".
 
+La plureco de la ekzistoj, laŭ Spiritismo, estas tute
 
+malsama ol tiu de la metempsikozo, ĝar ĝi ne kredas al
 
-iøas, tamen øi ne povas rigardi kiel **bonajn** tiujn, kiuj 
+reenkarniĝo de la homa animo en bestoj eĝ ne kiel puno.
 
-kontraýdiras øiajn neþanøemajn pricipojn. La Spiritoj 
+La Spiritoj instruas, ke la animo ne retroiras, sed ke ĝi
 
-diras, ke ekzistas estontaj punoj kaj rekompencoj, sed 
+senĝese progresas. Øiaj pluraj enkorpaj ekzistadoj efek-
 
-ili tiujn pentras malsame ol øi; nur øi sola povas juøi 
+tiviĝas en la homeco; ĝiu ekzistado estas por ĝi plia paþo
 
-iliajn asertojn kaj distingi inter bonaj kaj malbonaj. 
+antaŭen sur la vojo de la intelekta kaj morala progreso,
 
+kio estas tute alia afero. Ne povante akiri plenan el-
 
 
-**A. K. **— Jen la granda demando. Galileo Galilei est- 
+( * ) Vd. en *La Libro de la Spiritoj* n -roj 166 kaj sekv-
 
-is akuzita kiel herezulo kaj inspirato de la demono, æar 
+a n t a j , 2 2 2 , 1 0 1 0 ; e n *L a E v a n g e l i o l a ŭ S p i r i t i s m o* la Æap. IV
 
-li malkaþis leøon de la Naturo, kiu pruvis la erarecon 
+kaj V. — *Noto de la Aŭtoro *.
 
-de iu kredo, tiam rigardata kiel neatakebla, kaj tial li 
+( 1 ) Vidu en *La plureco de la ekzistadoj de la animo*,
 
-estis komdamnita kaj ekskomunikita. Se la Spiritoj estus 
+de Pezzani.
 
-pri æiuj punktoj opiniintaj tiel same, kiel la Eklezio, se 
 
-ili ne estus proklamintaj la liberecon de la konscienco 
+KIO ESTAS SPIRITISMO ?
 
-kaj kondamnintaj certajn malbonuzojn, ili estus kore ak- 
 
-ceptitaj kaj oni ilin ne estus alnominta demonoj. 
+volviĝon en unu sola ekzistado ofte tre mallongigita de
 
-Ankaý tio estas la kaýzo, kial æiuj religioj, kiel la 
+akcidentoj, la animo ricevas de Dio la permeson daŭrigi
 
-muzulmanoj, tiel ankaý la katolikoj, kredante sin eks- 
+en nova enkarniĝo la taskon, kiun ĝi ne povis plenumi,
 
-kluzivaj posedantoj de la absoluta vero, konsideras verko 
+aŭ rekomenci tion, kion ĝi malbone faris. La kulpelaĝet-
 
-de la demono æian doktrinon ne absolute ortodoksan laý 
+ado dum la enkorpa vivo konsistas en la ĝagrenoj, kiujn
 
-ilia vidpunkto. Nu, la Spiritoj ne renversas la religion, 
+oni tiam suferas.
 
-sed, same kiel Galileo Galilei, malkaþas novajn leøojn de 
+Pri la demando ĝu la plureco de la ekzistadoj estas
 
-la Naturo. Se iuj dogmoj suferas de tio, tiel estas, æar, 
+aŭ ne estas kontraŭa al iaj dogmoj de la Eklezio, mi
 
-simile al la kredo pri la rondirado de la Suno, ili kon- 
+diros nur:
 
-traýas tiujn leøojn. Estas necese scii, æu iu kredartikolo 
+El du aferoj nur unu estas vera, aŭ la reenkarniĝo
 
-povas nuligi leøon de la Naturo, kiu estas verko de Dio, 
+ekzistas aŭ ĝi ne ekzistas; se ĝi ekzistas, ĝi estas en la
 
-kaj æu, post la akcepto de tiu leøo, ne estas pli saøe in- 
+leĝoj de la Naturo. Por pruvi, ke ĝi ne ekzistas, estas
 
-terpreti la dogmon konforme al la leøo, anstataý atribui 
+necese pruvi, ke ĝi estas kontraŭa, ne al la dogmoj, sed
 
-æi tiun al la demono. 
+al tiuj leĝoj, kaj ke oni povus trovi iun alian, kiu klar-
 
+igus pli precize kaj pli logike la aferojn, kiujn nur ĝi
 
+povas solvi.
 
-**Pastro **— Ni flanken metu la demandon pri la de- 
+Cetere, estas facile demonstri, ke iuj dogmoj trovas
 
-monoj; mi ja scias, ke øi estas diverse interpretata de 
+en ĝi racian klarigon, kiu faras ilin tute akcepteblaj por
 
-la teologoj; kio þajnas al mi pli malfacile akordigebla 
+la homo j, ilin rifuzintaj pro nekompreno. Ne temas do
 
-kun la dogmoj, tio estas la doktrino pri la reenkarniøo, 
+pri detruado, sed pri interpretado; ĝi tio poste efektiv-
 
-æar øi ja estas nenio alia, ol la renaskita metempsikozo, 
+iĝos per la forto de la okazonta¼oj mem. Kiuj ne volos
 
-de Pitagoro. 
+akcepti la interpretadon, tiuj estos tute liberaj, kiel ili
 
+estas por kredi hodiaŭ, ke la Suno rondiras ĝirkaŭ la Tero. La
 
+ideo pri la plureco de la ekzistadoj disvastiĝas
 
-**A. K. **— Nun ne estas oportuna momento, por dis - 
+kun mirinda rapideco, dank’al sia fortega logikeco kaj al
 
-kuti demandon, kiu postulos longan paroladon; vi øin 
+sia konformeco kun la justeco de Dio. Kiam ĝi estos
 
-trovos pritraktita en "La Libro de la Spiritoj" kaj en 
+rekonita kiel natura vera¼o kaj agnoskita de ĝiuj, kion
 
-90 
+tiam faros la Eklezio?
 
-ALLAN KARDEC 
+Resume, la reenkarniĝo ne estas ia sistemo elpensita
 
+por la bezonoj de iu afero, nek ia persona opinio; ĝis est-
 
+as aŭ ne estas fakto. **Se estas demonstrite, ke iuj ek- **
 
-"La Evangelio laý Spiritismo" \(\*\) tial mi æi tie diros pri øi nur iajn kelke da vortoj. 
-
-La metempsikozo, kiel æe la antikvuloj, konsistis en 
-
-la transmigrado de la animo de la homo en la bestojn, 
-
-kio kuntrenis ian malaltigon. Cetere tiu doktrino ne est- 
-
-is tio, kion oni ordinare prezentas al si. La transmigr- 
-
-ado en la bestojn estis rigardata ne kiel ia kondiæo esence 
-
-propra al la naturo de la homa animo, sed kelkatempa 
-
-puno; tiel ekzemple la animoj de la murdintoj eniradis 
-
-en la korpojn de la sovaøbestoj, por tie ricevi sian pun- 
-
-on; tiuj de la malæastaj en la porkojn kaj aprojn; tiu 
-
-de la þanøanimaj kaj ventkapaj en la birdojn; tiuj de 
-
-la mallaboremaj kaj malkleraj en la akvovivajn bestojn. 
-
-Post miloj da jaroj, pli aý malpli longe laý la kulpeco, 
-
-en tiu speco de malliberejo, la animo revenadis en la 
-
-homaron. 
-
-La enkarniøo kiel animalo ne estis do nepre necesa 
-
-kondiæo; øi povis esti kiel homo, kaj la pruvo pri æi tio 
-
-estas, ke la puno de la timemaj viroj estis ilia transiøo 
-
-en virinajn korpojn submetitajn al malestimo kaj ofend- 
-
-oj \(1\). Øi estis pli timigilo por la simpluloj, ol dogmo 
-
-æe la filozofoj. Same kiel oni diras al la infanoj: "Se vi 
-
-estos malbonaj la lupo vin manøos". La antikvuloj diris 
-
-al la krimuloj: "Vi fariøos lupoj". Hodiaý oni diras al 
-
-ili: "La diablo vin prenos kaj vin portos en la inferon". 
-
-La plureco de la ekzistoj, laý Spiritismo, estas tute 
-
-malsama ol tiu de la metempsikozo, æar øi ne kredas al 
-
-reenkarniøo de la homa animo en bestoj eæ ne kiel puno. 
-
-La Spiritoj instruas, ke la animo ne retroiras, sed ke øi 
-
-senæese progresas. Øiaj pluraj enkorpaj ekzistadoj efek- 
-
-tiviøas en la homeco; æiu ekzistado estas por øi plia paþo 
-
-antaýen sur la vojo de la intelekta kaj morala progreso, 
-
-kio estas tute alia afero. Ne povante akiri plenan el- 
-
-
-
-\( \* \) Vd. en *La Libro de la Spiritoj* n -roj 166 kaj sekv- 
-
-a n t a j , 2 2 2 , 1 0 1 0 ; e n *L a E v a n g e l i o l a ý S p i r i t i s m o* la Æap. IV 
-
-kaj V. — *Noto de la Aýtoro *. 
-
-\( 1 \) Vidu en *La plureco de la ekzistadoj de la animo*, 
-
-de Pezzani. 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-91 
-
-
-
-volviøon en unu sola ekzistado ofte tre mallongigita de 
-
-akcidentoj, la animo ricevas de Dio la permeson daýrigi 
-
-en nova enkarniøo la taskon, kiun øi ne povis plenumi, 
-
-aý rekomenci tion, kion øi malbone faris. La kulpelaæet- 
-
-ado dum la enkorpa vivo konsistas en la æagrenoj, kiujn 
-
-oni tiam suferas. 
-
-Pri la demando æu la plureco de la ekzistadoj estas 
-
-aý ne estas kontraýa al iaj dogmoj de la Eklezio, mi 
-
-diros nur: 
-
-El du aferoj nur unu estas vera, aý la reenkarniøo 
-
-ekzistas aý øi ne ekzistas; se øi ekzistas, øi estas en la 
-
-leøoj de la Naturo. Por pruvi, ke øi ne ekzistas, estas 
-
-necese pruvi, ke øi estas kontraýa, ne al la dogmoj, sed 
-
-al tiuj leøoj, kaj ke oni povus trovi iun alian, kiu klar- 
-
-igus pli precize kaj pli logike la aferojn, kiujn nur øi 
-
-povas solvi. 
-
-Cetere, estas facile demonstri, ke iuj dogmoj trovas 
-
-en øi racian klarigon, kiu faras ilin tute akcepteblaj por 
-
-la homo j, ilin rifuzintaj pro nekompreno. Ne temas do 
-
-pri detruado, sed pri interpretado; æi tio poste efektiv- 
-
-iøos per la forto de la okazonta¼oj mem. Kiuj ne volos 
-
-akcepti la interpretadon, tiuj estos tute liberaj, kiel ili 
-
-estas por kredi hodiaý, ke la Suno rondiras æirkaý la Tero. La 
-
-ideo pri la plureco de la ekzistadoj disvastiøas 
-
-kun mirinda rapideco, dank’al sia fortega logikeco kaj al 
-
-sia konformeco kun la justeco de Dio. Kiam øi estos 
-
-rekonita kiel natura vera¼o kaj agnoskita de æiuj, kion 
-
-tiam faros la Eklezio? 
-
-Resume, la reenkarniøo ne estas ia sistemo elpensita 
-
-por la bezonoj de iu afero, nek ia persona opinio; øis est- 
-
-as aý ne estas fakto. **Se estas demonstrite, ke iuj ek- **
-
-**zistantaj aferoj estas tute neeblaj sen la reenkarniøo, **
+**zistantaj aferoj estas tute neeblaj sen la reenkarniĝo, **
 
 **estas nepre necese akcepti, ke ili estas sekvo de la re- **
 
-**enkarniøo; **sekve, se øi estas en la Naturo, øin ne povas 
+**enkarniĝo; **sekve, se ĝi estas en la Naturo, ĝin ne povas
 
-nuligi ia kontraýa opinio. 
-
-
-
-**Pastro **— Laý la diro de la Spiritoj, æu tiuj nekred- 
-
-antaj al ili kaj al iliaj manifestiøoj, estas malpli favor- 
-
-ataj en la estonta vivo? 
-
-92 
-
-ALLAN KARDEC 
+nuligi ia kontraŭa opinio.
 
 
+**Pastro **— Laŭ la diro de la Spiritoj, ĝu tiuj nekred-
 
-**A. K. **— Se tiu kredo estus nepre necesa al la savo 
+antaj al ili kaj al iliaj manifestiĝoj, estas malpli favor-
 
-de la homoj, kio fariøus al tiuj, de kiam la mondo ek- 
+ataj en la estonta vivo?
 
-zistas, kiuj ne havis rimedojn por øin posedi, kaj al tiuj, 
 
-kiuj ankoraý dum longa tempo mortos sen øi? Æu Dio 
+ALLAN KARDEC
 
-povus fermi al ili la pordon de la estonteco? Ne; la nin 
 
-instruantaj Spiritoj estas pli logikaj; ili diras al ni: Dio 
+**A. K. **— Se tiu kredo estus nepre necesa al la savo
 
-estas suverene justa kaj bona, kaj ne lasas la estontan 
+de la homoj, kio fariĝus al tiuj, de kiam la mondo ek-
 
-sorton de homo en dependeco de kondiæoj ekster lia volo. 
+zistas, kiuj ne havis rimedojn por ĝin posedi, kaj al tiuj,
+
+kiuj ankoraŭ dum longa tempo mortos sen ĝi? Æu Dio
+
+povus fermi al ili la pordon de la estonteco? Ne; la nin
+
+instruantaj Spiritoj estas pli logikaj; ili diras al ni: Dio
+
+estas suverene justa kaj bona, kaj ne lasas la estontan
+
+sorton de homo en dependeco de kondiĝoj ekster lia volo.
 
 La Spiritoj ne diras: **"Ekster Spiritismo, nenia savo" **, sed kiel la Kristo: **"Ekster karito, nenia savo". **
 
-****
 
-**Pastro **— Permesu do al mi diri, ke, se la Spiritoj 
+**Pastro **— Permesu do al mi diri, ke, se la Spiritoj
 
-instruas nur la principojn de la moralo, kiun ni trovas 
+instruas nur la principojn de la moralo, kiun ni trovas
 
-en la Evangelio, mi ne vidas la utilecon de Spiritismo, 
+en la Evangelio, mi ne vidas la utilecon de Spiritismo,
 
-æar ni povis nin savi antaý øi kaj povas ankoraý sen øi. 
+ĝar ni povis nin savi antaŭ ĝi kaj povas ankoraŭ sen ĝi.
 
-Ne estus tiel nur se la Spiritoj venus por instrui al ni 
+Ne estus tiel nur se la Spiritoj venus por instrui al ni
 
-grandajn novajn vera¼ojn, iajn principojn, kiuj þanøus 
+grandajn novajn vera¼ojn, iajn principojn, kiuj þanĝus
 
-la supra¼on de la mondo, kiel faris la Kristo. Almenaý 
+la supra¼on de la mondo, kiel faris la Kristo. Almenaŭ
 
-la Kristo estis sola, lia doktrino estis nur unu, dum la 
+la Kristo estis sola, lia doktrino estis nur unu, dum la
 
-Spiritoj estas miloj kaj kontraýdiras unuj aliajn; unuj 
+Spiritoj estas miloj kaj kontraŭdiras unuj aliajn; unuj
 
-diras "blanka", aliaj "nigra"; el kio sekvas, ke iliaj partianoj ekde la komenco jam formas plurajn sektojn. Æu 
+diras "blanka", aliaj "nigra"; el kio sekvas, ke iliaj partianoj ekde la komenco jam formas plurajn sektojn. Æu
 
-ne estus plibone lasi la Spiritojn trankvilaj, kaj teni nur 
+ne estus plibone lasi la Spiritojn trankvilaj, kaj teni nur
 
-tion, kion ni jam posedas? 
+tion, kion ni jam posedas?
 
 
+**A. K. **— Vi faras la eraron, sinjoro, ne eliri el via
 
-**A. K. **— Vi faras la eraron, sinjoro, ne eliri el via 
+vidpunkto, kaj rigardi la Eklezion kiel unikan mezurilon
 
-vidpunkto, kaj rigardi la Eklezion kiel unikan mezurilon 
+de la homa scio. Se la Kristo diris la veron, Spiritismo
 
-de la homa scio. Se la Kristo diris la veron, Spiritismo 
+ne povus diri ion alian, kaj anstataŭ ¼eti sur ĝin þtonojn,
 
-ne povus diri ion alian, kaj anstataý ¼eti sur øin þtonojn, 
+oni devus ĝin akcepti kiel potencan helpanton por kon-
 
-oni devus øin akcepti kiel potencan helpanton por kon- 
+firmi per ĝiuj voĝoj de la transmondo la fundamentajn
 
-firmi per æiuj voæoj de la transmondo la fundamentajn 
+verojn de la religio, funde rompitajn de nekredemo. Oni
 
-verojn de la religio, funde rompitajn de nekredemo. Oni 
+facile komprenas, ke la materialismo ĝin batalas; sed ke
 
-facile komprenas, ke la materialismo øin batalas; sed ke 
+la Eklezio aliĝu al la materialismo kontraŭ ĝi, estas mal-
 
-la Eklezio aliøu al la materialismo kontraý øi, estas mal- 
+pli kompreneble. Tute senlogike ankaŭ estas, ke la Ekle-
 
-pli kompreneble. Tute senlogike ankaý estas, ke la Ekle- 
+zio deklaras demona iun instruadon apogitan sur la sama
 
-zio deklaras demona iun instruadon apogitan sur la sama 
+aŭtoritateco kaj proklamantan la dian mision de la fond-
 
-aýtoritateco kaj proklamantan la dian mision de la fond- 
+into de Kristianismo.
 
-into de Kristianismo. 
+Sed ĝu la Kristo ĝion diris? Æu li povis ĝion malkaþi?
 
-Sed æu la Kristo æion diris? Æu li povis æion malkaþi? 
+Ne, ĝar li mem diris: "Mi havus ankoraŭ multon por diri
 
-Ne, æar li mem diris: "Mi havus ankoraý multon por diri 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+al vi, sed vi ĝin ne komprenus, tial mi parolas per pa-
 
-93 
+raboloj." Spiritismo venas hodiaŭ, kiam la homo estas
 
+matura por lmpreni, kompletigi kaj klarigi tion, kion
 
+la Kristo intence nur tuþetis aŭ nur diris en alegoria
 
-al vi, sed vi øin ne komprenus, tial mi parolas per pa- 
+formo. Sendube vi diros, ke la zorgo pri tiu klarigo apar-
 
-raboloj." Spiritismo venas hodiaý, kiam la homo estas 
+tenas al la Eklezio. Sed al kiu el ili? Æu al la roma,
 
-matura por lin kompreni, kompletigi kaj klarigi tion, kion 
+al la greka, aŭ al la protestanta Eklezio? Tial ke ili
 
-la Kristo intence nur tuþetis aý nur diris en alegoria 
+ne akordiĝas, ĝiu klarigus laŭ sia maniero kaj postulus
 
-formo. Sendube vi diros, ke la zorgo pri tiu klarigo apar- 
+por si la privilegion de la vereco. Kiu el ili regrupigus
 
-tenas al la Eklezio. Sed al kiu el ili? Æu al la roma, 
+ĝiujn apartajn kultojn? La saĝeco de Dio, antaŭvidante,
 
-al la greka, aý al la protestanta Eklezio? Tial ke ili 
+ke la homoj tien metus siajn pasiojn kaj antaŭjuĝojn,
 
-ne akordiøas, æiu klarigus laý sia maniero kaj postulus 
+ne volis konfidi al ili la taskon de tiu nova revelacio; Li
 
-por si la privilegion de la vereco. Kiu el ili regrupigus 
+komisiis la Spiritojn, Liajn mesaĝistojn, ke ili ĝin pro-
 
-æiujn apartajn kultojn? La saøeco de Dio, antaývidante, 
+klamu sur ĝiuj punktoj de la terglobo, kaj ekster ĝiu
 
-ke la homoj tien metus siajn pasiojn kaj antaýjuøojn, 
+aparta kulto, ke ĝi servu al ĝiuj, kaj neniu povu deturni
 
-ne volis konfidi al ili la taskon de tiu nova revelacio; Li 
+ĝin al sia profito.
 
-komisiis la Spiritojn, Liajn mesaøistojn, ke ili øin pro- 
+Pri alia aspekto, ĝu la diversaj kristanaj kultoj ne-
 
-klamu sur æiuj punktoj de la terglobo, kaj ekster æiu 
+niel deflankiĝis de la vojo strekita de la Kristo? Æu liaj
 
-aparta kulto, ke øi servu al æiuj, kaj neniu povu deturni 
+moralaj reguloj estas ĝiam skrupuleme respektataj? Æu
 
-øin al sia profito. 
+oni ne falsis liajn parolojn por apogigi sur ilin la am-
 
-Pri alia aspekto, æu la diversaj kristanaj kultoj ne- 
+bicion kaj la homajn pasiojn, kiajn liaj vortoj kondamn -
 
-niel deflankiøis de la vojo strekita de la Kristo? Æu liaj 
+as? Nu, per la voĝo de la Spiritoj senditaj de Dio, Spi-
 
-moralaj reguloj estas æiam skrupuleme respektataj? Æu 
+ritismo venas admoni al la strikta plenumado de liaj
 
-oni ne falsis liajn parolojn por apogigi sur ilin la am- 
+reguloj tiujn de ili deflankiĝintajn. Æu ne estas ĝefe ĝi
 
-bicion kaj la homajn pasiojn, kiajn liaj vortoj kondamn - 
+tiu lasta motivo, kiu igas iujn homojn vidi en ĝi satanan
 
-as? Nu, per la voæo de la Spiritoj senditaj de Dio, Spi- 
+laboron?
 
-ritismo venas admoni al la strikta plenumado de liaj 
+Malprave vi donas la nomon de **sektoj** al kelkaj
 
-reguloj tiujn de ili deflankiøintajn. Æu ne estas æefe æi 
+malegalecoj de opinioj koncerne la spiritismajn fenomen-
 
-tiu lasta motivo, kiu igas iujn homojn vidi en øi satanan 
+ojn. Ne estas mirinde, ke en la komenco de iu scienco,
 
-laboron? 
+kiam por multaj la observado estis ankoraŭ nekompleta,
 
-Malprave vi donas la nomon de **sektoj** al kelkaj 
+estis aperintaj interkontraŭaj teorioj; sed tiuj teorioj
 
-malegalecoj de opinioj koncerne la spiritismajn fenomen- 
+temas pri detaloj, ne pri la fundamenta principo. Tiuj di-
 
-ojn. Ne estas mirinde, ke en la komenco de iu scienco, 
+ferencoj povas formi **skolojn**, kiuj klarigas certajn fakt-
 
-kiam por multaj la observado estis ankoraý nekompleta, 
+ojn laŭ sia maniero, sed ili ne estas sektoj, same kiel
 
-estis aperintaj interkontraýaj teorioj; sed tiuj teorioj 
+diferencaj sistemoj, kiujn partoprenas niaj scienculoj en
 
-temas pri detaloj, ne pri la fundamenta principo. Tiuj di- 
+la naturaj sciencoj, — en medicino, en fiziko k. a. — ne
 
-ferencoj povas formi **skolojn**, kiuj klarigas certajn fakt- 
+estas sektoj. Forsteku do la vorton **"sekto" **, kiu neniel taŭgas por la afero, pri kiu ni parolas. Cetere, ekde la
 
-ojn laý sia maniero, sed ili ne estas sektoj, same kiel 
+origino de Kristianismo, ĝu ĝi mem ne naskigis amason
 
-diferencaj sistemoj, kiujn partoprenas niaj scienculoj en 
+da sektoj? Kial la parolo de la Kristo ne estis sufiĝe
 
-la naturaj sciencoj, — en medicino, en fiziko k. a. — ne 
 
-estas sektoj. Forsteku do la vorton **"sekto" **, kiu neniel taýgas por la afero, pri kiu ni parolas. Cetere, ekde la 
+ALLAN KARDEC
 
-origino de Kristianismo, æu øi mem ne naskigis amason 
 
-da sektoj? Kial la parolo de la Kristo ne estis sufiæe 
+potenca por trudi silenton al ĝiuj debatoj? Kial ĝi taŭgas
 
-94 
+por interpretadoj, kiuj dividas ankoraŭ hodiaŭ la krist-
 
-ALLAN KARDEC 
+anojn en malsamajn Ekleziojn, ĝiu el ili asertanta posedi
 
+sola la vero necesan al la savo, forte abomenantajn
 
+unuj aliajn kaj sin reciproke anatemantajn en la nomo
 
-potenca por trudi silenton al æiuj debatoj? Kial øi taýgas 
+de ilia dia majstro, kiu predikis nur amon kaj kariton?
 
-por interpretadoj, kiuj dividas ankoraý hodiaý la krist- 
+La malforteco de la homoj, vi diros. Jes; kial vi volas,
 
-anojn en malsamajn Ekleziojn, æiu el ili asertanta posedi 
+ke Spiritismo venku subite tiun feblecon kaj transformu
 
-sola la vero necesan al la savo, forte abomenantajn 
+la homaron kvazaŭ per sorĝo?
 
-unuj aliajn kaj sin reciproke anatemantajn en la nomo 
+Mi venas al la demando pri utileco. Vi diras, ke
 
-de ilia dia majstro, kiu predikis nur amon kaj kariton? 
+Spiritismo instruas al ni nenion novan; ĝi tio estas eraro:
 
-La malforteco de la homoj, vi diros. Jes; kial vi volas, 
+ĝi instruas multon al tiuj, kiuj ne haltas sur la surpra¼o.
 
-ke Spiritismo venku subite tiun feblecon kaj transformu 
+Se ĝi estus nur instruinta la maksimon: **"Ekster karito, **
 
-la homaron kvazaý per soræo? 
+**nenia savo", **kiu unuigas la homojn, anstataŭ: "Ekster la Eklezio, nenia savo", kiu ilin disigas, ĝi estus markinta novan epokon por la homaro.
 
-Mi venas al la demando pri utileco. Vi diras, ke 
+Vi diras, ke oni povus vivi sen ĝi; mi konsentas;
 
-Spiritismo instruas al ni nenion novan; æi tio estas eraro: 
+same kiel oni povis vivi sen multaj aliaj sciencaj eltrov-
 
-øi instruas multon al tiuj, kiuj ne haltas sur la surpra¼o. 
+oj. La homoj fartis ankaŭ tute bone antaŭ la eltrovo de
 
-Se øi estus nur instruinta la maksimon: **"Ekster karito, **
+ĝiuj novaj planedoj; antaŭ ol ni scipovis kalkuli la eklips-
 
-**nenia savo", **kiu unuigas la homojn, anstataý: "Ekster la Eklezio, nenia savo", kiu ilin disigas, øi estus markinta novan epokon por la homaro. 
+ojn, antaŭ ol oni konis la mikroskopan mondon kaj cent
 
-Vi diras, ke oni povus vivi sen øi; mi konsentas; 
+aliajn aferojn; por vivi kaj kreskigi sian tritikon la kam-
 
-same kiel oni povis vivi sen multaj aliaj sciencaj eltrov- 
+parano ne bezonas scii kio estas kometo, tamen neniu
 
-oj. La homoj fartis ankaý tute bone antaý la eltrovo de 
+neas, ke ĝiuj tiuj aferoj plivastigas la rondon de la ideoj
 
-æiuj novaj planedoj; antaý ol ni scipovis kalkuli la eklips- 
+kaj ebligas al ni pli progresi en la ekkono de la naturaj
 
-ojn, antaý ol oni konis la mikroskopan mondon kaj cent 
+leĝoj. Nu, la mondo de la Spiritoj estas unu el tiuj
 
-aliajn aferojn; por vivi kaj kreskigi sian tritikon la kam- 
+leĝoj, kiujn Spiritismo igas nni; ĝi instruas nin pri
 
-parano ne bezonas scii kio estas kometo, tamen neniu 
+la influado de la mondo de la Spiritoj sur la enkorpan
 
-neas, ke æiuj tiuj aferoj plivastigas la rondon de la ideoj 
+mondon; ni supozu, ke tie limiĝas ĝia utileco, ĝu jam ne
 
-kaj ebligas al ni pli progresi en la ekkono de la naturaj 
+estus multo la malkaþo pri tia potenco?
 
-leøoj. Nu, la mondo de la Spiritoj estas unu el tiuj 
+Ni atentu nun ĝian moralan influon. Ni konsentu,
 
-leøoj, kiujn Spiritismo igas nin koni; øi instruas nin pri 
+ke nenion novan ĝi instruas en tiu senco; kiu estas la
 
-la influado de la mondo de la Spiritoj sur la enkorpan 
+plej granda malamiko de religio? La materialismo, ĝar
 
-mondon; ni supozu, ke tie limiøas øia utileco, æu jam ne 
+la materialismo kredas al nenio; nu, Spiritismo estas la
 
-estus multo la malkaþo pri tia potenco? 
+neo de materialismo, kiu jam ne havas pravon de ekzisto;
 
-Ni atentu nun øian moralan influon. Ni konsentu, 
+kaj ne per simpla rezonado, ne per blinda fido oni diras
 
-ke nenion novan øi instruas en tiu senco; kiu estas la 
+al la materialisto, ke ĝio ne finiĝas kun lia korpo, sed
 
-plej granda malamiko de religio? La materialismo, æar 
+per faktoj; oni montras al li, oni igas lin tuþi per la
 
-la materialismo kredas al nenio; nu, Spiritismo estas la 
+fingro kaj vidi per la okulo. Æu tio estas malgranda
 
-neo de materialismo, kiu jam ne havas pravon de ekzisto; 
 
-kaj ne per simpla rezonado, ne per blinda fido oni diras 
+KIO ESTAS SPIRITISMO ?
 
-al la materialisto, ke æio ne finiøas kun lia korpo, sed 
 
-per faktoj; oni montras al li, oni igas lin tuþi per la 
+servo farata de ĝi al la homaro, al la religio? Sed tio
 
-fingro kaj vidi per la okulo. Æu tio estas malgranda 
+ne estas ĝio: la certeco pri la estonta vivo, la vivanta bildo
 
+de tiuj nin antaŭintaj, montras la bezonon de la bono
 
+kaj la neeviteblajn sekvojn de la malbono; tial ĝi gvidas
 
-KIO ESTAS SPIRITISMO ? 
+rekte al la religiaj ideoj, ilin elvolvigas ĝe tiuj, kiuj ilin
 
-95 
+ne havas, ilin fortigas ĝe tiuj ne firme konvinkitaj, kvan-
 
+kam ĝi mem ne estas iu religio.
 
+La religio trovas do en ĝi apogon, ne por tiuj homoj
 
-servo farata de øi al la homaro, al la religio? Sed tio 
+mallarĝmensaj, kiuj vidas la tutan religion en la doktri-
 
-ne estas æio: la certeco pri la estonta vivo, la vivanta bildo 
+no de la eterna fajro, pli en la litero, ol en la spirito,
 
-de tiuj nin antaýintaj, montras la bezonon de la bono 
+sed por tiuj, vidantaj ĝin laŭ la grandeco kaj majes-
 
-kaj la neeviteblajn sekvojn de la malbono; tial øi gvidas 
+to de Dio.
 
-rekte al la religiaj ideoj, ilin elvolvigas æe tiuj, kiuj ilin 
+Unuvorte, Spiritismo grandigas kaj altigas la ideojn;
 
-ne havas, ilin fortigas æe tiuj ne firme konvinkitaj, kvan- 
+ĝi batalas kontraŭ la malbonoj kreataj de egoismo, avid-
 
-kam øi mem ne estas iu religio. 
+eco, ambicio; sed kiu kuraĝus defendi tiujn malbonojn kaj
 
-La religio trovas do en øi apogon, ne por tiuj homoj 
+sin deklari ties probatalantoj? Se ĝi ne estas nepre ne-
 
-mallarømensaj, kiuj vidas la tutan religion en la doktri- 
+cesa al la savo, ĝi faciligas ĝi tiun, ĝar ĝi nin pli firmigas
 
-no de la eterna fajro, pli en la litero, ol en la spirito, 
+sur la vojo de la bono. Cetere, kiu saĝa homo aŭdacus
 
-sed por tiuj, vidantaj øin laý la grandeco kaj majes- 
+aserti, ke ia malĝusteco de ortodokseco estas pli riproĝ-
 
-to de Dio. 
+inda en la okuloj de Dio, ol ateismo kaj materialismo?
 
-Unuvorte, Spiritismo grandigas kaj altigas la ideojn; 
+Mi faras la jenajn difinitajn demandojn al ĝiuj atakantoj
 
-øi batalas kontraý la malbonoj kreataj de egoismo, avid- 
+de Spiritismo pro religiaj sekvoj:
 
-eco, ambicio; sed kiu kuraøus defendi tiujn malbonojn kaj 
 
-sin deklari ties probatalantoj? Se øi ne estas nepre ne- 
+1.e Kiu estas malpli preparata por la estonta vivo,
 
-cesa al la savo, øi faciligas æi tiun, æar øi nin pli firmigas 
+ĝu tiu kredanta al nenio, aŭ tiu kredanta la ĝeneralajn
 
-sur la vojo de la bono. Cetere, kiu saøa homo aýdacus 
+vera¼ojn, sed ne akceptanta iujn partojn de la dogmo?
 
-aserti, ke ia maløusteco de ortodokseco estas pli riproæ- 
 
-inda en la okuloj de Dio, ol ateismo kaj materialismo? 
+2.e Æu la protestanto kaj skismano estas tiel mal-
 
-Mi faras la jenajn difinitajn demandojn al æiuj atakantoj 
+aprobitaj kiel la ateisto kaj la materialisto?
 
-de Spiritismo pro religiaj sekvoj: 
 
+3.e Kiu ne estas ortodoksa laŭ la rigora senco de
 
+la vorto, sed faras ĝian bonon laŭ sia povo, estas bon-
 
-1.e Kiu estas malpli preparata por la estonta vivo, 
+kora, indulgema por sia proksimulo, lojala en siaj sociaj
 
-æu tiu kredanta al nenio, aý tiu kredanta la øeneralajn 
+rilatoj, ĝu tiu estas malpli sekura pri sia savo ol iu, kiu
 
-vera¼ojn, sed ne akceptanta iujn partojn de la dogmo? 
+kredas al ĝio, sed estas malmolkora, egoista kaj sen
 
+karito?
 
 
-2.e Æu la protestanto kaj skismano estas tiel mal- 
+4.e Kio pli valoras en la okuloj de Dio: ĝu la prak-
 
-aprobitaj kiel la ateisto kaj la materialisto? 
+tikado de la kristanaj virtoj sen la devoj de la ortodoks-
 
+eco, aŭ la praktikado de ĝi tiuj sen tiu moralo?
 
 
-3.e Kiu ne estas ortodoksa laý la rigora senco de 
+ALLAN KARDEC
 
-la vorto, sed faras æian bonon laý sia povo, estas bon- 
 
-kora, indulgema por sia proksimulo, lojala en siaj sociaj 
+Mi respondis, Sinjoro Abato, viajn demandojn kaj
 
-rilatoj, æu tiu estas malpli sekura pri sia savo ol iu, kiu 
+kontraŭdirojn, sed, kiel mi diris en la komenco, sen ia
 
-kredas al æio, sed estas malmolkora, egoista kaj sen 
+intenco vin gvidi al miaj ideoj kaj þanĝi viajn konvink-
 
-karito? 
+ojn, celante nur igi vin rigardi Spiritismon sub ĝia vera
 
+vidpunkto. Se vi ne estus veninta al mi, mi certe ne est-
 
+us serĝinta vin. Æi tio ne volas diri, ke mi malþatus vian
 
-4.e Kio pli valoras en la okuloj de Dio: æu la prak- 
+aliĝon al niaj principoj, se ĝi devus efektiviĝi, tute ne;
 
-tikado de la kristanaj virtoj sen la devoj de la ortodoks- 
+ni estas feliĝaj, kontraŭe, pro ĝiuj farataj akiroj, des pli,
 
-eco, aý la praktikado de æi tiuj sen tiu moralo? 
+ĝar ili ĝiuj estas liberaj kaj volontaj. Ni ne nur ne hav-
 
-96 
+as iun ajn rajton trudi niajn ideojn al iu, sed ni havas
 
-ALLAN KARDEC 
+skrupulon por ne malserenigi la konsciencon de tiuj hav-
 
+antaj kredon, kiu ilntentigas kaj tial ne venas spon-
 
+tanee al ni.
 
-Mi respondis, Sinjoro Abato, viajn demandojn kaj 
+Ni diris, ke la plej bona maniero por sin instrui pri
 
-kontraýdirojn, sed, kiel mi diris en la komenco, sen ia 
+Spiritismo estas studi unue ĝian teorion; poste venos na-
 
-intenco vin gvidi al miaj ideoj kaj þanøi viajn konvink- 
+ture faktoj kaj oni ilmprenos en kiu ajn ordo la
 
-ojn, celante nur igi vin rigardi Spiritismon sub øia vera 
+cirkonstancoj ilin prezentos.
 
-vidpunkto. Se vi ne estus veninta al mi, mi certe ne est- 
+Niaj publikiga¼oj celas faciligi tion studon; kaj ni
 
-us seræinta vin. Æi tio ne volas diri, ke mi malþatus vian 
+konsilas ilian legadon laŭ la jena ordo:
 
-aliøon al niaj principoj, se øi devus efektiviøi, tute ne; 
+La unua lega¼o estas ĝi tiu resumo, kiu prezentas
 
-ni estas feliæaj, kontraýe, pro æiuj farataj akiroj, des pli, 
+kune ĝiujn pli elstarajn punktojn de tiu scienco; per ĝi
 
-æar ili æiuj estas liberaj kaj volontaj. Ni ne nur ne hav- 
+oni jam povas havi ian ideon pri la afero kaj konvinkiĝi,
 
-as iun ajn rajton trudi niajn ideojn al iu, sed ni havas 
+ke en ĝi estas io serioza. En ĝi tiu rapida raporto ni
 
-skrupulon por ne malserenigi la konsciencon de tiuj hav- 
+klopodis por montri la punktojn, kiuj meritas atenton
 
-antaj kredon, kiu ilin kontentigas kaj tial ne venas spon- 
+de la observanto. Nescio pri la fundamentaj principoj
 
-tanee al ni. 
+kondukas al eraraj konkludoj la plimulton el tiuj, kiuj
 
-Ni diris, ke la plej bona maniero por sin instrui pri 
+juĝas aferon, kiun ili ne komprenas, aŭ taksas ĝion laŭ
 
-Spiritismo estas studi unue øian teorion; poste venos na- 
+siaj antaŭjuĝoj.
 
-ture faktoj kaj oni ilin komprenos en kiu ajn ordo la 
+Se ĝi tiu unua resumo donas al la observanto la de-
 
-cirkonstancoj ilin prezentos. 
+ziron scii pli multe, li legos "La Libron de la Spiritoj",
 
-Niaj publikiga¼oj celas faciligi tion studon; kaj ni 
+kie la principoj de la Doktrino estas plene klarigitaj;
 
-konsilas ilian legadon laý la jena ordo: 
+poste "La Libron de la Mediumoj" por la eksperiment-
 
-La unua lega¼o estas æi tiu resumo, kiu prezentas 
+ado kiel gvidlibro de tiuj, kiuj deziras mem eksperimenti,
 
-kune æiujn pli elstarajn punktojn de tiu scienco; per øi 
+kaj tiuj, dezirantaj kompreni la fenomenojn. Poste sekv-
 
-oni jam povas havi ian ideon pri la afero kaj konvinkiøi, 
+as la diversaj verkoj elvolvantaj la aplikadon kaj la
 
-ke en øi estas io serioza. En æi tiu rapida raporto ni 
+konsekvencojn de la Doktrino, t. e. "La Evangelio laŭ
 
-klopodis por montri la punktojn, kiuj meritas atenton 
+Spiritismo", "La Æielo kaj la Infero laŭ Spiritismo" k. a.
 
-de la observanto. Nescio pri la fundamentaj principoj 
+La **Revue Spirite **iel estas kurso de ties aplikado
 
-kondukas al eraraj konkludoj la plimulton el tiuj, kiuj 
 
-juøas aferon, kiun ili ne komprenas, aý taksas æion laý 
+KIO ESTAS SPIRITISMO ?
 
-siaj antaýjuøoj. 
 
-Se æi tiu unua resumo donas al la observanto la de- 
+dank’al la multenombraj ekzemploj kaj elvolviĝoj teoriaj
 
-ziron scii pli multe, li legos "La Libron de la Spiritoj", 
+kaj eksperimentaj en ĝi troveblaj.
 
-kie la principoj de la Doktrino estas plene klarigitaj; 
+Ni havas plezuron doni parole la necesajn klarigojn
 
-poste "La Libron de la Mediumoj" por la eksperiment- 
+al seriozaj personoj, kiuj havas antaŭstudojn, sed bezon-
 
-ado kiel gvidlibro de tiuj, kiuj deziras mem eksperimenti, 
+as klarigojn pri punktoj, kiujn ili ne plene komprenis.
 
-kaj tiuj, dezirantaj kompreni la fenomenojn. Poste sekv- 
 
-as la diversaj verkoj elvolvantaj la aplikadon kaj la 
+___________
 
-konsekvencojn de la Doktrino, t. e. "La Evangelio laý 
 
-Spiritismo", "La Æielo kaj la Infero laý Spiritismo" k. a. 
-
-La **Revue Spirite **iel estas kurso de ties aplikado 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-97 
-
-
-
-dank’al la multenombraj ekzemploj kaj elvolviøoj teoriaj 
-
-kaj eksperimentaj en øi troveblaj. 
-
-Ni havas plezuron doni parole la necesajn klarigojn 
-
-al seriozaj personoj, kiuj havas antaýstudojn, sed bezon- 
-
-as klarigojn pri punktoj, kiujn ili ne plene komprenis. 
-
-
-
-* *
-
-* *
-
-* *
-
-* *
-
-* *
-
-* *
-
-* *
-
-* *
-
-* *
-
-\_\_\_\_\_\_\_\_\_\_\_ 
-
-
-
-
-
-ÆAPITRO II 
-
+ÆAPITRO II
 
 
 **Elementaj principoj de Spiritismo **
 
-****
 
 **ANTAÝRIMARKOJ **
 
-****
 
-**1. ** Erare oni supozas, ke vidi eksterordinarajn fe- 
+**1. ** Erare oni supozas, ke vidi eksterordinarajn fe-
 
-nomenojn sufiæas por konvinki iajn nekredantojn. Ne 
+nomenojn sufiĝas por konvinki iajn nekredantojn. Ne
 
-kredante je la ekzisto de animo aý Spirito en la homo, 
+kredante je la ekzisto de animo aŭ Spirito en la homo,
 
-ili ne povas akcepti øin ekster la homo; sekve, neante 
+ili ne povas akcepti ĝin ekster la homo; sekve, neante
 
-la kaýzon, ili neas ankaý la efikon. Ili venas preskaý 
+la kaŭzon, ili neas ankaŭ la efikon. Ili venas preskaŭ
 
-æiam kun antaýjuøo kaj nea partieco, kiuj malebligas al 
+ĝiam kun antaŭjuĝo kaj nea partieco, kiuj malebligas al
 
-ili fari seriozan, senpartian observadon. Ili prezentas 
+ili fari seriozan, senpartian observadon. Ili prezentas
 
-demandojn kaj kontraýdirojn, al kiuj ne estas eble tuj 
+demandojn kaj kontraŭdirojn, al kiuj ne estas eble tuj
 
-kaj kontentige respondi, æar por æiu aparta persono est- 
+kaj kontentige respondi, ĝar por ĝiu aparta persono est-
 
-us necese fari specialan kurson kaj preni æion de la ko- 
+us necese fari specialan kurson kaj preni ĝion de la ko-
 
-menco. La antaýstudo respondas tiujn kontraýdirojn, kies 
+menco. La antaŭstudo respondas tiujn kontraŭdirojn, kies
 
-plej granda parto fondiøas sur la nescio pri la kaýzo de 
+plej granda parto fondiĝas sur la nescio pri la kaŭzo de
 
-la fenomenoj kaj pri la kondiæoj en kiuj ili efektiviøas. 
+la fenomenoj kaj pri la kondiĝoj en kiuj ili efektiviĝas.
 
 
+**2. ** Kiuj ne konas Spiritismon, tiuj opinias, ke oni
 
-**2. ** Kiuj ne konas Spiritismon, tiuj opinias, ke oni 
+produktas la spiritismajn fenomenojn tiel same kiel oni
 
-produktas la spiritismajn fenomenojn tiel same kiel oni 
+faras eksperimentojn de Fiziko kaj ¦emio. Tial ili volas
 
-faras eksperimentojn de Fiziko kaj ¦emio. Tial ili volas 
+submeti la fenomenojn al sia volo kaj ne submetiĝas al
 
-submeti la fenomenojn al sia volo kaj ne submetiøas al 
+kondiĝoj necesaj al ties observado. Ne kredante en prin-
 
-kondiæoj necesaj al ties observado. Ne kredante en prin- 
+cipo je la ekzisto de la Spiritoj, aŭ ne konante ilian
 
-cipo je la ekzisto de la Spiritoj, aý ne konante ilian 
+naturon nek ilian agmanieron, tiuj kondutas kvazaŭ ili
 
-naturon nek ilian agmanieron, tiuj kondutas kvazaý ili 
+agus sur krudan materion; kaj ĝar ili ne ricevas tion,
 
-agus sur krudan materion; kaj æar ili ne ricevas tion, 
+kion ili postulas, ili konkludas, ke ne ekzistas Spiritoj.
 
-kion ili postulas, ili konkludas, ke ne ekzistas Spiritoj. 
+Lokante sin sur alian vidpunkton, oni komprenas,
 
-Lokante sin sur alian vidpunkton, oni komprenas, 
+ke la Spiritoj estas la animoj de la homoj kaj post nia
 
-ke la Spiritoj estas la animoj de la homoj kaj post nia 
+morto ni mem estos Spiritoj kaj ni ne volonte akceptos
 
-morto ni mem estos Spiritoj kaj ni ne volonte akceptos 
+la taskon fariĝi ludilo por kontentigi la fantazion de
 
-la taskon fariøi ludilo por kontentigi la fantazion de 
+scivoluloj.
 
-scivoluloj. 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+**3. ** Kvankam certaj fenomenoj povas esti de ni ins-
 
-99 
+tigataj, ili tamen venas de liberaj inteligentuloj, kiuj nen-
 
+iam estas sub absoluta dispono de iu ajn. Kiu fanfaronus
 
+ricevi tiajn fenomenojn laŭ sia plaĝo, montrus nescion
 
-**3. ** Kvankam certaj fenomenoj povas esti de ni ins- 
+aŭ malbonan fidon. Estas necese ilin atendi, ilin kapti
 
-tigataj, ili tamen venas de liberaj inteligentuloj, kiuj nen- 
+kiam ili preterpasas, kaj ofte en momento, kiam oni tute
 
-iam estas sub absoluta dispono de iu ajn. Kiu fanfaronus 
+ne atendas, efektiviĝas la plej interesaj kaj konvinkant-
 
-ricevi tiajn fenomenojn laý sia plaæo, montrus nescion 
+aj faktoj. Kiu volas serioze instruiĝi devas do en tio,
 
-aý malbonan fidon. Estas necese ilin atendi, ilin kapti 
+kiel en ĝio alia, havi paciencon kaj persistemon por fari
 
-kiam ili preterpasas, kaj ofte en momento, kiam oni tute 
+ĝion necesan, alimaniere estas preferinde por li tute ne
 
-ne atendas, efektiviøas la plej interesaj kaj konvinkant- 
+okupiĝi pri la temo.
 
-aj faktoj. Kiu volas serioze instruiøi devas do en tio, 
 
-kiel en æio alia, havi paciencon kaj persistemon por fari 
+**4. ** Ne ĝiam la kunvenoj por ricevi manifestiĝojn de
 
-æion necesan, alimaniere estas preferinde por li tute ne 
+Spiritoj estas en bonaj kondiĝoj por atingi kontentigajn
 
-okupiøi pri la temo. 
+rezultojn aŭ por konduki al konv; kaj ni devas kon-
 
+senti, ke el iuj kunsidoj la nekredantoj eliras eĝ malpli
 
+konvinkitaj ol ili eniris. Al tiuj, kiuj parolas al ili pri
 
-**4. ** Ne æiam la kunvenoj por ricevi manifestiøojn de 
+la serioza karaktero de Spiritismo, ili rakontas la ofte
 
-Spiritoj estas en bonaj kondiæoj por atingi kontentigajn 
+ridindajn aferojn, kiujn ili ĝeestis. Ili ne estas pli logik-
 
-rezultojn aý por konduki al konvinko; kaj ni devas kon- 
+aj ol tiu, kiu juĝus iun arton per iuj ekzerca¼oj de lern-
 
-senti, ke el iuj kunsidoj la nekredantoj eliras eæ malpli 
+anto, iun personon per lia karikaturo, aŭ iun tragedion
 
-konvinkitaj ol ili eniris. Al tiuj, kiuj parolas al ili pri 
+per ĝia parodio. Spiritismo ankaŭ havas siajn lernant-
 
-la serioza karaktero de Spiritismo, ili rakontas la ofte 
+ojn; kiu volas instruiĝi ne ĝerpas ĝiujn informojn el unu
 
-ridindajn aferojn, kiujn ili æeestis. Ili ne estas pli logik- 
+sola fonto; nur per ekzamenado kaj komparado oni pov-
 
-aj ol tiu, kiu juøus iun arton per iuj ekzerca¼oj de lern- 
+as firmigi sian juĝadon.
 
-anto, iun personon per lia karikaturo, aý iun tragedion 
 
-per øia parodio. Spiritismo ankaý havas siajn lernant- 
+**5. **La frivolaj kunvenoj havas gravan malutilon por
 
-ojn; kiu volas instruiøi ne æerpas æiujn informojn el unu 
+la novuloj ilin ĝeestantaj, ĝar ili donas al tiuj falsan ideon
 
-sola fonto; nur per ekzamenado kaj komparado oni pov- 
+pri la karaktero de Spiritismo. Kiuj nur ĝeestis tiajn
 
-as firmigi sian juøadon. 
+kunvenojn, tiuj ne povas akcepti serioze aferon, kiu estas
 
+traktata kun frivoleco de tiuj samaj homoj, kiuj sin de-
 
+klaras ties adeptoj. Per antaŭa studo ili lernos juĝi la
 
-**5. **La frivolaj kunvenoj havas gravan malutilon por 
+signifon de tio, kion ili vidas, kaj distingi inter la bono
 
-la novuloj ilin æeestantaj, æar ili donas al tiuj falsan ideon 
+kaj la malbono.
 
-pri la karaktero de Spiritismo. Kiuj nur æeestis tiajn 
 
-kunvenojn, tiuj ne povas akcepti serioze aferon, kiu estas 
+**6. ** La sama rezonado aplikiĝas al la homoj, kiuj
 
-traktata kun frivoleco de tiuj samaj homoj, kiuj sin de- 
+juĝas Spiritismon laŭ iuj ekstravagancaj verkoj, kiuj don-
 
-klaras ties adeptoj. Per antaýa studo ili lernos juøi la 
+as pri ĝi nur nekompletan kaj ridindan ideon. La serioza
 
-signifon de tio, kion ili vidas, kaj distingi inter la bono 
+Spiritismo ne respondas por tiuj, kiuj malbone ĝm-
 
-kaj la malbono. 
+prenas aŭ malsaĝe praktikas, same kiel la poezio ne res-
 
 
+ALLAN KARDEC
 
-**6. ** La sama rezonado aplikiøas al la homoj, kiuj 
 
-juøas Spiritismon laý iuj ekstravagancaj verkoj, kiuj don- 
+pondas por la faranto de malbonaj versoj. Es tas bedaŭ-
 
-as pri øi nur nekompletan kaj ridindan ideon. La serioza 
+rinde, ke tiaj verkoj ekzistas, oni diras, ĝar ili malutilas
 
-Spiritismo ne respondas por tiuj, kiuj malbone øin kom- 
+la veran sciencon. Sendube estus preferinde, ke ekzistus
 
-prenas aý malsaøe praktikas, same kiel la poezio ne res- 
+nur bonaj verkoj; sed la pli granda eraro estas ĝe tiuj,
 
-100 
+kiuj ne penas ĝion studi. Cetere, al ĝiuj artoj, al ĝiuj
 
-ALLAN KARDEC 
+sciencoj okazas la samo; ĝu ne estas pri ĝiuj plej se-
 
+riozaj aferoj traktatoj absurdaj kaj plenaj de eraroj?
 
 
-pondas por la faranto de malbonaj versoj. Es tas bedaý- 
+Kial Spiritismo havus ian privilegion kontraŭ mis -
 
-rinde, ke tiaj verkoj ekzistas, oni diras, æar ili malutilas 
+traktatoj, precipe en la komenco? Se ĝiaj kritikantoj ne
 
-la veran sciencon. Sendube estus preferinde, ke ekzistus 
+ĝin juĝus laŭ la þajnoj, ili scius kion ĝi akceptas kaj kion
 
-nur bonaj verkoj; sed la pli granda eraro estas æe tiuj, 
+ĝi rifuzas, kaj ne akuzus ĝin pri tio, kion ĝi forpuþas
 
-kiuj ne penas æion studi. Cetere, al æiuj artoj, al æiuj 
-
-sciencoj okazas la samo; æu ne estas pri æiuj plej se- 
-
-riozaj aferoj traktatoj absurdaj kaj plenaj de eraroj? 
-
-
-
-Kial Spiritismo havus ian privilegion kontraý mis - 
-
-traktatoj, precipe en la komenco? Se øiaj kritikantoj ne 
-
-øin juøus laý la þajnoj, ili scius kion øi akceptas kaj kion 
-
-øi rifuzas, kaj ne akuzus øin pri tio, kion øi forpuþas 
-
-pro la racio kaj la spertado. 
-
+pro la racio kaj la spertado.
 
 
 **Pri la Spiritoj **
 
-**7. ** La Spiritoj neniel estas, kiel oni ofte supozas, 
+**7. ** La Spiritoj neniel estas, kiel oni ofte supozas,
 
-estuloj apartaj en la kreado; ili estas la animoj de la 
+estuloj apartaj en la kreado; ili estas la animoj de la
 
-homoj vivintaj sur la Tero aý en aliaj mondoj, nur sen- 
+homoj vivintaj sur la Tero aŭ en aliaj mondoj, nur sen-
 
-igitaj el sia korpa envolva¼o. Kiu kredas al la ekzisto 
+igitaj el sia korpa envolva¼o. Kiu kredas al la ekzisto
 
-de la animo postvivanta la korpon, tiu kredas sekve an- 
+de la animo postvivanta la korpon, tiu kredas sekve an-
 
-kaý al la ekzisto de la Spiritoj; nei la Spiritojn estus 
+kaŭ al la ekzisto de la Spiritoj; nei la Spiritojn estus
 
-nei la animon. 
+nei la animon.
 
 
+**8. ** Ordinare oni havas tute eraran ideon pri la stato
 
-**8. ** Ordinare oni havas tute eraran ideon pri la stato 
+de la Spiritoj. Ili ne estas, kiel kelkaj opinias, malpre-
 
-de la Spiritoj. Ili ne estas, kiel kelkaj opinias, malpre- 
+cizaj, nedifinitaj estuloj, nek flamoj kiel la erarlumoj,
 
-cizaj, nedifinitaj estuloj, nek flamoj kiel la erarlumoj, 
+nek fantomoj kiel en la rakontoj pri reaperantoj. Ili est-
 
-nek fantomoj kiel en la rakontoj pri reaperantoj. Ili est- 
+as estuloj similaj al ni, havantaj korpon kiel la nia, sed
 
-as estuloj similaj al ni, havantaj korpon kiel la nia, sed 
+fluidecan kaj nevideblan en sia normala stato.
 
-fluidecan kaj nevideblan en sia normala stato. 
 
+**9. ** Kiam la animo estas kunigita kun la korpo, dum
 
+la vivo, ĝi havas duoblan envolva¼on: unu estas peza,
 
-**9. ** Kiam la animo estas kunigita kun la korpo, dum 
+maldelikata kaj detruebla, kiu estas la korpo; la dua,
 
-la vivo, øi havas duoblan envolva¼on: unu estas peza, 
+fluideca, malpeza, nedetruebla, nomata perispirito.
 
-maldelikata kaj detruebla, kiu estas la korpo; la dua, 
 
-fluideca, malpeza, nedetruebla, nomata perispirito. 
+**10. ** Estas do en la homo tri esencaj partoj; 1.e la
 
+**animo **aŭ **Spirito**, la inteligenta principo, kie loĝas la penso, la volo kaj la morala sento; 2.e la **korpo**, materia
 
+envolva¼o, kiu metas la Spiriton en rilatoj kun la ekstera
 
-**10. ** Estas do en la homo tri esencaj partoj; 1.e la 
 
-**animo **aý **Spirito**, la inteligenta principo, kie loøas la penso, la volo kaj la morala sento; 2.e la **korpo**, materia 
+KIO ESTAS SPIRITISMO ?
 
-envolva¼o, kiu metas la Spiriton en rilatoj kun la ekstera 
 
+mondo; 3.e la **perispirito**, fluideca, malpeza envolva¼o, kiu
 
+funkcias kiel ligilo inter la Spirito kaj la korpo.
 
-KIO ESTAS SPIRITISMO ? 
 
-101 
+**11. ** Kiam la ekstera envolva¼o estas eluzita kaj ne
 
+povas plu funkcii, ĝi falas kaj la Spirito seniĝas de ĝi,
 
+kiel la frukto el sia þelo, la arbo el sia basto, la serpento
 
-mondo; 3.e la **perispirito**, fluideca, malpeza envolva¼o, kiu 
+el sia felo, unuvorte, kiel oni demetas malnovan veston
 
-funkcias kiel ligilo inter la Spirito kaj la korpo. 
+eluzitan: ĝi tion oni nomas **morto. **
 
 
+**12. ** La morto estas la detruo nur de la materia en-
 
-**11. ** Kiam la ekstera envolva¼o estas eluzita kaj ne 
+volva¼o; la animo ĝin forlasas same kiel la papilio lasas
 
-povas plu funkcii, øi falas kaj la Spirito seniøas de øi, 
+la kokonon; sed ĝi konservas sian fluidecan korpon aŭ
 
-kiel la frukto el sia þelo, la arbo el sia basto, la serpento 
+perispiriton.
 
-el sia felo, unuvorte, kiel oni demetas malnovan veston 
 
-eluzitan: æi tion oni nomas **morto. ** 
+**13. ** La morto de la korpo liberigas la Spiriton el
 
+la envolva¼o, kiu lin alligis al la Tero kaj lin suferigis;
 
+kiam liberigita el tiu þarĝo, li havas nur sian eterecan
 
-**12. ** La morto estas la detruo nur de la materia en- 
+korpon, kiu permesas al li trakuri la spacon kaj trans-
 
-volva¼o; la animo øin forlasas same kiel la papilio lasas 
+paþi la distancojn kun la rapideco de la penso.
 
-la kokonon; sed øi konservas sian fluidecan korpon aý 
 
-perispiriton. 
+**14. ** La unuiĝo de la animo, de la perispirito kaj de
 
+la materia korpo formas la **homon**; la animo kaj la pe-
 
+rispirito aparte de la korpo konsistigas la estulon nom-
 
-**13. ** La morto de la korpo liberigas la Spiriton el 
+atan **Spirito. **
 
-la envolva¼o, kiu lin alligis al la Tero kaj lin suferigis; 
 
-kiam liberigita el tiu þarøo, li havas nur sian eterecan 
+*R i m a r k o *. La animo estas do estulo simpla; la *Spirito *, estulo *d u obla *, kaj la *h o m o * estas estulo *triobla *. Estus do pli ĝ u s t e r e z e r v i l a v o r t o n *a n i m o * por nomi la inteligentan prin -
 
-korpon, kiu permesas al li trakuri la spacon kaj trans- 
+c i p o n , k a j l a v o r t o n *Spirito * por la estulo duonmateria, form-ata per tiu principo kaj la fluideca korpo. Sed ĝar oni ne
 
-paþi la distancojn kun la rapideco de la penso. 
+p o v a s k o n c e p t i l a i n t eligentan principon izolita de ĝia materio, nek la perispiriton ne animita de la inteligenta principo,
 
+l a v o r t o j *a n i m o * kaj *Spirito * ordinare estas uzataj kvazaŭ si-nonimoj. Øi estas la figuro, kiu konsistas en diro de la parto
 
+por esprimi la tuton, kiel oni diras, ke iu urbo estas loĝata
 
-**14. ** La unuiøo de la animo, de la perispirito kaj de 
+de tiom da animoj, iu vilaĝo havas tiom da fajrujoj; sed en
 
-la materia korpo formas la **homon**; la animo kaj la pe- 
+filozofio estas necese fari distingon.
 
-rispirito aparte de la korpo konsistigas la estulon nom- 
 
-atan **Spirito. ** 
+**15. ** Envestitaj en la materiaj korpoj, la Spiritoj
 
+konsistigas la homaron aŭ la korpan videblan mondon;
 
+eliĝintaj el tiuj korpoj, ili formas la spiritan mondon aŭ
 
-*R i m a r k o *. La animo estas do estulo simpla; la *Spirito *, estulo *d u obla *, kaj la *h o m o * estas estulo *triobla *. Estus do pli ø u s t e r e z e r v i l a v o r t o n *a n i m o * por nomi la inteligentan prin - 
+nevideblan mondon, kiu loĝas en la spaco kaj en kies
 
-c i p o n , k a j l a v o r t o n *Spirito * por la estulo duonmateria, form-ata per tiu principo kaj la fluideca korpo. Sed æar oni ne 
 
-p o v a s k o n c e p t i l a i n t eligentan principon izolita de æia materio, nek la perispiriton ne animita de la inteligenta principo, 
+ALLAN KARDEC
 
-l a v o r t o j *a n i m o * kaj *Spirito * ordinare estas uzataj kvazaý si-nonimoj. Øi estas la figuro, kiu konsistas en diro de la parto 
 
-por esprimi la tuton, kiel oni diras, ke iu urbo estas loøata 
+medio ni vivas, neniel pri ĝi tio suspektante, same kiel
 
-de tiom da animoj, iu vilaøo havas tiom da fajrujoj; sed en 
+ni vivas en medio de la malgrandegaj estuloj pri kies ek-
 
-filozofio estas necese fari distingon. 
+zisto ni neniam konsciis antaŭ la invento de mikroskopo.
 
 
+**16. ** La Spiritoj ne estas do abstraktaj estuloj sen-
 
-**15. ** Envestitaj en la materiaj korpoj, la Spiritoj 
+formaj kaj nedifinitaj, sed konkretaj kaj ĝirkaŭlimigitaj,
 
-konsistigas la homaron aý la korpan videblan mondon; 
+kiuj ne similas al la homoj nur tial, ke ili ne estas vid-
 
-eliøintaj el tiuj korpoj, ili formas la spiritan mondon aý 
+eblaj; sekve se en iu momento la vualo, ilin kaþanta al
 
-nevideblan mondon, kiu loøas en la spaco kaj en kies 
+nia vido, povus esti levita, ili formus por ni tutan loĝ-
 
-102 
+antaron nin ĝirkaŭantan.
 
-ALLAN KARDEC 
 
+**17. ** La Spiritoj havas ĝiujn perceptojn, kiujn ili
 
+havis sur la Tero, sed en pli alta grado, ĝar iliaj kapabl-
 
-medio ni vivas, neniel pri æi tio suspektante, same kiel 
+oj ne estas malakrigitaj de la materio. Ili havas sensa¼-
 
-ni vivas en medio de la malgrandegaj estuloj pri kies ek- 
+ojn, kiujn ni ne konas: ili vidas kaj aŭdas aferojn, kiujn
 
-zisto ni neniam konsciis antaý la invento de mikroskopo. 
+niaj limigitaj sensoj ne permesas al ni vidi aŭ aŭdi. Por
 
+ili ne ekzistas mallumo, escepte nur de tiuj, kies puno
 
+estas dumtempe resti en mallumo. Æiuj niaj pensoj ating-
 
-**16. ** La Spiritoj ne estas do abstraktaj estuloj sen- 
+as ilin, kaj ili legas nian menson kvazaŭ ĝi estus ne-
 
-formaj kaj nedifinitaj, sed konkretaj kaj æirkaýlimigitaj, 
+fermita libro; tiel ni ne povas kaþi al Spirito tion, kion
 
-kiuj ne similas al la homoj nur tial, ke ili ne estas vid- 
+ni kaþus kiam li estis enkarniĝinta (**La Libro de la Spi - **
 
-eblaj; sekve se en iu momento la vualo, ilin kaþanta al 
+**ritoj, ** n-ro 237).
 
-nia vido, povus esti levita, ili formus por ni tutan loø- 
 
-antaron nin æirkaýantan. 
+**18. ** La Spiritoj estas ĝie: ili estas inter ni, ĝe niaj
 
+flankoj, nin tuþante kaj senĝese observante. Per sia kons-
 
+tanta ĝeesto en nia medio, la Spiritoj estas agentoj de
 
-**17. ** La Spiritoj havas æiujn perceptojn, kiujn ili 
+diversaj fenomenoj; ili ludas gravan rolon en la morala
 
-havis sur la Tero, sed en pli alta grado, æar iliaj kapabl- 
+mondo, kaj inter certaj limoj ankaŭ en la fizika mondo;
 
-oj ne estas malakrigitaj de la materio. Ili havas sensa¼- 
+ili estas tiel unu el la potencoj de la naturo.
 
-ojn, kiujn ni ne konas: ili vidas kaj aýdas aferojn, kiujn 
 
-niaj limigitaj sensoj ne permesas al ni vidi aý aýdi. Por 
+**19. ** De kiam oni konscias pri la postvivo de la
 
-ili ne ekzistas mallumo, escepte nur de tiuj, kies puno 
+animo aŭ Spirito, racie oni kredas ankaŭ la postvivon
 
-estas dumtempe resti en mallumo. Æiuj niaj pensoj ating- 
+de la korinklinoj; sen ĝi tio la animoj de niaj parencoj
 
-as ilin, kaj ili legas nian menson kvazaý øi estus ne- 
+kaj de niaj amikoj estus por ĝiam perditaj por ni.
 
-fermita libro; tiel ni ne povas kaþi al Spirito tion, kion 
+Æar la Spiritoj povas iri ĝien, estas ankaŭ logike
 
-ni kaþus kiam li estis enkarniøinta \(**La Libro de la Spi - **
+pensi, ke tiuj, kiuj nin amis dum la surtera vivo, nin
 
-**ritoj, ** n-ro 237\). 
+amas ankaŭ post la morto, ke ili venas al ni, deziras ko-
 
+munikiĝi kun ni kaj ke ili utiligas la rimedojn je sia dis -
 
+pono por manifestiĝi al ni; ĝi tion konfirmas la sperto.
 
-**18. ** La Spiritoj estas æie: ili estas inter ni, æe niaj 
+Efektive la sperto pruvas, ke la Spiritoj konservas
 
-flankoj, nin tuþante kaj senæese observante. Per sia kons- 
 
-tanta æeesto en nia medio, la Spiritoj estas agentoj de 
+KIO ESTAS SPIRITISMO ?
 
-diversaj fenomenoj; ili ludas gravan rolon en la morala 
 
-mondo, kaj inter certaj limoj ankaý en la fizika mondo; 
+la seriozajn amojn, kiujn ili havis sur la Tero, ke al ili
 
-ili estas tiel unu el la potencoj de la naturo. 
+plaĝas reveni al siaj amatoj, precipe kiam ili estas al-
 
+tirataj per la pensoj kaj amaj sentoj al ili de ni send-
 
+ataj, dum ili estas indiferentaj al tiuj, kiuj ne interes-
 
-**19. ** De kiam oni konscias pri la postvivo de la 
+iĝas pri ili.
 
-animo aý Spirito, racie oni kredas ankaý la postvivon 
 
-de la korinklinoj; sen æi tio la animoj de niaj parencoj 
+**20. ** La celo de Spiritismo estas konstati kaj studi
 
-kaj de niaj amikoj estus por æiam perditaj por ni. 
+la manifestiĝojn de la Spiritoj, iliajn kapablojn, ilian
 
-Æar la Spiritoj povas iri æien, estas ankaý logike 
+situacion feliĝan aŭ malfeliĝan, kaj ilian estontecon; unu-
 
-pensi, ke tiuj, kiuj nin amis dum la surtera vivo, nin 
+vorte, la konadon de la spirita mondo. Kiam pruvitaj
 
-amas ankaý post la morto, ke ili venas al ni, deziras ko- 
+tiuj manifestiĝoj, el ili rezultas la nediskutebla pruvo de
 
-munikiøi kun ni kaj ke ili utiligas la rimedojn je sia dis - 
+la ekzisto de la animo, de ties vivado post la morto de
 
-pono por manifestiøi al ni; æi tion konfirmas la sperto. 
+la korpo, de ĝia individueco ekster la korpo, tio estas
 
-Efektive la sperto pruvas, ke la Spiritoj konservas 
+de la estonta vivo; ĝi estas sekve la neado de la mate-
 
+rialismaj doktrinoj, jam ne per rezonado sed per faktoj.
 
 
-KIO ESTAS SPIRITISMO ? 
+**21. ** Ideo pli-malpli ĝenerala ĝe la personoj ne kon-
 
-103 
+antaj Spiritismon, estas kredi, ke la Spiritoj, nur tial ke
 
+ili eliris el la materio, devas ĝion scii kaj posedi la super-
 
+egan saĝecon. Æio tio estas grava eraro.
 
-la seriozajn amojn, kiujn ili havis sur la Tero, ke al ili 
+Æar la Spiritoj estas nur la animoj de la homoj, ili
 
-plaæas reveni al siaj amatoj, precipe kiam ili estas al- 
+ankoraŭ ne atingis la perfektecon kiam ili forlasis la
 
-tirataj per la pensoj kaj amaj sentoj al ili de ni send- 
+teran envolva¼on. La progreso de la Spirito plenumiĝas
 
-ataj, dum ili estas indiferentaj al tiuj, kiuj ne interes- 
+nur kun longa tempo, kaj nur iom post iom li seniĝas el
 
-iøas pri ili. 
+siaj neperfekta¼oj kaj akiras la sciojn, al li mankantajn.
 
+Estus tiel mallogike pensi, ke la Spirito de unu so-
 
+vaĝulo aŭ de krimulo fariĝus subite klera kaj virta, kiel
 
-**20. ** La celo de Spiritismo estas konstati kaj studi 
+estus kontraŭa al la justeco de Dio pensi, ke li restus
 
-la manifestiøojn de la Spiritoj, iliajn kapablojn, ilian 
+eterne en sia malsupereco.
 
-situacion feliæan aý malfeliæan, kaj ilian estontecon; unu- 
+Same kiel estas homoj en ĝiuj gradoj da klereco
 
-vorte, la konadon de la spirita mondo. Kiam pruvitaj 
+kaj malklereco, da boneco kaj maliceco, tiel estas ankaŭ
 
-tiuj manifestiøoj, el ili rezultas la nediskutebla pruvo de 
+ĝe la Spiritoj. Unuj estas nur ventkapaj kaj petolemaj,
 
-la ekzisto de la animo, de ties vivado post la morto de 
+aliaj estas mensogemaj, trompemaj, hipokritaj, malicaj,
 
-la korpo, de øia individueco ekster la korpo, tio estas 
+venĝemaj; aliaj, kontraŭe, posedas la plej sublimajn virt-
 
-de la estonta vivo; øi estas sekve la neado de la mate- 
+ojn kaj klerecon en grado nekonata sur la Tero. Tiu
 
-rialismaj doktrinoj, jam ne per rezonado sed per faktoj. 
+diverseco en la kvalitoj de la Spiritoj estas unu el la plej
 
+gravaj kaj konsiderindaj punktoj en la studado de Spi-
 
+ritismo, ĝar ĝi klarigas la bonan aŭ malbonan karakteron
 
-**21. ** Ideo pli-malpli øenerala æe la personoj ne kon- 
+de la ricevataj komunika¼oj; oni devas plej zorgeme sin
 
-antaj Spiritismon, estas kredi, ke la Spiritoj, nur tial ke 
+dediĝi al la distingado de tiuj kvalitoj en la komunika¼-
 
-ili eliris el la materio, devas æion scii kaj posedi la super- 
 
-egan saøecon. Æio tio estas grava eraro. 
+ALLAN KARDEC
 
-Æar la Spiritoj estas nur la animoj de la homoj, ili 
 
-ankoraý ne atingis la perfektecon kiam ili forlasis la 
+oj. (**La Libro de la Spiritoj, **n-ro 100, **Spirita Skalo. **
 
-teran envolva¼on. La progreso de la Spirito plenumiøas 
+**Libro de la Mediumoj, **Æap. XXIV.)
 
-nur kun longa tempo, kaj nur iom post iom li seniøas el 
 
-siaj neperfekta¼oj kaj akiras la sciojn, al li mankantajn. 
+**Komunikiĝoj kun la nevidebla mondo **
 
-Estus tiel mallogike pensi, ke la Spirito de unu so- 
 
-vaøulo aý de krimulo fariøus subite klera kaj virta, kiel 
+**22. ** Post la akcepto de la ekzisto, la postvivo kaj la
 
-estus kontraýa al la justeco de Dio pensi, ke li restus 
+individueco de la animo, Spiritismo simpliĝas je unu sola
 
-eterne en sia malsupereco. 
+ĝefa demando: **Æu la komunikiĝoj inter la animoj kaj la **
 
-Same kiel estas homoj en æiuj gradoj da klereco 
+**vivantoj estas eblaj? **Jes, kaj tiu ebleco estas rezultato
 
-kaj malklereco, da boneco kaj maliceco, tiel estas ankaý 
+de spertado. Starigitaj kiel fakto la rilatoj inter la mond-
 
-æe la Spiritoj. Unuj estas nur ventkapaj kaj petolemaj, 
+oj videbla kaj nevidebla, kaj konataj la naturo, la kaŭzo
 
-aliaj estas mensogemaj, trompemaj, hipokritaj, malicaj, 
+kaj la maniero de tiuj interrilatoj, nova kampo malferm-
 
-venøemaj; aliaj, kontraýe, posedas la plej sublimajn virt- 
+iĝis al la observado kaj estas akirita la þlosilo por tuta
 
-ojn kaj klerecon en grado nekonata sur la Tero. Tiu 
+amaso da problemoj; ĝi estas samtempe potenca moral-
 
-diverseco en la kvalitoj de la Spiritoj estas unu el la plej 
+iga elemento dank’al la malapero de ĝiu dubo pri la
 
-gravaj kaj konsiderindaj punktoj en la studado de Spi- 
+estonteco.
 
-ritismo, æar øi klarigas la bonan aý malbonan karakteron 
 
-de la ricevataj komunika¼oj; oni devas plej zorgeme sin 
+**23. ** Kio ¼etas en la penson de multaj homoj la dub-
 
-dediæi al la distingado de tiuj kvalitoj en la komunika¼- 
+on pri la ebleco de la komunika¼oj el la transtombo, tio
 
-104 
+estas la falsa ideo, kiun ili havas, pri la stato de la animo
 
-ALLAN KARDEC 
+post la morto. Oni ordinare imagas ĝin kvazaŭ ia blovo,
 
+ia fuma¼o, io nedifinita, kiun la penso ne klare kaptas,
 
+kiu elvaporiĝas kaj foriras oni ne scias kien, sed tiel
 
-oj. \(**La Libro de la Spiritoj, **n-ro 100, **Spirita Skalo. **
+malproksimen, ke oni apenaŭ povas kompreni, ke ĝi ka-
 
-**Libro de la Mediumoj, **Æap. XXIV.\) 
+pablus reveni sur la Teron. Kontraŭe, se oni konsideras
 
+ĝin en ĝia unueco kun fluideca, duonmateria korpo, kun
 
+kiu ĝi formas konkretan kaj individuan estulon, tiam
 
-**Komunikiøoj kun la nevidebla mondo **
+ĝiaj rilatoj kun la vivantoj havas nenion kontraŭan al
 
-****
+la racio.
 
-**22. ** Post la akcepto de la ekzisto, la postvivo kaj la 
 
-individueco de la animo, Spiritismo simpliøas je unu sola 
+**24. ** Æar la mondo videbla vivas en la medio de la
 
-æefa demando: **Æu la komunikiøoj inter la animoj kaj la **
+nevidebla mondo, kun kiu ĝi estas en konstanta kontakto,
 
-**vivantoj estas eblaj? **Jes, kaj tiu ebleco estas rezultato 
+tiuj du mondoj reagas unu sur la duan. De kiam ekzist-
 
-de spertado. Starigitaj kiel fakto la rilatoj inter la mond- 
+as homoj, ekzistas Spiritoj, kaj se ĝi tiuj havas la povon
 
-oj videbla kaj nevidebla, kaj konataj la naturo, la kaýzo 
+manifestiĝi, ili ĝi tion faris en ĝiuj epokoj kaj ĝe ĝiuj
 
-kaj la maniero de tiuj interrilatoj, nova kampo malferm- 
+popoloj. Tamen en la lastaj tempoj la manifestiĝoj ating-
 
-iøis al la observado kaj estas akirita la þlosilo por tuta 
+is grandan elvolviĝon kaj akiris pli fortan karakteron de
 
-amaso da problemoj; øi estas samtempe potenca moral- 
+aŭtentikeco, ĝar estis en la plano de Dio finigi la kancer-
 
-iga elemento dank’al la malapero de æiu dubo pri la 
+on de nekredemo kaj de materialismo per evidentaj pruv-
 
-estonteco. 
+oj, permesante al tiuj, kiuj forlasis la Teron, reveni por
 
 
+KIO ESTAS SPIRITISMO ?
 
-**23. ** Kio ¼etas en la penson de multaj homoj la dub- 
 
-on pri la ebleco de la komunika¼oj el la transtombo, tio 
+atesti sian ekziston, kaj malkaþi al ni sian feliĝan aŭ
 
-estas la falsa ideo, kiun ili havas, pri la stato de la animo 
+malfeliĝan situacion.
 
-post la morto. Oni ordinare imagas øin kvazaý ia blovo, 
 
-ia fuma¼o, io nedifinita, kiun la penso ne klare kaptas, 
+**25. ** La rilatoj inter la mondo videbla kaj la nevid-
 
-kiu elvaporiøas kaj foriras oni ne scias kien, sed tiel 
+ebla povas esti kaþitaj aŭ evidentaj, spontaneaj aŭ ins-
 
-malproksimen, ke oni apenaý povas kompreni, ke øi ka- 
+tigataj.
 
-pablus reveni sur la Teron. Kontraýe, se oni konsideras 
+La Spiritoj agas sur la homojn kaþite per la pensoj,
 
-øin en øia unueco kun fluideca, duonmateria korpo, kun 
+kiujn ili sugestias kaj per iuj influoj; aŭ en maniero
 
-kiu øi formas konkretan kaj individuan estulon, tiam 
+evidenta per efikoj percepteblaj por la sensoj.
 
-øiaj rilatoj kun la vivantoj havas nenion kontraýan al 
+La spontaneaj manifestiĝoj efektiviĝas neatendite
 
-la racio. 
+kaj senprepare; ofte ili okazas ĝe la personoj plej fremd -
 
+aj al la spiritismaj ideoj kaj kiuj, pro tio, ne povas ilmpreni kaj tial ilin atribuas al supernaturaj kaŭzoj.
 
+Tiuj instigataj efektiviĝas pere de iuj personoj natur-
 
-**24. ** Æar la mondo videbla vivas en la medio de la 
+dotitaj de specialaj kapabloj al kiuj oni donas la nomon
 
-nevidebla mondo, kun kiu øi estas en konstanta kontakto, 
+de **mediumoj. **
 
-tiuj du mondoj reagas unu sur la duan. De kiam ekzist- 
 
-as homoj, ekzistas Spiritoj, kaj se æi tiuj havas la povon 
+**26. ** La Spiritoj povas manifestiĝi en diversaj ma-
 
-manifestiøi, ili æi tion faris en æiuj epokoj kaj æe æiuj 
+nieroj: per vidado, aŭdado, tuþado, bruoj, movado de
 
-popoloj. Tamen en la lastaj tempoj la manifestiøoj ating- 
+objektoj, skribado, desegnado, muziko k. a.
 
-is grandan elvolviøon kaj akiris pli fortan karakteron de 
 
-aýtentikeco, æar estis en la plano de Dio finigi la kancer- 
+**27. ** Kelkafoje la Spiritoj manifestiĝas spontanee per
 
-on de nekredemo kaj de materialismo per evidentaj pruv- 
+bruoj kaj per batataj frapoj; ofte tio estas rimedo por
 
-oj, permesante al tiuj, kiuj forlasis la Teron, reveni por 
+sciigi sian aleston kaj voki atenton pri si, same kiel unu
 
+persono frapas por averti, ke tie estas iu. Iuj ne lim-
 
+iĝas al moderaj bruoj, sed faras bruegon similan al tiu de
 
-KIO ESTAS SPIRITISMO ? 
+rompata vazaro, de pordoj, kiuj malfermiĝas kaj ferm-
 
-105 
+iĝas, aŭ de mebloj, kiujn oni renversas, iuj faras veran
 
+perturbon kaj efektivajn detruojn. (**Revue Spirite, **1858:
 
-
-atesti sian ekziston, kaj malkaþi al ni sian feliæan aý 
-
-malfeliæan situacion. 
-
-
-
-**25. ** La rilatoj inter la mondo videbla kaj la nevid- 
-
-ebla povas esti kaþitaj aý evidentaj, spontaneaj aý ins- 
-
-tigataj. 
-
-La Spiritoj agas sur la homojn kaþite per la pensoj, 
-
-kiujn ili sugestias kaj per iuj influoj; aý en maniero 
-
-evidenta per efikoj percepteblaj por la sensoj. 
-
-La spontaneaj manifestiøoj efektiviøas neatendite 
-
-kaj senprepare; ofte ili okazas æe la personoj plej fremd - 
-
-aj al la spiritismaj ideoj kaj kiuj, pro tio, ne povas ilin 
-
-kompreni kaj tial ilin atribuas al supernaturaj kaýzoj. 
-
-Tiuj instigataj efektiviøas pere de iuj personoj natur- 
-
-dotitaj de specialaj kapabloj al kiuj oni donas la nomon 
-
-de **mediumoj. ** 
-
-
-
-**26. ** La Spiritoj povas manifestiøi en diversaj ma- 
-
-nieroj: per vidado, aýdado, tuþado, bruoj, movado de 
-
-objektoj, skribado, desegnado, muziko k. a. 
-
-
-
-**27. ** Kelkafoje la Spiritoj manifestiøas spontanee per 
-
-bruoj kaj per batataj frapoj; ofte tio estas rimedo por 
-
-sciigi sian aleston kaj voki atenton pri si, same kiel unu 
-
-persono frapas por averti, ke tie estas iu. Iuj ne lim- 
-
-iøas al moderaj bruoj, sed faras bruegon similan al tiu de 
-
-rompata vazaro, de pordoj, kiuj malfermiøas kaj ferm- 
-
-iøas, aý de mebloj, kiujn oni renversas, iuj faras veran 
-
-perturbon kaj efektivajn detruojn. \(**Revue Spirite, **1858: 
-
-**La frapanta Spirito el Bergzabern, **p. 125, 153, 184. — 
+**La frapanta Spirito el Bergzabern, **p. 125, 153, 184. —
 
 **La Sama, **1860: **La panisto de Dieppe, ** p. 76. — **La sama. **
 
 **La fabrikanto de Sankta Petersburgo, **p. 115. — **La **
 
-**Sama. La æifonisto de Strato de Noyers, **p. 236\). 
+**Sama. La ĝifonisto de Strato de Noyers, **p. 236).
 
 
+**28. ** Kvankam nevidebla por ni en sia normala stato,
 
-**28. ** Kvankam nevidebla por ni en sia normala stato, 
+la perispirito estas ia etereca materio. La Spirito povas,
 
-la perispirito estas ia etereca materio. La Spirito povas, 
+en certaj okazoj, submetigi ĝin al ia molekula þanĝado,
 
-en certaj okazoj, submetigi øin al ia molekula þanøado, 
+kiu faras ĝin videbla kaj eĝ tuþebla; tiele efektiviĝas la
 
-kiu faras øin videbla kaj eæ tuþebla; tiele efektiviøas la 
+aperoj. Tiu fenomeno ne estas pli eksterordinara ol tiu
 
-aperoj. Tiu fenomeno ne estas pli eksterordinara ol tiu 
-
-de la vaporo, kiu estas nevidebla kiam øi estas tre mal- 
-
-106 
-
-ALLAN KARDEC 
+de la vaporo, kiu estas nevidebla kiam ĝi estas tre mal-
 
 
-
-densigita, sed fariøas videbla, kiam øi estas densigita. 
-
-La Spiritoj, kiuj montriøas videblaj, prezentiøas pres- 
-
-kaý æiam sub la sama aspekto, kiun ili havis dum la vivo, 
-
-kaj kiu rekonigas ilin. 
+ALLAN KARDEC
 
 
+densigita, sed fariĝas videbla, kiam ĝi estas densigita.
 
-**29. ** La vidado konstanta kaj øenerala de la Spirit- 
+La Spiritoj, kiuj montriĝas videblaj, prezentiĝas pres-
 
-oj estas tre malofta, sed la okazaj aperoj estas pli oftaj, 
+kaŭ ĝiam sub la sama aspekto, kiun ili havis dum la vivo,
 
-precipe en la momento de la morto. La liberiøinta Spi- 
-
-rito þajne rapidas por viziti siajn parencojn kaj amikojn, 
-
-kvazaý por averti ilin, ke li ¼us forlasis la Teron, kaj por 
-
-diri al ili, ke li tamen daýre vivas. Æiu esploru siajn 
-
-rememorojn kaj oni vidos kiom da aýtentikaj okazoj de 
-
-tiu speco, kiujn oni ne atentis, efektiviøis ne nur en la 
-
-nokto, dum la dormo, sed en plena tago kaj dum la plej 
-
-vigla maldormo. Iam oni rigardadis tiujn faktojn kva- 
-
-zaý supernaturaj kaj mirindaj, kaj oni atribuadis ilin al 
-
-magio kaj soræarto: hodiaý la nekredantoj rigardas ilin 
-
-kiel imaga¼on; sed post kiam la spiritisma scienco donis 
-
-al ni ilian þlosilon, oni scias kiel ili efektiviøas kaj ili 
-
-jam ne eliras el la ordo de la naturaj fenomenoj. 
+kaj kiu rekonigas ilin.
 
 
+**29. ** La vidado konstanta kaj ĝenerala de la Spirit-
 
-**30. ** Per helpo de sia perispirito la Spirito agadis 
+oj estas tre malofta, sed la okazaj aperoj estas pli oftaj,
 
-sur sian vivantan korpon; øi estas ankoraý per tiu sama 
+precipe en la momento de la morto. La liberiĝinta Spi-
 
-fluido, ke li manifestiøas kaj agadas sur inertan mate- 
+rito þajne rapidas por viziti siajn parencojn kaj amikojn,
 
-rion, produktas bruojn, movas tablojn kaj aliajn objekt- 
+kvazaŭ por averti ilin, ke li ¼us forlasis la Teron, kaj por
 
-ojn, kiujn ili levas, renversas aý transportas. Tiu feno- 
+diri al ili, ke li tamen daŭre vivas. Æiu esploru siajn
 
-meno havas nenion surprizigan, se oni konsideras, ke in- 
+rememorojn kaj oni vidos kiom da aŭtentikaj okazoj de
 
-ter ni la plej potencaj motoroj troviøas en la maldens- 
+tiu speco, kiujn oni ne atentis, efektiviĝis ne nur en la
 
-aj kaj eæ nepeseblaj fluidoj, kiel la aero, la vaporo, la 
+nokto, dum la dormo, sed en plena tago kaj dum la plej
 
-elektro. 
+vigla maldormo. Iam oni rigardadis tiujn faktojn kva-
 
-Øi estas ankaý per helpo de sia perispirito, ke la 
+zaŭ supernaturaj kaj mirindaj, kaj oni atribuadis ilin al
 
-Spirito igas la mediumojn skribi, desegni aý paroli. Ne 
+magio kaj sorĝarto: hodiaŭ la nekredantoj rigardas ilin
 
-havante mem tuþeblan korpon por materie agi, kiam li 
+kiel imaga¼on; sed post kiam la spiritisma scienco donis
 
-volas manifestiøi, la Spirito uzas la korpon de mediumo, 
+al ni ilian þlosilon, oni scias kiel ili efektiviĝas kaj ili
 
-kies organojn li prunteprenas kaj uzas kvazaý ili estus 
+jam ne eliras el la ordo de la naturaj fenomenoj.
 
-lia propra korpo; æi tion li faras per la fluideca emana¼o, 
 
-kiun li verþas sur øin. 
+**30. ** Per helpo de sia perispirito la Spirito agadis
 
+sur sian vivantan korpon; ĝi estas ankoraŭ per tiu sama
+
+fluido, ke li manifestiĝas kaj agadas sur inertan mate-
+
+rion, produktas bruojn, movas tablojn kaj aliajn objekt-
+
+ojn, kiujn ili levas, renversas aŭ transportas. Tiu feno-
+
+meno havas nenion surprizigan, se oni konsideras, ke in-
+
+ter ni la plej potencaj motoroj troviĝas en la maldens-
+
+aj kaj eĝ nepeseblaj fluidoj, kiel la aero, la vaporo, la
+
+elektro.
+
+Øi estas ankaŭ per helpo de sia perispirito, ke la
+
+Spirito igas la mediumojn skribi, desegni aŭ paroli. Ne
+
+havante mem tuþeblan korpon por materie agi, kiam li
+
+volas manifestiĝi, la Spirito uzas la korpon de mediumo,
+
+kies organojn li prunteprenas kaj uzas kvazaŭ ili estus
+
+lia propra korpo; ĝi tion li faras per la fluideca emana¼o,
+
+kiun li verþas sur ĝin.
 
 
 **31. ** En la fenomeno konata per la nomo de **tabloj **
 
-**movantaj **aý **parolantaj tabloj, ** per sama rimedo la Spi-KIO ESTAS SPIRITISMO ? 
+**movantaj **aŭ **parolantaj tabloj, ** per sama rimedo la Spi-KIO ESTAS SPIRITISMO ?
 
-107 
 
+rito agas sur la tablon aŭ por ĝin movi sen ia difinita
 
+signifo, aŭ por frapi batojn inteligentajn signante la li-
 
-rito agas sur la tablon aý por øin movi sen ia difinita 
+terojn de la alfabeto por formi vortojn, en la fenomeno
 
-signifo, aý por frapi batojn inteligentajn signante la li- 
+nomata **tiptologio. ** La tablo tiam estas nur instrumento,
 
-terojn de la alfabeto por formi vortojn, en la fenomeno 
+kiun li utiligas, same kiel la krajono por skribi; li donas
 
-nomata **tiptologio. ** La tablo tiam estas nur instrumento, 
+al ĝi momentan vivoforton per la fluido, kiun li enigas
 
-kiun li utiligas, same kiel la krajono por skribi; li donas 
+en ĝin, sed **li neniel identiĝas kun la tablo. ** La personoj
 
-al øi momentan vivoforton per la fluido, kiun li enigas 
+kiuj, en sia kortuþiteco enbrakigas la tablon, kiam per
 
-en øin, sed **li neniel identiøas kun la tablo. ** La personoj 
+ĝi manifestiĝas iu kara al ili, agas tre ridinde, ĝar tio
 
-kiuj, en sia kortuþiteco enbrakigas la tablon, kiam per 
+estas same kiel se ili enbrakigus bastonon per kiu amiko
 
-øi manifestiøas iu kara al ili, agas tre ridinde, æar tio 
+frapus batojn. Tiuj personoj agas same kiel aliaj, kiuj
 
-estas same kiel se ili enbrakigus bastonon per kiu amiko 
+alparolas la tablon kvazaŭ la Spirito estus enfermita en
 
-frapus batojn. Tiuj personoj agas same kiel aliaj, kiuj 
+la ligno, aŭ se la ligno estus fariĝinta la Spirito.
 
-alparolas la tablon kvazaý la Spirito estus enfermita en 
+Kiam la komunikiĝoj efektiviĝas per tiu rimedo, oni
 
-la ligno, aý se la ligno estus fariøinta la Spirito. 
+devas imagi la Spiriton, ne en la tablo, sed apud ĝi, **tiel **
 
-Kiam la komunikiøoj efektiviøas per tiu rimedo, oni 
+**kiel li estus dum sia vivo, ** kaj tia, kian oni lin vidus en
 
-devas imagi la Spiriton, ne en la tablo, sed apud øi, **tiel **
+tiu momento, se li povus fariĝi videbla. La samo okazas
 
-**kiel li estus dum sia vivo, ** kaj tia, kian oni lin vidus en 
+ĝe la komunika¼oj per la skribado; oni vidas la Spiriton
 
-tiu momento, se li povus fariøi videbla. La samo okazas 
+apud la mediumo, gvidantan lian manon, aŭ transdir-
 
-æe la komunika¼oj per la skribado; oni vidas la Spiriton 
+antan al li sian penson per iu fluideca fluo.
 
-apud la mediumo, gvidantan lian manon, aý transdir- 
+Kiam la tablo forlasas la teron kaj naĝas en la spaco
 
-antan al li sian penson per iu fluideca fluo. 
+sen ia apogilo, la Spirito ne levas ĝin per forto de la
 
-Kiam la tablo forlasas la teron kaj naøas en la spaco 
+brako, sed li envolvas kaj penetrigas ĝin per ia speco
 
-sen ia apogilo, la Spirito ne levas øin per forto de la 
+de fluideca atmosfero, kiu nuligas la gravitoforton, kiel
 
-brako, sed li envolvas kaj penetrigas øin per ia speco 
+la aero faras ĝe la balonoj kaj la kajtoj. La fluido ĝin
 
-de fluideca atmosfero, kiu nuligas la gravitoforton, kiel 
+penetrinta donas al ĝi dum momento pli grandan specifan
 
-la aero faras æe la balonoj kaj la kajtoj. La fluido øin 
+malpezecon. Kiam ĝi estas sur la tero, ĝi estas en stato
 
-penetrinta donas al øi dum momento pli grandan specifan 
+analoga al tiu de pneŭmatika kloþo sub kiu oni faras la
 
-malpezecon. Kiam øi estas sur la tero, øi estas en stato 
+vakuon. Æi tiuj estas nur komparoj por montri la ana-
 
-analoga al tiu de pneýmatika kloþo sub kiu oni faras la 
+logion de la efikoj kaj ne absoluta simileco de la kaŭzoj.
 
-vakuon. Æi tiuj estas nur komparoj por montri la ana- 
+Kiam la tablo persekutas iun, ne la Spirito kuras
 
-logion de la efikoj kaj ne absoluta simileco de la kaýzoj. 
+post li; tiu povas resti trankvile sur la sama loko, sed
 
-Kiam la tablo persekutas iun, ne la Spirito kuras 
+li donas al ĝi impulson per iu fluideca fluo, per kies helpo
 
-post li; tiu povas resti trankvile sur la sama loko, sed 
+li movas ĝin laŭ sia volo.
 
-li donas al øi impulson per iu fluideca fluo, per kies helpo 
+Kiam batoj estas aŭdataj en la tablo aŭ en alia loko,
 
-li movas øin laý sia volo. 
+ne la Spirito frapas ĝin per sia mano aŭ per iu objekto;
 
-Kiam batoj estas aýdataj en la tablo aý en alia loko, 
+li sendas sur la lokon de kiu venas la bruo ¼eta¼on de
 
-ne la Spirito frapas øin per sia mano aý per iu objekto; 
+fluido, kiu faras la efekton de elektra bato. Li modifas
 
-li sendas sur la lokon de kiu venas la bruo ¼eta¼on de 
+la bruon kiel oni povas modifi la sonojn produktatajn
 
-fluido, kiu faras la efekton de elektra bato. Li modifas 
+en la aero.
 
-la bruon kiel oni povas modifi la sonojn produktatajn 
 
-en la aero. 
+ALLAN KARDEC
 
-108 
 
-ALLAN KARDEC 
+Post tio dirita, oni komprenas, ke ne estas pli mal-
 
+facile por la Spirito **levi iun personon** ol levi tablon, transporti objekton de unu loko en alian aŭ ĝin ien ¼eti; tiuj
 
+fenomenoj produktiĝas laŭ la sama leĝo.
 
-Post tio dirita, oni komprenas, ke ne estas pli mal- 
+**32. ** Per tiuj malmultaj vortoj oni povas vidi, ke la
 
-facile por la Spirito **levi iun personon** ol levi tablon, transporti objekton de unu loko en alian aý øin ien ¼eti; tiuj 
+spiritismaj manifestiĝoj, de iu ajn karaktero, enhavas
 
-fenomenoj produktiøas laý la sama leøo. 
+nenion supernaturan, aŭ miraklan. Tiuj estas fenomen-
 
-**32. ** Per tiuj malmultaj vortoj oni povas vidi, ke la 
+oj, kiuj okazas laŭ la leĝo reganta la interrilatojn de la
 
-spiritismaj manifestiøoj, de iu ajn karaktero, enhavas 
+mondo videbla kun la mondo nevidebla, leĝo tiel natura
 
-nenion supernaturan, aý miraklan. Tiuj estas fenomen- 
+kiel tiuj de elektro, de gravitado k. a. Spiritismo estas
 
-oj, kiuj okazas laý la leøo reganta la interrilatojn de la 
+la scienco, konatiganta al ni tiun leĝon, kiel me¶aniko
 
-mondo videbla kun la mondo nevidebla, leøo tiel natura 
+konatigas al ni la leĝon de la movado, la optiko, tiun de
 
-kiel tiuj de elektro, de gravitado k. a. Spiritismo estas 
+la lumo. La spiritaj manifestiĝoj apartenas al la na-
 
-la scienco, konatiganta al ni tiun leøon, kiel me¶aniko 
+turo kaj okazis en ĝiuj epokoj; konata la leĝo, kiu ilin
 
-konatigas al ni la leøon de la movado, la optiko, tiun de 
+regas, ni havas klarigon pri tuta amaso da problemoj,
 
-la lumo. La spiritaj manifestiøoj apartenas al la na- 
+antaŭe rigardataj kiel nesolveblaj; ĝi estas þlosilo por
 
-turo kaj okazis en æiuj epokoj; konata la leøo, kiu ilin 
+multo da fenomenoj ekspluatataj kaj pligrandigataj de
 
-regas, ni havas klarigon pri tuta amaso da problemoj, 
+la superstiĝo.
 
-antaýe rigardataj kiel nesolveblaj; øi estas þlosilo por 
+**33. ** Tute formetita la miraklo, nenio en tiuj feno-
 
-multo da fenomenoj ekspluatataj kaj pligrandigataj de 
+menoj kontraŭas al racio, ĝar tiuj fenomenoj samrang-
 
-la superstiæo. 
+iĝas kun la aliaj naturaj fenomenoj. Dum la tempo de
 
-**33. ** Tute formetita la miraklo, nenio en tiuj feno- 
+malklereco, oni konsideris supernaturaj ĝiujn efikojn, kies
 
-menoj kontraýas al racio, æar tiuj fenomenoj samrang- 
+kaŭzon oni ne konis. La eltrova¼oj de la scienco iom
 
-iøas kun la aliaj naturaj fenomenoj. Dum la tempo de 
+post iom mallarĝigis la cirklon de la miraklo; la ekkono
 
-malklereco, oni konsideris supernaturaj æiujn efikojn, kies 
+de tiu nova leĝo ĝin reduktas al nenio. Kiuj akuzas Spi-
 
-kaýzon oni ne konis. La eltrova¼oj de la scienco iom 
+ritismon revivigi la mirinda¼on, tiuj pruvas per la akuz-
 
-post iom mallarøigis la cirklon de la miraklo; la ekkono 
+ado mem, ke ili parolas pri afero, kiun ili tute ne konas.
 
-de tiu nova leøo øin reduktas al nenio. Kiuj akuzas Spi- 
+**34. ** La manifestiĝoj de la Spiritoj estas de du na-
 
-ritismon revivigi la mirinda¼on, tiuj pruvas per la akuz- 
+turoj: **la fizikaj efikoj **kaj la **inteligentaj komunika¼oj. **
 
-ado mem, ke ili parolas pri afero, kiun ili tute ne konas. 
+La unuaj estas la materiaj kaj evidentaj fenomenoj, tiaj
 
-**34. ** La manifestiøoj de la Spiritoj estas de du na- 
+kiel movoj, bruoj, transporto de objektoj, k. t. p.; la aliaj
 
-turoj: **la fizikaj efikoj **kaj la **inteligentaj komunika¼oj. ** 
+konsistas el regula interþanĝado de pensoj pere de sign-
 
-La unuaj estas la materiaj kaj evidentaj fenomenoj, tiaj 
+oj, de la parolo kaj ĝefe de la skribado. (*)
 
-kiel movoj, bruoj, transporto de objektoj, k. t. p.; la aliaj 
 
-konsistas el regula interþanøado de pensoj pere de sign- 
+( * ) Cent jaroj post la momento kiam Allan Kardec,
 
-oj, de la parolo kaj æefe de la skribado. \(\*\) 
+skribis tiujn vortojn, ni povas informi la leganton, ke en Bra-
 
+zilo jam formiĝis tuta biblioteko da majstroverkoj en prozo
 
 
-\( \* \) Cent jaroj post la momento kiam Allan Kardec, 
+KIO ESTAS SPIRITISMO ?
 
-skribis tiujn vortojn, ni povas informi la leganton, ke en Bra- 
 
-zilo jam formiøis tuta biblioteko da majstroverkoj en prozo 
+**35. **La komunika¼oj de la Spiritoj povas esti bonaj
 
+aŭ malbonaj, veraj aŭ mensogaj, profundaj aŭ supra¼ec-
 
+aj, laŭ la grado de la komunikiĝantaj Spiritoj. Kiuj
 
-KIO ESTAS SPIRITISMO ? 
+montras saĝecon kaj klerecon, tiuj estas altrangaj jam
 
-109 
+progresintaj Spiritoj; malklerecon kaj malbonajn kvalit-
 
+ojn montras Spiritoj postrestintaj, sed ĝi tiuj ankaŭ pro-
 
+gresas kun la tempo. La Spiritoj povas respondi nur pri
 
-**35. **La komunika¼oj de la Spiritoj povas esti bonaj 
+tio, kion ili scias, laŭ sia progreso, kaj, cetere, pri tio al
 
-aý malbonaj, veraj aý mensogaj, profundaj aý supra¼ec- 
+ili permesita, ĝar estas aferoj, kiujn ili ne povas malkaþi,
 
-aj, laý la grado de la komunikiøantaj Spiritoj. Kiuj 
+tial, ke al la homoj ne estas ankoraŭ permesite ĝion scii.
 
-montras saøecon kaj klerecon, tiuj estas altrangaj jam 
 
-progresintaj Spiritoj; malklerecon kaj malbonajn kvalit- 
+**36. ** El la malsameco de la kvalitoj kaj kapabloj de
 
-ojn montras Spiritoj postrestintaj, sed æi tiuj ankaý pro- 
+la Spiritoj rezultas, ke ne sufiĝas sin adresi al iu ajn
 
-gresas kun la tempo. La Spiritoj povas respondi nur pri 
+Spirito por ricevi korektan respondon al ĝiu demando, ĝar
 
-tio, kion ili scias, laý sia progreso, kaj, cetere, pri tio al 
+pri multaj aferoj ili povas doni nur sian personan opi-
 
-ili permesita, æar estas aferoj, kiujn ili ne povas malkaþi, 
+nion, kiu povas esti ĝusta aŭ erara. Se li estas saĝa, li
 
-tial, ke al la homoj ne estas ankoraý permesite æion scii. 
+konfesas sian nescion pri tio, kion li ne konas; se li estas
 
+facilanima aŭ mensogema, li respondas pri ĝio ne zorg-
 
-
-**36. ** El la malsameco de la kvalitoj kaj kapabloj de 
-
-la Spiritoj rezultas, ke ne sufiæas sin adresi al iu ajn 
-
-Spirito por ricevi korektan respondon al æiu demando, æar 
-
-pri multaj aferoj ili povas doni nur sian personan opi- 
-
-nion, kiu povas esti øusta aý erara. Se li estas saøa, li 
-
-konfesas sian nescion pri tio, kion li ne konas; se li estas 
-
-facilanima aý mensogema, li respondas pri æio ne zorg- 
-
-ante pri la vero; se li estas fiera, li donas sian ideon kiel 
+ante pri la vero; se li estas fiera, li donas sian ideon kiel
 
 absolutan veron. Tial Johano la Evangeliisto diris: **"Ne **
 
-**kredu al æiu Spirito, sed provu, æu la Spiritoj estas de **
+**kredu al ĝiu Spirito, sed provu, ĝu la Spiritoj estas de **
 
-**Dio." ** La sperto pruvas la saøecon de tiu konsilo. Estus 
+**Dio." ** La sperto pruvas la saĝecon de tiu konsilo. Estus
 
-do malprudento kaj facilanimeco akcepti sen kontrolo 
+do malprudento kaj facilanimeco akcepti sen kontrolo
 
-æion, kio venas de la Spiritoj. Estas nepre necese konscii 
+ĝion, kio venas de la Spiritoj. Estas nepre necese konscii
 
-pri la kvalitoj de tiuj, kun kiuj ni estas en rilatoj \(**La **
+pri la kvalitoj de tiuj, kun kiuj ni estas en rilatoj (**La **
 
-**Libro de la Mediumoj, **n-ro 267\). 
+**Libro de la Mediumoj, **n-ro 267).
 
 
+**37. ** Oni ekkonas la kvaliton de la Spiritoj laŭ ilia
 
-**37. ** Oni ekkonas la kvaliton de la Spiritoj laý ilia 
+lingvo; tiu de la bonaj kaj vere superaj Spiritoj estas
 
-lingvo; tiu de la bonaj kaj vere superaj Spiritoj estas 
+ĝiam nobla, digna, logika, sen kontraŭdiroj; ĝi estas
 
-æiam nobla, digna, logika, sen kontraýdiroj; øi estas 
+plena de saĝeco, de bonvolemo, de modesteco kaj de la
 
-plena de saøeco, de bonvolemo, de modesteco kaj de la 
+plej pura moralo; ĝi estas konciza kaj ne havas vortojn
 
-plej pura moralo; øi estas konciza kaj ne havas vortojn 
+senutilajn. Æe la Spiritoj malsuperaj, malkleraj aŭ fier-
 
-senutilajn. Æe la Spiritoj malsuperaj, malkleraj aý fier- 
 
+kaj verso ricevitaj de el Superaj Spiritoj, prozistoj kaj poet -
 
+oj, inter kiuj aperas centoj da vere eminentaj verkistoj per
 
-kaj verso ricevitaj de el Superaj Spiritoj, prozistoj kaj poet - 
+la mediumoj Francisco Cândido Xavier, F. Waldomiro Lorenz,
 
-oj, inter kiuj aperas centoj da vere eminentaj verkistoj per 
+Dolores Bacelar, Yvonne do Amaral Pereira, Waldo Vieira,
 
-la mediumoj Francisco Cândido Xavier, F. Waldomiro Lorenz, 
+Divaldo Franco, k. a. Tiu biblioteko kreskas kun ĝiu tago.
 
-Dolores Bacelar, Yvonne do Amaral Pereira, Waldo Vieira, 
+— *La Tradukinto. *
 
-Divaldo Franco, k. a. Tiu biblioteko kreskas kun æiu tago. 
 
-— *La Tradukinto. * 
+ALLAN KARDEC
 
 
+aj, la malpleneco estas preskaŭ ĝiam kompensata per la
 
-110 
+abundeco de la vortoj. Æiu penso evidente falsa, ĝiu
 
-ALLAN KARDEC 
+maksimo kontraŭa al perfekta moralo, ĝiu konsilo rid-
 
+inda, ĝiu esprimo maldelikata, banala aŭ simple frivola,
 
+fine ĝiu signo de malbonvolemo, de aroganteco, de or-
 
-aj, la malpleneco estas preskaý æiam kompensata per la 
+gojlo estas nediskuteblaj signoj de malsupereco ĝe la
 
-abundeco de la vortoj. Æiu penso evidente falsa, æiu 
+Spirito.
 
-maksimo kontraýa al perfekta moralo, æiu konsilo rid- 
 
-inda, æiu esprimo maldelikata, banala aý simple frivola, 
+**38. ** La malsuperaj Spiritoj estas pli aŭ malpli mal-
 
-fine æiu signo de malbonvolemo, de aroganteco, de or- 
+kleraj; ilia morala horizonto esta limita; ilia sagaceco
 
-gojlo estas nediskuteblaj signoj de malsupereco æe la 
+estas malvasta; ili havas pri la aferoj ideon ofte eraran
 
-Spirito. 
+kaj malkompletan; cetere ili estas ankoraŭ sub la reg-
 
+ado de la surteraj antaŭjuĝoj, kiujn ili kelkafoje prenas
 
+kial vera¼ojn; tial ili estas nekapablaj solvi plurajn pro-
 
-**38. ** La malsuperaj Spiritoj estas pli aý malpli mal- 
+blemojn. Ili povas konduki nin en eraron, volonte aŭ
 
-kleraj; ilia morala horizonto esta limita; ilia sagaceco 
+nevolonte, pri tio, kion ili mem ne komprenas.
 
-estas malvasta; ili havas pri la aferoj ideon ofte eraran 
 
-kaj malkompletan; cetere ili estas ankoraý sub la reg- 
+**39. ** La malsuperaj Spiritoj ne estas ĝiuj esence mal-
 
-ado de la surteraj antaýjuøoj, kiujn ili kelkafoje prenas 
+bonaj; unuj estas nur malkleraj kaj ventkapaj; aliaj est-
 
-kial vera¼ojn; tial ili estas nekapablaj solvi plurajn pro- 
+as þercemaj, spritaj, amuzemaj kaj scias uzi trafan kaj
 
-blemojn. Ili povas konduki nin en eraron, volonte aý 
+mordantan mokon. Flanke de tiuj, oni trovas en la mon-
 
-nevolonte, pri tio, kion ili mem ne komprenas. 
+do de la Spiritoj, same kiel sur la Tero, ĝiujn specojn
 
+de perverseco kaj ĝiujn gradojn da intelekta kaj morala
 
+supereco.
 
-**39. ** La malsuperaj Spiritoj ne estas æiuj esence mal- 
 
-bonaj; unuj estas nur malkleraj kaj ventkapaj; aliaj est- 
+**40. ** La Superaj Spiritoj okupiĝas nur pri inteligent-
 
-as þercemaj, spritaj, amuzemaj kaj scias uzi trafan kaj 
+aj komunika¼oj celantaj nian instruadon; la fizikaj aŭ
 
-mordantan mokon. Flanke de tiuj, oni trovas en la mon- 
+pure materialaj manifestiĝoj estas pli speciale okupoj
 
-do de la Spiritoj, same kiel sur la Tero, æiujn specojn 
+de malsuperaj Spiritoj, vulgare nomataj **frapantaj **Spi-
 
-de perverseco kaj æiujn gradojn da intelekta kaj morala 
+ritoj, same kiel ĝe ni la montro de forto apartenas al
 
-supereco. 
+¼onglistoj, ne al scienculoj.
 
 
+**41. ** La komunikiĝoj kun la Spiritoj devas fariĝi ĝiam
 
-**40. ** La Superaj Spiritoj okupiøas nur pri inteligent- 
+kun trankvileco kaj enmemiĝo; oni ne forgesu, ke la Spi-
 
-aj komunika¼oj celantaj nian instruadon; la fizikaj aý 
+ritoj estas la animoj de la homoj, kaj ne estus prave
 
-pure materialaj manifestiøoj estas pli speciale okupoj 
+fari el ili ludilon aŭ þercon. Se oni havas respekton por
 
-de malsuperaj Spiritoj, vulgare nomataj **frapantaj **Spi- 
+la mortinta resta¼o, oni devas pli ankoraŭ respekti la
 
-ritoj, same kiel æe ni la montro de forto apartenas al 
+Spiriton. La ventkapaj aŭ frivolaj kunvenoj ne plen-
 
-¼onglistoj, ne al scienculoj. 
+umas do sian devon, kaj tiuj, kiuj tiajn faras, devus ja
 
+pensi, ke ili ankaŭ baldaŭ eniros en la mondon de la Spi-
 
 
-**41. ** La komunikiøoj kun la Spiritoj devas fariøi æiam 
+KIO ESTAS SPIRITISMO ?
 
-kun trankvileco kaj enmemiøo; oni ne forgesu, ke la Spi- 
 
-ritoj estas la animoj de la homoj, kaj ne estus prave 
+ritoj kaj ne vidus plezuro la homojn trakti ilin kun
 
-fari el ili ludilon aý þercon. Se oni havas respekton por 
+tiel malmulte da respekto.
 
-la mortinta resta¼o, oni devas pli ankoraý respekti la 
 
-Spiriton. La ventkapaj aý frivolaj kunvenoj ne plen- 
+**42. ** Alia egale konsiderinda punkto estas la liber-
 
-umas do sian devon, kaj tiuj, kiuj tiajn faras, devus ja 
+eco de la Spiritoj; ili komunikiĝas kiam ili volas, kun kiu
 
-pensi, ke ili ankaý baldaý eniros en la mondon de la Spi- 
+konvenas al ili, kaj ankaŭ kiam ili povas, ĝar ili havas
 
+siajn okupojn. Ili ne estas sub la ordonoj aŭ kaprico
 
+de iu ajn, kaj neniu povas ilin venigi kontraŭ ilia volo
 
-KIO ESTAS SPIRITISMO ? 
+aŭ ilin dirigi ion, pri kio ili volas silenti; sekve neniu
 
-111 
+povas aserti, ke iu difinita Spirito venos al lia voko, aŭ
 
+respondos al tia aŭ alia demando. Diri la kontraŭon
 
+estus pruvo de absoluta nescio pri la plej elementaj prin-
 
-ritoj kaj ne vidus plezuro la homojn trakti ilin kun 
-
-tiel malmulte da respekto. 
-
-
-
-**42. ** Alia egale konsiderinda punkto estas la liber- 
-
-eco de la Spiritoj; ili komunikiøas kiam ili volas, kun kiu 
-
-konvenas al ili, kaj ankaý kiam ili povas, æar ili havas 
-
-siajn okupojn. Ili ne estas sub la ordonoj aý kaprico 
-
-de iu ajn, kaj neniu povas ilin venigi kontraý ilia volo 
-
-aý ilin dirigi ion, pri kio ili volas silenti; sekve neniu 
-
-povas aserti, ke iu difinita Spirito venos al lia voko, aý 
-
-respondos al tia aý alia demando. Diri la kontraýon 
-
-estus pruvo de absoluta nescio pri la plej elementaj prin- 
-
-cipoj de Spiritismo; **nur æarlatanismo havas neelæerp- **
+cipoj de Spiritismo; **nur ĝarlatanismo havas neelĝerp- **
 
 **eblajn fontojn. **
 
 
+**43. ** La Spiritoj estas altirataj de la simpatio, de la
 
-**43. ** La Spiritoj estas altirataj de la simpatio, de la 
+simileco de gustoj kaj karakteroj, de la intenco, dezir-
 
-simileco de gustoj kaj karakteroj, de la intenco, dezir- 
+anta ilian aleston. La superaj Spiritoj ne venas al ba-
 
-anta ilian aleston. La superaj Spiritoj ne venas al ba- 
+nalaj kunvenoj, same kiel scienculo de la Tero ne vizitas
 
-nalaj kunvenoj, same kiel scienculo de la Tero ne vizitas 
+kunvenojn de ventkapaj junuloj. La komuna saĝo mem
 
-kunvenojn de ventkapaj junuloj. La komuna saøo mem 
+diras, ke ne povas esti alimaniere; aŭ, se superaj Spiritoj
 
-diras, ke ne povas esti alimaniere; aý, se superaj Spiritoj 
+iam venas al tiaj kunsidoj, ĝi estas por doni saĝan kon-
 
-iam venas al tiaj kunsidoj, øi estas por doni saøan kon- 
+silon, korekti malvirtojn, klopodi rekonduki la homojn
 
-silon, korekti malvirtojn, klopodi rekonduki la homojn 
+sur la bonan vojon; se ili ne estas aŭskultataj, ili foriras.
 
-sur la bonan vojon; se ili ne estas aýskultataj, ili foriras. 
+Tute falsa estus la ideo, ke seriozaj Spiritoj povus kom-
 
-Tute falsa estus la ideo, ke seriozaj Spiritoj povus kom- 
+pleze respondi al frivola¼oj, al senutilaj demandoj, kiuj
 
-pleze respondi al frivola¼oj, al senutilaj demandoj, kiuj 
+montras nek sindonemon nek respekton al ili, nek efek-
 
-montras nek sindonemon nek respekton al ili, nek efek- 
+tivan deziron instrui sin, kaj ankaŭ malpli, ke tiaj Spi-
 
-tivan deziron instrui sin, kaj ankaý malpli, ke tiaj Spi- 
+ritoj povus enþoviĝi en spektaklon por amuzado de sci-
 
-ritoj povus enþoviøi en spektaklon por amuzado de sci- 
+volemuloj. Ili tion ne faris dum la vivo, kaj ne povas
 
-volemuloj. Ili tion ne faris dum la vivo, kaj ne povas 
+ĝin fari post sia morto.
 
-øin fari post sia morto. 
 
+**44. ** La frivoleco de la kunvenoj donas kiel rezult-
 
+aton la altiron de malseriozaj Spiritoj, kiuj ne perdas
 
-**44. ** La frivoleco de la kunvenoj donas kiel rezult- 
+okazojn trompi kaj mistifiki. Pro la sama motivo, ke la
 
-aton la altiron de malseriozaj Spiritoj, kiuj ne perdas 
+gravaj kaj seriozaj homoj ne iras al kunvenoj de vent-
 
-okazojn trompi kaj mistifiki. Pro la sama motivo, ke la 
+kapuloj, la seriozaj Spiritoj iras nur al seriozaj kunsid-
 
-gravaj kaj seriozaj homoj ne iras al kunvenoj de vent- 
+oj, kies celo estas instrui kaj ne kontentigi scivolecon;
 
-kapuloj, la seriozaj Spiritoj iras nur al seriozaj kunsid- 
+en tiaj kunvenoj plaĝas al la superaj Spiritoj doni siajn
 
-oj, kies celo estas instrui kaj ne kontentigi scivolecon; 
+instruojn.
 
-en tiaj kunvenoj plaæas al la superaj Spiritoj doni siajn 
 
-instruojn. 
+ALLAN KARDEC
 
-112 
 
-ALLAN KARDEC 
+**45. **El tio antaŭdirita rezultas, ke ĝiu spiritista
 
+kunveno, por esti utila, kiel unua kondiĝo devas esti se-
 
+rioza kaj enmemiĝa; ke ĝio tie devas efektiviĝi respekt-
 
-**45. **El tio antaýdirita rezultas, ke æiu spiritista 
+eme, religieme kaj kun digneco, se oni volas ricevi la
 
-kunveno, por esti utila, kiel unua kondiæo devas esti se- 
+konstantan helpon de la bonaj Spiritoj. Oni ne forgesu,
 
-rioza kaj enmemiøa; ke æio tie devas efektiviøi respekt- 
+ke se tiuj samaj Spiritoj tie prezentiĝus dum sia vivo,
 
-eme, religieme kaj kun digneco, se oni volas ricevi la 
+oni havus por ili respekton, kiun ili multe pli ankoraŭ
 
-konstantan helpon de la bonaj Spiritoj. Oni ne forgesu, 
+meritas post sia morto.
 
-ke se tiuj samaj Spiritoj tie prezentiøus dum sia vivo, 
 
-oni havus por ili respekton, kiun ili multe pli ankoraý 
+**46. ** Vane oni pretekstas, ke certaj eksperimentoj
 
-meritas post sia morto. 
+kuriozaj, frivolaj kaj amuzaj estas utilaj por konvinki
 
+la nekredantojn: oni atingas tute kontraŭan rezultaton.
 
+La nekredanto, jam inklina mokridi la plej sanktajn kred-
 
-**46. ** Vane oni pretekstas, ke certaj eksperimentoj 
+ojn, ne povas vidi ion seriozan en tio farita kiel amuz-
 
-kuriozaj, frivolaj kaj amuzaj estas utilaj por konvinki 
+a¼o; li ne povas respekti tion, kio ne estas prezentata
 
-la nekredantojn: oni atingas tute kontraýan rezultaton. 
+al li en respektinda maniero; tial li portas ĝiam mal-
 
-La nekredanto, jam inklina mokridi la plej sanktajn kred- 
+bonan impreson de la banalaj, malseriozaj kunvenoj, kaj
 
-ojn, ne povas vidi ion seriozan en tio farita kiel amuz- 
+pri tiuj en kiuj ne regas ordo, seriozeco kaj enmemiĝo.
 
-a¼o; li ne povas respekti tion, kio ne estas prezentata 
+Kio super ĝio povas konvinki lin, tio estas la pruvo de
 
-al li en respektinda maniero; tial li portas æiam mal- 
+alesto de estuloj, kies memoro estas al li kara; ĝi estas
 
-bonan impreson de la banalaj, malseriozaj kunvenoj, kaj 
+antaŭ iliaj paroloj gravaj kaj solenaj, antaŭ intimaj mal-
 
-pri tiuj en kiuj ne regas ordo, seriozeco kaj enmemiøo. 
+kaþoj, ke oni vidas lrtuþiĝi kaj paliĝi. Sed ĝuste
 
-Kio super æio povas konvinki lin, tio estas la pruvo de 
+tial, ke li havas pli da estimo, da respekto, da sindonemo
 
-alesto de estuloj, kies memoro estas al li kara; øi estas 
+al la persono, kies animo sin prezentas al li, lin þokas,
 
-antaý iliaj paroloj gravaj kaj solenaj, antaý intimaj mal- 
+skandaligas ĝia veno en kunsido malrespektema, inter
 
-kaþoj, ke oni vidas lin kortuþiøi kaj paliøi. Sed øuste 
+dancantaj tabloj kaj mokoj de frivolaj Spiritoj; kvankam
 
-tial, ke li havas pli da estimo, da respekto, da sindonemo 
+li estas tute nekredanta, lia konscienco malakceptas tian
 
-al la persono, kies animo sin prezentas al li, lin þokas, 
+kunfandiĝon de tio serioza kaj de tio frivola, de io religia
 
-skandaligas øia veno en kunsido malrespektema, inter 
+kaj de io profana, tial li taksas ĝion kiel ¼ongla¼on, kaj
 
-dancantaj tabloj kaj mokoj de frivolaj Spiritoj; kvankam 
+ofte eliras malpli konvinkita ol li eniris.
 
-li estas tute nekredanta, lia konscienco malakceptas tian 
+La kunvenoj de tiu speco faras ĝiam pli da malbono
 
-kunfandiøon de tio serioza kaj de tio frivola, de io religia 
+ol da bono, ĝar ili malproksimigas de la doktrino pli da
 
-kaj de io profana, tial li taksas æion kiel ¼ongla¼on, kaj 
+personoj ol ili tien gvidas, ne konsiderante, ke ili pre-
 
-ofte eliras malpli konvinkita ol li eniris. 
+zentas Spiritismon al la kritiko de la atakantoj, kiuj tie
 
-La kunvenoj de tiu speco faras æiam pli da malbono 
+trovas pravajn motivojn por mokado.
 
-ol da bono, æar ili malproksimigas de la doktrino pli da 
 
-personoj ol ili tien gvidas, ne konsiderante, ke ili pre- 
+**47. ** Malprave oni kondamnas la fizikajn manifest-
 
-zentas Spiritismon al la kritiko de la atakantoj, kiuj tie 
+iĝojn; se ili ne gravas por la filozofia instruado, ili hav-
 
-trovas pravajn motivojn por mokado. 
+as sian utilecon kiel fenomenoj, ĝar ili estas la alfabeto
 
+de tiu scienco, al kiu ili donis þlosilon. Kvankam malpli
 
 
-**47. ** Malprave oni kondamnas la fizikajn manifest- 
+KIO ESTAS SPIRITISMO ?
 
-iøojn; se ili ne gravas por la filozofia instruado, ili hav- 
 
-as sian utilecon kiel fenomenoj, æar ili estas la alfabeto 
+necesaj hodiaŭ, ili ankoraŭ helpas por la konv de
 
-de tiu scienco, al kiu ili donis þlosilon. Kvankam malpli 
+iuj personoj. Sed ili neniel ekskludas ordon kaj bonan
 
+konduton en la kunvenoj por eksperimentado; se ili estus
 
+ĝiam kondukataj en pli konvena maniero, ili pli facile
 
-KIO ESTAS SPIRITISMO ? 
+konvinkus kaj produktus, el ĝiuj vidpunktoj, multe pli
 
-113 
+bonajn rezultatojn.
 
 
+**48. ** Certaj personoj havas ideon tute malpravan pri
 
-necesaj hodiaý, ili ankoraý helpas por la konvinko de 
+la elvokoj; iuj kredas, ke la elvokoj venigas el la tombo
 
-iuj personoj. Sed ili neniel ekskludas ordon kaj bonan 
+la mortintojn en funebra aparato. La malmulto de ni
 
-konduton en la kunvenoj por eksperimentado; se ili estus 
+dirita pri tiu temo devas dispeli tiun eraron. Nur en
 
-æiam kondukataj en pli konvena maniero, ili pli facile 
+romanoj, en fantaziaj rakontoj pri reaperantoj kaj en la
 
-konvinkus kaj produktus, el æiuj vidpunktoj, multe pli 
+teatro oni vidas la mortintojn senkarnaj, elirantaj el siaj
 
-bonajn rezultatojn. 
+tomboj, envolvitajn en littukoj, kaj klakigantajn siajn
 
+ostojn. Spiritismo neniam faras miraklojn, ĝi ne faris
 
+ankaŭ tiun; ĝi neniam revivigis mortintan korpon; kiam
 
-**48. ** Certaj personoj havas ideon tute malpravan pri 
+la korpo estas en la fosa¼o, ĝi estas tie tute definitive;
 
-la elvokoj; iuj kredas, ke la elvokoj venigas el la tombo 
+sed la spirita estulo, fluideca, inteligenta ne estas tien
 
-la mortintojn en funebra aparato. La malmulto de ni 
+metita kun sia maldelikata envolva¼o; li apartiĝis de ĝi
 
-dirita pri tiu temo devas dispeli tiun eraron. Nur en 
+en la momento de la morto, kaj kiam la disiĝo estas far-
 
-romanoj, en fantaziaj rakontoj pri reaperantoj kaj en la 
+ita, li jam havas nenion komunan kun ĝi.
 
-teatro oni vidas la mortintojn senkarnaj, elirantaj el siaj 
 
-tomboj, envolvitajn en littukoj, kaj klakigantajn siajn 
+**49. ** Al la malbonvola kritiko plaĝis prezenti la spi-
 
-ostojn. Spiritismo neniam faras miraklojn, øi ne faris 
+ritajn komunika¼ojn envolvitaj en ridindaj kaj superst-
 
-ankaý tiun; øi neniam revivigis mortintan korpon; kiam 
+iĝaj praktikoj de magio kaj nekromancio. Se la homoj,
 
-la korpo estas en la fosa¼o, øi estas tie tute definitive; 
+kiuj parolas pri Spiritismo ne konante ĝin, penus studi
 
-sed la spirita estulo, fluideca, inteligenta ne estas tien 
+tion, pri kio ili volas paroli, ili þparus al si multajn imag-
 
-metita kun sia maldelikata envolva¼o; li apartiøis de øi 
+adon kaj asertojn, kiuj taŭgis nur por pruvi iliajn ne-
 
-en la momento de la morto, kaj kiam la disiøo estas far- 
+scion kaj malbonan volon. Por informo al personoj
 
-ita, li jam havas nenion komunan kun øi. 
+fremdaj al tiu scienco, ni diros, ke por komunikiĝi kun
 
+la Spiritoj, ne estos tagoj, nek horoj, nek lokoj pli fa-
 
+voraj ol aliaj; ke por ilin elvoki ne estas necesaj for-
 
-**49. ** Al la malbonvola kritiko plaæis prezenti la spi- 
+muloj, nek vortoj sakramentaj aŭ kabalaj; ke oni bezon-
 
-ritajn komunika¼ojn envolvitaj en ridindaj kaj superst- 
+as nenian preparon aŭ inicadon; ke la uzado de ĝiu signo
 
-iæaj praktikoj de magio kaj nekromancio. Se la homoj, 
+aŭ materia objekto por ilin altiri aŭ forigi estas senefika,
 
-kiuj parolas pri Spiritismo ne konante øin, penus studi 
+kaj ke la penso sufiĝas; fine, ke la mediumoj ricevas
 
-tion, pri kio ili volas paroli, ili þparus al si multajn imag- 
+iliajn komunika¼ojn tiel simple kaj nature kiel se ili est-
 
-adon kaj asertojn, kiuj taýgis nur por pruvi iliajn ne- 
+us diktataj de vivanta homo, ne elirantaj el sia normala
 
-scion kaj malbonan volon. Por informo al personoj 
+stato. Nur ĝarlataneco povus afekti strangajn manier-
 
-fremdaj al tiu scienco, ni diros, ke por komunikiøi kun 
+ojn kaj aldoni ridindajn akcesora¼ojn. La vokon al la
 
-la Spiritoj, ne estos tagoj, nek horoj, nek lokoj pli fa- 
 
-voraj ol aliaj; ke por ilin elvoki ne estas necesaj for- 
+ALLAN KARDEC
 
-muloj, nek vortoj sakramentaj aý kabalaj; ke oni bezon- 
 
-as nenian preparon aý inicadon; ke la uzado de æiu signo 
+Spiritoj oni faras en nomo de Dio; kun respekto kaj en-
 
-aý materia objekto por ilin altiri aý forigi estas senefika, 
+memiĝo; nur ĝi tio estas rekomendita al seriozaj homoj,
 
-kaj ke la penso sufiæas; fine, ke la mediumoj ricevas 
+kiuj volas interrilatiĝi kun seriozaj Spiritoj.
 
-iliajn komunika¼ojn tiel simple kaj nature kiel se ili est- 
 
-us diktataj de vivanta homo, ne elirantaj el sia normala 
+**Providenca celo de la spiritaj manifestiĝoj **
 
-stato. Nur æarlataneco povus afekti strangajn manier- 
 
-ojn kaj aldoni ridindajn akcesora¼ojn. La vokon al la 
+**50. ** La providenca celo de la manifestiĝoj estas kon-
 
-114 
+vinki la nekredantojn, ke ne ĝio finiĝas por la homo kun
 
-ALLAN KARDEC 
+la surtera vivo, kaj doni al kredantoj ĝustajn ideojn pri
 
+la estonteco. La bonaj Spiritoj venas nin instrui por nia
 
+pliboniĝo kaj nia progreso, kaj ne por malkaþi tion, kion
 
-Spiritoj oni faras en nomo de Dio; kun respekto kaj en- 
+ni ne devas ankoraŭ scii aŭ tion, kion ni devas lerni nur
 
-memiøo; nur æi tio estas rekomendita al seriozaj homoj, 
+per nia laboro. Se sufiĝus nur demandi la Spiritojn por
 
-kiuj volas interrilatiøi kun seriozaj Spiritoj. 
+ricevi solvon de ĝiuj sciencaj malfacila¼oj, aŭ por fari
 
+eltrovojn kaj profitigajn inventojn, ĝiu malklerulo povus
 
+fariĝi sciencisto tre malkare, kaj ĝiu mallaboremulo pov-
 
-**Providenca celo de la spiritaj manifestiøoj **
+us riĝiĝi sen peno; ĝi tion Dio ne volas. La Spiritoj helpas
 
-****
+la genian homon per kaþita inspiro, sed ne liberigante
 
-**50. ** La providenca celo de la manifestiøoj estas kon- 
+lin de laboro kaj esploroj por lasi al li lian meriton.
 
-vinki la nekredantojn, ke ne æio finiøas por la homo kun 
 
-la surtera vivo, kaj doni al kredantoj øustajn ideojn pri 
+**51. ** Tre malpravan ideon pri la Spiritoj havas tiu,
 
-la estonteco. La bonaj Spiritoj venas nin instrui por nia 
+kiu vidas en ili helpantojn de la antaŭdirantoj de bona
 
-pliboniøo kaj nia progreso, kaj ne por malkaþi tion, kion 
+sorto; la seriozaj Spiritoj rifuzas okupiĝi pri frivola¼oj;
 
-ni ne devas ankoraý scii aý tion, kion ni devas lerni nur 
+la ventkapaj kaj mokemaj okupiĝas pri ĝio, antaŭdiras
 
-per nia laboro. Se sufiæus nur demandi la Spiritojn por 
+ĝion deziratan, neniel zorgante pri la vero, kaj havas
 
-ricevi solvon de æiuj sciencaj malfacila¼oj, aý por fari 
+malican plezuron mistifiki la tro kredemajn homojn; tial
 
-eltrovojn kaj profitigajn inventojn, æiu malklerulo povus 
+estas nepre necese klare kompreni la trafon de la de-
 
-fariøi sciencisto tre malkare, kaj æiu mallaboremulo pov- 
-
-us riæiøi sen peno; æi tion Dio ne volas. La Spiritoj helpas 
-
-la genian homon per kaþita inspiro, sed ne liberigante 
-
-lin de laboro kaj esploroj por lasi al li lian meriton. 
-
-
-
-**51. ** Tre malpravan ideon pri la Spiritoj havas tiu, 
-
-kiu vidas en ili helpantojn de la antaýdirantoj de bona 
-
-sorto; la seriozaj Spiritoj rifuzas okupiøi pri frivola¼oj; 
-
-la ventkapaj kaj mokemaj okupiøas pri æio, antaýdiras 
-
-æion deziratan, neniel zorgante pri la vero, kaj havas 
-
-malican plezuron mistifiki la tro kredemajn homojn; tial 
-
-estas nepre necese klare kompreni la trafon de la de- 
-
-mandoj adresataj al la Spiritoj. \(**La Libro de la Medium- **
+mandoj adresataj al la Spiritoj. (**La Libro de la Medium- **
 
 **oj, **n-ro 286: **Demandoj, kiujn oni povas fari al la Spi - **
 
-**ritoj. **\) 
+**ritoj. **)
 
 
+**52. ** Krom tio, kio povas helpi la moralan progreson,
 
-**52. ** Krom tio, kio povas helpi la moralan progreson, 
+estas nur necerteco en la malkaþoj, kiujn oni povas ri-
 
-estas nur necerteco en la malkaþoj, kiujn oni povas ri- 
+cevi de la Spiritoj. La unua bedaŭrinda sekvo por kiu
 
-cevi de la Spiritoj. La unua bedaýrinda sekvo por kiu 
+deflankiĝas de tiu providenca celo, estas ricevi mistifik-
 
-deflankiøas de tiu providenca celo, estas ricevi mistifik- 
+ojn fare de la trompemaj Spiritoj, kiuj svarmas ĝirkaŭ
 
-ojn fare de la trompemaj Spiritoj, kiuj svarmas æirkaý 
+la homoj; la dua, estas fali sub la regadon de tiuj sam-
 
-la homoj; la dua, estas fali sub la regadon de tiuj sam- 
+aj Spiritoj, kiuj povas, per perfidaj konsiloj, konduki ilin
 
-aj Spiritoj, kiuj povas, per perfidaj konsiloj, konduki ilin 
+al efektivaj kaj materiaj malfeliĝoj sur la Tero; la tria,
 
-al efektivaj kaj materiaj malfeliæoj sur la Tero; la tria, 
+estas la perdo de la frukto de la kono de Spiritismo, post
 
-estas la perdo de la frukto de la kono de Spiritismo, post 
-
-la surtera vivo. 
-
+la surtera vivo.
 
 
-KIO ESTAS SPIRITISMO ? 
-
-115 
+KIO ESTAS SPIRITISMO ?
 
 
+**53. ** La manifestiĝoj ne estas do destinataj servi
 
-**53. ** La manifestiøoj ne estas do destinataj servi 
+materiajn interesojn; ilia utileco estas en la moralaj kon-
 
-materiajn interesojn; ilia utileco estas en la moralaj kon- 
+sekvencoj fontantaj el ili; sed eĝ se ili donus kiel rezult-
 
-sekvencoj fontantaj el ili; sed eæ se ili donus kiel rezult- 
+aton nur la konon de nova natura leĝo, nur montri ma-
 
-aton nur la konon de nova natura leøo, nur montri ma- 
+teriale la ekziston kaj la senmortecon de la animo, ĝi
 
-teriale la ekziston kaj la senmortecon de la animo, æi 
+tio ja estus multo, ĝar ĝi estus nova larĝa vojo malferm-
 
-tio ja estus multo, æar øi estus nova larøa vojo malferm- 
-
-ita al la filozofio. 
-
+ita al la filozofio.
 
 
 **Pri la mediumoj **
 
-****
 
-**54. ** En siaj povoj la mediumoj prezentas la plej 
+**54. ** En siaj povoj la mediumoj prezentas la plej
 
-malsamajn kapablojn, kio faras ilin pli aý malpli taýgaj 
+malsamajn kapablojn, kio faras ilin pli aŭ malpli taŭgaj
 
-por tiu aý alia speco de komunika¼oj, de tia aý alia fe- 
+por tiu aŭ alia speco de komunika¼oj, de tia aŭ alia fe-
 
-nomeno. Laý tiuj kapabloj, ili distingiøas kiel mediumoj, 
+nomeno. Laŭ tiuj kapabloj, ili distingiĝas kiel mediumoj,
 
 **por fizikaj efikoj, por inteligentaj komunika¼oj, vidantoj, **
 
-**parolantoj, aýdantoj, sensitivoj, desegnistoj, poliglotoj, **
+**parolantoj, aŭdantoj, sensitivoj, desegnistoj, poliglotoj, **
 
-**poetoj, muzikistoj, verkistoj **k. a. Oni ne povas atendi 
+**poetoj, muzikistoj, verkistoj **k. a. Oni ne povas atendi
 
-de unu mediumo ion, kio estas ekster lia kapablo. Ne 
+de unu mediumo ion, kio estas ekster lia kapablo. Ne
 
-konante la mediumajn kapablecojn, la observanto ne pov- 
+konante la mediumajn kapablecojn, la observanto ne pov-
 
-as kompreni certajn malfacila¼ojn, aý iajn neebla¼ojn 
+as kompreni certajn malfacila¼ojn, aŭ iajn neebla¼ojn
 
-ekzistantajn en la praktiko. \(**La Libro de la Mediumoj, **
+ekzistantajn en la praktiko. (**La Libro de la Mediumoj, **
 
-æap. XVI, n-ro 185.\) 
-
-
-
-**55. ** La mediumoj por fizikaj efikoj estas pli kapa- 
-
-blaj por okazigi materiajn fenomenojn, kiaj movoj, frap- 
-
-oj k. s., per tabloj aý aliaj objektoj; kiam tiuj fenomenoj 
-
-montras penson aý obeas ies volon, ili estas inteligentaj 
-
-efikoj; æar ili malkaþas inteligentan kaýzon: øi estas por 
-
-la Spirito iu maniero manifestiøi. Per difinita nombro 
-
-da batoj, laý konvencio, oni ricevas respondojn per **jes **
-
-aý per **ne**, aý la montron de la literoj de la alfabeto por 
-
-formi vortojn kaj frazojn. Tiu primitiva rimedo estas 
-
-tro malrapida kaj ne taýgas por longaj elvolviøoj. La 
-
-parolantaj tabloj estis la komenco de tiu scienco; hodiaý 
-
-oni jam posedas rimedojn de komunikiøoj tiel rapidaj kaj 
-
-plenaj kiel æe la vivantoj kaj nur escepte, kiel eksperi- 
-
-mentadon, oni uzas la parolantan tablon. 
+ĝap. XVI, n-ro 185.)
 
 
+**55. ** La mediumoj por fizikaj efikoj estas pli kapa-
 
-**56. ** El æiuj rimedoj de komunikiøoj, la skribado est- 
+blaj por okazigi materiajn fenomenojn, kiaj movoj, frap-
 
-as samtempe la plej simpla, la plej rapida, la plej opor- 
+oj k. s., per tabloj aŭ aliaj objektoj; kiam tiuj fenomenoj
 
-116 
+montras penson aŭ obeas ies volon, ili estas inteligentaj
 
-ALLAN KARDEC 
+efikoj; ĝar ili malkaþas inteligentan kaŭzon: ĝi estas por
 
+la Spirito iu maniero manifestiĝi. Per difinita nombro
 
+da batoj, laŭ konvencio, oni ricevas respondojn per **jes **
 
-tuna, kaj tiu, kiu permesas pli da elvolviøoj; øi estas 
+aŭ per **ne**, aŭ la montron de la literoj de la alfabeto por
 
-ankaý la kapablo plej ofte trovata æe la mediumoj. 
+formi vortojn kaj frazojn. Tiu primitiva rimedo estas
 
+tro malrapida kaj ne taŭgas por longaj elvolviĝoj. La
 
+parolantaj tabloj estis la komenco de tiu scienco; hodiaŭ
 
-**57. ** Por akiri la skribon, oni uzis en la komenco 
+oni jam posedas rimedojn de komunikiĝoj tiel rapidaj kaj
 
-diversajn materiajn perantojn kiel korbetojn, tabuletojn 
+plenaj kiel ĝe la vivantoj kaj nur escepte, kiel eksperi-
 
-k. a., provizitajn per krajono. \(**La Libro de la Mediumoj, **
-
-æap. XIII, n-oj 152 kaj sekvantaj.\) Pli poste oni rekonis 
-
-la senutilecon de tiuj akcesora¼oj kaj la eblecon por la 
-
-mediumoj skribi rekte per la mano, kiel en la ordinara 
-
-skribado. 
+mentadon, oni uzas la parolantan tablon.
 
 
+**56. ** El ĝiuj rimedoj de komunikiĝoj, la skribado est-
 
-**58. ** La mediumo skribas sub la influo de la Spiritoj, 
+as samtempe la plej simpla, la plej rapida, la plej opor-
 
-kiuj uzas lin kiel instrumenton; lia mano estas konduk- 
 
-ata de nevola movado, kiun plej ofte li ne povas regi. 
+ALLAN KARDEC
 
-Certaj mediumoj havas nenian konscion pri tio, kion ili 
 
-skribas; aliaj havas pli aý malpli malprecizan konscion, 
+tuna, kaj tiu, kiu permesas pli da elvolviĝoj; ĝi estas
 
-kvankam la penso estas al ili fremda: æi tio distingas 
+ankaŭ la kapablo plej ofte trovata ĝe la mediumoj.
+
+
+**57. ** Por akiri la skribon, oni uzis en la komenco
+
+diversajn materiajn perantojn kiel korbetojn, tabuletojn
+
+k. a., provizitajn per krajono. (**La Libro de la Mediumoj, **
+
+ĝap. XIII, n-oj 152 kaj sekvantaj.) Pli poste oni rekonis
+
+la senutilecon de tiuj akcesora¼oj kaj la eblecon por la
+
+mediumoj skribi rekte per la mano, kiel en la ordinara
+
+skribado.
+
+
+**58. ** La mediumo skribas sub la influo de la Spiritoj,
+
+kiuj uzas lin kiel instrumenton; lia mano estas konduk-
+
+ata de nevola movado, kiun plej ofte li ne povas regi.
+
+Certaj mediumoj havas nenian konscion pri tio, kion ili
+
+skribas; aliaj havas pli aŭ malpli malprecizan konscion,
+
+kvankam la penso estas al ili fremda: ĝi tio distingas
 
 la **me¶anikajn mediumojn **disde la **intuitivaj mediumoj **
 
-aý de la **duonme¶anikaj**. La spirita scienco klarigas la 
+aŭ de la **duonme¶anikaj**. La spirita scienco klarigas la
 
-manieron de la transsendo de la penso de la Spirito al la 
+manieron de la transsendo de la penso de la Spirito al la
 
-mediumo kaj la rolon de æi tiu lasta en la **komunikiøoj**. 
+mediumo kaj la rolon de ĝi tiu lasta en la **komunikiĝoj**.
 
-\(**La Libro de la Mediumoj**, æap. XV, n-roj 179 kaj sekv- 
+(**La Libro de la Mediumoj**, ĝap. XV, n-roj 179 kaj sekv-
 
-antaj; — æap. XIX, n-ro 223 kaj sekvantaj.\) 
+antaj; — ĝap. XIX, n-ro 223 kaj sekvantaj.)
 
 
+**59. ** La mediumo posedas nur la kapablon, sed la
 
-**59. ** La mediumo posedas nur la kapablon, sed la 
+efektiva komunika¼o dependas de la Spiritoj. Se la Spi-
 
-efektiva komunika¼o dependas de la Spiritoj. Se la Spi- 
+ritoj ne volas manifestiĝi, la mediumo nenion ricevas;
 
-ritoj ne volas manifestiøi, la mediumo nenion ricevas; 
+tiam li estas muzikilo sen muzikisto. La Spiritoj komu -
 
-tiam li estas muzikilo sen muzikisto. La Spiritoj komu - 
-
-nikiøas nur kiam ili volas aý povas; ili neniam estas sub 
+nikiĝas nur kiam ili volas aŭ povas; ili neniam estas sub
 
 kaprico de iu; **neniu mediumo havas la povon ilin venigi **
 
-**laý sia plaæo kaj kontraý ilia volo. **
+**laŭ sia plaĝo kaj kontraŭ ilia volo. **
 
-Æi tio klarigas la intermitecon de la kapabloj æe la 
+Æi tio klarigas la intermitecon de la kapabloj ĝe la
 
-plej bonaj mediumoj, kaj la interrompojn, kiujn ili su- 
+plej bonaj mediumoj, kaj la interrompojn, kiujn ili su-
 
-feras kelkafoje dum pluraj monatoj. Estus do malprave 
+feras kelkafoje dum pluraj monatoj. Estus do malprave
 
-identigi la mediumecon kun iu **talento. ** La talenton oni 
+identigi la mediumecon kun iu **talento. ** La talenton oni
 
-akiras per laboro; kiu øin posedas estas æiam øia mastro; 
+akiras per laboro; kiu ĝin posedas estas ĝiam ĝia mastro;
 
-la mediumo neniam mastras sian kapablon, æar æi tiu de- 
+la mediumo neniam mastras sian kapablon, ĝar ĝi tiu de-
 
-pendas de fremda volo. 
+pendas de fremda volo.
 
 
+**60. ** La mediumo por fizikaj efikoj, kiu ricevas re-
 
-**60. ** La mediumo por fizikaj efikoj, kiu ricevas re- 
+gule kaj laŭvole iujn fenomenojn, kaj ne supozante, ke
 
-gule kaj laývole iujn fenomenojn, kaj ne supozante, ke 
 
+KIO ESTAS SPIRITISMO ?
 
 
-KIO ESTAS SPIRITISMO ? 
+tio fariĝas per ¼onglado, estas en rilatoj kun Spiritoj de
 
-117 
+malalta tavolo, al kiuj plaĝas tiuj montriĝoj, kaj kiuj
 
+eble havis similan metion en sia vivo; sed estus absurdo
 
+pensi, ke Spiritoj, eĝ malaltnivelaj, amuziĝas per parado.
 
-tio fariøas per ¼onglado, estas en rilatoj kun Spiritoj de 
+(Vidu antaŭe paĝon 55. Pri ¼onglado.)
 
-malalta tavolo, al kiuj plaæas tiuj montriøoj, kaj kiuj 
 
-eble havis similan metion en sia vivo; sed estus absurdo 
+**61. ** La mallumo necesa al la produktado de certaj
 
-pensi, ke Spiritoj, eæ malaltnivelaj, amuziøas per parado. 
+**fizikaj** efikoj sendube povas veki suspekton, sed ĝi pruv-
 
-\(Vidu antaýe paøon 55. Pri ¼onglado.\) 
+as nenion kontraŭ la vereco de tiuj fenomenoj. Oni scias,
 
+ke en ¶emio iuj kombina¼oj ne povas efektiviĝi sub la
 
+lumo; ke iuj komponadoj kaj malkomponadoj efektiviĝas
 
-**61. ** La mallumo necesa al la produktado de certaj 
+sub la agado de la luma fluida¼o; nu, ĝiuj spiritaj feno-
 
-**fizikaj** efikoj sendube povas veki suspekton, sed øi pruv- 
+menoj estas rezultato de kombinado de fluida¼oj aparten-
 
-as nenion kontraý la vereco de tiuj fenomenoj. Oni scias, 
+antaj al la mediumo kaj al la Spirito; ĝar tiuj fluida¼oj
 
-ke en ¶emio iuj kombina¼oj ne povas efektiviøi sub la 
+estas materio, estas neniel strange, ke en iuj okazoj la
 
-lumo; ke iuj komponadoj kaj malkomponadoj efektiviøas 
+luma fluida¼o estas kontraŭa al tiu kombinado.
 
-sub la agado de la luma fluida¼o; nu, æiuj spiritaj feno- 
 
-menoj estas rezultato de kombinado de fluida¼oj aparten- 
+**62. ** La inteligentaj komunikiĝoj ankaŭ efektiviĝas
 
-antaj al la mediumo kaj al la Spirito; æar tiuj fluida¼oj 
+per la fluideca agado de la Spirito super la mediumo;
 
-estas materio, estas neniel strange, ke en iuj okazoj la 
+estas necese, ke la fluida¼o de ĝi tiu lasta identiĝu kun
 
-luma fluida¼o estas kontraýa al tiu kombinado. 
+tiu de la Spirito. La facileco de la komunikiĝoj depend-
 
+as de la grado da akordiĝemo ekzistanta inter la du fluid-
 
+a¼oj. Æiu mediumo estas do pli aŭ malpli kapabla ricevi
 
-**62. ** La inteligentaj komunikiøoj ankaý efektiviøas 
+la **impreson **aŭ la** impulson **de la penso de** **tia aŭ alia Spirito; li povas esti bona instrumento por unu kaj malbona por alia. El tio rezultas, ke se du egale bone na-
 
-per la fluideca agado de la Spirito super la mediumo; 
+turdotitaj mediumoj estas unu apud la dua, iu Spirito
 
-estas necese, ke la fluida¼o de æi tiu lasta identiøu kun 
+povas manifestiĝi per unu kaj ne per la alia.
 
-tiu de la Spirito. La facileco de la komunikiøoj depend- 
 
-as de la grado da akordiøemo ekzistanta inter la du fluid- 
+**63. ** Estas do eraro kredi, ke sufiĝas esti mediumo
 
-a¼oj. Æiu mediumo estas do pli aý malpli kapabla ricevi 
+por ricevi kun egala facileco komunika¼ojn de ĝiu Spirito.
 
-la **impreson **aý la** impulson **de la penso de** **tia aý alia Spirito; li povas esti bona instrumento por unu kaj malbona por alia. El tio rezultas, ke se du egale bone na- 
+Ne ekzistas universalaj mediumoj por la elvokado, kiel
 
-turdotitaj mediumoj estas unu apud la dua, iu Spirito 
+ekzistas neniu kun kapableco por produkti ĝiujn feno-
 
-povas manifestiøi per unu kaj ne per la alia. 
+menojn. La Spiritoj serĝas preferinde instrumentojn vi-
 
-****
+brantajn unisone kun ili; trudi al ili la unuan renkont-
 
-**63. ** Estas do eraro kredi, ke sufiæas esti mediumo 
+itan, estus same kiel trudi al pianisto ludi violonon, ĝar
 
-por ricevi kun egala facileco komunika¼ojn de æiu Spirito. 
+sciante muzikon li devas povi ludi ĝiujn instrumentojn.
 
-Ne ekzistas universalaj mediumoj por la elvokado, kiel 
 
-ekzistas neniu kun kapableco por produkti æiujn feno- 
+**64. ** Sen la harmonio, kiu povas konduki al la fluid-
 
-menojn. La Spiritoj seræas preferinde instrumentojn vi- 
+eca asimiliĝo, la komunikiĝoj estas neeblaj, nekompletaj
 
-brantajn unisone kun ili; trudi al ili la unuan renkont- 
+aŭ falsaj. Ili povas esti falsaj, ĝar pro neeblo de la Spi-
 
-itan, estus same kiel trudi al pianisto ludi violonon, æar 
 
-sciante muzikon li devas povi ludi æiujn instrumentojn. 
+ALLAN KARDEC
 
 
+rito dezirata, ne mankas aliaj pretaj kapti la okazon ma-
 
-**64. ** Sen la harmonio, kiu povas konduki al la fluid- 
+nifestiĝi, kiuj tre malmulte zorgas pri la vero.
 
-eca asimiliøo, la komunikiøoj estas neeblaj, nekompletaj 
 
-aý falsaj. Ili povas esti falsaj, æar pro neeblo de la Spi- 
+**65. **La fluideca asimiliĝo estas kelkafoje tute ne
 
-118 
+ebla inter iuj Spiritoj kaj iuj mediumoj; aliajn fojojn,
 
-ALLAN KARDEC 
+kaj ĝi tio estas la plej ordinara, ĝi stariĝas nur iom post
 
+iom en longa tempo; ĝi tio klarigas kial la Spiritoj, hav-
 
+antaj kutimon manifestiĝi per unu mediumo, ĝi tion far-
 
-rito dezirata, ne mankas aliaj pretaj kapti la okazon ma- 
+as kun la plej granda facileco, kaj kial la unuaj komu -
 
-nifestiøi, kiuj tre malmulte zorgas pri la vero. 
+nikiĝoj montras preskaŭ ĝiam iom da ĝeno kaj ne estas
 
+tre klaraj.
 
 
-**65. **La fluideca asimiliøo estas kelkafoje tute ne 
+**66. ** La fluideca asimiliĝo estas tiel necesa en la ko-
 
-ebla inter iuj Spiritoj kaj iuj mediumoj; aliajn fojojn, 
+munikiĝoj per **tiptologio** kiel per skribado, ĝar en ambaŭ
 
-kaj æi tio estas la plej ordinara, øi stariøas nur iom post 
+okazoj temas pri la transsendo de la penso de la Spirito,
 
-iom en longa tempo; æi tio klarigas kial la Spiritoj, hav- 
+kiu ajn la materia rimedo uzata.
 
-antaj kutimon manifestiøi per unu mediumo, æi tion far- 
 
-as kun la plej granda facileco, kaj kial la unuaj komu - 
+**67. ** Ne povante trudi mediumon al la Spirito, kiun
 
-nikiøoj montras preskaý æiam iom da øeno kaj ne estas 
+oni volas elvoki, konvenas lasi al li la elekton de sia ins-
 
-tre klaraj. 
+trumento. En ĝiuj okazoj, estas necese, ke la mediumo
 
+identiĝu unue kun la Spirito per enmemiĝo kaj preĝo,
 
+almenaŭ dum kelkaj minutoj, aŭ eĝ dum pluraj tagoj
 
-**66. ** La fluideca asimiliøo estas tiel necesa en la ko- 
+antaŭe, se ĝi tio estas farebla, en maniero starigi kaj
 
-munikiøoj per **tiptologio** kiel per skribado, æar en ambaý 
+aktivigi la fluidecan asimiliĝon. Æi tio estas la rimedo
 
-okazoj temas pri la transsendo de la penso de la Spirito, 
+por malgravigi la malfacila¼on.
 
-kiu ajn la materia rimedo uzata. 
 
+**68. ** Kiam la fluidecaj kondiĝoj ne estas favoraj al
 
+la senpera komunikiĝo de la Spirito al la mediumo, ĝi
 
-**67. ** Ne povante trudi mediumon al la Spirito, kiun 
+povas fariĝi per helpo de la spirita gvidanto de la me-
 
-oni volas elvoki, konvenas lasi al li la elekton de sia ins- 
+diumo; en tiu okazo la penso alvenas per dua peranto,
 
-trumento. En æiuj okazoj, estas necese, ke la mediumo 
+t. e. post trairo tra du instrumentoj. Oni komprenas
 
-identiøu unue kun la Spirito per enmemiøo kaj preøo, 
+do kiel grava estas la bona spirita asistado al la me-
 
-almenaý dum kelkaj minutoj, aý eæ dum pluraj tagoj 
+diumo, ĝar se li estas sub influo de obsedanta, malklera
 
-antaýe, se æi tio estas farebla, en maniero starigi kaj 
+aŭ fiera Spirito, la komunikiĝo nepre estos falsita.
 
-aktivigi la fluidecan asimiliøon. Æi tio estas la rimedo 
+Tie la personaj kvalitoj de la mediumo nepre ludas
 
-por malgravigi la malfacila¼on. 
+gravan rolon, pro la karaktero de la Spiritoj, kiujn li
 
+altiras al si. La plej malindaj mediumoj povas havi fort-
 
+ajn kapablojn, sed la plej sekuraj estas tiuj, kiuj krom
 
-**68. ** Kiam la fluidecaj kondiæoj ne estas favoraj al 
-
-la senpera komunikiøo de la Spirito al la mediumo, øi 
-
-povas fariøi per helpo de la spirita gvidanto de la me- 
-
-diumo; en tiu okazo la penso alvenas per dua peranto, 
-
-t. e. post trairo tra du instrumentoj. Oni komprenas 
-
-do kiel grava estas la bona spirita asistado al la me- 
-
-diumo, æar se li estas sub influo de obsedanta, malklera 
-
-aý fiera Spirito, la komunikiøo nepre estos falsita. 
-
-Tie la personaj kvalitoj de la mediumo nepre ludas 
-
-gravan rolon, pro la karaktero de la Spiritoj, kiujn li 
-
-altiras al si. La plej malindaj mediumoj povas havi fort- 
-
-ajn kapablojn, sed la plej sekuraj estas tiuj, kiuj krom 
-
-tiuj kapabloj, øuas la plej bonajn simpatiojn en la spi- 
+tiuj kapabloj, ĝuas la plej bonajn simpatiojn en la spi-
 
 rita mondo; nu, tiuj simpatioj neniel **estas garantiataj **
 
-de pli aý malpli imponantaj nomoj de la Spiritoj, aý ki- 
+de pli aŭ malpli imponantaj nomoj de la Spiritoj, aŭ ki-
 
 
-
-KIO ESTAS SPIRITISMO ? 
-
-119 
+KIO ESTAS SPIRITISMO ?
 
 
+ujn prenas la Spiritoj, kiuj subskribas la komunika¼ojn,
 
-ujn prenas la Spiritoj, kiuj subskribas la komunika¼ojn, 
+sed de la karaktero **konstante bona **de la ricevataj ko-
 
-sed de la karaktero **konstante bona **de la ricevataj ko- 
-
-munika¼oj. 
-
+munika¼oj.
 
 
-**69. ** Kiu ajn estas la maniero de la komunikiøoj, el 
+**69. ** Kiu ajn estas la maniero de la komunikiĝoj, el
 
-vidpunkto eksperimenta la praktikado de Spiritismo pre- 
+vidpunkto eksperimenta la praktikado de Spiritismo pre-
 
-zentas multenombrajn malfacila¼ojn, kaj ne estas libera 
+zentas multenombrajn malfacila¼ojn, kaj ne estas libera
 
-de danøero por kiu ne havas sperton. Kiel eksperiment- 
+de danĝero por kiu ne havas sperton. Kiel eksperiment-
 
-anto mem aý kiel simpla observanto, estas necese scii 
+anto mem aŭ kiel simpla observanto, estas necese scii
 
-distingi inter la malsamaj karakteroj de la Spiritoj, kiuj 
+distingi inter la malsamaj karakteroj de la Spiritoj, kiuj
 
-povas manifestiøi, koni la kaýzon de æiuj fenomenoj, la 
+povas manifestiĝi, koni la kaŭzon de ĝiuj fenomenoj, la
 
-kondiæojn en kiuj ili povas efektiviøi, la obstaklojn, kiuj 
+kondiĝojn en kiuj ili povas efektiviĝi, la obstaklojn, kiuj
 
-povas ilin kontraýi, por ne peti ion neeblan; ne estas 
+povas ilntraŭi, por ne peti ion neeblan; ne estas
 
-malpli necese koni æiujn kondiæojn kaj æiujn rifojn de la 
+malpli necese koni ĝiujn kondiĝojn kaj ĝiujn rifojn de la
 
-mediumeco, la influon de la medio, la moralan sinten- 
+mediumeco, la influon de la medio, la moralan sinten-
 
-adon k. a. \(**La Libro de la Mediumoj, **2-a parto.\) 
-
+adon k. a. (**La Libro de la Mediumoj, **2-a parto.)
 
 
 **Rifoj de la mediumoj **
 
-****
 
-**70. ** Unu el la plej gravaj rifoj de la mediumeco est- 
+**70. ** Unu el la plej gravaj rifoj de la mediumeco est-
 
-as la **obsedo**, t. e. la regado, kiun iuj Spiritoj povas prak- 
+as la **obsedo**, t. e. la regado, kiun iuj Spiritoj povas prak-
 
-tiki sur la mediumojn, trudante sin al ili sub apokrifaj 
+tiki sur la mediumojn, trudante sin al ili sub apokrifaj
 
-nomoj kaj malebligante al ili komunikiøi kun aliaj Spi- 
+nomoj kaj malebligante al ili komunikiĝi kun aliaj Spi-
 
-ritoj. Øi estas rifo ankaý por novica observanto nesper- 
+ritoj. Øi estas rifo ankaŭ por novica observanto nesper-
 
-ta, kiu, ne konante la karakterojn de æi tiu fenomeno, 
+ta, kiu, ne konante la karakterojn de ĝi tiu fenomeno,
 
-povas esti trompita de la þajnoj, kiel tiu nesperta en me- 
+povas esti trompita de la þajnoj, kiel tiu nesperta en me-
 
-dicino, kiu povas havi iluzion pri la kaýzo kaj karaktero 
+dicino, kiu povas havi iluzion pri la kaŭzo kaj karaktero
 
-de iu malsano. Se la antaýa studo en tiu okazo estas 
+de iu malsano. Se la antaŭa studo en tiu okazo estas
 
-utila por la observanto, øi estas nepre necesa al la me- 
+utila por la observanto, ĝi estas nepre necesa al la me-
 
-diumo, tial, ke øi liveras al li rimedojn por eviti øena¼on, 
+diumo, tial, ke ĝi liveras al li rimedojn por eviti ĝena¼on,
 
-kiu povas havi por li bedaýrindajn sekvojn; tial ni nen- 
+kiu povas havi por li bedaŭrindajn sekvojn; tial ni nen-
 
-iam æesus rekomendi la studadon antaý ol sin dediæi al 
+iam ĝesus rekomendi la studadon antaŭ ol sin dediĝi al
 
-la praktiko. \(**La Libro de la Mediumoj. **Æap. XXIII.\) 
-
+la praktiko. (**La Libro de la Mediumoj. **Æap. XXIII.)
 
 
-**71. ** La obsedo prezentas tri precipajn gradojn tre 
+**71. ** La obsedo prezentas tri precipajn gradojn tre
 
 karakterizitajn: **la simpla obsedo, la fascinado **kaj **la **
 
-**subjugado. **En la unua, la mediumo estas tute konscia, 
+**subjugado. **En la unua, la mediumo estas tute konscia,
 
-ke li ricevas nenion bonan; li havas nenian iluzion pri 
+ke li ricevas nenion bonan; li havas nenian iluzion pri
 
-la naturo de la Spirito, kiu obstinas manifestiøi per li 
+la naturo de la Spirito, kiu obstinas manifestiĝi per li
 
-kaj de kiu li deziras sin liberigi. Tiu okazo havas nen- 
+kaj de kiu li deziras sin liberigi. Tiu okazo havas nen-
 
-120 
 
-ALLAN KARDEC 
+ALLAN KARDEC
 
 
+ian gravecon: ĝi estas nur malagrabla kaj la mediumo
 
-ian gravecon: øi estas nur malagrabla kaj la mediumo 
+povas liberiĝi ĝesante provizore skribi. Laca ne esti aŭs-
 
-povas liberiøi æesante provizore skribi. Laca ne esti aýs- 
+kultata la Spirito fine foriras.
 
-kultata la Spirito fine foriras. 
+La **obseda fascinado **estas multe pli grava, ĝar la
 
-La **obseda fascinado **estas multe pli grava, æar la 
+mediumo havas plenan iluzion. La Spirito lin reganta
 
-mediumo havas plenan iluzion. La Spirito lin reganta 
+alproprigas al si lian konfidon ĝis la nuligo de lia juĝo-
 
-alproprigas al si lian konfidon øis la nuligo de lia juøo- 
+kapablo pri la komunika¼oj, kaj igas lin trovi sublimaj
 
-kapablo pri la komunika¼oj, kaj igas lin trovi sublimaj 
+la plej absurdajn aferojn.
 
-la plej absurdajn aferojn. 
+La karakteriza trajto de tiu speco de obsedo estas
 
-La karakteriza trajto de tiu speco de obsedo estas 
+ia tro forta ofendiĝemo en la mediumo; ĝi kondukas lin
 
-ia tro forta ofendiøemo en la mediumo; øi kondukas lin 
+trovi bona, justa kaj vera nur tion, kion li skribas, kaj
 
-trovi bona, justa kaj vera nur tion, kion li skribas, kaj 
+rifuzi, trovi ofenda, ĝiun konsilon, observon, kritikon; pre-
 
-rifuzi, trovi ofenda, æiun konsilon, observon, kritikon; pre- 
+ferinde li forlasas siajn amikojn anstataŭ konsenti, ke li
 
-ferinde li forlasas siajn amikojn anstataý konsenti, ke li 
+estas trompita; li ¼aluzas aliajn mediumojn, kies komu -
 
-estas trompita; li ¼aluzas aliajn mediumojn, kies komu - 
+nika¼oj estas juĝataj pli bonaj ol la liaj; li volas sin
 
-nika¼oj estas juøataj pli bonaj ol la liaj; li volas sin 
+trudi al la spiritistaj kunvenoj, kiujn li forlasas, kiam
 
-trudi al la spiritistaj kunvenoj, kiujn li forlasas, kiam 
+li ne povas ilin regi. Li venas fine al tia submetiĝo, ke
 
-li ne povas ilin regi. Li venas fine al tia submetiøo, ke 
+la Spirito povas konduki lin al la plej ridindaj kaj kom-
 
-la Spirito povas konduki lin al la plej ridindaj kaj kom- 
+promitantaj agoj.
 
-promitantaj agoj. 
 
+**72. ** Unu el la karakterizaj trajtoj de la malbonaj
 
+Spiritoj estas sin trudi; ili donas ordonojn kaj volas esti
 
-**72. ** Unu el la karakterizaj trajtoj de la malbonaj 
+obeataj; la bonaj neniam sin trudas: ili donas konsilojn,
 
-Spiritoj estas sin trudi; ili donas ordonojn kaj volas esti 
+kaj se oni ne aŭskultas ilin, ili foriras. El tio sekvas,
 
-obeataj; la bonaj neniam sin trudas: ili donas konsilojn, 
+ke la impreso de la malbonaj Spiritoj estas peniga, laciga
 
-kaj se oni ne aýskultas ilin, ili foriras. El tio sekvas, 
+kaj produktas ian specon de sveneto; ofte ĝi kaŭzas
 
-ke la impreso de la malbonaj Spiritoj estas peniga, laciga 
+febran agitadon, abruptajn kaj spasmajn movojn; kon-
 
-kaj produktas ian specon de sveneto; ofte øi kaýzas 
+traŭe, tiu de la bonaj Spiritoj estas trankvila, dolĝa kaj
 
-febran agitadon, abruptajn kaj spasmajn movojn; kon- 
+kaŭzas veran bonstaton.
 
-traýe, tiu de la bonaj Spiritoj estas trankvila, dolæa kaj 
 
-kaýzas veran bonstaton. 
+**73. **La **obseda subjugado**, iam nomita **posedo**, estas fizika trudo, ĝiam praktikata de Spiritoj el la plej malbona speco kaj kiu povas atingi ĝis la nuligo de la libera
 
+volo. Ofte ĝi limiĝas nur al malagrablaj impresoj, sed
 
+kelkafoje ĝi okazigas senordajn movojn, malsaĝajn ag-
 
-**73. **La **obseda subjugado**, iam nomita **posedo**, estas fizika trudo, æiam praktikata de Spiritoj el la plej malbona speco kaj kiu povas atingi øis la nuligo de la libera 
+ojn, kriojn, sensencajn aŭ ofendajn vortojn, kies ridind-
 
-volo. Ofte øi limiøas nur al malagrablaj impresoj, sed 
+econ la viktimo ofte komprenas, sed li ne povas sin de-
 
-kelkafoje øi okazigas senordajn movojn, malsaøajn ag- 
+fendi. Tiu stato esence diferenciĝas de la **patologia **
 
-ojn, kriojn, sensencajn aý ofendajn vortojn, kies ridind- 
+**frenezeco**, kun kiu oni ĝin malprave konfuzas, tial ke
 
-econ la viktimo ofte komprenas, sed li ne povas sin de- 
+estas nenia organa lezo; ĝar la kaŭzo estas alia, la ku-
 
-fendi. Tiu stato esence diferenciøas de la **patologia **
 
-**frenezeco**, kun kiu oni øin malprave konfuzas, tial ke 
+KIO ESTAS SPIRITISMO ?
 
-estas nenia organa lezo; æar la kaýzo estas alia, la ku- 
 
+racantaj rimedoj ankaŭ devas esti tute aliaj. Uzante tie
 
+la ordinaran procedon de la duþoj kaj de la korpaj ku-
 
-KIO ESTAS SPIRITISMO ? 
+racadoj, oni ofte venas al starigo de vera frenezeco, kie
 
-121 
+estis nur morala kaŭzo.
 
 
+**74. ** En la vera frenezeco, la kaŭzo de la malbono
 
-racantaj rimedoj ankaý devas esti tute aliaj. Uzante tie 
+estas interna; oni devas peni por restarigi la organismon
 
-la ordinaran procedon de la duþoj kaj de la korpaj ku- 
+en ĝian normalan staton; en la **subjugado**, la kaŭzo de
 
-racadoj, oni ofte venas al starigo de vera frenezeco, kie 
+la malbono estas ekstera; oni devas liberigi la malsan-
 
-estis nur morala kaýzo. 
+ulon el nevidebla malamiko, oponante al li, ne kuracilojn,
 
+sed **forton moralan superan al la alia. ** La sperto pruvas,
 
+ke en tiaj okazoj la ekzorca¼oj neniam donis ian rezultat-
 
-**74. ** En la vera frenezeco, la kaýzo de la malbono 
+on kontentigan, kaj ke ili pli gravigis anstataŭ plibonigi
 
-estas interna; oni devas peni por restarigi la organismon 
+la situacion. Nur Spiritismo indikante la veran kaŭzon
 
-en øian normalan staton; en la **subjugado**, la kaýzo de 
+de la malbono, povas doni la rimedojn por ĝin venki.
 
-la malbono estas ekstera; oni devas liberigi la malsan- 
+Estas necese iel eduki morale la obsedantan Spiriton; per
 
-ulon el nevidebla malamiko, oponante al li, ne kuracilojn, 
+konsiloj saĝe direktataj, oni sukcesas lin plibonigi kaj igi
 
-sed **forton moralan superan al la alia. ** La sperto pruvas, 
+lin volonte rezigni pri la turmentado de la malsanulo,
 
-ke en tiaj okazoj la ekzorca¼oj neniam donis ian rezultat- 
+kaj tiam ĝi tiu estas libera. (**La Libro de la Mediumoj, **
 
-on kontentigan, kaj ke ili pli gravigis anstataý plibonigi 
+n-ro 279 — **Revue Spirite, **Februaro, Marto kaj . **La obsedita junulino de Marmande. **)
 
-la situacion. Nur Spiritismo indikante la veran kaýzon 
 
-de la malbono, povas doni la rimedojn por øin venki. 
+**75. ** La obseda subjugado plej ofte estas individua;
 
-Estas necese iel eduki morale la obsedantan Spiriton; per 
+sed kiam trupo da malbonaj Spiritoj atakas iun loĝant-
 
-konsiloj saøe direktataj, oni sukcesas lin plibonigi kaj igi 
+aron, ĝi povas havi epidemian karakteron. Fenomeno
 
-lin volonte rezigni pri la turmentado de la malsanulo, 
+de tia karaktero okazis en la tempo de la Kristo; nur
 
-kaj tiam æi tiu estas libera. \(**La Libro de la Mediumoj, **
+potenca morala supereco povis superforti tiajn malicajn
 
-n-ro 279 — **Revue Spirite, **Februaro, Marto kaj Junio 
+estulojn, kiuj tiam estis nomataj **demonoj**, kaj redoni
 
-1864. **La obsedita junulino de Marmande. **\) 
+trankvilecon al iliaj viktimoj (1).
 
 
+**76. **Grava fakto konsiderenda estas, ke la obsedado,
 
-**75. ** La obseda subjugado plej ofte estas individua; 
+de iu ajn karaktero, estas sendependa de la mediumeco,
 
-sed kiam trupo da malbonaj Spiritoj atakas iun loøant- 
+kaj ke oni trovas ĝin en ĝiuj gradoj, precipe tiun lastan,
 
-aron, øi povas havi epidemian karakteron. Fenomeno 
+en multegaj individuoj, kiuj neniam aŭdis pri Spiritismo.
 
-de tia karaktero okazis en la tempo de la Kristo; nur 
+Efektive, tial ke la Spiritoj ekzistas en ĝiuj tempoj, ili
 
-potenca morala supereco povis superforti tiajn malicajn 
 
-estulojn, kiuj tiam estis nomataj **demonoj**, kaj redoni 
+( 1 ) Simila epidemio manifestiĝis en unu vilaĝo de la
 
-trankvilecon al iliaj viktimoj \(1\). 
+H a u t e- Savoie antaŭ pluraj jaroj. (Vidu en *Revue Spirite*, Aprilo kaj ; Januaro, Februaro, Aprilo kaj
 
+Majo de 1863: “*La poseditoj de Morzines*”.)
 
 
-**76. **Grava fakto konsiderenda estas, ke la obsedado, 
+ALLAN KARDEC
 
-de iu ajn karaktero, estas sendependa de la mediumeco, 
 
-kaj ke oni trovas øin en æiuj gradoj, precipe tiun lastan, 
+ĝiam uzadis la saman influon; la mediumeco ne estas
 
-en multegaj individuoj, kiuj neniam aýdis pri Spiritismo. 
+kaŭzo, ĝi estas nur maniero de manifestiĝo de tiu influo;
 
-Efektive, tial ke la Spiritoj ekzistas en æiuj tempoj, ili 
+sekve oni povas diri kun certeco, ke ĝiu mediumo obsed-
 
+ita devis suferi en ia ajn maniero, kaj ofte en la agoj
 
+plej komunaj de la vivo, la efikojn de tiu influado; ke
 
-\( 1 \) Simila epidemio manifestiøis en unu vilaøo de la 
+sen la mediumeco ĝi manifestiĝus per aliaj efikoj, atri-
 
-H a u t e- Savoie antaý pluraj jaroj. \(Vidu en *Revue Spirite*, Aprilo kaj Decembro 1862; Januaro, Februaro, Aprilo kaj 
+buataj ofte al misteraj malsanoj, kiujn nenia medicina
 
-Majo de 1863: “*La poseditoj de Morzines*”.\) 
+esplorado povas trovi. Per la mediumeco, la malica est-
 
+ulo perfidas sian aleston; sen la mediumeco, li estas kaþ-
 
+ita malamiko pri kies ekzisto neniu supozas.
 
-122 
 
-ALLAN KARDEC 
+**77. ** La homoj, kiuj akceptas nenion krom la mate-
 
+rio, ne povas akcepti ian kaþitan kaŭzon; sed kiam la
 
+scienco eliros el la materialisma rutino, ĝi rekonos en
 
-æiam uzadis la saman influon; la mediumeco ne estas 
+la agado de la nevidebla mondo, kiu nin ĝirkaŭas kaj en
 
-kaýzo, øi estas nur maniero de manifestiøo de tiu influo; 
+kies medio ni vivas, ian potencon, kiu efikas sur la fizik-
 
-sekve oni povas diri kun certeco, ke æiu mediumo obsed- 
+ajn aferojn tiel bone kiel sur la moralajn aferojn; tio
 
-ita devis suferi en ia ajn maniero, kaj ofte en la agoj 
+estos nova vojo malfermita al la progreso kaj þlosilo por
 
-plej komunaj de la vivo, la efikojn de tiu influado; ke 
+amaso da fenomenoj ne bone komprenataj.
 
-sen la mediumeco øi manifestiøus per aliaj efikoj, atri- 
 
-buataj ofte al misteraj malsanoj, kiujn nenia medicina 
+**78. ** Æar la obsedo neniam povas esti farata de bona
 
-esplorado povas trovi. Per la mediumeco, la malica est- 
+Spirito, ĝefa punkto estas ekkoni la karakteron de tiuj,
 
-ulo perfidas sian aleston; sen la mediumeco, li estas kaþ- 
+kiuj sin prezentas. Nesperta mediumo povas esti tromp -
 
-ita malamiko pri kies ekzisto neniu supozas. 
+ata de la þajnoj; tiu avertita spionas la plej malgrand-
 
+ajn suspektatajn signojn, kaj la Spirito fine foriras, kiam
 
+li vidas, ke li nenion povas fari. La antaŭa kono de la
 
-**77. ** La homoj, kiuj akceptas nenion krom la mate- 
+rimedoj por distingi la bonajn Spiritojn disde la malbon-
 
-rio, ne povas akcepti ian kaþitan kaýzon; sed kiam la 
+aj estas do necesa al la mediumo, kiu ne volas riski fali
 
-scienco eliros el la materialisma rutino, øi rekonos en 
+en kaptilon. Øi ne estas malpli necesa al la simpla ob-
 
-la agado de la nevidebla mondo, kiu nin æirkaýas kaj en 
+servanto, kiu, per tiu rimedo, povas taksi la valoron de
 
-kies medio ni vivas, ian potencon, kiu efikas sur la fizik- 
+tio, kion li vidas aŭ aŭdas. (**La Libro de la Mediumoj**,
 
-ajn aferojn tiel bone kiel sur la moralajn aferojn; tio 
-
-estos nova vojo malfermita al la progreso kaj þlosilo por 
-
-amaso da fenomenoj ne bone komprenataj. 
-
-
-
-**78. ** Æar la obsedo neniam povas esti farata de bona 
-
-Spirito, æefa punkto estas ekkoni la karakteron de tiuj, 
-
-kiuj sin prezentas. Nesperta mediumo povas esti tromp - 
-
-ata de la þajnoj; tiu avertita spionas la plej malgrand- 
-
-ajn suspektatajn signojn, kaj la Spirito fine foriras, kiam 
-
-li vidas, ke li nenion povas fari. La antaýa kono de la 
-
-rimedoj por distingi la bonajn Spiritojn disde la malbon- 
-
-aj estas do necesa al la mediumo, kiu ne volas riski fali 
-
-en kaptilon. Øi ne estas malpli necesa al la simpla ob- 
-
-servanto, kiu, per tiu rimedo, povas taksi la valoron de 
-
-tio, kion li vidas aý aýdas. \(**La Libro de la Mediumoj**, 
-
-æap. XXIV.\) 
-
+ĝap. XXIV.)
 
 
 **La ecoj de la mediumoj **
 
-****
 
-**79. ** La mediuma kapablo apartenas al la organismo; 
+**79. ** La mediuma kapablo apartenas al la organismo;
 
-øi estas sendependa de la moralaj kvalitoj de la mediumo, 
+ĝi estas sendependa de la moralaj kvalitoj de la mediumo,
 
-kaj oni øin trovas elvolviøintan en la plej malindaj same 
+kaj oni ĝin trovas elvolviĝintan en la plej malindaj same
 
-kiel en la plej indaj. Sed ne same estas la prefero don- 
+kiel en la plej indaj. Sed ne same estas la prefero don-
 
-ata de la bonaj Spiritoj al la mediumoj. 
+ata de la bonaj Spiritoj al la mediumoj.
 
 
+KIO ESTAS SPIRITISMO ?
 
-KIO ESTAS SPIRITISMO ? 
 
-123 
+**80. ** La bonaj Spiritoj komunikiĝas pli aŭ malpli vo-
 
+lonte per tia aŭ alia mediumo, laŭ sia propra simpatio
 
+al ties Spirito. Kio formas la kvaliton de iu mediumo,
 
-**80. ** La bonaj Spiritoj komunikiøas pli aý malpli vo- 
+ne estas la facileco per kiu li ricevas la komunika¼ojn,
 
-lonte per tia aý alia mediumo, laý sia propra simpatio 
+sed lia kapablo ricevi nur bonajn komunika¼ojn kaj ne
 
-al ties Spirito. Kio formas la kvaliton de iu mediumo, 
+fariĝi ludilo de ventkapaj kaj trompemaj Spiritoj.
 
-ne estas la facileco per kiu li ricevas la komunika¼ojn, 
 
-sed lia kapablo ricevi nur bonajn komunika¼ojn kaj ne 
+**81. ** Se la mediumoj morale pli malperfektaj kelka-
 
-fariøi ludilo de ventkapaj kaj trompemaj Spiritoj. 
+foje ricevas tre bonajn komunika¼ojn, kiuj povas veni
 
+nur de bonaj Spiritoj, kion oni malprave miras, ĝi estas
 
+ofte en la intereso de la mediumo mem, por doni al li
 
-**81. ** Se la mediumoj morale pli malperfektaj kelka- 
+saĝajn avertojn. Se li ĝi tiujn ne profitas, li estas plej
 
-foje ricevas tre bonajn komunika¼ojn, kiuj povas veni 
+kulpa, ĝar li skribas sian propran kondamnon. Dio, kies
 
-nur de bonaj Spiritoj, kion oni malprave miras, øi estas 
+boneco estas senlima, ne povas rifuzi helpon al tiuj, kiuj
 
-ofte en la intereso de la mediumo mem, por doni al li 
+plej bezonas ĝin. La virta misiulo, kiu venas al krim-
 
-saøajn avertojn. Se li æi tiujn ne profitas, li estas plej 
+uloj por ilin moraligi, faras nur tion, kion la bonaj Spi-
 
-kulpa, æar li skribas sian propran kondamnon. Dio, kies 
+ritoj faras ĝe le neperfektaj mediumoj.
 
-boneco estas senlima, ne povas rifuzi helpon al tiuj, kiuj 
+Aliflanke, kiam la bonaj Spiritoj volas doni instru-
 
-plej bezonas øin. La virta misiulo, kiu venas al krim- 
+on utila al ĝiuj, ili uzas la instrumenton, kiun ili havas
 
-uloj por ilin moraligi, faras nur tion, kion la bonaj Spi- 
+ĝemane; sed ili ĝin forlasas kiam ili trovas alian, kiu
 
-ritoj faras æe le neperfektaj mediumoj. 
+estas al ili pli simpatia, kaj kiu profitas el la ricevataj
 
-Aliflanke, kiam la bonaj Spiritoj volas doni instru- 
+lecionoj. Kiam la bonaj Spiritoj eliras, la malsuperaj
 
-on utila al æiuj, ili uzas la instrumenton, kiun ili havas 
+Spiritoj, senzorgaj pri moralaj kvalitoj, kiuj ĝenas ilin,
 
-æemane; sed ili øin forlasas kiam ili trovas alian, kiu 
+havas la kampon libera.
 
-estas al ili pli simpatia, kaj kiu profitas el la ricevataj 
+El tio rezultas, ke la morale malperfektaj medium-
 
-lecionoj. Kiam la bonaj Spiritoj eliras, la malsuperaj 
+oj, kiuj ne korektas sin, frue aŭ malfrue estas predo de
 
-Spiritoj, senzorgaj pri moralaj kvalitoj, kiuj øenas ilin, 
+la malbonaj Spiritoj, kiuj ofte ilndukas al la ruino
 
-havas la kampon libera. 
+kaj al la plej grandaj malfeliĝoj en ĝi tiu sama mondo.
 
-El tio rezultas, ke la morale malperfektaj medium- 
+Koncerne ilian kapablon, kiu estis bela kaj tia restus, ĝi
 
-oj, kiuj ne korektas sin, frue aý malfrue estas predo de 
+unue perversiĝas pro la forlaso fare de la bonaj Spiritoj
 
-la malbonaj Spiritoj, kiuj ofte ilin kondukas al la ruino 
+kaj fine perdiĝas.
 
-kaj al la plej grandaj malfeliæoj en æi tiu sama mondo. 
 
-Koncerne ilian kapablon, kiu estis bela kaj tia restus, øi 
+**82. ** La plej meritaj mediumoj ne estas en þirmejo
 
-unue perversiøas pro la forlaso fare de la bonaj Spiritoj 
+kontraŭ mistifikoj de trompemaj Spiritoj; unue, ĝar ne
 
-kaj fine perdiøas. 
+ekzistas persono sufiĝe perfekta por ne havi ian mal-
 
+fortan flankon tra kiu li povus malfermi enirpordon al
 
+malbonaj Spiritoj; due, kelkafoje la bonaj Spiritoj tion
 
-**82. ** La plej meritaj mediumoj ne estas en þirmejo 
+permesas por ekzercigi la juĝadon, instrui distingi la ver-
 
-kontraý mistifikoj de trompemaj Spiritoj; unue, æar ne 
+on el eraro kaj vigligi malkonfidon, ke oni nenion ak-
 
-ekzistas persono sufiæe perfekta por ne havi ian mal- 
+ceptu blinde kaj sen kontrolo; sed la trompo neniam
 
-fortan flankon tra kiu li povus malfermi enirpordon al 
 
-malbonaj Spiritoj; due, kelkafoje la bonaj Spiritoj tion 
+ALLAN KARDEC
 
-permesas por ekzercigi la juøadon, instrui distingi la ver- 
 
-on el eraro kaj vigligi malkonfidon, ke oni nenion ak- 
+venas de bona Spirito, kaj ĝiu respektinda nomo sub-
 
-ceptu blinde kaj sen kontrolo; sed la trompo neniam 
+skribanta eraron nepre estas apokrifa.
 
-124 
+Tio povas esti ankaŭ provado por la pacienco kaj
 
-ALLAN KARDEC 
+la persistemo de ĝiu spiritisto, mediumo aŭ ne; kiu sen-
 
+kuraĝiĝus pro kelkaj disreviĝoj, tiu pruvas al la bonaj
 
+Spiritoj, ke ĝi tiuj ne povas kalkuli sur lin.
 
-venas de bona Spirito, kaj æiu respektinda nomo sub- 
 
-skribanta eraron nepre estas apokrifa. 
+**83. ** Ne estas pli mirige vidi malbonan Spiriton ob-
 
-Tio povas esti ankaý provado por la pacienco kaj 
+sedi meritplenajn personojn, ol surprizige vidi malbonajn
 
-la persistemo de æiu spiritisto, mediumo aý ne; kiu sen- 
-
-kuraøiøus pro kelkaj disreviøoj, tiu pruvas al la bonaj 
-
-Spiritoj, ke æi tiuj ne povas kalkuli sur lin. 
-
-
-
-**83. ** Ne estas pli mirige vidi malbonan Spiriton ob- 
-
-sedi meritplenajn personojn, ol surprizige vidi malbonajn 
-
-homojn furioze ataki sur la Tero la honestajn personojn. 
+homojn furioze ataki sur la Tero la honestajn personojn.
 
 Estas rimarkinde, ke post la publikigo de **"La Li- **
 
-**bro de la Mediumoj", ** la obseditaj mediumoj estas malpli 
+**bro de la Mediumoj", ** la obseditaj mediumoj estas malpli
 
-multaj ol antaýe, æar ili estas avertitaj, ili sin gardas, 
+multaj ol antaŭe, ĝar ili estas avertitaj, ili sin gardas,
 
-kaj spionas la malplej grandajn signojn, kiuj povas mal- 
+kaj spionas la malplej grandajn signojn, kiuj povas mal-
 
-kaþi la aleston de trompema Spirito. La plej multaj nun 
+kaþi la aleston de trompema Spirito. La plej multaj nun
 
-obseditaj mediumoj, aý ne øin antaýe studis, aý ne pro- 
+obseditaj mediumoj, aŭ ne ĝin antaŭe studis, aŭ ne pro-
 
-fitis øiajn konsilojn. 
+fitis ĝiajn konsilojn.
 
 
+**84. ** Kio estigas la mediumon ĝuste difinitan, tio est-
 
-**84. ** Kio estigas la mediumon øuste difinitan, tio est- 
+as la kapablo; en tiu senco li povas esti pli aŭ malpli
 
-as la kapablo; en tiu senco li povas esti pli aý malpli 
-
-formita, pli aý malpli elvolvita. Kio estigas la medium- 
+formita, pli aŭ malpli elvolvita. Kio estigas la medium-
 
 on **sekura**, tiun, kiun oni povas vere taksi kiel **bonan me- **
 
-**diumon**, tio estas la aplikado de la kapablo, la taýgeco 
+**diumon**, tio estas la aplikado de la kapablo, la taŭgeco
 
-por esti interpretisto de la bonaj Spiritoj. Flanke las- 
+por esti interpretisto de la bonaj Spiritoj. Flanke las-
 
-ante la tutan kapablon, la povo de la mediumo por altiri 
+ante la tutan kapablon, la povo de la mediumo por altiri
 
-la bonajn Spiritojn kaj forpeli la malbonajn, estas pro- 
+la bonajn Spiritojn kaj forpeli la malbonajn, estas pro-
 
-porcia je lia morala supereco; tiu supereco estas propor- 
+porcia je lia morala supereco; tiu supereco estas propor-
 
-cia je la sumo de la kvalitoj, kiuj faras la honestan hom- 
+cia je la sumo de la kvalitoj, kiuj faras la honestan hom-
 
-on; per øi oni favorigas al si la simpation de la bonuloj, 
+on; per ĝi oni favorigas al si la simpation de la bonuloj,
 
-kaj havas aýtoritaton super la malbonaj. 
+kaj havas aŭtoritaton super la malbonaj.
 
 
+**85. ** Pro la sama motivo, la sumo de la moralaj mal-
 
-**85. ** Pro la sama motivo, la sumo de la moralaj mal- 
+perfekta¼oj de la mediumo lin alproksimigas al la ka-
 
-perfekta¼oj de la mediumo lin alproksimigas al la ka- 
+raktero de la malbonaj Spiritoj kaj forprenas de li la
 
-raktero de la malbonaj Spiritoj kaj forprenas de li la 
+influon necesan por ilin forigi; **anstataŭ sin** **trudi al ili,** **ĝi tiuj lin regas. ** Æi tio aplikiĝas ne nur al mediumoj,
 
-influon necesan por ilin forigi; **anstataý sin** **trudi al ili,** **æi tiuj lin regas. ** Æi tio aplikiøas ne nur al mediumoj, 
+sed al iu ajn persono, ĝar ĝiuj ricevas influon de la Spi-
 
-sed al iu ajn persono, æar æiuj ricevas influon de la Spi- 
+ritoj. (Vidu supre n-rojn 74 kaj 75.)
 
-ritoj. \(Vidu supre n-rojn 74 kaj 75.\) 
 
+**86. ** Por sin trudi al la mediumo, la malbonaj Spirit-
 
+oj scias lerte ekspluati ĝiujn moralajn maniojn; kio don-
 
-**86. ** Por sin trudi al la mediumo, la malbonaj Spirit- 
 
-oj scias lerte ekspluati æiujn moralajn maniojn; kio don- 
+KIO ESTAS SPIRITISMO ?
 
 
+as al ili pli da facila¼o, **tio estas la fiero**; tial fiero estas la plej reganta sento ĝe la plej multaj obseditaj mediumoj, sed precipe ĝe tiuj **fascinitaj. ** Fiero igas ilin kredi
 
-KIO ESTAS SPIRITISMO ? 
+al sia propra neerareblo kaj rifuzi avertojn. Bedaŭrinde,
 
-125 
+tiu sento estas ekscitata de la laŭdoj, kiujn ili ricevas;
 
+kiam ili havas kapablon iom transcendan, oni ilin serĝas,
 
+ilin flatas, ili fine kredas al sia graveco; ili rigardas sin
 
-as al ili pli da facila¼o, **tio estas la fiero**; tial fiero estas la plej reganta sento æe la plej multaj obseditaj mediumoj, sed precipe æe tiuj **fascinitaj. ** Fiero igas ilin kredi 
+kiel nepre necesajn, kaj ĝi tio ilin pereigas.
 
-al sia propra neerareblo kaj rifuzi avertojn. Bedaýrinde, 
 
-tiu sento estas ekscitata de la laýdoj, kiujn ili ricevas; 
+**87. ** Dum la neperfekta mediumo fieras pro la emi-
 
-kiam ili havas kapablon iom transcendan, oni ilin seræas, 
+nentaj nomoj, plej ofte apokrifaj, en la komunika¼oj, ki-
 
-ilin flatas, ili fine kredas al sia graveco; ili rigardas sin 
+ujn li ricevas, rigardas sin kiel privilegian interpretiston
 
-kiel nepre necesajn, kaj æi tio ilin pereigas. 
+de la ĝielaj potenculoj, la **bona mediumo** neniam sin juĝ-
 
+as sufiĝe inda je tia favoro: li ĝiam havas utilan dubon
 
+pri la bona kvalito de tio, kion li ricevas, kaj ne kon-
 
-**87. ** Dum la neperfekta mediumo fieras pro la emi- 
+fidas al sia propra juĝo: estante nur pasiva instrumento,
 
-nentaj nomoj, plej ofte apokrifaj, en la komunika¼oj, ki- 
+li komprenas, ke se tio estas bona, li ne havas personan
 
-ujn li ricevas, rigardas sin kiel privilegian interpretiston 
+meriton, same kiel li ne estas priresponda, se ĝi estas
 
-de la æielaj potenculoj, la **bona mediumo** neniam sin juø- 
+malbona, kaj ke estus ridinde interveni por la absoluta
 
-as sufiæe inda je tia favoro: li æiam havas utilan dubon 
+identeco de la Spiritoj manifestiĝantaj al li; li lasas al
 
-pri la bona kvalito de tio, kion li ricevas, kaj ne kon- 
+triaj personoj neŭtralaj juĝi la demandon, kaj lia mem-
 
-fidas al sia propra juøo: estante nur pasiva instrumento, 
+amo ne suferas pro malfavora juĝo, same kiel aktoro ne
 
-li komprenas, ke se tio estas bona, li ne havas personan 
+suferas pro mallaŭdo al teatra¼o, kiun li nur ludas. La
 
-meriton, same kiel li ne estas priresponda, se øi estas 
+ĝefaj trajtoj de lia karaktero estas simpleco kaj modest-
 
-malbona, kaj ke estus ridinde interveni por la absoluta 
+eco; li estas feliĝa de la posedata kapablo, ne por vant-
 
-identeco de la Spiritoj manifestiøantaj al li; li lasas al 
+iĝi de ĝi, sed ĝar ĝi donas al li rimedon por esti utila,
 
-triaj personoj neýtralaj juøi la demandon, kaj lia mem- 
+kion li volonte faras, sed neniam ofendiĝante se oni ne
 
-amo ne suferas pro malfavora juøo, same kiel aktoro ne 
+metas lin en unuan rangon.
 
-suferas pro mallaýdo al teatra¼o, kiun li nur ludas. La 
+La mediumoj estas perantoj kaj interpretistoj de la
 
-æefaj trajtoj de lia karaktero estas simpleco kaj modest- 
+Spiritoj; la elvokanto aŭ eĝ la simpla observanto devas
 
-eco; li estas feliæa de la posedata kapablo, ne por vant- 
+do havi la taskon juĝi la meriton de la instrumento.
 
-iøi de øi, sed æar øi donas al li rimedon por esti utila, 
 
-kion li volonte faras, sed neniam ofendiøante se oni ne 
+**88. ** La mediuma kapablo estas donaco de Dio, same
 
-metas lin en unuan rangon. 
+kiel ĝiuj aliaj kapabloj, kiun oni povas uzi egale por la
 
-La mediumoj estas perantoj kaj interpretistoj de la 
+bono aŭ malbono, kaj kiun oni povas malrespekti. Øia
 
-Spiritoj; la elvokanto aý eæ la simpla observanto devas 
+celo estas meti nin en senperan rilaton kun la animoj
 
-do havi la taskon juøi la meriton de la instrumento. 
+de tiuj, kiuj vivis, por ricevi iliajn instruojn kaj nin inici
 
+en la estontan vivon. Kiel la vido rilatigas nin kun la
 
+videbla mondo, la mediumeco rilatigas nin kun la nevid-
 
-**88. ** La mediuma kapablo estas donaco de Dio, same 
+ebla mondo. Kiu uzas ĝin kun utila celo, por la progreso
 
-kiel æiuj aliaj kapabloj, kiun oni povas uzi egale por la 
 
-bono aý malbono, kaj kiun oni povas malrespekti. Øia 
+ALLAN KARDEC
 
-celo estas meti nin en senperan rilaton kun la animoj 
 
-de tiuj, kiuj vivis, por ricevi iliajn instruojn kaj nin inici 
+de si mem kaj de aliaj homoj, tiu plenumas veran mision
 
-en la estontan vivon. Kiel la vido rilatigas nin kun la 
+el kiu li ricevos rekompencon. Kiu malbonuzas ĝin kaj
 
-videbla mondo, la mediumeco rilatigas nin kun la nevid- 
+ĝin uzas por aferoj banalaj kaj kun materialaj interesoj,
 
-ebla mondo. Kiu uzas øin kun utila celo, por la progreso 
+ĝin deturnas de la providenca celo; frue aŭ malfrue, tiu
 
-126 
+suferas la punon, same kiel ĝiu, kiu malbonuzas iun ajn
 
-ALLAN KARDEC 
-
-
-
-de si mem kaj de aliaj homoj, tiu plenumas veran mision 
-
-el kiu li ricevos rekompencon. Kiu malbonuzas øin kaj 
-
-øin uzas por aferoj banalaj kaj kun materialaj interesoj, 
-
-øin deturnas de la providenca celo; frue aý malfrue, tiu 
-
-suferas la punon, same kiel æiu, kiu malbonuzas iun ajn 
-
-kapablon. 
-
+kapablon.
 
 
 **Æarlatanismo **
 
-****
 
-**89. ** Iuj spiritaj manifestiøoj povas esti tre facile 
+**89. ** Iuj spiritaj manifestiĝoj povas esti tre facile
 
-imitataj, sed tial, ke ili eble estis ekspluatitaj de ¼ongl- 
+imitataj, sed tial, ke ili eble estis ekspluatitaj de ¼ongl-
 
-istoj kaj prestidigitatoroj, kiel tiom da aliaj fenomenoj, 
+istoj kaj prestidigitatoroj, kiel tiom da aliaj fenomenoj,
 
-estus absurdo konkludi, ke ili ne ekzistas. Kiu studis ti- 
+estus absurdo konkludi, ke ili ne ekzistas. Kiu studis ti-
 
-ujn manifestiøojn kaj scipovas la normalajn kondiæojn 
+ujn manifestiĝojn kaj scipovas la normalajn kondiĝojn
 
-en kiuj ili povas efektiviøi, tiu kapablas distingi la imit- 
+en kiuj ili povas efektiviĝi, tiu kapablas distingi la imit-
 
-a¼on disde la reala¼o; cetere la imita¼o neniam estas kom- 
+a¼on disde la reala¼o; cetere la imita¼o neniam estas kom-
 
-pleta kaj povas trompi nur nescianton, nekapablan kapti 
+pleta kaj povas trompi nur nescianton, nekapablan kapti
 
-la nuancojn, kiuj karakterizas la veran fenomenon. 
-
+la nuancojn, kiuj karakterizas la veran fenomenon.
 
 
-**90. ** La manifestiøoj plej facile imiteblaj, estas iuj 
+**90. ** La manifestiĝoj plej facile imiteblaj, estas iuj
 
-fizikaj efikoj kaj ordinaraj inteligentaj efikoj, kiaj estas 
+fizikaj efikoj kaj ordinaraj inteligentaj efikoj, kiaj estas
 
-la movoj, la frapoj, la alportoj, la senpera skriba¼o, ba- 
+la movoj, la frapoj, la alportoj, la senpera skriba¼o, ba-
 
-nalaj respondoj k.s.; ne la inteligentaj komunika¼oj de 
+nalaj respondoj k.s.; ne la inteligentaj komunika¼oj de
 
-alta signifo; por imiti la unuajn, sufiæas lerteco; por si- 
+alta signifo; por imiti la unuajn, sufiĝas lerteco; por si-
 
-muli la aliajn, preskaý æiam estus necesa klereco ne ordi- 
+muli la aliajn, preskaŭ ĝiam estus necesa klereco ne ordi-
 
-nara, eminenta intelekta supereco kaj kapablo de impro- 
+nara, eminenta intelekta supereco kaj kapablo de impro-
 
-vizado preskaý universala. 
+vizado preskaŭ universala.
 
 
+**91. ** Kiuj ne konas Spiritismon, tiuj ofte suspektas
 
-**91. ** Kiuj ne konas Spiritismon, tiuj ofte suspektas 
+la bonan fidon de la mediumoj; la studado kaj sperto
 
-la bonan fidon de la mediumoj; la studado kaj sperto 
+donas al ili la rimedojn por certiĝi pri la realeco de la
 
-donas al ili la rimedojn por certiøi pri la realeco de la 
+faktoj; sed krom tio, la plej bona garantio, kiun ili pov-
 
-faktoj; sed krom tio, la plej bona garantio, kiun ili pov- 
+as trovi, kuþas en la absoluta oferemo kaj en la honor-
 
-as trovi, kuþas en la absoluta oferemo kaj en la honor- 
+indeco de la mediumo; estas personoj, kiuj pro sia po-
 
-indeco de la mediumo; estas personoj, kiuj pro sia po- 
+zicio kaj sia karaktero, staras super ĝia suspekto. Se la
 
-zicio kaj sia karaktero, staras super æia suspekto. Se la 
+loga¼o de la profito povas inciti al la trompado, la ko-
 
-loga¼o de la profito povas inciti al la trompado, la ko- 
+muna saĝo montras, ke ĝarlatanismo havas nenion por
 
-muna saøo montras, ke æarlatanismo havas nenion por 
+fari tie, kie estas nenio por gajni. (**La Libro de la Me- **
 
-fari tie, kie estas nenio por gajni. \(**La Libro de la Me- **
-
-**diumoj, **æap. XXVIII, Æarlatanismo kaj ¼onglado, mona- 
+**diumoj, **ĝap. XXVIII, Æarlatanismo kaj ¼onglado, mona-
 
 vidaj mediumoj, spiritismaj trompoj, n-ro 300. — **Revue **
 
-**Spirite**, 1862, paøo 52.\) 
+**Spirite**, 1862, paĝo 52.)
 
 
-
-KIO ESTAS SPIRITISMO ? 
-
-127 
+KIO ESTAS SPIRITISMO ?
 
 
+**92. ** Inter la adeptoj de Spiritismo oni trovas entu-
 
-**92. ** Inter la adeptoj de Spiritismo oni trovas entu- 
+ziasmulojn kaj fervorulojn kiel em ĝiuj movadoj; tiuj est-
 
-ziasmulojn kaj fervorulojn kiel em æiuj movadoj; tiuj est- 
+as ordinare la plej malbonaj disvastigantoj, ĝar oni dub-
 
-as ordinare la plej malbonaj disvastigantoj, æar oni dub- 
+as pri ilia facileco ĝion akcepti sen profunda ekzameno.
 
-as pri ilia facileco æion akcepti sen profunda ekzameno. 
+Klera spiritisto ne akceptas blindigantan entuziasmon;
 
-Klera spiritisto ne akceptas blindigantan entuziasmon; 
+malvarmsange kaj trankvile li ĝion observas; ĝi tiu estas
 
-malvarmsange kaj trankvile li æion observas; æi tiu estas 
+la maniero ne esti trompata de iluzioj nek de mistifik-
 
-la maniero ne esti trompata de iluzioj nek de mistifik- 
+antoj. Sen ia konsiderado al bona fido, la novica observ-
 
-antoj. Sen ia konsiderado al bona fido, la novica observ- 
+anto devas, super ĝio, atenti la seriozecon de la personoj
 
-anto devas, super æio, atenti la seriozecon de la personoj 
-
-al kiuj li sin turnas. 
-
+al kiuj li sin turnas.
 
 
 **Identeco de la Spiritoj **
 
-****
 
-**93. ** Tial, ke oni trovas æe la Spiritoj æiujn maniojn 
+**93. ** Tial, ke oni trovas ĝe la Spiritoj ĝiujn maniojn
 
-de la homaro, oni trovas ankaý la ruzon kaj la mensog- 
+de la homaro, oni trovas ankaŭ la ruzon kaj la mensog-
 
-on; iuj Spiritoj havas nenian skrupulon ornami sin per 
+on; iuj Spiritoj havas nenian skrupulon ornami sin per
 
-la plej respektindaj nomoj por inspiri pli da konfido. 
+la plej respektindaj nomoj por inspiri pli da konfido.
 
-Oni ne povas do kredi en maniero absoluta al aýtentikeco 
+Oni ne povas do kredi en maniero absoluta al aŭtentikeco
 
-de æiuj subskriboj. 
+de ĝiuj subskriboj.
 
 
+**94. **La identigo estas unu el la plej grandaj mal-
 
-**94. **La identigo estas unu el la plej grandaj mal- 
+facila¼oj de la praktika Spiritismo; ofte estas neeble ĝnstati, precipe pri superaj Spiritoj antikvaj, antaŭaj
 
-facila¼oj de la praktika Spiritismo; ofte estas neeble øin 
+al nia epoko. Inter la manifestiĝantoj, multaj ne havas
 
-konstati, precipe pri superaj Spiritoj antikvaj, antaýaj 
+nomojn por ni; por fiksi niajn ideojn, ili povas preni
 
-al nia epoko. Inter la manifestiøantoj, multaj ne havas 
+nomon de unu konata Spirito apartenanta al ilia sama
 
-nomojn por ni; por fiksi niajn ideojn, ili povas preni 
+kategorio; tial, se iu Spirito komunikiĝas sub la nomo
 
-nomon de unu konata Spirito apartenanta al ilia sama 
+Sankta Petro, ekzemple, nenio pruvas, ke li estas la apos-
 
-kategorio; tial, se iu Spirito komunikiøas sub la nomo 
+tolo de tiu nomo; ĝi povas esti li, same kiel ĝi povas esti
 
-Sankta Petro, ekzemple, nenio pruvas, ke li estas la apos- 
+iu Spirito de la sama rango, aŭ sendito de li.
 
-tolo de tiu nomo; øi povas esti li, same kiel øi povas esti 
+La demando pri identeco en tiu okazo neniel gravas,
 
-iu Spirito de la sama rango, aý sendito de li. 
+estus infana¼o doni al ĝi atenton; kio gravas tiam estas
 
-La demando pri identeco en tiu okazo neniel gravas, 
+la karaktero de la instruo mem; ĝi estas bona aŭ mal-
 
-estus infana¼o doni al øi atenton; kio gravas tiam estas 
+bona, inda aŭ ne inda de la persono, kies nomon ĝi port-
 
-la karaktero de la instruo mem; øi estas bona aý mal- 
+as; ĝu li ĝin akceptus aŭ rifuzus, jen la tuta demando.
 
-bona, inda aý ne inda de la persono, kies nomon øi port- 
 
-as; æu li øin akceptus aý rifuzus, jen la tuta demando. 
+**95. ** Estas pli facile konstati la identecon, kiam tem-
 
+as pri Spiritoj de nia tempo, kies karakteron kaj kutim-
 
+ojn oni konas, ĝar ĝuste per tiuj kutimoj kaj apartaj
 
-**95. ** Estas pli facile konstati la identecon, kiam tem- 
+agmanieroj en la privata vivo, ilia identeco plej sekure
 
-as pri Spiritoj de nia tempo, kies karakteron kaj kutim- 
 
-ojn oni konas, æar øuste per tiuj kutimoj kaj apartaj 
+ALLAN KARDEC
 
-agmanieroj en la privata vivo, ilia identeco plej sekure 
 
-128 
+malkaþiĝas kaj ofte en nekontestebla maniero. Kiam oni
 
-ALLAN KARDEC 
+elvokas parencon aŭ amikon, pli interesa estas lia per-
 
+soneco mem, kaj estas memkompreneble peni konstati
 
+lian (aŭ þian) identecon; sed la rimedoj tiam ordinare
 
-malkaþiøas kaj ofte en nekontestebla maniero. Kiam oni 
+uzataj por tiu celo, de personoj, kiuj nur neperfekte konas
 
-elvokas parencon aý amikon, pli interesa estas lia per- 
+Spiritismon, estas nesufiĝaj kaj ofte faligas en eraron.
 
-soneco mem, kaj estas memkompreneble peni konstati 
 
-lian \(aý þian\) identecon; sed la rimedoj tiam ordinare 
+**96. ** La Spirito malkaþas sian identecon per amaso
 
-uzataj por tiu celo, de personoj, kiuj nur neperfekte konas 
+da cirkonstancoj, reliefiĝantaj el la komunika¼oj, en kiuj
 
-Spiritismon, estas nesufiæaj kaj ofte faligas en eraron. 
+manifestiĝas liaj kutimoj, karaktero, lingva¼o, ĝis liaj
 
+familiaj dirmanieroj. Øi montriĝas ankaŭ per intimaj
 
+detaloj en kiujn li **spontanee** eniras kun amataj person-
 
-**96. ** La Spirito malkaþas sian identecon per amaso 
+oj: tiuj estas la plej bonaj pruvoj pri identeco. Sed tre
 
-da cirkonstancoj, reliefiøantaj el la komunika¼oj, en kiuj 
+malofte la Spirito kontentigas rektajn demandojn pri tiu
 
-manifestiøas liaj kutimoj, karaktero, lingva¼o, øis liaj 
+temo al li adresatajn, precipe se ilin al li prezentas per-
 
-familiaj dirmanieroj. Øi montriøas ankaý per intimaj 
+sonoj al li indiferentaj, nur pro scivolemo aŭ provo. La
 
-detaloj en kiujn li **spontanee** eniras kun amataj person- 
+Spirito pruvas sian identecon kiel li volas aŭ kiel li pov-
 
-oj: tiuj estas la plej bonaj pruvoj pri identeco. Sed tre 
+as, laŭ la kapablo de lia interpretisto, kaj ofte tiuj pruv-
 
-malofte la Spirito kontentigas rektajn demandojn pri tiu 
+oj estas superabundaj; eraro estas voli, ke li ilin donu
 
-temo al li adresatajn, precipe se ilin al li prezentas per- 
+laŭ la maniero de la elvokanto; tiam li rifuzas submet-
 
-sonoj al li indiferentaj, nur pro scivolemo aý provo. La 
+iĝi al postuloj. (**La Libro de la Mediumoj**, ĝap. XXIV:
 
-Spirito pruvas sian identecon kiel li volas aý kiel li pov- 
+**Identeco de la Spiritoj**. — **Revue Spirite**, 1862, paĝo 82: **Fakto de identeco**.)
 
-as, laý la kapablo de lia interpretisto, kaj ofte tiuj pruv- 
 
-oj estas superabundaj; eraro estas voli, ke li ilin donu 
+**Kontraŭdiroj **
 
-laý la maniero de la elvokanto; tiam li rifuzas submet- 
 
-iøi al postuloj. \(**La Libro de la Mediumoj**, æap. XXIV: 
+**97. ** La kontraŭdiroj ofte rimarkataj en la parolo
 
-**Identeco de la Spiritoj**. — **Revue Spirite**, 1862, paøo 82: **Fakto de identeco**.\) 
+de la Spiritoj povas mirigi nur tiujn, kiuj havas de la
 
+spiritisma scienco nekompletan scion. Ili estas konsek-
 
+venco de la naturo mem de la Spiritoj, kiuj, kiel jam
 
-**Kontraýdiroj **
+estas dirite, scias pri la aferoj nur laŭ la grado de sia
 
-****
+progreso, kaj sekve kelkaj Spiritoj povas scii malpli ol
 
-**97. ** La kontraýdiroj ofte rimarkataj en la parolo 
+certaj homoj. Pri multegaj punktoj ili povas eldiri nur
 
-de la Spiritoj povas mirigi nur tiujn, kiuj havas de la 
+sian personan opinion, kiu povas esti pli aŭ malpli ĝusta,
 
-spiritisma scienco nekompletan scion. Ili estas konsek- 
+kaj konservi la ombrojn de la surteraj antaŭjuĝoj, el
 
-venco de la naturo mem de la Spiritoj, kiuj, kiel jam 
+kiuj ili ne ankoraŭ liberiĝis; aliaj kreas al si sistemojn
 
-estas dirite, scias pri la aferoj nur laý la grado de sia 
+pri tio, kion ili ankoraŭ ne scias, precipe koncerne al la
 
-progreso, kaj sekve kelkaj Spiritoj povas scii malpli ol 
+sciencaj demandoj pri la origino de la aferoj. Neniel
 
-certaj homoj. Pri multegaj punktoj ili povas eldiri nur 
+mirige do, ke ili ne ĝiam akordiĝas.
 
-sian personan opinion, kiu povas esti pli aý malpli øusta, 
 
-kaj konservi la ombrojn de la surteraj antaýjuøoj, el 
+KIO ESTAS SPIRITISMO ?
 
-kiuj ili ne ankoraý liberiøis; aliaj kreas al si sistemojn 
 
-pri tio, kion ili ankoraý ne scias, precipe koncerne al la 
+**98. ** Oni miras trovi inter si kontraŭdirajn komunik-
 
-sciencaj demandoj pri la origino de la aferoj. Neniel 
+a¼ojn subskribitajn de la sama nomo. Nur la malsuperaj
 
-mirige do, ke ili ne æiam akordiøas. 
+Spiritoj povas, laŭ la cirkonstancoj, teni malsaman par-
 
+olon, ĝar la superaj Spiritoj neniam kontraŭdiras sin
 
+mem. Kiu estas inicita eĝ ne profunde en la misterojn de
 
-KIO ESTAS SPIRITISMO ? 
+la spirita mondo, scias kun kia facileco certaj Spiritoj
 
-129 
+ornamas sin per pruntita nomo por doni pli da kredito
 
+al siaj paroloj; oni povas konkludi kun certeco, ke se
 
+du komunika¼oj, radike kontraŭdiraj **laŭ la fundo de la **
 
-**98. ** Oni miras trovi inter si kontraýdirajn komunik- 
+**penso**, portas la saman respektindan nomon, unu el ili
 
-a¼ojn subskribitajn de la sama nomo. Nur la malsuperaj 
+estas nepre apokrifa. (1)
 
-Spiritoj povas, laý la cirkonstancoj, teni malsaman par- 
 
-olon, æar la superaj Spiritoj neniam kontraýdiras sin 
+**99. ** Du rimedoj povas taŭgi por fiksi la ideojn pri
 
-mem. Kiu estas inicita eæ ne profunde en la misterojn de 
+la dubaj demandoj: la unua estas submeti ĝiujn komu -
 
-la spirita mondo, scias kun kia facileco certaj Spiritoj 
+nika¼ojn al la severa kontrolo de la racio, de la komuna
 
-ornamas sin per pruntita nomo por doni pli da kredito 
+saĝo kaj de la logiko; tiun rekomendon faras ĝiuj bonaj
 
-al siaj paroloj; oni povas konkludi kun certeco, ke se 
+Spiritoj, sed ne la trompemaj, ĝar ĝi tiuj scias tre bone,
 
-du komunika¼oj, radike kontraýdiraj **laý la fundo de la **
+ke ili povas nur perdi ĝe serioza ekzameno; tial ili evitas
 
-**penso**, portas la saman respektindan nomon, unu el ili 
+la diskuton kaj volas esti kredataj konfide.
 
-estas nepre apokrifa. \(1\) 
+La dua kriterio de la vero estas la unuformeco de
 
+la instruado. Kiam la sama principo estas instruata de
 
+malsamaj Spiritoj en diversaj lokoj per mediumoj fremd -
 
-**99. ** Du rimedoj povas taýgi por fiksi la ideojn pri 
+aj unuj al aliaj, kiuj ne estas sub la samaj influoj, oni
 
-la dubaj demandoj: la unua estas submeti æiujn komu - 
+povas konkludi, ke tiu principo estas pli vera ol se ĝi
 
-nika¼ojn al la severa kontrolo de la racio, de la komuna 
+venus de unu sola fonto kaj estus kontraŭdirata de la pli
 
-saøo kaj de la logiko; tiun rekomendon faras æiuj bonaj 
+multaj. (**La Libro de la Mediumoj**, ĝap. XXVII: **Pri la **
 
-Spiritoj, sed ne la trompemaj, æar æi tiuj scias tre bone, 
+**kontraŭdiroj kaj la mistifikoj. ** — **Revue Spirite**, , p. 99: **Aŭtoritato de la spiritisma doktrino**. — **La **
 
-ke ili povas nur perdi æe serioza ekzameno; tial ili evitas 
-
-la diskuton kaj volas esti kredataj konfide. 
-
-La dua kriterio de la vero estas la unuformeco de 
-
-la instruado. Kiam la sama principo estas instruata de 
-
-malsamaj Spiritoj en diversaj lokoj per mediumoj fremd - 
-
-aj unuj al aliaj, kiuj ne estas sub la samaj influoj, oni 
-
-povas konkludi, ke tiu principo estas pli vera ol se øi 
-
-venus de unu sola fonto kaj estus kontraýdirata de la pli 
-
-multaj. \(**La Libro de la Mediumoj**, æap. XXVII: **Pri la **
-
-**kontraýdiroj kaj la mistifikoj. ** — **Revue Spirite**, Aprilo 1864, p. 99: **Aýtoritato de la spiritisma doktrino**. — **La **
-
-**Evangelio laý Spiritismo. ** Enkonduko, pø. 22.\) 
-
+**Evangelio laŭ Spiritismo. ** Enkonduko, pĝ. 22.)
 
 
 **Konsekvencoj de Spiritismo **
 
-****
 
-**100. ** Æe la necerteco de la malkaþoj farataj de la 
+**100. ** Æe la necerteco de la malkaþoj farataj de la
 
-Spiritoj, oni demandas por kio taýgas la studo de Spi- 
+Spiritoj, oni demandas por kio taŭgas la studo de Spi-
 
-ritismo? 
+ritismo?
 
-Øi taýgas por materiale pruvi la ekziston de la spi- 
+Øi taŭgas por materiale pruvi la ekziston de la spi-
 
-rita mondo. 
+rita mondo.
 
 
+( 1 ) Se ne ambaŭ. — *La Trad. *
 
-\( 1 \) Se ne ambaý. — *La Trad. * 
 
-130 
+ALLAN KARDEC
 
-ALLAN KARDEC 
 
+Æar la spirita mondo estas formita per la animoj de
 
+tiuj, kiuj vivis sur la Tero, ĝi estas pruvo pri la ekzisto
 
-Æar la spirita mondo estas formita per la animoj de 
+de la animo kaj de ties vivado post la korpo.
 
-tiuj, kiuj vivis sur la Tero, øi estas pruvo pri la ekzisto 
+La manifestiĝantaj animoj malkaþas siajn ĝojojn aŭ
 
-de la animo kaj de ties vivado post la korpo. 
+siajn suferojn laŭ la manieroj kiel ili uzis la surteran
 
-La manifestiøantaj animoj malkaþas siajn øojojn aý 
+vivon; el tio rezultas la pruvo pri la estontaj punoj kaj
 
-siajn suferojn laý la manieroj kiel ili uzis la surteran 
+rekompencoj.
 
-vivon; el tio rezultas la pruvo pri la estontaj punoj kaj 
+La animoj aŭ Spiritoj priskribas sian staton kaj sian
 
-rekompencoj. 
+situacion, tiel ili korektas la falsajn ideojn, kiujn oni hav-
 
-La animoj aý Spiritoj priskribas sian staton kaj sian 
+is pri la venonta vivo kaj precipe pri la naturo kaj daŭro
 
-situacion, tiel ili korektas la falsajn ideojn, kiujn oni hav- 
+de la punoj.
 
-is pri la venonta vivo kaj precipe pri la naturo kaj daýro 
+Tiel la estonta vivo transiras de la stato de mal-
 
-de la punoj. 
+preciza kaj duba teorio al la stato de pruvita kaj pozitiva
 
-Tiel la estonta vivo transiras de la stato de mal- 
+fakto, kaj el tio rezultas la bezono labori kiel eble plej
 
-preciza kaj duba teorio al la stato de pruvita kaj pozitiva 
+vigle dum la nuna mallonga vivo, profite al la venonta,
 
-fakto, kaj el tio rezultas la bezono labori kiel eble plej 
+kies daŭro ne estas difinita.
 
-vigle dum la nuna mallonga vivo, profite al la venonta, 
+Ni supozu, ke dudekjara homo estas certa morti kiam
 
-kies daýro ne estas difinita. 
+li estos dudekkvinjara, kion li faros dum kvin jaroj? Æu
 
-Ni supozu, ke dudekjara homo estas certa morti kiam 
+li laboros por sia estonteco? Certe ne; li penos ĝui kiel
 
-li estos dudekkvinjara, kion li faros dum kvin jaroj? Æu 
+eble plej multe: li rigardus kiel trompon trudi al si pen-
 
-li laboros por sia estonteco? Certe ne; li penos øui kiel 
+ojn kaj seniĝojn sen ia celo. Sed se li estas certa, ke
 
-eble plej multe: li rigardus kiel trompon trudi al si pen- 
+li vivos ĝis la aĝo de okdek jaroj, li kondutos tute alie,
 
-ojn kaj seniøojn sen ia celo. Sed se li estas certa, ke 
+ĝar li komprenas la bezonon oferi iujn momentojn da
 
-li vivos øis la aøo de okdek jaroj, li kondutos tute alie, 
+nuna ripozo por akiri ripozon venontan por multaj jar-
 
-æar li komprenas la bezonon oferi iujn momentojn da 
+oj. La samo okazas al kiu estas tute certa pri la est-
 
-nuna ripozo por akiri ripozon venontan por multaj jar- 
+onta vivo.
 
-oj. La samo okazas al kiu estas tute certa pri la est- 
+La dubo pri la estonta vivo nature kondukas al la
 
-onta vivo. 
+ofero de ĝio al nunaj ĝuoj; sekve al troa sklaviĝo al la
 
-La dubo pri la estonta vivo nature kondukas al la 
+materiaj bona¼oj.
 
-ofero de æio al nunaj øuoj; sekve al troa sklaviøo al la 
+La graveco dediĝata al materiaj bonoj incitas la
 
-materiaj bona¼oj. 
+avidecon, la envion, la ¼aluzon de kiu posedas malmult-
 
-La graveco dediæata al materiaj bonoj incitas la 
+on, kontraŭ kiu tenas multon. De la envio al la deziro
 
-avidecon, la envion, la ¼aluzon de kiu posedas malmult- 
+akiri je iu ajn prezo tion, kion posedas lia najbaro, estas
 
-on, kontraý kiu tenas multon. De la envio al la deziro 
+nur unu paþo; de tie la malamoj, la kvereloj, la pro-
 
-akiri je iu ajn prezo tion, kion posedas lia najbaro, estas 
+cesoj, la militoj kaj ĝiuj malbonoj naskitaj de egoismo.
 
-nur unu paþo; de tie la malamoj, la kvereloj, la pro- 
+Kun la dubo pri la estonteco, premita en ĝi tiu vivo,
 
-cesoj, la militoj kaj æiuj malbonoj naskitaj de egoismo. 
+de ĝagreno kaj malfeliĝo, la homo vidas nur en la morto
 
-Kun la dubo pri la estonteco, premita en æi tiu vivo, 
+la finon de siaj suferoj; nenion pli esperante, li trovas
 
-de æagreno kaj malfeliæo, la homo vidas nur en la morto 
+prave mallongigi ilin per memmortigo.
 
-la finon de siaj suferoj; nenion pli esperante, li trovas 
 
-prave mallongigi ilin per memmortigo. 
+KIO ESTAS SPIRITISMO ?
 
 
+Sen espero al la estonteco, estas kompreneble, ke la
 
-KIO ESTAS SPIRITISMO ? 
+homo impresiĝas kaj malesperas pro la elreviĝoj, kiujn
 
-131 
+li provas.
 
+La fortegaj skuoj, kiujn li travivas, produktas en lia
 
+cerbo difektojn, kiuj estas kaŭzoj de la plej multaj okaz-
 
-Sen espero al la estonteco, estas kompreneble, ke la 
+oj de frenezeco.
 
-homo impresiøas kaj malesperas pro la elreviøoj, kiujn 
+Sen la estonta vivo, la nuna vivo fariĝas por la homo
 
-li provas. 
+la ĝefa afero, la sola celo de liaj zorgoj; li ligas ĝion
 
-La fortegaj skuoj, kiujn li travivas, produktas en lia 
+al ĝi; kaj tial li volas je ĝiu prezo ĝui ne nur la mate-
 
-cerbo difektojn, kiuj estas kaýzoj de la plej multaj okaz- 
+rialajn bonojn, sed ankaŭ la honorojn; li sopiras brili,
 
-oj de frenezeco. 
+altiĝi super la aliaj, eklipsi siajn najbarojn per sia pompo
 
-Sen la estonta vivo, la nuna vivo fariøas por la homo 
+kaj per sia rango; de tie lia senmezura ambicio kaj la
 
-la æefa afero, la sola celo de liaj zorgoj; li ligas æion 
+graveco de li pruntita al la titoloj kaj al ĝiuj ludiloj de
 
-al øi; kaj tial li volas je æiu prezo øui ne nur la mate- 
+la vanteco, por kies akiro li oferus ĝion, eĝ sian honoron
 
-rialajn bonojn, sed ankaý la honorojn; li sopiras brili, 
+mem, ĝar post tio li vidas ja nenion.
 
-altiøi super la aliaj, eklipsi siajn najbarojn per sia pompo 
+La certeco pri la estonta vivo kaj pri ĝiaj konsek-
 
-kaj per sia rango; de tie lia senmezura ambicio kaj la 
+vencoj tute þanĝas la ordon de la ideoj kaj vidigas la
 
-graveco de li pruntita al la titoloj kaj al æiuj ludiloj de 
+aferojn sub tute alia lumo: ĝi levas vualon kaj mal-
 
-la vanteco, por kies akiro li oferus æion, eæ sian honoron 
+krovas senliman kaj brilegan horizonton.
 
-mem, æar post tio li vidas ja nenion. 
+Antaŭ la senfineco kaj grandiozeco de la transtomba
 
-La certeco pri la estonta vivo kaj pri øiaj konsek- 
+vivo, la surtera vivo forviþiĝas kiel la sekundo antaŭ la
 
-vencoj tute þanøas la ordon de la ideoj kaj vidigas la 
+jarcentoj, kiel la sablero antaŭ la monto. Æio ĝi tie far-
 
-aferojn sub tute alia lumo: øi levas vualon kaj mal- 
+iĝas malgranda, mizera kaj oni miras je si mem pro la
 
-krovas senliman kaj brilegan horizonton. 
+graveco, kiun oni iam alligis al tiel efemeraj kaj infan-
 
-Antaý la senfineco kaj grandiozeco de la transtomba 
+ecaj aferoj. De tio venas kvieteco, trankvileco en la
 
-vivo, la surtera vivo forviþiøas kiel la sekundo antaý la 
+okaza¼oj de la vivo, kio ja estas feliĝo en komparo kun
 
-jarcentoj, kiel la sablero antaý la monto. Æio æi tie far- 
+la zorgoj, la turmentoj, kiujn oni trudas al si mem, la
 
-iøas malgranda, mizera kaj oni miras je si mem pro la 
+malpacienco por altiĝi super la ceteraj; de tio venas
 
-graveco, kiun oni iam alligis al tiel efemeraj kaj infan- 
+ankaŭ pri la sortoþanĝoj kaj la disreviĝoj, ia indiferent-
 
-ecaj aferoj. De tio venas kvieteco, trankvileco en la 
+eco, kiu nin liberigas je falo kiel kapta¼o de malespero
 
-okaza¼oj de la vivo, kio ja estas feliæo en komparo kun 
+kaj sekve de la plej multaj okazoj de freneziĝo, kaj nin
 
-la zorgoj, la turmentoj, kiujn oni trudas al si mem, la 
+deturnas de la penso pri memmortigo. Kun certeco pri
 
-malpacienco por altiøi super la ceteraj; de tio venas 
+la estonteco, la homo atendas kaj rezignas; kun la dubo,
 
-ankaý pri la sortoþanøoj kaj la disreviøoj, ia indiferent- 
+li perdas paciencon, ĝar li atendas nenion krom de la
 
-eco, kiu nin liberigas je falo kiel kapta¼o de malespero 
+nuna tempo.
 
-kaj sekve de la plej multaj okazoj de freneziøo, kaj nin 
+La ekzemplo de tiuj jam vivintaj sur la Tero montr-
 
-deturnas de la penso pri memmortigo. Kun certeco pri 
+as, ke la sumo de la venonta feliĝo estas proporcia kun
 
-la estonteco, la homo atendas kaj rezignas; kun la dubo, 
+la morala progreso plenumita kaj kun la bono farita
 
-li perdas paciencon, æar li atendas nenion krom de la 
+sur la Tero; ke la sumo de la malfeliĝo estas proporcia
 
-nuna tempo. 
 
-La ekzemplo de tiuj jam vivintaj sur la Tero montr- 
+ALLAN KARDEC
 
-as, ke la sumo de la venonta feliæo estas proporcia kun 
 
-la morala progreso plenumita kaj kun la bono farita 
+kun la malvirtaj kaj malbonaj agoj, sekve, ĝiuj plene
 
-sur la Tero; ke la sumo de la malfeliæo estas proporcia 
+konvinkitaj pri tiu vero tute nature emas do fari la bon-
 
-132 
+on kaj eviti la malbonon.
 
-ALLAN KARDEC 
+Kiam la pli granda parto de la homoj estos konvink-
 
+itaj pri tiu ideo, kaj sekvos tiujn principojn, farante la
 
+bonon, tiam la bono venkos la malbonon sur la Tero;
 
-kun la malvirtaj kaj malbonaj agoj, sekve, æiuj plene 
+la homoj jam ne penos malutili unuj aliajn; ili reguligos
 
-konvinkitaj pri tiu vero tute nature emas do fari la bon- 
+siajn sociajn instituciojn celante la bonon de ĝiuj kaj ne
 
-on kaj eviti la malbonon. 
+en profito de kelkaj. Unuvorte, ili komprenos ke la leĝo
 
-Kiam la pli granda parto de la homoj estos konvink- 
+de karito, instruata de la Kristo, estas la fonto de la
 
-itaj pri tiu ideo, kaj sekvos tiujn principojn, farante la 
+feliĝo, ankaŭ en ĝi tiu mondo, kaj tiam ili fundamentos
 
-bonon, tiam la bono venkos la malbonon sur la Tero; 
+la civilajn leĝojn sur la leĝo de karito.
 
-la homoj jam ne penos malutili unuj aliajn; ili reguligos 
+La konstato pri la spirita mondo nin ĝirkaŭanta kaj
 
-siajn sociajn instituciojn celante la bonon de æiuj kaj ne 
+pri ĝia agado sur la korpan mondon, estas malkaþo pri
 
-en profito de kelkaj. Unuvorte, ili komprenos ke la leøo 
+unu el la potencoj de la naturo, kaj sekve la þlosilo
 
-de karito, instruata de la Kristo, estas la fonto de la 
+por amaso da fenomenoj nekomprenataj, en la ordo fi-
 
-feliæo, ankaý en æi tiu mondo, kaj tiam ili fundamentos 
+zika kaj en la ordo morala.
 
-la civilajn leøojn sur la leøo de karito. 
+Kiam la scienco kalkulos kun tiu nova forto, ĝis nun
 
-La konstato pri la spirita mondo nin æirkaýanta kaj 
+nekonata de la scienculoj, ĝi korektos amason da erar-
 
-pri øia agado sur la korpan mondon, estas malkaþo pri 
+oj devenantaj de tio, ke ĝi atribuas ĝion al unu unika
 
-unu el la potencoj de la naturo, kaj sekve la þlosilo 
+kaŭzo: — la materio. La rekono de tiu nova kaŭzo en
 
-por amaso da fenomenoj nekomprenataj, en la ordo fi- 
+la fenomenoj de la naturo, estos levilo por la progreso,
 
-zika kaj en la ordo morala. 
+kaj produktos la efikon de la eltrovo de tute nova agen-
 
-Kiam la scienco kalkulos kun tiu nova forto, øis nun 
+to. Kun la helpo de la spirita leĝo, la horizonto de la
 
-nekonata de la scienculoj, øi korektos amason da erar- 
+scienco larĝiĝos, kiel ĝi larĝiĝis kun la helpo de la leĝo
 
-oj devenantaj de tio, ke øi atribuas æion al unu unika 
+de gravito.
 
-kaýzo: — la materio. La rekono de tiu nova kaýzo en 
+Kiam la sciencistoj, de sur la instruada seĝo, pro-
 
-la fenomenoj de la naturo, estos levilo por la progreso, 
+klamos la ekzistadon de la spirita mondo kaj ties agadon
 
-kaj produktos la efikon de la eltrovo de tute nova agen- 
+sur la fenomenojn de la vivo, ili enfiltrigos en la jun-
 
-to. Kun la helpo de la spirita leøo, la horizonto de la 
+ularon la kontraŭvenenon kontraŭ la materialistaj ideoj,
 
-scienco larøiøos, kiel øi larøiøis kun la helpo de la leøo 
+anstataŭ antaŭinklinigi la junulojn al neado de la est-
 
-de gravito. 
+onteco.
 
-Kiam la sciencistoj, de sur la instruada seøo, pro- 
+En la lecionoj de klasika filozofio, la profesoroj ins-
 
-klamos la ekzistadon de la spirita mondo kaj ties agadon 
+truas la ekziston de la animo kaj de ties atributoj, laŭ
 
-sur la fenomenojn de la vivo, ili enfiltrigos en la jun- 
+la malsamaj skoloj, sed sen materialaj pruvoj. Æu ne
 
-ularon la kontraývenenon kontraý la materialistaj ideoj, 
+estas strange, do, ke kiam tiaj pruvoj alvenas, ili estas
 
-anstataý antaýinklinigi la junulojn al neado de la est- 
+rifuzataj kaj traktataj de tiuj samaj profesoroj kiel su-
 
-onteco. 
+perstiĝoj? Æu tio ne estas diri al siaj lernantoj: "ni ins-
 
-En la lecionoj de klasika filozofio, la profesoroj ins- 
+truas al vi la ekziston de la animo, sed nenio pruvas
 
-truas la ekziston de la animo kaj de ties atributoj, laý 
 
-la malsamaj skoloj, sed sen materialaj pruvoj. Æu ne 
+KIO ESTAS SPIRITISMO ?
 
-estas strange, do, ke kiam tiaj pruvoj alvenas, ili estas 
 
-rifuzataj kaj traktataj de tiuj samaj profesoroj kiel su- 
+ĝin?" Kiam sciencisto eldonas hipotezon pri unu punkto
 
-perstiæoj? Æu tio ne estas diri al siaj lernantoj: "ni ins- 
+de la scienco, li diligente serĝas, akceptas kun ĝojo la
 
-truas al vi la ekziston de la animo, sed nenio pruvas 
+faktojn, kiuj povas el tiu hipotezo fari veron; kiel do
 
+profesoro de filozofio, kies devo estas pruvi al siaj lern-
 
+antoj, ke ili havas animon, traktas kun malþato la rimed-
 
-KIO ESTAS SPIRITISMO ? 
+ojn por doni al ili evidentan demonstron?
 
-133 
 
+**101. ** Ni eĝ supozu, ke la Spiritoj ne estas kapablaj
 
+instrui al ni ion, kion ni ankoraŭ ne scias, aŭ kion ni ne
 
-øin?" Kiam sciencisto eldonas hipotezon pri unu punkto 
+povus lerni per ni mem, oni tamen vidas ke la sola kons-
 
-de la scienco, li diligente seræas, akceptas kun øojo la 
+tato de la ekzisto de la spirita mondo nepre kondukas
 
-faktojn, kiuj povas el tiu hipotezo fari veron; kiel do 
+al revolucio en la ideoj; nu, revolucio en la ideoj estigas
 
-profesoro de filozofio, kies devo estas pruvi al siaj lern- 
+neeviteblan revolucion en la ordo de la aferoj; ĝi tiun
 
-antoj, ke ili havas animon, traktas kun malþato la rimed- 
+revolucion Spiritismo preparas.
 
-ojn por doni al ili evidentan demonstron? 
 
+**102. ** Sed la Spiritoj faras pli ol tion; se iliaj mal-
 
+kaþoj estas ĝirkaŭitaj de certaj malfacila¼oj; se tiuj mal-
 
-**101. ** Ni eæ supozu, ke la Spiritoj ne estas kapablaj 
+kaþoj postulas detalajn zorgojn por konstati ilian ĝust-
 
-instrui al ni ion, kion ni ankoraý ne scias, aý kion ni ne 
+econ, ne malpli vere estas, ke la kleraj Spiritoj, kiam
 
-povus lerni per ni mem, oni tamen vidas ke la sola kons- 
+oni scias ilin pridemandi, kaj kiam tio estas al ili per-
 
-tato de la ekzisto de la spirita mondo nepre kondukas 
+mesata, povas malkaþi al ni nekonatajn faktojn, doni
 
-al revolucio en la ideoj; nu, revolucio en la ideoj estigas 
+al ni klarigojn pri aferoj nekomprenataj, kaj meti nin
 
-neeviteblan revolucion en la ordo de la aferoj; æi tiun 
+sur la vojon al pli rapida progreso.
 
-revolucion Spiritismo preparas. 
+Precipe en tio la plena kaj atenta studado de la spi-
 
+ritisma scienco estas nepre necesa, por peti de ĝi nur
 
+tion, kion ĝi povas doni, kaj nur en la maniero kiel ĝi
 
-**102. ** Sed la Spiritoj faras pli ol tion; se iliaj mal- 
+povas tion doni; transpaþante tiujn limojn, oni estas en
 
-kaþoj estas æirkaýitaj de certaj malfacila¼oj; se tiuj mal- 
+danĝero esti trompita.
 
-kaþoj postulas detalajn zorgojn por konstati ilian øust- 
 
-econ, ne malpli vere estas, ke la kleraj Spiritoj, kiam 
+**103. ** La plej etaj kaŭzoj povas produkti la plej
 
-oni scias ilin pridemandi, kaj kiam tio estas al ili per- 
+grandajn efikojn; tiel, el malgranda semo povas kreski
 
-mesata, povas malkaþi al ni nekonatajn faktojn, doni 
+grandega arbo; tiel, el la falo de pomo oni eltrovis la
 
-al ni klarigojn pri aferoj nekomprenataj, kaj meti nin 
+leĝon regantan la mondojn; tiel, ranoj saltantaj en plado
 
-sur la vojon al pli rapida progreso. 
+malkaþis la galvanan forton; same, el la vulgara feno-
 
-Precipe en tio la plena kaj atenta studado de la spi- 
+meno de turnantaj tabloj eliris la pruvo pri la nevidebla
 
-ritisma scienco estas nepre necesa, por peti de øi nur 
+mondo, kaj el tiu pruvo venis doktrino, kiu en kelkaj
 
-tion, kion øi povas doni, kaj nur en la maniero kiel øi 
+jaroj veturis tra la tuta mondo, kaj povas ĝin regeneri
 
-povas tion doni; transpaþante tiujn limojn, oni estas en 
+per la sola forto de la reala¼o de la estonta vivo.
 
-danøero esti trompita. 
 
+**104. ** Spiritismo instruas malmulte aŭ neniel verojn
 
+tute novajn, laŭ la aksiomo, ke estas nenio nova sub la
 
-**103. ** La plej etaj kaýzoj povas produkti la plej 
 
-grandajn efikojn; tiel, el malgranda semo povas kreski 
+ALLAN KARDEC
 
-grandega arbo; tiel, el la falo de pomo oni eltrovis la 
 
-leøon regantan la mondojn; tiel, ranoj saltantaj en plado 
+suno. Nur la eternaj veroj estas absolutaj; tiuj veroj,
 
-malkaþis la galvanan forton; same, el la vulgara feno- 
+instruataj de Spiritismo, estas fondataj sur la naturaj
 
-meno de turnantaj tabloj eliris la pruvo pri la nevidebla 
+leĝoj, ekzistas do de ĝiuj tempoj; tial, en ĝiuj tempoj oni
 
-mondo, kaj el tiu pruvo venis doktrino, kiu en kelkaj 
+trovas iliajn ĝermojn, kiujn pli kompleta studado kaj
 
-jaroj veturis tra la tuta mondo, kaj povas øin regeneri 
+pli atentaj observoj elvolvigis. La veroj instruataj de
 
-per la sola forto de la reala¼o de la estonta vivo. 
+Spiritismo estas do pli konsekvencoj ol eltrova¼oj; ĝi ne
 
+eltrovis ankaŭ la spiritan mondon je kiu oni kredis en
 
+ĝiuj tempoj; ĝi nur pruvas ĝin per materialaj faktoj kaj
 
-**104. ** Spiritismo instruas malmulte aý neniel verojn 
+ĝin montras sub ĝia vera lumo, sen la antaŭjuĝoj kaj la
 
-tute novajn, laý la aksiomo, ke estas nenio nova sub la 
+superstiĝaj ideoj, kiuj naskas dubon kaj nekredemon.
 
-134 
 
-ALLAN KARDEC 
+*R i m a r k o *. K v a n k a m t u t e n e k o m p l e t a j , ĝ i t i u j k l a r i g o j sufiĝas por montri la bazon, sur kiu ripozas Spiritismo, la
 
+karakteron de la manifestiĝoj kaj la gradon da konfido, kiun
 
+tiuj manifestiĝoj povas inspiri laŭ la cirkons t a n c o j .
 
-suno. Nur la eternaj veroj estas absolutaj; tiuj veroj, 
 
-instruataj de Spiritismo, estas fondataj sur la naturaj 
+___________
 
-leøoj, ekzistas do de æiuj tempoj; tial, en æiuj tempoj oni 
 
-trovas iliajn øermojn, kiujn pli kompleta studado kaj 
-
-pli atentaj observoj elvolvigis. La veroj instruataj de 
-
-Spiritismo estas do pli konsekvencoj ol eltrova¼oj; øi ne 
-
-eltrovis ankaý la spiritan mondon je kiu oni kredis en 
-
-æiuj tempoj; øi nur pruvas øin per materialaj faktoj kaj 
-
-øin montras sub øia vera lumo, sen la antaýjuøoj kaj la 
-
-superstiæaj ideoj, kiuj naskas dubon kaj nekredemon. 
-
-
-
-*R i m a r k o *. K v a n k a m t u t e n e k o m p l e t a j , æ i t i u j k l a r i g o j sufiæas por montri la bazon, sur kiu ripozas Spiritismo, la 
-
-karakteron de la manifestiøoj kaj la gradon da konfido, kiun 
-
-tiuj manifestiøoj povas inspiri laý la cirkons t a n c o j . 
-
-
-
-* *
-
-* *
-
-* *
-
-* *
-
-\_\_\_\_\_\_\_\_\_\_\_ 
-
-
-
-
-
-ÆAPITRO III 
-
+ÆAPITRO III
 
 
 **Solvo de kelkaj problemoj per la spiri- **
 
 **tisma doktrino **
 
-****
 
 **PLURECO DE LA MONDOJ **
 
-****
 
 **105. Æu la pluraj mondoj cirkulantaj en la spaco **
 
-**havas loøantarojn kiel la Tero? **
-
-****
-
-Æiuj Spiritoj asertas tion, kaj la racio diras, ke ne 
-
-povas esti alie. La Tero okupas en la spaco neniun spe- 
-
-cialan rangon, ne laý øia pozicio, nek laý øia volumeno, 
-
-nenio povus pravigi øian ekskluzivan privilegion esti la 
-
-sola loøata. 
-
-Cetere, Dio ne estus kreinta tiujn miliardojn da glo- 
-
-busoj nur por plaæi al niaj okuloj; des malpli, æar la plej 
-
-grandan nombron nia vidpovo ne atingas. \("La Libro de 
-
-la Spiritoj", n-ro 55. — "Revue Spirite", 1858, paøo 65: 
-
-— "Plureco de la mondoj", de Flammarion.\) 
+**havas loĝantarojn kiel la Tero? **
 
 
+Æiuj Spiritoj asertas tion, kaj la racio diras, ke ne
 
-**106. Se la mondoj estas loøataj, æu iliaj loøantoj **
+povas esti alie. La Tero okupas en la spaco neniun spe-
 
-**en æio estas similaj al tiuj de la Tero? Alivorte, æu tiuj **
+cialan rangon, ne laŭ ĝia pozicio, nek laŭ ĝia volumeno,
 
-**loøantoj povus vivi æe ni kaj ni æe ili? **
+nenio povus pravigi ĝian ekskluzivan privilegion esti la
 
-****
+sola loĝata.
 
-La formo povus esti preskaý la sama, sed la orga- 
+Cetere, Dio ne estus kreinta tiujn miliardojn da glo-
 
-nismo devas esti adaptita al la medio, en kiu øi devas 
+busoj nur por plaĝi al niaj okuloj; des malpli, ĝar la plej
 
-vivi, kiel la fiþoj estas farataj por vivi en akvo kaj la 
+grandan nombron nia vidpovo ne atingas. ("La Libro de
 
-birdoj en la aero. Se la medio estas malsama, kiel æio 
+la Spiritoj", n-ro 55. — "Revue Spirite", 1858, paĝo 65:
 
-supozigas, kaj kiel þajnas demonstri la astronomiaj ob- 
-
-servoj, la organismo devas esti malsama; ne estas do 
-
-probable, ke en ilia normala stato, ili povus vivi unuj æe 
-
-la aliaj, kun la samaj korpoj. Æi tion konfirmas la Spi- 
-
-ritoj. 
-
-136 
-
-ALLAN KARDEC 
+— "Plureco de la mondoj", de Flammarion.)
 
 
+**106. Se la mondoj estas loĝataj, ĝu iliaj loĝantoj **
 
-**107. Kredante, ke tiuj mondoj estas loøataj, æu en **
+**en ĝio estas similaj al tiuj de la Tero? Alivorte, ĝu tiuj **
+
+**loĝantoj povus vivi ĝe ni kaj ni ĝe ili? **
+
+
+La formo povus esti preskaŭ la sama, sed la orga-
+
+nismo devas esti adaptita al la medio, en kiu ĝi devas
+
+vivi, kiel la fiþoj estas farataj por vivi en akvo kaj la
+
+birdoj en la aero. Se la medio estas malsama, kiel ĝio
+
+supozigas, kaj kiel þajnas demonstri la astronomiaj ob-
+
+servoj, la organismo devas esti malsama; ne estas do
+
+probable, ke en ilia normala stato, ili povus vivi unuj ĝe
+
+la aliaj, kun la samaj korpoj. Æi tion konfirmas la Spi-
+
+ritoj.
+
+
+ALLAN KARDEC
+
+
+**107. Kredante, ke tiuj mondoj estas loĝataj, ĝu en **
 
 **intelekta kaj morala senco ili estas en la sama nivelo **
 
 **kiel la Tero? **
 
-****
 
-Laý la instruado de la Spiritoj, la mondoj estas en 
+Laŭ la instruado de la Spiritoj, la mondoj estas en
 
-tre malsamaj gradoj da progreso; kelkaj estas en la 
+tre malsamaj gradoj da progreso; kelkaj estas en la
 
-sama nivelo kiel la Tero; aliaj estas malpli progresintaj: 
+sama nivelo kiel la Tero; aliaj estas malpli progresintaj:
 
-la homoj en ili estas ankoraý pli brutalaj, pli materialaj 
+la homoj en ili estas ankoraŭ pli brutalaj, pli materialaj
 
-kaj pli inklinaj al malbono. Kontraýe, aliaj estas mo - 
+kaj pli inklinaj al malbono. Kontraŭe, aliaj estas mo -
 
-rale, intelekte kaj fizike pli progresintaj, en ili la morala 
+rale, intelekte kaj fizike pli progresintaj, en ili la morala
 
-malbono estas nekonata, la artoj kaj sciencoj atingis 
+malbono estas nekonata, la artoj kaj sciencoj atingis
 
-gradon da perfekteco, kian ni ne povas kompreni, tie la 
+gradon da perfekteco, kian ni ne povas kompreni, tie la
 
-fizika organismo, malpli materiala, ne estas submetita 
+fizika organismo, malpli materiala, ne estas submetita
 
-al la suferoj, nek malsanoj, nek kripla¼oj de la Tero. 
+al la suferoj, nek malsanoj, nek kripla¼oj de la Tero.
 
-La homoj tie vivas en paco, ne penante malutili unuj 
+La homoj tie vivas en paco, ne penante malutili unuj
 
-aliajn, sen la æagrenoj, la zorgoj, la afliktoj kaj la be- 
+aliajn, sen la ĝagrenoj, la zorgoj, la afliktoj kaj la be-
 
-zonoj, kiuj ilin turmentas sur la Tero. Aliaj ankoraý 
+zonoj, kiuj ilin turmentas sur la Tero. Aliaj ankoraŭ
 
-pli progresintaj ekzistas, kie la korpa envolva¼o, preskaý 
+pli progresintaj ekzistas, kie la korpa envolva¼o, preskaŭ
 
-fluideca, alproksimiøas æiam pli kaj pli al la naturo de 
+fluideca, alproksimiĝas ĝiam pli kaj pli al la naturo de
 
-la anøeloj. En la progresanta serio de la mondoj, la 
+la anĝeloj. En la progresanta serio de la mondoj, la
 
-Tero ne estas en la lasta rango, sed øi estas unu el la 
+Tero ne estas en la lasta rango, sed ĝi estas unu el la
 
-plej materialaj kaj subevoluintaj. \("Revue Spirite", 1858, paøoj 67, 108, 223; Same, 1860, paøoj 318 kaj 320. — 
+plej materialaj kaj subevoluintaj. ("Revue Spirite", 1858, paĝoj 67, 108, 223; Same, 1860, paĝoj 318 kaj 320. —
 
-"La Evangelio laý Spiritismo", æap. III.\) 
-
+"La Evangelio laŭ Spiritismo", ĝap. III.)
 
 
-PRI LA ANIMO 
-
+PRI LA ANIMO
 
 
 **108. Kie estas la sidejo de la animo? **
 
-****
 
-La animo tute ne estas kiel oni ordinare supozas, 
+La animo tute ne estas kiel oni ordinare supozas,
 
-lokita en iu parto de la korpo; kune kun la perispirito, 
+lokita en iu parto de la korpo; kune kun la perispirito,
 
-øi formas fluidecan tuta¼on, trapenetreblan, similan al la 
+ĝi formas fluidecan tuta¼on, trapenetreblan, similan al la
 
-tuta korpo, kun kiu øi estigas kompleksan estulon, por 
+tuta korpo, kun kiu ĝi estigas kompleksan estulon, por
 
-kiu la morto estas iel **malkunmetado. ** Oni povas imagi al 
+kiu la morto estas iel **malkunmetado. ** Oni povas imagi al
 
-si du similajn korpojn, interpenetritajn unu en la dua, 
+si du similajn korpojn, interpenetritajn unu en la dua,
 
-kunfanditajn dum la vivo kaj apartigitajn post la morto. 
+kunfanditajn dum la vivo kaj apartigitajn post la morto.
 
-Æe la morto, unu estas detruata kaj la dua restas. 
+Æe la morto, unu estas detruata kaj la dua restas.
 
-Dum la vivo la animo pli speciale agas sur la organ- 
+Dum la vivo la animo pli speciale agas sur la organ-
 
-ojn de la penso kaj de la sento. Øi estas samtempe in- 
+ojn de la penso kaj de la sento. Øi estas samtempe in-
 
-terna kaj ekstera; t. e. øi radias eksteren; øi eæ povas 
-
+terna kaj ekstera; t. e. ĝi radias eksteren; ĝi eĝ povas
 
 
-KIO ESTAS SPIRITISMO ? 
-
-137 
+KIO ESTAS SPIRITISMO ?
 
 
+izoliĝi de la korpo, transportiĝi malproksimen kaj tie
 
-izoliøi de la korpo, transportiøi malproksimen kaj tie 
+manifesti sian aleston, kiel pruvas la observado kaj la
 
-manifesti sian aleston, kiel pruvas la observado kaj la 
-
-somnambulaj fenomenoj. 
-
+somnambulaj fenomenoj.
 
 
 **109. ** **Æu la animo estas kreata samtempe kiel la **
 
-**korpo, aý antaý ol la korpo? **
-
-****
-
-Post la demando pri la ekzisto de la animo, æi tiu 
-
-demando estas el la plej æefaj, æar el øia solvo rezultas 
-
-la plej gravaj sekvoj; øi estas la sola ebla þlosilo por 
-
-amaso da problemoj øis nun ne solveblaj, æar øi ne estis 
-
-starigita. 
-
-El du aferoj unu, aý la animo ekzistis aý ne ekzistis 
-
-antaý la formado de la korpo: tria vojo ne ekzistas. Kun 
-
-la antaýekzisto de la animo, æio logike kaj nature klar- 
-
-iøas; sen øia antaýekzisto, estas neeble pravigi certajn 
-
-dogmojn de la Eklezio, kaj la neebleco de tiu pravigo 
-
-kondukis multajn rezonemajn homojn al nekredemo. 
-
-La Spiritoj solvis tiun demandon, konfirmante la an- 
-
-taýekziston, kaj la faktoj, kiel ankaý la logiko, ne povas 
-
-lasi dubon pri tiu temo. Eæ se oni provizore akceptas 
-
-la antaýekziston de la animo nur kiel simplan hipotezon, 
-
-oni vidus tuj ebeniøi la plej multajn malfacila¼ojn. 
+**korpo, aŭ antaŭ ol la korpo? **
 
 
+Post la demando pri la ekzisto de la animo, ĝi tiu
 
-**110. Se la animo estas antaýa, æu øi havis indivi - **
+demando estas el la plej ĝefaj, ĝar el ĝia solvo rezultas
 
-**duecon kaj konscion pri si mem antaý sia unuiøo kun **
+la plej gravaj sekvoj; ĝi estas la sola ebla þlosilo por
+
+amaso da problemoj ĝis nun ne solveblaj, ĝar ĝi ne estis
+
+starigita.
+
+El du aferoj unu, aŭ la animo ekzistis aŭ ne ekzistis
+
+antaŭ la formado de la korpo: tria vojo ne ekzistas. Kun
+
+la antaŭekzisto de la animo, ĝio logike kaj nature klar-
+
+iĝas; sen ĝia antaŭekzisto, estas neeble pravigi certajn
+
+dogmojn de la Eklezio, kaj la neebleco de tiu pravigo
+
+kondukis multajn rezonemajn homojn al nekredemo.
+
+La Spiritoj solvis tiun demandon, konfirmante la an-
+
+taŭekziston, kaj la faktoj, kiel ankaŭ la logiko, ne povas
+
+lasi dubon pri tiu temo. Eĝ se oni provizore akceptas
+
+la antaŭekziston de la animo nur kiel simplan hipotezon,
+
+oni vidus tuj ebeniĝi la plej multajn malfacila¼ojn.
+
+
+**110. Se la animo estas antaŭa, ĝu ĝi havis indivi - **
+
+**duecon kaj konscion pri si mem antaŭ sia unuiĝo kun **
 
 **la korpo? **
 
-****
 
-Sen individueco kaj konscio pri si mem, la rezultatoj 
+Sen individueco kaj konscio pri si mem, la rezultatoj
 
-estus la samaj kiel se øi ne ekzistus. 
-
+estus la samaj kiel se ĝi ne ekzistus.
 
 
-**111. Antaý sia unuiøo kun la korpo, æu la animo **
+**111. Antaŭ sia unuiĝo kun la korpo, ĝu la animo **
 
-**efektivigis iun ajn progreson, aý øi restis staranta sen- **
+**efektivigis iun ajn progreson, aŭ ĝi restis staranta sen- **
 
 **move? **
 
-****
 
-La antaýa progreso de la animo evidentiøas per la 
+La antaŭa progreso de la animo evidentiĝas per la
 
-observado de la faktoj kaj per la instruado de la Spiritoj. 
-
+observado de la faktoj kaj per la instruado de la Spiritoj.
 
 
 **112. Æu Dio kreis la animojn morale kaj intelekte **
 
-**egalajn, aý Li kreis unujn pli perfektajn, pli inteligent- **
+**egalajn, aŭ Li kreis unujn pli perfektajn, pli inteligent- **
 
 **ajn ol la aliajn? **
 
-138 
 
-ALLAN KARDEC 
-
+ALLAN KARDEC
 
 
-Se Dio estus farinta animojn pli perfektajn unujn ol 
+Se Dio estus farinta animojn pli perfektajn unujn ol
 
-aliajn, tia prefero ne estus akordigebla kun Lia justeco. 
+aliajn, tia prefero ne estus akordigebla kun Lia justeco.
 
-Æiuj estas Liaj kreitoj, kial Li estus liberiginta unujn 
+Æiuj estas Liaj kreitoj, kial Li estus liberiginta unujn
 
-el la laboro, kiun Li trudis al aliaj por atingi la eternan 
+el la laboro, kiun Li trudis al aliaj por atingi la eternan
 
-feliæon? La malegaleco de la animoj en ilia origino est- 
+feliĝon? La malegaleco de la animoj en ilia origino est-
 
-us neado de la justeco de Dio. 
-
+us neado de la justeco de Dio.
 
 
 **113. Se la animoj estas kreitaj egalaj, kiel klarigi **
 
-**la diversecon de la kapabloj, de la naturaj antaýinklinoj **
+**la diversecon de la kapabloj, de la naturaj antaŭinklinoj **
 
 **ekzistantaj inter la homoj sur la Tero? **
 
-****
 
-Tiu diverseco estas la konsekvenco de la progreso 
+Tiu diverseco estas la konsekvenco de la progreso
 
-plenumita de la animo antaý ol unuiøi kun la nova kor- 
+plenumita de la animo antaŭ ol unuiĝi kun la nova kor-
 
-po. La animoj pli progresintaj en inteligento kaj moralo 
+po. La animoj pli progresintaj en inteligento kaj moralo
 
-estas tiuj, kiuj pli longe vivis kaj pli multe progresis 
+estas tiuj, kiuj pli longe vivis kaj pli multe progresis
 
-antaý sia enkarniøo. 
-
+antaŭ sia enkarniĝo.
 
 
-**114. Kia la stato de la animo en øia origino? **
-
-****
-
-La animoj estas kreataj simplaj kaj nesciantaj, t. e. 
-
-sen scienco kaj sen scio pri la bono kaj la malbono, sed 
-
-kun egala kapablo por æio. En la komenco ili estas en 
-
-ia speco de infanaøo, sen propra volo, kaj sen klara 
-
-konscio pri sia ekzistado. Iom post iom la libera volo 
-
-elvolviøas same kiel la ideoj. \("La Libro de la Spirit- 
-
-oj", n-ro 114 kaj sekvantaj.\) 
+**114. Kia la stato de la animo en ĝia origino? **
 
 
+La animoj estas kreataj simplaj kaj nesciantaj, t. e.
 
-**115. Æu la animo plenumis sian antaýan progreson **
+sen scienco kaj sen scio pri la bono kaj la malbono, sed
 
-**en stato de vere libera animo, aý en antaýa korpa ek- **
+kun egala kapablo por ĝio. En la komenco ili estas en
+
+ia speco de infanaĝo, sen propra volo, kaj sen klara
+
+konscio pri sia ekzistado. Iom post iom la libera volo
+
+elvolviĝas same kiel la ideoj. ("La Libro de la Spirit-
+
+oj", n-ro 114 kaj sekvantaj.)
+
+
+**115. Æu la animo plenumis sian antaŭan progreson **
+
+**en stato de vere libera animo, aŭ en antaŭa korpa ek- **
 
 **zistado? **
 
-****
 
-Krom la instruado de la Spiritoj pri tiu punkto, la 
+Krom la instruado de la Spiritoj pri tiu punkto, la
 
-studado de la malsamaj gradoj da progreso de la homo 
+studado de la malsamaj gradoj da progreso de la homo
 
-sur la Tero, pruvas, ke antaýa progreso de la animo 
+sur la Tero, pruvas, ke antaŭa progreso de la animo
 
-plenumiøis en serio da korpaj ekzistadoj pli aý malpli 
+plenumiĝis en serio da korpaj ekzistadoj pli aŭ malpli
 
-multenombraj, laý la grado al kiu øi alvenis; la pruvo 
+multenombraj, laŭ la grado al kiu ĝi alvenis; la pruvo
 
-pri tio rezultas el la observado de la faktoj, kiujn ni hav- 
+pri tio rezultas el la observado de la faktoj, kiujn ni hav-
 
-as æiutage sub la okuloj. \("La Libro de la Spiritoj", 
+as ĝiutage sub la okuloj. ("La Libro de la Spiritoj",
 
-n-roj 166 øis 222. — "Revue Spirite", Aprilo 1862, paø- 
+n-roj 166 ĝis 222. — "Revue Spirite", , paĝ-
 
-oj 97 – 106.\) 
-
+oj 97 – 106.)
 
 
-KIO ESTAS SPIRITISMO ? 
-
-139 
+KIO ESTAS SPIRITISMO ?
 
 
-
-LA HOMO DUM LA SURTERA VIVO 
-
+LA HOMO DUM LA SURTERA VIVO
 
 
-**116. Kiel kaj en kiu momento efektiviøas la unuiøo **
+**116. Kiel kaj en kiu momento efektiviĝas la unuiĝo **
 
 **de la animo kaj de la korpo? **
 
-****
 
-Ekde la koncipo la Spirito, kvankam vaganta, estas 
+Ekde la koncipo la Spirito, kvankam vaganta, estas
 
-ligita per fluideca fadeno al la korpo kun kiu li devas 
+ligita per fluideca fadeno al la korpo kun kiu li devas
 
-unuiøi. Tiu fadeno streæiøas æiam pli kaj pli, proporcie 
+unuiĝi. Tiu fadeno streĝiĝas ĝiam pli kaj pli, proporcie
 
-kiel la korpo elvolviøas. Tiam la Spirito estas kaptita 
+kiel la korpo elvolviĝas. Tiam la Spirito estas kaptita
 
-de perturbo, kiu kreskadas senæese; kiam alproksimiøas 
+de perturbo, kiu kreskadas senĝese; kiam alproksimiĝas
 
-la naskiøo la perturbo estas plena, la Spirito perdas la 
+la naskiĝo la perturbo estas plena, la Spirito perdas la
 
-konscion pri si mem kaj nur de la momento kiam la 
+konscion pri si mem kaj nur de la momento kiam la
 
-infano spiras, li iom post iom reakiras siajn ideojn, nur 
+infano spiras, li iom post iom reakiras siajn ideojn, nur
 
-tiam la unuiøo estas kompleta kaj definitiva. 
-
+tiam la unuiĝo estas kompleta kaj definitiva.
 
 
 **117. Kia estas la intelekta stato de la animo de la **
 
-**infano en la momento de la naskiøo? **
+**infano en la momento de la naskiĝo? **
 
-****
 
-Øia intelekta kaj morala stato estas tiu, kiu øi estis 
+Øia intelekta kaj morala stato estas tiu, kiu ĝi estis
 
-antaý øia unuiøo kun la korpo, t. e. la animo posedas 
+antaŭ ĝia unuiĝo kun la korpo, t. e. la animo posedas
 
-æiujn ideojn antaýe akiritajn; sed pro la perturbo, kiu 
+ĝiujn ideojn antaŭe akiritajn; sed pro la perturbo, kiu
 
-akompanas øian þanøiøon, øiaj ideoj estas provizore en 
+akompanas ĝian þanĝiĝon, ĝiaj ideoj estas provizore en
 
-latenta stato. Ili klariøas iom post iom, sed nur povas 
+latenta stato. Ili klariĝas iom post iom, sed nur povas
 
-manifestiøi proporcie kun la elvolviøo de la organoj. 
-
+manifestiĝi proporcie kun la elvolviĝo de la organoj.
 
 
 **118. Kiu estas la origino de la denaskaj ideoj, de **
 
 **la trofruaj inklinoj, de la instinktaj kapabloj por iu arto **
 
-**aý scienco, esceptante æian instruon? **
+**aŭ scienco, esceptante ĝian instruon? **
 
-****
 
-Nur du fontojn povas havi la denaskaj ideoj: aý la 
+Nur du fontojn povas havi la denaskaj ideoj: aŭ la
 
-kreado de unuj animoj pli perfektaj ol aliaj, se ili est- 
+kreado de unuj animoj pli perfektaj ol aliaj, se ili est-
 
-us kreataj samtempe kiel la korpo, aý antaýa progreso 
+us kreataj samtempe kiel la korpo, aŭ antaŭa progreso
 
-farita antaý la unuiøo de la animo kaj la korpo. Æar la 
+farita antaŭ la unuiĝo de la animo kaj la korpo. Æar la
 
-unua hipotezo ne akordiøas kun la justeco de Dio, rest- 
+unua hipotezo ne akordiĝas kun la justeco de Dio, rest-
 
-as nur la dua. La denaskaj ideoj estas rezultato de la 
+as nur la dua. La denaskaj ideoj estas rezultato de la
 
-scioj akiritaj en antaýaj ekzistadoj, kaj restis en stato de 
+scioj akiritaj en antaŭaj ekzistadoj, kaj restis en stato de
 
-intuicio, por servi kiel bazo al la akirado de novaj ideoj. 
-
+intuicio, por servi kiel bazo al la akirado de novaj ideoj.
 
 
 **119. Kiel aperas la geniaj homoj en sociaj klasoj **
 
 **sen ia intelekta kulturo? **
 
-140 
 
-ALLAN KARDEC 
-
+ALLAN KARDEC
 
 
-Tiu fakto pruvas, ke la denaskaj ideoj estas sende- 
+Tiu fakto pruvas, ke la denaskaj ideoj estas sende-
 
-pendaj de la medio, kie la homo estas edukata. 
+pendaj de la medio, kie la homo estas edukata.
 
-La medio kaj la edukado elvolvas la denaskajn ide- 
+La medio kaj la edukado elvolvas la denaskajn ide-
 
-ojn, **sed ne donas ilin al la homo. **La genia homo estas 
+ojn, **sed ne donas ilin al la homo. **La genia homo estas
 
-la enkarniøo de altranga, jam multe progresinta Spirito; 
+la enkarniĝo de altranga, jam multe progresinta Spirito;
 
-tial la edukado povas doni mankantan instruadon, sed ne 
+tial la edukado povas doni mankantan instruadon, sed ne
 
-povas doni geniecon, kiam æi tio ne ekzistas. 
-
+povas doni geniecon, kiam ĝi tio ne ekzistas.
 
 
 **120. Kial estas instinkte bonaj infanoj en perversa **
 
-**medio, malgraý la malbonaj ekzemploj, dum ekzistas aliaj **
+**medio, malgraŭ la malbonaj ekzemploj, dum ekzistas aliaj **
 
-**instinkte malvirtaj en bona medio, kaj malgraý la bonaj **
+**instinkte malvirtaj en bona medio, kaj malgraŭ la bonaj **
 
 **konsiloj? **
 
-****
 
-Øi estas la rezultato de la plenumita morala pro- 
+Øi estas la rezultato de la plenumita morala pro-
 
-greso, same kiel la denaskaj ideoj estas rezultato de la 
+greso, same kiel la denaskaj ideoj estas rezultato de la
 
-intelekta progreso. 
-
+intelekta progreso.
 
 
 **121. Kial el du infanoj de la samaj gepatroj, eduk- **
 
-**itaj en la samaj kondiæoj, unu estas inteligenta kaj la **
+**itaj en la samaj kondiĝoj, unu estas inteligenta kaj la **
 
 **alia estas stulta, unu estas bona kaj alia malbona? Kial **
 
@@ -11561,24 +10726,22 @@ intelekta progreso.
 
 **de malspritulo estas kelkafoje geniulo? **
 
-****
 
-Tiuj faktoj apogas la originon de la denaskaj ideoj; 
+Tiuj faktoj apogas la originon de la denaskaj ideoj;
 
-cetere ili pruvas, ke la animo de la infano neniel devenas 
+cetere ili pruvas, ke la animo de la infano neniel devenas
 
-de tiu de la gepatroj; alie, laý la aksiomo, ke la parto 
+de tiu de la gepatroj; alie, laŭ la aksiomo, ke la parto
 
-estas el la sama naturo de la tuto, la gepatroj transdon- 
+estas el la sama naturo de la tuto, la gepatroj transdon-
 
-us al siaj infanoj siajn virtojn kaj malvirtojn, kiel ili 
+us al siaj infanoj siajn virtojn kaj malvirtojn, kiel ili
 
-transdonas al tiuj la elementojn de la korpaj kvalitoj. 
+transdonas al tiuj la elementojn de la korpaj kvalitoj.
 
-En la generado, nur la korpo devenas de la korpo, sed 
+En la generado, nur la korpo devenas de la korpo, sed
 
-la animoj estas sendependaj unuj de aliaj. 
-
+la animoj estas sendependaj unuj de aliaj.
 
 
 **122. Se la animoj estas sendependaj unuj de aliaj, **
@@ -11587,128 +10750,115 @@ la animoj estas sendependaj unuj de aliaj.
 
 **reciproke? **
 
-****La Spiritoj unuiøas per simpatio, kaj la naskiøo en 
+****La Spiritoj unuiĝas per simpatio, kaj la naskiĝo en
 
-tiu aý alia familio neniam estas efiko de blinda hazardo; 
+tiu aŭ alia familio neniam estas efiko de blinda hazardo;
 
-plej ofte øi dependas de la elekto de la Spirito, kiu reunu- 
+plej ofte ĝi dependas de la elekto de la Spirito, kiu reunu-
 
-iøas al tiuj, kiujn li amis en la mondo de la Spiritoj aý 
+iĝas al tiuj, kiujn li amis en la mondo de la Spiritoj aŭ
 
-en antaýaj ekzistadoj. Aliflanke, la gepatroj havas kiel 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-141 
+en antaŭaj ekzistadoj. Aliflanke, la gepatroj havas kiel
 
 
+KIO ESTAS SPIRITISMO ?
 
-mision helpi la progreson de la Spiritoj, kiuj enkarniøas 
 
-en iliajn infanojn; kaj, por ilin vigligi, Dio inspiras al ili 
+mision helpi la progreson de la Spiritoj, kiuj enkarniĝas
 
-reciprokan amon, sed multaj fiaskas en sia misio kaj est- 
+en iliajn infanojn; kaj, por ilin vigligi, Dio inspiras al ili
 
-as punataj. \("La Libro de la Spirito", n-ro 379, **pri la **
+reciprokan amon, sed multaj fiaskas en sia misio kaj est-
 
-**Infanaøo. **\) 
+as punataj. ("La Libro de la Spirito", n-ro 379, **pri la **
 
+**Infanaĝo. **)
 
 
 **123. Kial ekzistas malbonaj gepatroj kaj malbonaj **
 
 **gefiloj? **
 
-****Tiuj estas Spiritoj ne ligitaj de simpatio al unu fa- 
+****Tiuj estas Spiritoj ne ligitaj de simpatio al unu fa-
 
-milio, sed por servi kiel reciproka provado, kaj ofte kiel 
+milio, sed por servi kiel reciproka provado, kaj ofte kiel
 
-puno pro pekoj de antaýa ekzistado; al unu estas donita 
+puno pro pekoj de antaŭa ekzistado; al unu estas donita
 
-malbona filo, æar li mem eble estis malbona filo; al alia, 
+malbona filo, ĝar li mem eble estis malbona filo; al alia,
 
-malbona patro, æar li mem estis malbona patro, ke ili 
+malbona patro, ĝar li mem estis malbona patro, ke ili
 
-suferu egalan punon. \("Revue Spirite", 1861, p. 270: **la** **egala repuno**.\) 
+suferu egalan punon. ("Revue Spirite", 1861, p. 270: **la** **egala repuno**.)
 
 
+**124. Kial oni trovas, ĝe personoj naskitaj en serv- **
 
-**124. Kial oni trovas, æe personoj naskitaj en serv- **
-
-**ista kondiæo, instinktojn de digneco kaj grandeco, dum **
+**ista kondiĝo, instinktojn de digneco kaj grandeco, dum **
 
 **aliaj, naskitaj en la superaj klasoj, havas instinktojn de **
 
 **malnobleco? **
 
-****
 
-Tio estas intuicia rememoro pri socia pozicio, kiun 
+Tio estas intuicia rememoro pri socia pozicio, kiun
 
-oni okupis, kaj pri la karaktero, kiun oni havis en an- 
+oni okupis, kaj pri la karaktero, kiun oni havis en an-
 
-taýa ekzistado. 
-
+taŭa ekzistado.
 
 
-**125. Kia la kaýzo de simpatioj kaj de antipatioj in- **
+**125. Kia la kaŭzo de simpatioj kaj de antipatioj in- **
 
 **ter personoj, kiuj vidas unu alian je la unua fojo? **
 
-****
 
-Ofte tiuj estas personoj, kiuj konis unu alian, kaj 
+Ofte tiuj estas personoj, kiuj konis unu alian, kaj
 
-kelkafoje sin reciproke amis aý malamis en antaýa ek- 
+kelkafoje sin reciproke amis aŭ malamis en antaŭa ek-
 
-zistado, kaj kiuj, sin denove renkontante, estas altirataj 
+zistado, kaj kiuj, sin denove renkontante, estas altirataj
 
-unu al la dua. 
+unu al la dua.
 
-La instinktaj antipatioj ofte devenas de antaýaj in- 
+La instinktaj antipatioj ofte devenas de antaŭaj in-
 
-terrilatoj. 
+terrilatoj.
 
-Tiuj du sentoj povas havi ankoraý alian kaýzon. La 
+Tiuj du sentoj povas havi ankoraŭ alian kaŭzon. La
 
-perispirito disradias æirkaý la korpo ian specon de atmos- 
+perispirito disradias ĝirkaŭ la korpo ian specon de atmos-
 
-fero saturita de la bonaj kaj malbonaj kvalitoj de la en- 
+fero saturita de la bonaj kaj malbonaj kvalitoj de la en-
 
-karniøinta Spirito. Du personoj kiuj renkontiøas, sentas 
+karniĝinta Spirito. Du personoj kiuj renkontiĝas, sentas
 
-per la kontakto de la fluida¼oj la impreson de la sensi- 
+per la kontakto de la fluida¼oj la impreson de la sensi-
 
-tivo; tiu impreso estas agrabla aý malagrabla; la fluid- 
-
-142 
-
-ALLAN KARDEC 
+tivo; tiu impreso estas agrabla aŭ malagrabla; la fluid-
 
 
+ALLAN KARDEC
 
-a¼oj inklinas sin kunfandi aý sin forpuþi reciproke laý 
 
-sia naturo simila aý malsimila. 
+a¼oj inklinas sin kunfandi aŭ sin forpuþi reciproke laŭ
 
-Tiel oni povas klarigi la fenomenon de la transsendo 
+sia naturo simila aŭ malsimila.
 
-de la penso. Per la kontakto de la fluida¼oj, du animoj 
+Tiel oni povas klarigi la fenomenon de la transsendo
 
-iel legas unu en la dua; ili devenas unu alian sen parolo. 
+de la penso. Per la kontakto de la fluida¼oj, du animoj
 
+iel legas unu en la dua; ili devenas unu alian sen parolo.
 
 
 **126. Kial la homo ne havas rememoron pri siaj an- **
 
-**taýaj ekzistadoj? Æu tiu rememoro ne estas necesa al **
+**taŭaj ekzistadoj? Æu tiu rememoro ne estas necesa al **
 
 **lia estonta progreso? **
 
-\(Vidu supre paøo 64.\) 
-
+(Vidu supre paĝo 64.)
 
 
 **127. Kia estas la origino de la sento nomata "la **
@@ -11716,99 +10866,88 @@ iel legas unu en la dua; ili devenas unu alian sen parolo.
 **konscienco"? **
 
 
+Øi estas la intuicia rememoro pri la progreso plenumita
 
-Øi estas la intuicia rememoro pri la progreso plenumita 
+en antaŭaj ekzistadoj, kaj pri la rezolucioj prenitaj de la
 
-en antaýaj ekzistadoj, kaj pri la rezolucioj prenitaj de la 
+Spirito antaŭ la enkarniĝo. Kiel homo ne ĝiam li havas
 
-Spirito antaý la enkarniøo. Kiel homo ne æiam li havas 
-
-sufiæan forton por teni tiujn rezoluciojn. 
-
+sufiĝan forton por teni tiujn rezoluciojn.
 
 
-**128. Æu la homo havas liberan volon aý li estas **
+**128. Æu la homo havas liberan volon aŭ li estas **
 
 **submetita al fataleco? **
 
-****
 
-Se la konduto de la homo estus submetita al fatal- 
+Se la konduto de la homo estus submetita al fatal-
 
-eco, ne ekzistus æe li respondeco pro la malbono, nek me- 
+eco, ne ekzistus ĝe li respondeco pro la malbono, nek me-
 
-rito pro la bono; tiam æiu puno estus maljusta¼o kaj æiu 
+rito pro la bono; tiam ĝiu puno estus maljusta¼o kaj ĝiu
 
-rekompenco estus sensenca¼o. La libera volo de la homo 
+rekompenco estus sensenca¼o. La libera volo de la homo
 
-estas konsekvenco de la justeco de Dio, øi estas la atri- 
+estas konsekvenco de la justeco de Dio, ĝi estas la atri-
 
-buto, kiu donas al li sian dignecon kaj altigas lin super 
+buto, kiu donas al li sian dignecon kaj altigas lin super
 
-æiujn aliajn kreitojn. Tio estas tiel vera, ke la estimo 
+ĝiujn aliajn kreitojn. Tio estas tiel vera, ke la estimo
 
-de la homoj unuj al aliaj estas proporcia je la libera 
+de la homoj unuj al aliaj estas proporcia je la libera
 
-volo; kiu øin akcidente perdas pro malsano, frenezeco, 
+volo; kiu ĝin akcidente perdas pro malsano, frenezeco,
 
-ebrieco aý idioteco, estas bedaýrata aý malestimata. 
+ebrieco aŭ idioteco, estas bedaŭrata aŭ malestimata.
 
-Materialisto, kiu metas æiujn moralajn kaj intelekt- 
+Materialisto, kiu metas ĝiujn moralajn kaj intelekt-
 
-ajn kapablojn sub dependecon de la organismo, reduktas 
+ajn kapablojn sub dependecon de la organismo, reduktas
 
-la homon al stato de maþino, sen libera volo, sekve sen 
+la homon al stato de maþino, sen libera volo, sekve sen
 
-prirespondeco pri la malbono kaj sen merito pro la bono, 
+prirespondeco pri la malbono kaj sen merito pro la bono,
 
-kiun li faras. \("Revue Spirite", 1861, p. 76: **La kapo **
+kiun li faras. ("Revue Spirite", 1861, p. 76: **La kapo **
 
 **de Garibaldi. **— Same, 1862, p. 97: **Frenologio spiri- **
 
-**tualista. **\) 
-
+**tualista. **)
 
 
 **129. Æu Dio kreis la malbonon? **
 
-Neniel Dio kreis la malbonon; Li starigis leøojn, kaj 
+Neniel Dio kreis la malbonon; Li starigis leĝojn, kaj
 
 
-
-KIO ESTAS SPIRITISMO ? 
-
-143 
+KIO ESTAS SPIRITISMO ?
 
 
+tiuj leĝoj estas ĝiam bonaj, ĝar Li estas suverene bona;
 
-tiuj leøoj estas æiam bonaj, æar Li estas suverene bona; 
+kiu fidele obeus tiujn leĝojn, estus perfekte feliĝa; sed
 
-kiu fidele obeus tiujn leøojn, estus perfekte feliæa; sed 
+la Spiritoj, havante liberan volon, ne ĝiam obeis ilin, kaj
 
-la Spiritoj, havante liberan volon, ne æiam obeis ilin, kaj 
-
-la malbono estas rezultato de malobeo al tiuj leøoj. 
-
+la malbono estas rezultato de malobeo al tiuj leĝoj.
 
 
-**130. Æu la homo estas naskita bona aý malbona? **
+**130. Æu la homo estas naskita bona aŭ malbona? **
 
-****
 
-Estas necese distingi la animon disde la homo. La 
+Estas necese distingi la animon disde la homo. La
 
-animo estas kreita simpla kaj nescianta, t. e. nek bona 
+animo estas kreita simpla kaj nescianta, t. e. nek bona
 
-nek malbona, sed pro sia libera volo egale kapabla preni 
+nek malbona, sed pro sia libera volo egale kapabla preni
 
-la vojon de la bono aý tiun de la malbono, alivorte, ka- 
+la vojon de la bono aŭ tiun de la malbono, alivorte, ka-
 
-pabla respekti aý malrespekti la leøojn de Dio. La homo 
+pabla respekti aŭ malrespekti la leĝojn de Dio. La homo
 
-naskiøas bona aý malbona laý tio, ke li estas enkarniøo 
+naskiĝas bona aŭ malbona laŭ tio, ke li estas enkarniĝo
 
-de progresinta aý postrestinta Spirito. 
-
+de progresinta aŭ postrestinta Spirito.
 
 
 **131. Kiu estas la origino de la bono kaj de la mal- **
@@ -11817,740 +10956,677 @@ de progresinta aý postrestinta Spirito.
 
 **bono? **
 
-****
 
-La origino de la malbono sur la Tero venas de la 
+La origino de la malbono sur la Tero venas de la
 
-malperfekteco de la Spiritoj tie enkarniøintaj; kaj la su- 
+malperfekteco de la Spiritoj tie enkarniĝintaj; kaj la su-
 
-perregado de la malbono venas de tio, ke la pli multo de 
+perregado de la malbono venas de tio, ke la pli multo de
 
-la Spiritoj, kiuj tie loøas, estas malsuperaj aý malmulte 
+la Spiritoj, kiuj tie loĝas, estas malsuperaj aŭ malmulte
 
-progresintaj, æar la Tero mem estas malsupera mondo. 
+progresintaj, ĝar la Tero mem estas malsupera mondo.
 
-En la mondoj pli progresintaj, kie estas permesata la 
+En la mondoj pli progresintaj, kie estas permesata la
 
-enkarniøo nur de purigitaj Spiritoj, la malbono estas ne- 
+enkarniĝo nur de purigitaj Spiritoj, la malbono estas ne-
 
-konata aý malpli multa ol la bono. 
-
+konata aŭ malpli multa ol la bono.
 
 
-**132. Kio estas la kaýzo de la malbonoj, kiuj aflikt- **
+**132. Kio estas la kaŭzo de la malbonoj, kiuj aflikt- **
 
 **as la homaron? **
 
-****
 
-La Tero povas esti samtempe konsiderata kiel mondo 
+La Tero povas esti samtempe konsiderata kiel mondo
 
-de edukado por la malmulte progresintaj Spiritoj, kaj 
+de edukado por la malmulte progresintaj Spiritoj, kaj
 
-de puno por kulpaj Spiritoj. La malbonoj de la homaro 
+de puno por kulpaj Spiritoj. La malbonoj de la homaro
 
-estas konsekvenco de la morala mulsupereco de la pli- 
+estas konsekvenco de la morala mulsupereco de la pli-
 
-multo de la Spiritoj tie enkarniøintaj. Per la kontakto 
+multo de la Spiritoj tie enkarniĝintaj. Per la kontakto
 
-de iliaj malvirtoj, ili faras unuj aliajn malfeliæaj kaj est- 
+de iliaj malvirtoj, ili faras unuj aliajn malfeliĝaj kaj est-
 
-as punataj unuj per aliaj. 
-
+as punataj unuj per aliaj.
 
 
 **133. Kial la malbonulo ofte prosperas, dum la ho- **
 
-**nesta homo estas turmentata de æiaj afliktiøoj? **
-
-144 
-
-ALLAN KARDEC 
+**nesta homo estas turmentata de ĝiaj afliktiĝoj? **
 
 
-
-Por kiu vidas la nunan vivon kaj øin supozas 
-
-unika, tio devas þajni frapanta maljusta¼o. Tiu þajno 
-
-tamen malaperas kiam oni konsideras la plurecon de la 
-
-ekzistadoj, la mallongecon de æiu el ili en komparo kun 
-
-la eterneco. La studado de Spiritismo pruvas, ke la pros- 
-
-pereco de la malbonulo havas terurajn sekvojn en liaj 
-
-postvenantaj ekzistadoj; dum la afliktiøoj de la bonulo 
-
-estas, kontraýe, sekvataj de feliæo des pli granda kaj 
-
-daýra, ju pli da rezignacio li tenis por ilin elporti; tio 
-
-estas por li kvazaý unu tago malfeliæa en tuta ekzistado 
-
-de prospereco. 
+ALLAN KARDEC
 
 
+Por kiu vidas la nunan vivon kaj ĝin supozas
 
-**134. Kial unuj naskiøas en mizero, kaj aliaj en **
+unika, tio devas þajni frapanta maljusta¼o. Tiu þajno
 
-**abunda riæeco? Kial naskiøas homoj blindaj, surdaj, mut- **
+tamen malaperas kiam oni konsideras la plurecon de la
+
+ekzistadoj, la mallongecon de ĝiu el ili en komparo kun
+
+la eterneco. La studado de Spiritismo pruvas, ke la pros-
+
+pereco de la malbonulo havas terurajn sekvojn en liaj
+
+postvenantaj ekzistadoj; dum la afliktiĝoj de la bonulo
+
+estas, kontraŭe, sekvataj de feliĝo des pli granda kaj
+
+daŭra, ju pli da rezignacio li tenis por ilin elporti; tio
+
+estas por li kvazaŭ unu tago malfeliĝa en tuta ekzistado
+
+de prospereco.
+
+
+**134. Kial unuj naskiĝas en mizero, kaj aliaj en **
+
+**abunda riĝeco? Kial naskiĝas homoj blindaj, surdaj, mut- **
 
 **aj, atakitaj de nekuraceblaj malsanoj, dum aliaj havas **
 
-**æiujn fizikajn avantaøojn? Æu tio estas efiko de hazardo **
+**ĝiujn fizikajn avantaĝojn? Æu tio estas efiko de hazardo **
 
-**aý faro de la Providenco? **
+**aŭ faro de la Providenco? **
 
-****
 
-Se øi estas efiko de hazardo, ne ekzistas Providenco; 
+Se ĝi estas efiko de hazardo, ne ekzistas Providenco;
 
-se øin faras la Providenco, oni demandas, kie estas øiaj 
+se ĝin faras la Providenco, oni demandas, kie estas ĝiaj
 
-boneco kaj justeco? Nu, ne komprenante la kaýzon de 
+boneco kaj justeco? Nu, ne komprenante la kaŭzon de
 
-tiuj malbonoj, multaj homoj akuzas la Providencon. Oni 
+tiuj malbonoj, multaj homoj akuzas la Providencon. Oni
 
-komprenas, ke tiu, kiu fariøis mizera aý kripla dank’al 
+komprenas, ke tiu, kiu fariĝis mizera aŭ kripla dank’al
 
-siaj malsaøa¼oj aý ekscesoj, estas punata laý la peko; 
+siaj malsaĝa¼oj aŭ ekscesoj, estas punata laŭ la peko;
 
 sed se **la animo estas kreata samtempe kiel la korpo, **
 
-kion øi faris por meriti tiajn afliktiøojn **ekde sia nask- **
+kion ĝi faris por meriti tiajn afliktiĝojn **ekde sia nask- **
 
-**iøo** aý por esti imuna kontraý malbonoj? Se oni kredas 
+**iĝo** aŭ por esti imuna kontraŭ malbonoj? Se oni kredas
 
-la justecon de Dio, oni devas kompreni, ke tiuj efikoj 
+la justecon de Dio, oni devas kompreni, ke tiuj efikoj
 
-havas kaýzon; se tiu kaýzo ne estas dum la vivo, øi dev- 
+havas kaŭzon; se tiu kaŭzo ne estas dum la vivo, ĝi dev-
 
-as esti antaý la vivo; æar en æiuj aferoj la kaýzo antaýas 
+as esti antaŭ la vivo; ĝar en ĝiuj aferoj la kaŭzo antaŭas
 
-la efikon; tial estas do necese, ke la animo estu viv- 
+la efikon; tial estas do necese, ke la animo estu viv-
 
-inta kaj meritinta punon. La spiritis maj studoj efektive 
+inta kaj meritinta punon. La spiritis maj studoj efektive
 
-montras al ni, ke pli ol unu homo, naskita en mizero, 
+montras al ni, ke pli ol unu homo, naskita en mizero,
 
-estis riæa kaj estimata en antaýa ekzistado, sed ke li 
+estis riĝa kaj estimata en antaŭa ekzistado, sed ke li
 
-malbone uzis la riæecon, kiun Dio konfidis al li por ad- 
+malbone uzis la riĝecon, kiun Dio konfidis al li por ad-
 
-ministri; ke pli ol unu, naskita en malnoblegeco, estis 
+ministri; ke pli ol unu, naskita en malnoblegeco, estis
 
-fiera kaj potenca; ofte li reaperas submetita al la or- 
+fiera kaj potenca; ofte li reaperas submetita al la or-
 
-donoj de tiu al kiu li ordonis kun krueleco, turmentata 
+donoj de tiu al kiu li ordonis kun krueleco, turmentata
 
-de la malbonaj traktoj kaj la humiligo, kiujn li trudis 
+de la malbonaj traktoj kaj la humiligo, kiujn li trudis
 
-al aliaj. 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-145 
+al aliaj.
 
 
+KIO ESTAS SPIRITISMO ?
 
-Peniga vivo ne æiam estas puno; ofte øi esta provo 
 
-elektita de la Spirito, kiu trovas en øi rimedon por pro- 
+Peniga vivo ne ĝiam estas puno; ofte ĝi esta provo
 
-gresi pli rapide, se li øin kuraøe eltenas. La riæeco an- 
+elektita de la Spirito, kiu trovas en ĝi rimedon por pro-
 
-kaý estas provado, sed ankoraý pli danøera ol la mizero, 
+gresi pli rapide, se li ĝin kuraĝe eltenas. La riĝeco an-
 
-pro la tentoj, kiujn øi alportas kaj la ekscesoj, kiujn 
+kaŭ estas provado, sed ankoraŭ pli danĝera ol la mizero,
 
-øi estigas; tiel la ekzemplo de kiuj travivis øin pruvas, 
+pro la tentoj, kiujn ĝi alportas kaj la ekscesoj, kiujn
 
-ke øi estas unu el la provoj el kiuj plej malofte oni elir- 
+ĝi estigas; tiel la ekzemplo de kiuj travivis ĝin pruvas,
 
-as kun venko. 
+ke ĝi estas unu el la provoj el kiuj plej malofte oni elir-
 
-La diferencoj de la sociaj pozicioj estus la plej gran- 
+as kun venko.
 
-da maljusta¼o, kiam ili ne estas faro de la nuna konduto, 
+La diferencoj de la sociaj pozicioj estus la plej gran-
 
-se ili ne havus kompenson. Nur la konvinko akirita pri 
+da maljusta¼o, kiam ili ne estas faro de la nuna konduto,
 
-tiu vero per Spiritismo, donas la forton por elteni la 
+se ili ne havus kompenson. Nur la konv akirita pri
 
-sortoþanøojn de la vivo kaj igas nin akcepti nian sorton 
+tiu vero per Spiritismo, donas la forton por elteni la
 
-ne enviante la aliulan. 
+sortoþanĝojn de la vivo kaj igas nin akcepti nian sorton
 
+ne enviante la aliulan.
 
 
 **135. Kial ekzistas idiotoj kaj kretenoj? **
 
-****
 
-La pozicio de la idiotoj kaj kretenoj estus la malplej 
+La pozicio de la idiotoj kaj kretenoj estus la malplej
 
-akordigebla kun la justeco de Dio, en la hipotezo de la 
+akordigebla kun la justeco de Dio, en la hipotezo de la
 
-unueco de ekzistado. Eæ el la plej mizera denaska kon- 
+unueco de ekzistado. Eĝ el la plej mizera denaska kon-
 
-diæo, la homo povas eliri per inteligento kaj laboro; sed 
+diĝo, la homo povas eliri per inteligento kaj laboro; sed
 
-la idioto kaj la kreteno estas kondamnitaj ekde de la 
+la idioto kaj la kreteno estas kondamnitaj ekde de la
 
-naskiøo øis la morto al brutiøo kaj malþato; por ili 
+naskiĝo ĝis la morto al brutiĝo kaj malþato; por ili
 
-ekzistas nenia ebla komp enso. Kial do ilia animo estis 
+ekzistas nenia ebla komp enso. Kial do ilia animo estis
 
-kreita idiota? 
+kreita idiota?
 
-La spiritismaj studoj, farataj pri la kretenoj kaj la 
+La spiritismaj studoj, farataj pri la kretenoj kaj la
 
-idiotoj, pruvas, ke ilia animo estas tiel inteligenta kiel 
+idiotoj, pruvas, ke ilia animo estas tiel inteligenta kiel
 
-la animoj de la ceteraj homoj; ke tiu kripleco estas puno 
+la animoj de la ceteraj homoj; ke tiu kripleco estas puno
 
-trudita al Spiritoj, kiuj malbone uzis sian inteligenton, 
+trudita al Spiritoj, kiuj malbone uzis sian inteligenton,
 
-kaj kiu kruele suferas stante sin en katenoj, kiujn ili 
+kaj kiu kruele suferas stante sin en katenoj, kiujn ili
 
-ne kapablas rompi, kaj pro la malþato, kies celo ili est- 
+ne kapablas rompi, kaj pro la malþato, kies celo ili est-
 
-as, dum ili estis eble incensitaj en sia antaýa ekzisto. 
+as, dum ili estis eble incensitaj en sia antaŭa ekzisto.
 
-\("Revue Spirite", 1860, paøo 173: **La Spirito de unu idio-to. ** — Same, 1861, p. 311: **La kretenoj. **\) 
-
+("Revue Spirite", 1860, paĝo 173: **La Spirito de unu idio-to. ** — Same, 1861, p. 311: **La kretenoj. **)
 
 
 **136. Kia estas la stato de la animo dum la dormo? **
 
-****
 
-Dum la dormo nur la korpo ripozas, sed la Spirito 
+Dum la dormo nur la korpo ripozas, sed la Spirito
 
-ne dormas. Praktikaj observoj pruvas, ke en tiu mo - 
+ne dormas. Praktikaj observoj pruvas, ke en tiu mo -
 
-mento la Spirito øuas sian tutan liberecon kaj la plen- 
+mento la Spirito ĝuas sian tutan liberecon kaj la plen-
 
-econ de siaj kapabloj. Li profitas la ripozon de la korpo 
-
-146 
-
-ALLAN KARDEC 
+econ de siaj kapabloj. Li profitas la ripozon de la korpo
 
 
-
-kaj la momentojn kiam lia æeesto ne estas necesa, por 
-
-agi aparte de la korpo kaj iri kien li volas. Dum la vivo, 
-
-je iu ajn distanco for de la korpo, la Spirito estas æiam 
-
-ligita al æi tiu per fluideca fadeno, kiu servas por lin 
-
-revoki kiam lia æeesto fariøas necesa; tiu ligilo rompiøas 
-
-nur æe la morto. 
+ALLAN KARDEC
 
 
+kaj la momentojn kiam lia ĝeesto ne estas necesa, por
 
-**137. Kio estas la kaýzo de la sonøoj? **
+agi aparte de la korpo kaj iri kien li volas. Dum la vivo,
 
-****
+je iu ajn distanco for de la korpo, la Spirito estas ĝiam
 
-La sonøoj estas rezultato de la libereco de la Spirito 
+ligita al ĝi tiu per fluideca fadeno, kiu servas por lin
 
-dum la dormo; kelkafoje ili estas la rememoro pri lokoj 
+revoki kiam lia ĝeesto fariĝas necesa; tiu ligilo rompiĝas
 
-kaj personoj, kiujn la Spirito vidis aý vizitis dum tiu 
-
-stato. \("La Libro de la Spiritoj": **Liberiøo de la animo,** **la dormo, la sonøoj, somnambulismo, duobla vidado, le-targio, **ktp., n-roj 400 kaj sekvantaj. — "La Libro de la Mediumoj": **Elvoko de vivantaj personoj, ** n-ro 284. — 
-
-"Revue Spirite", 1860, pø. 11: **La Spirito sur unu flanko** **kaj la korpo sur la dua. ** — Same, 1860, pø. 81: **Studado **
-
-**pri la Spirito de la vivantaj personoj**.\) 
+nur ĝe la morto.
 
 
-
-**138. De kie venas la antaýsentoj? **
-
-****
-
-Tio estas malprecizaj kaj intuiciaj rememoroj pri 
-
-aferoj, kiujn la animo lernis dum siaj momentoj de li- 
-
-bereco, kaj kelkafoje tio estas kaþitaj avertoj donataj de 
-
-bonvolemaj Spiritoj. 
+**137. Kio estas la kaŭzo de la sonĝoj? **
 
 
+La sonĝoj estas rezultato de la libereco de la Spirito
 
-**139. Kial ekzistas sur la Tero sovaøaj kaj civiliz- **
+dum la dormo; kelkafoje ili estas la rememoro pri lokoj
+
+kaj personoj, kiujn la Spirito vidis aŭ vizitis dum tiu
+
+stato. ("La Libro de la Spiritoj": **Liberiĝo de la animo,** **la dormo, la sonĝoj, somnambulismo, duobla vidado, le-targio, **ktp., n-roj 400 kaj sekvantaj. — "La Libro de la Mediumoj": **Elvoko de vivantaj personoj, ** n-ro 284. —
+
+"Revue Spirite", 1860, pĝ. 11: **La Spirito sur unu flanko** **kaj la korpo sur la dua. ** — Same, 1860, pĝ. 81: **Studado **
+
+**pri la Spirito de la vivantaj personoj**.)
+
+
+**138. De kie venas la antaŭsentoj? **
+
+
+Tio estas malprecizaj kaj intuiciaj rememoroj pri
+
+aferoj, kiujn la animo lernis dum siaj momentoj de li-
+
+bereco, kaj kelkafoje tio estas kaþitaj avertoj donataj de
+
+bonvolemaj Spiritoj.
+
+
+**139. Kial ekzistas sur la Tero sovaĝaj kaj civiliz- **
 
 **itaj homoj? **
 
-****
 
-Sen la antaýekzisto de la animo, tiu demando estas 
+Sen la antaŭekzisto de la animo, tiu demando estas
 
-nesolvebla, escepte se Dio kreus animojn sovaøajn kaj 
+nesolvebla, escepte se Dio kreus animojn sovaĝajn kaj
 
-animojn civilizitajn, kio estus neo de Lia justeco. Ali- 
+animojn civilizitajn, kio estus neo de Lia justeco. Ali-
 
-flanke la racio rifuzas akcepti, ke post la morto la animo 
+flanke la racio rifuzas akcepti, ke post la morto la animo
 
-de sovaøulo restos æiam en stato de malsupereco, aý ke 
+de sovaĝulo restos ĝiam en stato de malsupereco, aŭ ke
 
-øi estos en la sama rango de la animo de klera homo. 
+ĝi estos en la sama rango de la animo de klera homo.
 
-Akceptante por la animoj unu saman punkton de 
+Akceptante por la animoj unu saman punkton de
 
-starto, la solan doktrinon en harmonio kun la justeco de 
+starto, la solan doktrinon en harmonio kun la justeco de
 
-Dio, la samtempa ekzisto de sovaøeco kaj de civilizacio 
+Dio, la samtempa ekzisto de sovaĝeco kaj de civilizacio
 
-sur la Tero estas materiala pruvo pri la progreso, kiun 
+sur la Tero estas materiala pruvo pri la progreso, kiun
 
-unuj jam plenumis, kaj kiun la aliaj devas ankoraý plen- 
-
+unuj jam plenumis, kaj kiun la aliaj devas ankoraŭ plen-
 
 
-KIO ESTAS SPIRITISMO ? 
-
-147 
+KIO ESTAS SPIRITISMO ?
 
 
+umi. La animo de la sovaĝulo atingos do kun la tempo
 
-umi. La animo de la sovaøulo atingos do kun la tempo 
+la gradon de la animo civilizita; sed, ĝar ĝiutage mort-
 
-la gradon de la animo civilizita; sed, æar æiutage mort- 
+as sovaĝuloj, ilia animo nur povas atingi tiun gradon en
 
-as sovaøuloj, ilia animo nur povas atingi tiun gradon en 
+sinsekvaj enkarniĝoj, ĝiam pli kaj pli perfektaj, konform-
 
-sinsekvaj enkarniøoj, æiam pli kaj pli perfektaj, konform- 
+aj al ilia progreso, kaj paþante sur ĝiujn þtupojn inter
 
-aj al ilia progreso, kaj paþante sur æiujn þtupojn inter 
-
-la du ekstremaj punktoj. 
-
+la du ekstremaj punktoj.
 
 
-**140. Æu oni ne povus supozi, laý la ideo de iuj per- **
+**140. Æu oni ne povus supozi, laŭ la ideo de iuj per- **
 
-**sonoj, ke la animo enkarniøas nur unu fojon kaj plen- **
+**sonoj, ke la animo enkarniĝas nur unu fojon kaj plen- **
 
-**umas sian progreson en la stato de Spirito aý en aliaj **
+**umas sian progreson en la stato de Spirito aŭ en aliaj **
 
 **sferoj? **
 
-****
 
-Tiu opinio estus akceptebla, se estus sur la Tero nur 
+Tiu opinio estus akceptebla, se estus sur la Tero nur
 
-homoj en la sama grado morala kaj intelekta, æar tiam 
+homoj en la sama grado morala kaj intelekta, ĝar tiam
 
-oni povus pensi, ke la Tero estas difinita por tiu grado; 
+oni povus pensi, ke la Tero estas difinita por tiu grado;
 
-nu, ni havas antaý ni la pruvon pri la kontraýo. Efek- 
+nu, ni havas antaŭ ni la pruvon pri la kontraŭo. Efek-
 
-tive, oni ne komprenus, ke la sovaøulo ne povus atingi 
+tive, oni ne komprenus, ke la sovaĝulo ne povus atingi
 
-la civilizecon æi tie, æar estas pli progresintaj animoj en- 
+la civilizecon ĝi tie, ĝar estas pli progresintaj animoj en-
 
-karniøintaj sur la sama globuso; el tio oni devas kon- 
+karniĝintaj sur la sama globuso; el tio oni devas kon-
 
-kludi, ke la ebleco de pluraj surteraj ekzistadoj rezultas 
+kludi, ke la ebleco de pluraj surteraj ekzistadoj rezultas
 
-el la ekzemploj mem, kiujn oni havas sub la okuloj. Se 
+el la ekzemploj mem, kiujn oni havas sub la okuloj. Se
 
-estus alie, oni devus klarigi: 1.e — kial nur la Tero hav- 
+estus alie, oni devus klarigi: 1.e — kial nur la Tero hav-
 
-us la monopolon de la enkarniøoj? 2.e — kial, havanta 
+us la monopolon de la enkarniĝoj? 2.e — kial, havanta
 
-tiun monopolon, tie troviøas enkarniøintoj en æiuj gradoj? 
-
+tiun monopolon, tie troviĝas enkarniĝintoj en ĝiuj gradoj?
 
 
 **141. Kial oni trovas, en la medio de la civilizitaj **
 
 **socioj, estulojn kun krueleco egala al tiu de la plej bar- **
 
-**baraj sovaøuloj? **
-
-****
-
-Tiaj estas Spiritoj tre malsuperaj, elirintaj el bar- 
-
-baraj rasoj, kaj kiuj provis enkarniøi en aliula medio, kie 
-
-ili sentas sin fremdaj, kvazaý kamparano subite trans- 
-
-portita en la mondumon. 
+**baraj sovaĝuloj? **
 
 
+Tiaj estas Spiritoj tre malsuperaj, elirintaj el bar-
 
-*R i m a r k o *. O n i n e p o v u s o p i n ii n e n e a n t e a l D i o l a t u t a n justecon kaj la tutan bonecon, ke la animo de la obstinema 
+baraj rasoj, kaj kiuj provis enkarniĝi en aliula medio, kie
 
-krimulo havus, en la nuna vivo, la saman punkton de starto, 
+ili sentas sin fremdaj, kvazaŭ kamparano subite trans-
 
-kian havas tiu de homo plena de æiuj virtoj. Se la animo 
+portita en la mondumon.
 
-ne estus antaýa ol la korpo, tiu de la krimulo kaj t iu de virta 
 
-homo estus tiel novaj unu kiel la alia; kial unu estus bona 
+*R i m a r k o *. O n i n e p o v u s o p i n ii n e n e a n t e a l D i o l a t u t a n justecon kaj la tutan bonecon, ke la animo de la obstinema
 
-kaj la dua malbona? 
+krimulo havus, en la nuna vivo, la saman punkton de starto,
 
-148 
+kian havas tiu de homo plena de ĝiuj virtoj. Se la animo
 
-ALLAN KARDEC 
+ne estus antaŭa ol la korpo, tiu de la krimulo kaj t iu de virta
 
+homo estus tiel novaj unu kiel la alia; kial unu estus bona
+
+kaj la dua malbona?
+
+
+ALLAN KARDEC
 
 
 **142. De kie venas la distingiga karaktero de la **
 
 **popoloj? **
 
-****
 
-Øi estas Spiritoj havantaj pli-malpli la samajn gust- 
+Øi estas Spiritoj havantaj pli-malpli la samajn gust-
 
-ojn kaj inklinojn, kiuj enkarniøas en simpatia medio kaj 
+ojn kaj inklinojn, kiuj enkarniĝas en simpatia medio kaj
 
-ofte en la sama medio, kie ili povas kontentigi siajn 
+ofte en la sama medio, kie ili povas kontentigi siajn
 
-inklinojn. 
-
+inklinojn.
 
 
 **143. Kiel progresas kaj kiel degeneras la popoloj? **
 
-****
 
-Se la animoj estus kreataj samtempe kiam la korpoj, 
+Se la animoj estus kreataj samtempe kiam la korpoj,
 
-tiuj de la nunaj homoj estus tute tiel novaj, tute tiel pri- 
+tiuj de la nunaj homoj estus tute tiel novaj, tute tiel pri-
 
-mitivaj, kiel tiuj de la homoj de la mezepoko, kaj sekve 
+mitivaj, kiel tiuj de la homoj de la mezepoko, kaj sekve
 
-oni demandas, kial ili havas pli dolæajn morojn kaj pli 
+oni demandas, kial ili havas pli dolĝajn morojn kaj pli
 
-elvolviøintan inteligenton? Se okaze de la morto de la 
+elvolviĝintan inteligenton? Se okaze de la morto de la
 
-korpo, la animo definitive forlasus la Teron, oni demand- 
+korpo, la animo definitive forlasus la Teron, oni demand-
 
-as ankaý, kian frukton donus la laboro farata por pli- 
+as ankaŭ, kian frukton donus la laboro farata por pli-
 
-bonigi iun popolon, se øi estus rekomenciøo kun æiuj 
+bonigi iun popolon, se ĝi estus rekomenciĝo kun ĝiuj
 
-animoj, kiuj alvenas kun æiu tago? 
+animoj, kiuj alvenas kun ĝiu tago?
 
-La Spiritoj enkarniøas en medio simpatia kaj en ri- 
+La Spiritoj enkarniĝas en medio simpatia kaj en ri-
 
-lato kun la grado de sia progreso. Ekzemple, æino, kiu 
+lato kun la grado de sia progreso. Ekzemple, ĝino, kiu
 
-sufiæe progresis kaj jam ne trovas en sia raso medion 
+sufiĝe progresis kaj jam ne trovas en sia raso medion
 
-harmonian kun la grado de li atingita, enkarniøas en 
+harmonian kun la grado de li atingita, enkarniĝas en
 
-popolo pli progresinta. Laýmezure kiel unu generacio 
+popolo pli progresinta. Laŭmezure kiel unu generacio
 
-faras paþon antaýen, øi altiras per simpatio novajn ven- 
+faras paþon antaŭen, ĝi altiras per simpatio novajn ven-
 
-antojn pli progresintajn, kiuj eble estas tiuj, kiuj iam 
+antojn pli progresintajn, kiuj eble estas tiuj, kiuj iam
 
-vivis en la sama lando, se ili pli progresis, kaj tiel iom 
+vivis en la sama lando, se ili pli progresis, kaj tiel iom
 
-post iom nacio progresas. Se la plimulto de la novuloj 
+post iom nacio progresas. Se la plimulto de la novuloj
 
-estas de malsupera naturo, la malnovaj, elirantaj kun æiu 
+estas de malsupera naturo, la malnovaj, elirantaj kun ĝiu
 
-tago kaj ne revenantaj en medion pli malbonan, tiu po- 
+tago kaj ne revenantaj en medion pli malbonan, tiu po-
 
-polo degenerus kaj finiøus estingiøante. 
-
+polo degenerus kaj finiĝus estingiĝante.
 
 
-*R i m a r k o *: T i u j d e m a n d o j starigas aliajn, kiuj trovas si-an solvon en la sama principo; ekzemple, el kio venas la 
+*R i m a r k o *: T i u j d e m a n d o j starigas aliajn, kiuj trovas si-an solvon en la sama principo; ekzemple, el kio venas la
 
-diverseco de la rasoj sur la Tero? — Æu ekzistas rasoj ribel- 
+diverseco de la rasoj sur la Tero? — Æu ekzistas rasoj ribel-
 
-e m a j k o n t r a ý l a p r o g r e s o ? — Æu la negra raso estas kapabla atingi la saman nivelon de la Eýropaj rasoj? — Æu sklaveco 
+e m a j k o n t r a ŭ l a p r o g r e s o ? — Æu la negra raso estas kapabla atingi la saman nivelon de la Eŭropaj rasoj? — Æu sklaveco
 
-estas utila al la progreso de la malsuperaj rasoj? Kiel povas 
+estas utila al la progreso de la malsuperaj rasoj? Kiel povas
 
-efektiviøi la transformado de la homaro? \(“La Libro de la 
+efektiviĝi la transformado de la homaro? (“La Libro de la
 
-Spiritoj”: *Leøo de progreso *, n - r o 7 7 6 k . s e k v . — “Revue Spir i t e ” , 1 8 6 2 , p . 1 : *Doktrino pri la defalintaj anøeloj*. — Same, 1 8 6 2 , p . 9 7 : *Perfektebleco de la negra raso *. \) 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-149 
+Spiritoj”: *Leĝo de progreso *, n - r o 7 7 6 k . s e k v . — “Revue Spir i t e ” , 1 8 6 2 , p . 1 : *Doktrino pri la defalintaj anĝeloj*. — Same, 1 8 6 2 , p . 9 7 : *Perfektebleco de la negra raso *. )
 
 
-
-LA HOMO POST LA MORTO 
-
+KIO ESTAS SPIRITISMO ?
 
 
-**144. Kiel efektiviøas la disiøo de la animo kaj de **
+LA HOMO POST LA MORTO
 
-**la korpo? Æu øi fariøas subite aý laýgrade? **
 
-****
+**144. Kiel efektiviĝas la disiĝo de la animo kaj de **
 
-La liberiøo fariøas laýgrade kaj kun malrapideco 
+**la korpo? Æu ĝi fariĝas subite aŭ laŭgrade? **
 
-malsama laý la individuoj kaj la cirkonstancoj de la 
 
-morto. La ligiloj unuigantaj la animon kaj la korpon, 
+La liberiĝo fariĝas laŭgrade kaj kun malrapideco
 
-nur iom post iom rompiøas, kaj des pli malrapide ju pli 
+malsama laŭ la individuoj kaj la cirkonstancoj de la
 
-la vivo estis pli materiala kaj pli voluptama. \("La Libro 
+morto. La ligiloj unuigantaj la animon kaj la korpon,
 
-de la Spiritoj", n-ro 155.\) 
+nur iom post iom rompiĝas, kaj des pli malrapide ju pli
 
+la vivo estis pli materiala kaj pli voluptama. ("La Libro
+
+de la Spiritoj", n-ro 155.)
 
 
 **145. Kia estas la situacio de la animo tuj post la **
 
-**morto de la korpo? Æu øi havas subite konscion pri si **
+**morto de la korpo? Æu ĝi havas subite konscion pri si **
 
-**mem? Unuvorte, kion øi vidas? Kion øi spertas? **
-
-****
-
-En la momento de la morto æio unue estas konfuza; 
-
-la animo bezonas iom da tempo por rekonsciiøi; øi estas 
-
-kvazaý senpripensa kaj en la stato de homo eliranta el 
-
-la profunda dormo kaj kiu penas ekkompreni sian si- 
-
-tuacion. La klareco de la ideoj kaj la memoro pri la pas- 
-
-inteco revenas al øi laý proporcio kiel forviþiøas la influo 
-
-de la materio, el kiu øi ¼us sin liberigis, kaj disbloviøas 
-
-la speco de nebulo, kiu malheligis øiajn pensojn. 
-
-La daýro de konfuzo sekvanta la morton estas tre 
-
-varia, øi povas daýri nur kelkajn horojn, kiel ankaý plur- 
-
-ajn tagojn, plurajn monatojn kaj eæ plurajn jarojn. Øi 
-
-estas malpli longa æe tiuj, kiuj dum sia vivo identiøis 
-
-kun sia estonta stato, æar ili tuj komprenas sian situa- 
-
-cion; øi estas tiel pli longa kiel pli materie vivis la homo. 
-
-La sensacio, spertata de la animo en tiu momento, 
-
-estas tre varia; la perturbo sekvanta la morton, estas 
-
-neniel dolora por la virta homo; øi estas trankvila kaj 
-
-en æio simila al tiu, kiu sekvas pacan vekiøon. Por tiu, 
-
-kies konscienco ne estas pura kaj kiu estas pli ligita al 
-
-la materia ol al la spirita vivo, øi estas plena de mal- 
-
-kvieteco kaj angoroj, kiuj pligrandiøas laýmezure kiel li 
-
-reakiras konscion; æar tiam li estas kaptita de timo kaj 
-
-de ia speco de teruro pro tio, kion li vidas, kaj precipe 
-
-pro tio, kion li antaývidas. 
-
-150 
-
-ALLAN KARDEC 
+**mem? Unuvorte, kion ĝi vidas? Kion ĝi spertas? **
 
 
+En la momento de la morto ĝio unue estas konfuza;
 
-La sensacio, kiun oni povus nomi fizika, estas tiu 
+la animo bezonas iom da tempo por rekonsciiĝi; ĝi estas
 
-de granda faciligo kaj senlima bonstato; oni sentas sin 
+kvazaŭ senpripensa kaj en la stato de homo eliranta el
 
-kvazaý liberigita el þarøo, kaj oni estas feliæega jam ne 
+la profunda dormo kaj kiu penas ekkompreni sian si-
 
-senti la korpajn dolorojn, kiujn oni suferis antaý kelkaj 
+tuacion. La klareco de la ideoj kaj la memoro pri la pas-
 
-momentoj, senti sin libera, facilmova kaj vigla kiel tiu, 
+inteco revenas al ĝi laŭ proporcio kiel forviþiĝas la influo
 
-de kiu oni ¼us deprenis pezajn katenojn. 
+de la materio, el kiu ĝi ¼us sin liberigis, kaj disbloviĝas
 
-En sia nova situacio, la animo vidas kaj aýdas tion, 
+la speco de nebulo, kiu malheligis ĝiajn pensojn.
 
-kion øi vidis kaj aýdis antaý la morto, sed øi vidas kaj 
+La daŭro de konfuzo sekvanta la morton estas tre
 
-aýdas ankaý aliajn aferojn, kiuj eskapadis al la malde- 
+varia, ĝi povas daŭri nur kelkajn horojn, kiel ankaŭ plur-
 
-likateco de øiaj korpaj organoj; øi havas sensaciojn kaj 
+ajn tagojn, plurajn monatojn kaj eĝ plurajn jarojn. Øi
 
-perceptojn al ni nekonatajn. \("Revue Spirite", 1859, paøo 
+estas malpli longa ĝe tiuj, kiuj dum sia vivo identiĝis
 
-244: **Morto de spiritisto**. — Same, 1860, paøo 332: **La **
+kun sia estonta stato, ĝar ili tuj komprenas sian situa-
 
-**vekiøo de la Spirito**. — Same,1862, pø. 129 kaj 171: 
+cion; ĝi estas tiel pli longa kiel pli materie vivis la homo.
 
-**Enteriga soleno de S-ro Sanson**.\) 
+La sensacio, spertata de la animo en tiu momento,
+
+estas tre varia; la perturbo sekvanta la morton, estas
+
+neniel dolora por la virta homo; ĝi estas trankvila kaj
+
+en ĝio simila al tiu, kiu sekvas pacan vekiĝon. Por tiu,
+
+kies konscienco ne estas pura kaj kiu estas pli ligita al
+
+la materia ol al la spirita vivo, ĝi estas plena de mal-
+
+kvieteco kaj angoroj, kiuj pligrandiĝas laŭmezure kiel li
+
+reakiras konscion; ĝar tiam li estas kaptita de timo kaj
+
+de ia speco de teruro pro tio, kion li vidas, kaj precipe
+
+pro tio, kion li antaŭvidas.
 
 
+ALLAN KARDEC
 
-*R i m a r k o *. Æi tiuj respondoj kaj æiuj aliaj pri la situacio de la animo post la morto aý dum la vivo, ne estas rezultato 
 
-e l t e o r i o a ý s i s t e m o , sed el rektaj studoj farataj pri miloj da personoj observataj en æiuj fazoj kaj en æiuj periodoj de 
+La sensacio, kiun oni povus nomi fizika, estas tiu
 
-ilia spirita ekzistado, ekde la plej malalta øis la plej alta 
+de granda faciligo kaj senlima bonstato; oni sentas sin
 
-þtupo de la þtuparo, laý iliaj kutimoj dum la surtera vivo, 
+kvazaŭ liberigita el þarĝo, kaj oni estas feliĝega jam ne
 
-laý la speco de la morto k. a. Pa r o l a n t e p r i l a e s t o n t a v i v o oni ofte diras, ke oni nenion scias pri øi, æar neniu de tie 
+senti la korpajn dolorojn, kiujn oni suferis antaŭ kelkaj
 
-revenis; æi tio estas eraro, æar øuste tiuj, kiuj tie troviøas, 
+momentoj, senti sin libera, facilmova kaj vigla kiel tiu,
 
-venas instrui nin, kaj Dio øin permesas hodiaý pli ol en iu 
+de kiu oni ¼us deprenis pezajn katenojn.
 
-ajn alia epoko, kiel lasta averto al nekred e m o k a j m a t e- 
+En sia nova situacio, la animo vidas kaj aŭdas tion,
 
-rialismo. 
+kion ĝi vidis kaj aŭdis antaŭ la morto, sed ĝi vidas kaj
 
+aŭdas ankaŭ aliajn aferojn, kiuj eskapadis al la malde-
+
+likateco de ĝiaj korpaj organoj; ĝi havas sensaciojn kaj
+
+perceptojn al ni nekonatajn. ("Revue Spirite", 1859, paĝo
+
+244: **Morto de spiritisto**. — Same, 1860, paĝo 332: **La **
+
+**vekiĝo de la Spirito**. — Same,1862, pĝ. 129 kaj 171:
+
+**Enteriga soleno de S-ro Sanson**.)
+
+
+*R i m a r k o *. Æi tiuj respondoj kaj ĝiuj aliaj pri la situacio de la animo post la morto aŭ dum la vivo, ne estas rezultato
+
+e l t e o r i o a ŭ s i s t e m o , sed el rektaj studoj farataj pri miloj da personoj observataj en ĝiuj fazoj kaj en ĝiuj periodoj de
+
+ilia spirita ekzistado, ekde la plej malalta ĝis la plej alta
+
+þtupo de la þtuparo, laŭ iliaj kutimoj dum la surtera vivo,
+
+laŭ la speco de la morto k. a. Pa r o l a n t e p r i l a e s t o n t a v i v o oni ofte diras, ke oni nenion scias pri ĝi, ĝar neniu de tie
+
+revenis; ĝi tio estas eraro, ĝar ĝuste tiuj, kiuj tie troviĝas,
+
+venas instrui nin, kaj Dio ĝin permesas hodiaŭ pli ol en iu
+
+ajn alia epoko, kiel lasta averto al nekred e m o k a j m a t e-
+
+rialismo.
 
 
 **146. Æu la animo forlasinta la korpon, vidas Dion? **
 
-****
 
-La kapabloj de la animo estas proporciaj je øia el- 
+La kapabloj de la animo estas proporciaj je ĝia el-
 
-puriøo; nur la plej perfektaj animoj povas øui la æe- 
+puriĝo; nur la plej perfektaj animoj povas ĝui la ĝe-
 
-eston de Dio. 
-
+eston de Dio.
 
 
-**147. Se Dio estas æie, kial ne æiuj Spiritoj povas **
+**147. Se Dio estas ĝie, kial ne ĝiuj Spiritoj povas **
 
 **Lin vidi? **
 
-****
 
-Dio estas æie, æar Li disradias æien, kaj oni povas 
+Dio estas ĝie, ĝar Li disradias ĝien, kaj oni povas
 
-diri, ke la universo estas mergita en Dio, kiel ni estas 
+diri, ke la universo estas mergita en Dio, kiel ni estas
 
-mergitaj en la suna lumo; sed la subelvolviøintaj Spiritoj 
+mergitaj en la suna lumo; sed la subelvolviĝintaj Spiritoj
 
-estas æirkaýitaj de ia speco de nebulo, kiu Lin kaþas de 
+estas ĝirkaŭitaj de ia speco de nebulo, kiu Lin kaþas de
 
-iliaj okuloj, kaj kiu nur disiøas laýmezure kiel ili elpur- 
-
+iliaj okuloj, kaj kiu nur disiĝas laŭmezure kiel ili elpur-
 
 
-KIO ESTAS SPIRITISMO ? 
-
-151 
+KIO ESTAS SPIRITISMO ?
 
 
+iĝas kaj elmateriiĝas. La malsuperaj Spiritoj estas kon-
 
-iøas kaj elmateriiøas. La malsuperaj Spiritoj estas kon- 
+cerne la vidon de Dio, tiaj, kiaj estas la enkarnuloj pri
 
-cerne la vidon de Dio, tiaj, kiaj estas la enkarnuloj pri 
-
-la Spiritoj, vere blindaj. 
-
+la Spiritoj, vere blindaj.
 
 
 **148. Æu post la morto la animo konscias pri sia **
 
-**individueco; kiel øi konstatas tion kaj kiel ni povas la **
+**individueco; kiel ĝi konstatas tion kaj kiel ni povas la **
 
 **samon konstati? **
 
-****
 
-Se la animoj ne havus sian individuecon post la mor- 
+Se la animoj ne havus sian individuecon post la mor-
 
-to, øi estus por ili kaj por ni absolute la samo kiel se 
+to, ĝi estus por ili kaj por ni absolute la samo kiel se
 
-ili jam ne ekzistus, kaj la moralaj konsekvencoj estus 
+ili jam ne ekzistus, kaj la moralaj konsekvencoj estus
 
-øuste la samaj; ili havus nenian distingigan karakteron, 
+ĝuste la samaj; ili havus nenian distingigan karakteron,
 
-kaj tiu de krimulo estus en la sama rango de tiu de virta 
+kaj tiu de krimulo estus en la sama rango de tiu de virta
 
-homo, el kio rezultus, ke oni havus neniun intereson fari 
+homo, el kio rezultus, ke oni havus neniun intereson fari
 
-la bonon. 
+la bonon.
 
-La individueco de la animo estas malkaþata en ma- 
+La individueco de la animo estas malkaþata en ma-
 
-niero, por tiel diri materiala, en la spiritaj manifestiøoj, 
+niero, por tiel diri materiala, en la spiritaj manifestiĝoj,
 
-per la parolmaniero kaj la kvalitoj apartaj de æiu; æar 
+per la parolmaniero kaj la kvalitoj apartaj de ĝiu; ĝar
 
-ili pensas kaj agas en malsamaj manieroj, unuj estas 
+ili pensas kaj agas en malsamaj manieroj, unuj estas
 
-bonaj kaj aliaj malbonaj, unuj estas kleraj kaj aliaj 
+bonaj kaj aliaj malbonaj, unuj estas kleraj kaj aliaj
 
-malkleraj, unuj volas tion, kion aliaj ne volas, tio estas 
+malkleraj, unuj volas tion, kion aliaj ne volas, tio estas
 
-evidenta pruvo, ke ili ne estas kunfanditaj en homogena 
+evidenta pruvo, ke ili ne estas kunfanditaj en homogena
 
-tuta¼o, ne parolante pri la evidentaj pruvoj, kiujn ili don- 
+tuta¼o, ne parolante pri la evidentaj pruvoj, kiujn ili don-
 
-as al ni esti animintaj tiun aý tiun individuon sur la 
+as al ni esti animintaj tiun aŭ tiun individuon sur la
 
-Tero. Dank’al la eksperimenta Spiritismo, la individueco 
+Tero. Dank’al la eksperimenta Spiritismo, la individueco
 
-de la animo jam ne estas io malpreciza, sed øi jam estas 
+de la animo jam ne estas io malpreciza, sed ĝi jam estas
 
-rezultato de observado. 
+rezultato de observado.
 
-La animo mem konstatas sian individuecon, æar øi 
+La animo mem konstatas sian individuecon, ĝar ĝi
 
-havas siajn penson kaj volon proprajn, diferencajn de 
+havas siajn penson kaj volon proprajn, diferencajn de
 
-tiuj de aliaj. Øi ankaý tion konstatas per sia fluideca 
+tiuj de aliaj. Øi ankaŭ tion konstatas per sia fluideca
 
-envolva¼o aý perispirito, speco de limita korpo, kiu faras 
+envolva¼o aŭ perispirito, speco de limita korpo, kiu faras
 
-øin aparta estulo. 
-
+ĝin aparta estulo.
 
 
-*R i m a r k o *. Certaj personoj supozas þpari al si la riproæ- 
+*R i m a r k o *. Certaj personoj supozas þpari al si la riproĝ-
 
-on de materialismo, akceptante ian universalan inteligentan 
+on de materialismo, akceptante ian universalan inteligentan
 
-pricipon, el kiu ni absorbas parton æe la naskiøo, kio estus 
+pricipon, el kiu ni absorbas parton ĝe la naskiĝo, kio estus
 
-l a a n i m o , p o r ø i n r e d o n i p o s t l a m o r t o a l l a k o m u n a m a s o , kie æiuj animoj kunfandiøas kiel akveroj en la oceano. Æi tiu 
+l a a n i m o , p o r ĝ i n r e d o n i p o s t l a m o r t o a l l a k o m u n a m a s o , kie ĝiuj animoj kunfandiĝas kiel akveroj en la oceano. Æi tiu
 
-sistemo, speco de transiøo, ne meritas eæ la nomon de *spiri- *
+sistemo, speco de transiĝo, ne meritas eĝ la nomon de *spiri- *
 
-*t u a l i s m o*; æar øi estas tiel malespera kiel materialismo mem; tiu komuna rezervujo de la universala tuta¼o estus egala al 
+*t u a l i s m o*; ĝar ĝi estas tiel malespera kiel materialismo mem; tiu komuna rezervujo de la universala tuta¼o estus egala al
 
-la nenia¼o, æar tie jam ne estus individuecoj. 
+la nenia¼o, ĝar tie jam ne estus individuecoj.
 
-152 
 
-ALLAN KARDEC 
-
+ALLAN KARDEC
 
 
 **149. Æu la speco de morto influas la staton de la **
@@ -12558,367 +11634,334 @@ ALLAN KARDEC
 **animo? **
 
 
+La stato de la animo tre konsiderinde varias laŭ la
 
-La stato de la animo tre konsiderinde varias laý la 
+speco de la morto, sed ĝefe laŭ la naturo de la kutimoj
 
-speco de la morto, sed æefe laý la naturo de la kutimoj 
+dum la vivo. Æe natura morto, la liberiĝo okazas laŭ-
 
-dum la vivo. Æe natura morto, la liberiøo okazas laý- 
+grade kaj sen skuoj; ofte ĝi komenciĝas eĝ antaŭ ol la
 
-grade kaj sen skuoj; ofte øi komenciøas eæ antaý ol la 
+vivo estingiĝas. Æe morto perforta, per ekzekuto, mem-
 
-vivo estingiøas. Æe morto perforta, per ekzekuto, mem- 
+mortigo aŭ akcidento, la ligiloj estas abrupte rompitaj;
 
-mortigo aý akcidento, la ligiloj estas abrupte rompitaj; 
+la spirito, senprepare surprizita, estas kvazaŭ senkonscia
 
-la spirito, senprepare surprizita, estas kvazaý senkonscia 
+pro la þanĝo okazinta en li mem, kaj ne klarigas al si
 
-pro la þanøo okazinta en li mem, kaj ne klarigas al si 
+mem sian situacion. Fenomeno pli-malpli konstanta en
 
-mem sian situacion. Fenomeno pli-malpli konstanta en 
+tiu okazo, estas la konv en kiu li troviĝas, ke li ne
 
-tiu okazo, estas la konvinko en kiu li troviøas, ke li ne 
+estas mortinta, kaj ĝi tiu iluzio povas daŭri plurajn mo -
 
-estas mortinta, kaj æi tiu iluzio povas daýri plurajn mo - 
+natojn, kaj eĝ plurajn jarojn. En tia stato li iras tien
 
-natojn, kaj eæ plurajn jarojn. En tia stato li iras tien 
+kaj reen, kaj supozas okupiĝi pri siaj aferoj, kvazaŭ li
 
-kaj reen, kaj supozas okupiøi pri siaj aferoj, kvazaý li 
+estus ankoraŭ de ĝi tiu mondo, tre surpriziĝas kiam oni
 
-estus ankoraý de æi tiu mondo, tre surpriziøas kiam oni 
+ne respondas liajn demandojn. Æi tiu iluzio ne apartenas
 
-ne respondas liajn demandojn. Æi tiu iluzio ne apartenas 
+ekskluzive al la okazoj de perforta morto; oni ĝin trov-
 
-ekskluzive al la okazoj de perforta morto; oni øin trov- 
+as ĝe multaj individuoj, kies vivo estis absorbita per ĝuoj
 
-as æe multaj individuoj, kies vivo estis absorbita per øuoj 
+kaj materiaj interesoj. ("La Libro de la Spiritoj", n-ro
 
-kaj materiaj interesoj. \("La Libro de la Spiritoj", n-ro 
+165. — "Revue Spirite", 1858, paĝo 166: **La memmort- **
 
-165. — "Revue Spirite", 1858, paøo 166: **La memmort- **
+**iginto de la Samaritaine. **— Same, 1858, paĝo 326: **Unu **
 
-**iginto de la Samaritaine. **— Same, 1858, paøo 326: **Unu **
+**Spirito en la ceremonio de la entombigo de lia korpo. ** —
 
-**Spirito en la ceremonio de la entombigo de lia korpo. ** — 
+Same, 1859, paĝo 184: **La Zuavo el Magenta**. — Same,
 
-Same, 1859, paøo 184: **La Zuavo el Magenta**. — Same, 
+1859, paĝo 319: **Unu Spirito, kiu ne kredas sin mortinta**.
 
-1859, paøo 319: **Unu Spirito, kiu ne kredas sin mortinta**. 
+— Same, 1863, paĝo 97: **Franĉois Simon Louvet**.)
 
-— Same, 1863, paøo 97: **Franĉois Simon Louvet**.\) 
 
-****
-
-**150. Kien la animo iras post kiam øi forlasis la **
+**150. Kien la animo iras post kiam ĝi forlasis la **
 
 **korpon? **
 
 
+Øi neniel perdiĝas en la senlimeco de la Infinito, kiel
 
-Øi neniel perdiøas en la senlimeco de la Infinito, kiel 
+oni ordinare imagas al si; ĝi vagas en la spaco, kaj pli
 
-oni ordinare imagas al si; øi vagas en la spaco, kaj pli 
+ofte en la medio de tiuj, kiujn ĝi konis, kaj ĝefe de tiuj,
 
-ofte en la medio de tiuj, kiujn øi konis, kaj æefe de tiuj, 
+kiujn ĝi amis, povante transportiĝi en momento al grand-
 
-kiujn øi amis, povante transportiøi en momento al grand- 
+egaj distancoj.
 
-egaj distancoj. 
-
-****
 
 **151. Æu la animo konservas la korinklinojn, kiujn **
 
-**øi havis sur la Tero? **
+**ĝi havis sur la Tero? **
 
 
-
-Øi konservas æiujn moralajn korinklinojn; øi forges- 
-
+Øi konservas ĝiujn moralajn korinklinojn; ĝi forges-
 
 
-KIO ESTAS SPIRITISMO ? 
-
-153 
+KIO ESTAS SPIRITISMO ?
 
 
+as nur la materialajn inklinojn, kiuj jam ne apartenas al
 
-as nur la materialajn inklinojn, kiuj jam ne apartenas al 
+ĝia esenco; tial ĝi venas feliĝa revidi siajn parencojn kaj
 
-øia esenco; tial øi venas feliæa revidi siajn parencojn kaj 
+amikojn, kaj ĝi sentas ĝojon pro ilia rememoro. ("Revue
 
-amikojn, kaj øi sentas øojon pro ilia rememoro. \("Revue 
+Spirite", 1860, paĝo 202: **La amikoj ne forgesas nin en **
 
-Spirite", 1860, paøo 202: **La amikoj ne forgesas nin en **
+**la alia mondo. ** — Same, 1862, paĝo 132.)
 
-**la alia mondo. ** — Same, 1862, paøo 132.\) 
-
-****
 
 **152. La animo konservas la memoron pri tio, kion **
 
-**øi faris sur la Tero; æu øi interesiøas pri la laboroj, ki- **
+**ĝi faris sur la Tero; ĝu ĝi interesiĝas pri la laboroj, ki- **
 
-**ujn øi lasis nefinitaj? **
+**ujn ĝi lasis nefinitaj? **
 
-****
 
-Tio dependas de øia alteco kaj de la karaktero de 
+Tio dependas de ĝia alteco kaj de la karaktero de
 
-tiuj laboroj. La elmateriiøintaj Spiritoj malmulte pri- 
+tiuj laboroj. La elmateriiĝintaj Spiritoj malmulte pri-
 
-okupiøas pri materiaj aferoj el kiuj ili sentas sin feliæaj 
+okupiĝas pri materiaj aferoj el kiuj ili sentas sin feliĝaj
 
-liberiøi. Koncerne la laborojn, kiujn ili komencis, laý 
+liberiĝi. Koncerne la laborojn, kiujn ili komencis, laŭ
 
-ilia graveco kaj utileco, kelkafoje ili inspiras al aliaj la 
+ilia graveco kaj utileco, kelkafoje ili inspiras al aliaj la
 
-penson ilin fini. 
+penson ilin fini.
 
-****
 
 **153. Æu en la mondo de la Spiritoj la animo ren- **
 
-**kontas siajn parencojn kaj amikojn, kiuj øin antaý- **
+**kontas siajn parencojn kaj amikojn, kiuj ĝin antaŭ- **
 
 **iris tien? **
 
 
+Øi renkontas ne nur tiujn, sed ankaŭ multajn aliajn,
 
-Øi renkontas ne nur tiujn, sed ankaý multajn aliajn, 
+kiujn ĝi konis de siaj antaŭaj ekzistadoj. Ordinare tiuj
 
-kiujn øi konis de siaj antaýaj ekzistadoj. Ordinare tiuj 
+kiuj plej vive amis ĝin, venas akcepti ĝin ĝe ĝia alveno
 
-kiuj plej vive amis øin, venas akcepti øin æe øia alveno 
+en la mondo de la Spiritoj, kaj helpas ĝin liberiĝi el la
 
-en la mondo de la Spiritoj, kaj helpas øin liberiøi el la 
+surteraj ligiloj. Tamen la neebleco vidi la plej karajn
 
-surteraj ligiloj. Tamen la neebleco vidi la plej karajn 
-
-animojn kelkafoje estas puno por kulpuloj. 
-
+animojn kelkafoje estas puno por kulpuloj.
 
 
 **154. Kia estas en la alia vivo la morala kaj inte- **
 
 **lekta stato de la animo de infano mortinta en malalta **
 
-**aøo? Æu øiaj kapabloj estas en infaneco kiel dum la vivo? **
+**aĝo? Æu ĝiaj kapabloj estas en infaneco kiel dum la vivo? **
 
 
+La nekompleta elvolviĝo de la organoj de la infano
 
-La nekompleta elvolviøo de la organoj de la infano 
+ne permesas al la Spirito plene manifestiĝi; liberaj el
 
-ne permesas al la Spirito plene manifestiøi; liberaj el 
+tiu envolva¼o, liaj kapabloj estas tiaj, kiaj ili estis antaŭ la
 
-tiu envolva¼o, liaj kapabloj estas tiaj, kiaj ili estis antaý la 
+enkarniĝo. Æar la Spirito pasigis nur kelkajn momentojn
 
-enkarniøo. Æar la Spirito pasigis nur kelkajn momentojn 
-
-en la vivo, liaj kapabloj ne povis þanøiøi. 
-
-* *
-
-*R i m a r k o *. En la spiritaj komunikiøoj, la Spirito de in - 
-
-fano povas do paroli kiel tiu de matura homo, æar li povas 
-
-esti tre progresinta Spirito. Se li kelkafoje uzas infanan 
-
-lingva¼on, tio estas por ne forpreni de la patrino la æarmon, 
-
-154 
-
-ALLAN KARDEC 
+en la vivo, liaj kapabloj ne povis þanĝiĝi.
 
 
+*R i m a r k o *. En la spiritaj komunikiĝoj, la Spirito de in -
 
-kiu þin ligas per amo al gracila kaj delikata estulo, ornamita 
+fano povas do paroli kiel tiu de matura homo, ĝar li povas
 
-per la gracio de senkulpeco.\(" *Revue Spirite*" , 1 8 5 8 , p a ø o 1 7 : *P a n j o \! . . . m i e s t a s æ i t i e *. \) ** **
+esti tre progresinta Spirito. Se li kelkafoje uzas infanan
 
-La sama demando povante esti farata pri l a i n t e l e k t a 
+lingva¼on, tio estas por ne forpreni de la patrino la ĝarmon,
 
-stato de la animo de kretenoj, idiotoj kaj frenezuloj post la 
 
-m o r t o , ø i t r o v a s r e s p o n d o n e n l a a n t a ý a j k l a r i g o j . 
+ALLAN KARDEC
 
+
+kiu þin ligas per amo al gracila kaj delikata estulo, ornamita
+
+per la gracio de senkulpeco.(" *Revue Spirite*" , 1 8 5 8 , p a ĝ o 1 7 : *P a n j o ! . . . m i e s t a s ĝ i t i e *. ) ** **
+
+La sama demando povante esti farata pri l a i n t e l e k t a
+
+stato de la animo de kretenoj, idiotoj kaj frenezuloj post la
+
+m o r t o , ĝ i t r o v a s r e s p o n d o n e n l a a n t a ŭ a j k l a r i g o j .
 
 
 **155. Kia diferenco ekzistas, post la morto, inter la **
 
-**animoj de scienculo kaj malklerulo, de sovaøulo kaj ci- **
+**animoj de scienculo kaj malklerulo, de sovaĝulo kaj ci- **
 
 **vilizito? **
 
-****
 
-Preskaý la sama diferenco, kiu ekzistis inter ili dum 
+Preskaŭ la sama diferenco, kiu ekzistis inter ili dum
 
-la vivo; æar la eniro en la mondon de la Spiritoj ne donas 
+la vivo; ĝar la eniro en la mondon de la Spiritoj ne donas
 
-al la animo æiujn sciojn, kiuj al øi mankis sur la Tero. 
-
+al la animo ĝiujn sciojn, kiuj al ĝi mankis sur la Tero.
 
 
 **156. Æu la animoj progresas intelekte kaj morale **
 
 **post la morto? **
 
-****
 
-Ili progresas pli aý malpli, laý sia volo, kaj kelkaj 
+Ili progresas pli aŭ malpli, laŭ sia volo, kaj kelkaj
 
-progresas multe; sed ili bezonas meti en praktikon, dum 
+progresas multe; sed ili bezonas meti en praktikon, dum
 
-la enkorpa vivo, tion, kion ili akiris en scienco kaj mo - 
+la enkorpa vivo, tion, kion ili akiris en scienco kaj mo -
 
-raleco. Kiuj restis senprogresaj, tiuj reprenas ian ekzist- 
+raleco. Kiuj restis senprogresaj, tiuj reprenas ian ekzist-
 
-adon analogan al tiu, kiun ili lasis; la progresintoj me- 
+adon analogan al tiu, kiun ili lasis; la progresintoj me-
 
-ritas enkarniøon de pli alta ordo. 
+ritas enkarniĝon de pli alta ordo.
 
-Æar la progreso estas proporcia kun la volo de la 
+Æar la progreso estas proporcia kun la volo de la
 
-Spirito, iuj Spiritoj konservas dum longa tempo la sam- 
+Spirito, iuj Spiritoj konservas dum longa tempo la sam-
 
-ajn gustojn kaj la inklinojn, kiujn ili havis dum la vivo 
+ajn gustojn kaj la inklinojn, kiujn ili havis dum la vivo
 
-kaj tenas la samajn ideojn. \("Revue Spirite", 1858, paøo 
+kaj tenas la samajn ideojn. ("Revue Spirite", 1858, paĝo
 
-82: **La reøino de Oude. ** — Same, paøo 145: **La Spirito **
+82: **La reĝino de Oude. ** — Same, paĝo 145: **La Spirito **
 
-**kaj la heredintoj. ** — Same, paøo 186:** La tamburisto de **
+**kaj la heredintoj. ** — Same, paĝo 186:** La tamburisto de **
 
-**Bérésina. ** — Same. 1859, paøo 344: **Antikva æaristo. ** — 
+**Bérésina. ** — Same. 1859, paĝo 344: **Antikva ĝaristo. ** —
 
-Same, 1860, paøo 325: **Progreso de la Spiritoj. ** —Same, 
+Same, 1860, paĝo 325: **Progreso de la Spiritoj. ** —Same,
 
-1861, paøo 126: **Progreso de perversa Spirito. **\) 
-
+1861, paĝo 126: **Progreso de perversa Spirito. **)
 
 
 **157. Æu la sorto de la homo, en la estonta vivo, **
 
 **estas nenuligeble fiksita post la morto? **
 
-****La nenuligebla fiksado de la sorto de la homo post 
+****La nenuligebla fiksado de la sorto de la homo post
 
-la morto estus la absoluta neado de la justeco kaj de la 
+la morto estus la absoluta neado de la justeco kaj de la
 
-boneco de Dio, æar multaj ne povis sufiæe instruiøi, eæ 
+boneco de Dio, ĝar multaj ne povis sufiĝe instruiĝi, eĝ
 
-se ni ne pensus pri la idiotoj, la kretenoj, la sovaøuloj 
-
-
-
-KIO ESTAS SPIRITISMO ? 
-
-155 
+se ni ne pensus pri la idiotoj, la kretenoj, la sovaĝuloj
 
 
+KIO ESTAS SPIRITISMO ?
 
-kaj la multegaj infanoj, mortintaj antaý ol kompreni la 
 
-vivon. Eæ inter la plej kleraj, æu estas multaj, kiuj povas 
+kaj la multegaj infanoj, mortintaj antaŭ ol kompreni la
 
-juøi sin sufiæe perfektaj por ne bezoni ion plian fari, kaj 
+vivon. Eĝ inter la plej kleraj, ĝu estas multaj, kiuj povas
 
-æu ne estas evidenta pruvo, ke per Sia boneco Dio per- 
+juĝi sin sufiĝe perfektaj por ne bezoni ion plian fari, kaj
 
-mesas al la homo fari morgaý tion, kion li ne povis fari 
+ĝu ne estas evidenta pruvo, ke per Sia boneco Dio per-
 
-hieraý? Se la sorto estas nenuligeble fiksita, kial la hom- 
+mesas al la homo fari morgaŭ tion, kion li ne povis fari
 
-oj mortas en tiel diferencaj aøoj, kaj kial Dio, en Sia 
+hieraŭ? Se la sorto estas nenuligeble fiksita, kial la hom-
 
-justeco, ne lasas al æiuj la tempon necesan por fari kiel 
+oj mortas en tiel diferencaj aĝoj, kaj kial Dio, en Sia
 
-eble plej multe da bono, kaj por ripari la malbonon far- 
+justeco, ne lasas al ĝiuj la tempon necesan por fari kiel
 
-itan? Kiu scias, æu la kulpulo, mortinta tridekjara, ne 
+eble plej multe da bono, kaj por ripari la malbonon far-
 
-estus pentinta kaj fariøinta virta homo, se li estus viv- 
+itan? Kiu scias, ĝu la kulpulo, mortinta tridekjara, ne
 
-inta dum sesdek jaroj? Kial Dio forprenis de li la ri- 
+estus pentinta kaj fariĝinta virta homo, se li estus viv-
 
-medon, dum Li øin konsentis al aliaj? La sola diverseco 
+inta dum sesdek jaroj? Kial Dio forprenis de li la ri-
 
-de la daýro de la vivo kaj la morala stato de la plej 
+medon, dum Li ĝnsentis al aliaj? La sola diverseco
 
-multaj homoj, pruvas la neeblecon, se oni akceptas la 
+de la daŭro de la vivo kaj la morala stato de la plej
 
-justecon de Dio, ke la sorto de la animo estu nenuligeble 
+multaj homoj, pruvas la neeblecon, se oni akceptas la
 
-fiksita post la morto. 
+justecon de Dio, ke la sorto de la animo estu nenuligeble
 
+fiksita post la morto.
 
 
 **158. Kia estas, en la estonta vivo, la sorto de la **
 
-**infanoj mortintaj en malgranda aøo? **
+**infanoj mortintaj en malgranda aĝo? **
 
-****
 
-Æi tiu demando estas unu el tiuj, kiuj plej bone pruv- 
+Æi tiu demando estas unu el tiuj, kiuj plej bone pruv-
 
-as la justecon kaj la bezonon de la plureco de la ekzist- 
+as la justecon kaj la bezonon de la plureco de la ekzist-
 
-adoj. Animo vivinta nur kelkajn momentojn, ne farinte 
+adoj. Animo vivinta nur kelkajn momentojn, ne farinte
 
-bonon nek malbonon, ne meritus rekompencon nek pun- 
+bonon nek malbonon, ne meritus rekompencon nek pun-
 
-on; laý la maksimo de la Kristo, ke **æiu estas punata **
+on; laŭ la maksimo de la Kristo, ke **ĝiu estas punata **
 
-**aý rekompencata laý siaj faroj**, estus tiel mallogike kiel 
+**aŭ rekompencata laŭ siaj faroj**, estus tiel mallogike kiel
 
-kontraýe al la justeco de Dio, ke, sen laboro, øi estus 
+kontraŭe al la justeco de Dio, ke, sen laboro, ĝi estus
 
-vokita por øui la perfektan feliæon de la anøeloj, aý ke 
+vokita por ĝui la perfektan feliĝon de la anĝeloj, aŭ ke
 
-øi povus esti senigita je tiu feliæo, **kaj tamen øi devas **
+ĝi povus esti senigita je tiu feliĝo, **kaj tamen ĝi devas **
 
-**havi ian ajn sorton; ** nedifinita stato, por la eterneco, est- 
+**havi ian ajn sorton; ** nedifinita stato, por la eterneco, est-
 
-us tute egale maljusta. Æar ekzistado interrompita tuj 
+us tute egale maljusta. Æar ekzistado interrompita tuj
 
-en sia komenco ne povas do havi ian konsekvencon por 
+en sia komenco ne povas do havi ian konsekvencon por
 
-la animo, øia nuna sorto estas tiu sama, kiun øi meritis 
+la animo, ĝia nuna sorto estas tiu sama, kiun ĝi meritis
 
-en sia antaýa ekzistado, kaj øia estonta sorto estos tiu, 
+en sia antaŭa ekzistado, kaj ĝia estonta sorto estos tiu,
 
-kiun øi meritos per siaj postaj ekzistadoj. 
-
+kiun ĝi meritos per siaj postaj ekzistadoj.
 
 
 **159. Æu la animoj havas okupojn en la alia vivo? **
 
-**Æu ili okupiøas de aliaj aferoj krom siaj øojoj aý siaj **
+**Æu ili okupiĝas de aliaj aferoj krom siaj ĝojoj aŭ siaj **
 
 **suferoj? **
 
-156 
 
-ALLAN KARDEC 
-
+ALLAN KARDEC
 
 
-Se la animoj okupiøus nur pri si mem en la Etern- 
+Se la animoj okupiĝus nur pri si mem en la Etern-
 
-eco, æi tio estus egoismo, kaj Dio, kiu kondamnas la 
+eco, ĝi tio estus egoismo, kaj Dio, kiu kondamnas la
 
-egoismon, ne povus aprobi en la spirita vivo tion, kion 
+egoismon, ne povus aprobi en la spirita vivo tion, kion
 
-Li punas en la korpa vivo. La animoj aý Spiritoj hav- 
+Li punas en la korpa vivo. La animoj aŭ Spiritoj hav-
 
-as okupojn laý sia grado da progreso, dum samtempe ili 
+as okupojn laŭ sia grado da progreso, dum samtempe ili
 
-penas instruiøi kaj pliboniøi. \("La Libro de la Spiritoj", 
+penas instruiĝi kaj pliboniĝi. ("La Libro de la Spiritoj",
 
-n-ro 558: **Okupoj kaj misioj de la Spiritoj**.\) 
-
+n-ro 558: **Okupoj kaj misioj de la Spiritoj**.)
 
 
 **160. En kio konsistas la suferoj de la animo post **
@@ -12927,459 +11970,399 @@ n-ro 558: **Okupoj kaj misioj de la Spiritoj**.\)
 
 **teriaj flamoj? **
 
-****
 
-La Eklezio plene rekonas hodiaý, ke la fajro de la 
+La Eklezio plene rekonas hodiaŭ, ke la fajro de la
 
-Infero estas morala kaj ne materiala fajro, sed øi ne di- 
+Infero estas morala kaj ne materiala fajro, sed ĝi ne di-
 
-finas la naturon de la suferoj. La spiritaj komunikiøoj 
+finas la naturon de la suferoj. La spiritaj komunikiĝoj
 
-metas ilin sub niajn okulojn; per tiu rimedo ni povas 
+metas ilin sub niajn okulojn; per tiu rimedo ni povas
 
-ilin taksi kaj konvinkiøi, ke, kvankam ili ne rezultas el 
+ilin taksi kaj konvinkiĝi, ke, kvankam ili ne rezultas el
 
-materia fajro, kiu efektive ne povus bruligi nemateriajn 
+materia fajro, kiu efektive ne povus bruligi nemateriajn
 
-animojn, en certaj okazoj ili ne estas malpli teruraj. Tiuj 
+animojn, en certaj okazoj ili ne estas malpli teruraj. Tiuj
 
-punoj neniel estas unuformaj; ili varias senlime laý 
+punoj neniel estas unuformaj; ili varias senlime laŭ
 
-la karaktero kaj la grado de la faritaj pekoj, kaj preskaý 
+la karaktero kaj la grado de la faritaj pekoj, kaj preskaŭ
 
-æiam la pekoj mem funkcias kiel punoj: tiel iuj murd- 
+ĝiam la pekoj mem funkcias kiel punoj: tiel iuj murd-
 
-intoj estas devigataj resti en la loko mem de la krimo 
+intoj estas devigataj resti en la loko mem de la krimo
 
-kaj senæese vidi siajn viktimojn sub siaj okuloj; la vo- 
+kaj senĝese vidi siajn viktimojn sub siaj okuloj; la vo-
 
-luptulo øuema de maldelikataj materiaj sensacioj de sen- 
+luptulo ĝuema de maldelikataj materiaj sensacioj de sen-
 
-sualismo, konservas tiujn samajn gustojn, sed ne havas 
+sualismo, konservas tiujn samajn gustojn, sed ne havas
 
-la eblecon ilin materiale kontentigi kaj æi tio estas tor- 
+la eblecon ilin materiale kontentigi kaj ĝi tio estas tor-
 
-turado por li; iuj avaruloj supozas suferi la malvarmon 
+turado por li; iuj avaruloj supozas suferi la malvarmon
 
-kaj la seniøojn, kiujn ili eltenis dum la vivo pro avar- 
+kaj la seniĝojn, kiujn ili eltenis dum la vivo pro avar-
 
-eco; aliaj restas apud la trezoroj, kiujn ili enterigis, tur- 
+eco; aliaj restas apud la trezoroj, kiujn ili enterigis, tur-
 
-mentataj senæese de la timego, ke oni ilin forprenos; 
+mentataj senĝese de la timego, ke oni ilin forprenos;
 
-unuvorte, ne ekzistas unu malvirto, unu morala malper- 
+unuvorte, ne ekzistas unu malvirto, unu morala malper-
 
-fekta¼o, unu malbona ago, kiu ne havas sian kompens- 
+fekta¼o, unu malbona ago, kiu ne havas sian kompens-
 
-a¼on kaj siajn naturajn konsekvencojn en la mondo de 
+a¼on kaj siajn naturajn konsekvencojn en la mondo de
 
-la Spiritoj; kaj tial ne estas necesa ia limigita kaj æir- 
+la Spiritoj; kaj tial ne estas necesa ia limigita kaj ĝir-
 
-kaýita loko: æie, kie li troviøas, la perversa Spirito port- 
+kaŭita loko: ĝie, kie li troviĝas, la perversa Spirito port-
 
-as kun si sian suferon. 
+as kun si sian suferon.
 
-Krom la spiritaj punoj, estas ankaý la punoj kaj 
+Krom la spiritaj punoj, estas ankaŭ la punoj kaj
 
-provoj materiaj, kiujn la neelpurigita Spirito suferas en 
+provoj materiaj, kiujn la neelpurigita Spirito suferas en
 
-nova enkarniøo, dum kiu li estas lokita en kondiæojn por 
-
+nova enkarniĝo, dum kiu li estas lokita en kondiĝojn por
 
 
-KIO ESTAS SPIRITISMO ? 
-
-157 
+KIO ESTAS SPIRITISMO ?
 
 
+suferi tion, kion ili igis aliajn suferi: esti humiligita, se
 
-suferi tion, kion ili igis aliajn suferi: esti humiligita, se 
+li estis orgojla; mizera, se li estis malbona riĝulo; mal-
 
-li estis orgojla; mizera, se li estis malbona riæulo; mal- 
+feliĝa pro siaj infanoj, se li estis malbona filo, ktp.
 
-feliæa pro siaj infanoj, se li estis malbona filo, ktp. 
+Kiel ni diris, la Tero estas unu el la lokoj de ekzilo
 
-Kiel ni diris, la Tero estas unu el la lokoj de ekzilo 
+kaj pentofaro, **iu purgatorio**, por la Spiritoj korektendaj,
 
-kaj pentofaro, **iu purgatorio**, por la Spiritoj korektendaj, 
+al kiu dependas de ĝiu el ni ne plu reveni, pliboniĝante
 
-al kiu dependas de æiu el ni ne plu reveni, pliboniøante 
+sufiĝe por meriti pli bonan mondon. ("La Libro de la
 
-sufiæe por meriti pli bonan mondon. \("La Libro de la 
+Spiritoj"`, n-ro 237: **Perceptoj, sensacioj kaj suferoj de **
 
-Spiritoj"\`, n-ro 237: **Perceptoj, sensacioj kaj suferoj de **
+**la Spiritoj. ** — Same, 4ª. parto: **Esperoj kaj konsoloj; estontaj suferoj kaj ĝuoj. ** — "Revue Spirite", 1858, paĝo 79: **La murdinto Lemaire. **— Same, 1858, paĝo 166: **La **
 
-**la Spiritoj. ** — Same, 4ª. parto: **Esperoj kaj konsoloj; estontaj suferoj kaj øuoj. ** — "Revue Spirite", 1858, paøo 79: **La murdinto Lemaire. **— Same, 1858, paøo 166: **La **
+**memmortiginto de la Samaritaine. **— Same, 1858, paĝo
 
-**memmortiginto de la Samaritaine. **— Same, 1858, paøo 
+331: **Sensacioj de la Spiritoj. ** — Same, 1859, paĝo 275:
 
-331: **Sensacioj de la Spiritoj. ** — Same, 1859, paøo 275: 
+**Pastro Crépin. **— Same, 1860, paĝo 61: **Estelle Régnier. **
 
-**Pastro Crépin. **— Same, 1860, paøo 61: **Estelle Régnier. ** 
+— Same, 1860, paĝo 247: **La memmortiginto de Strato **
 
-— Same, 1860, paøo 247: **La memmortiginto de Strato **
+**Quincampoix. ** — Same, 1860, paĝo 316: **La puno. ** — Same, 1860, paĝo 325: **Eniro de kulpulo en la mondon de la **
 
-**Quincampoix. ** — Same, 1860, paøo 316: **La puno. ** — Same, 1860, paøo 325: **Eniro de kulpulo en la mondon de la **
+**Spiritoj. ** — Same, 1860, paĝo 384: **Puno de egoisto. **—
 
-**Spiritoj. ** — Same, 1860, paøo 384: **Puno de egoisto. **— 
+Same, 1861, paĝo 53: **Memmortigo de ateisto. **— Same,
 
-Same, 1861, paøo 53: **Memmortigo de ateisto. **— Same, 
-
-1861, paøo 270: **La rebata puno. **\) 
-
+1861, paĝo 270: **La rebata puno. **)
 
 
-**161. Æu la preøo estas utila por la suferantaj **
+**161. Æu la preĝo estas utila por la suferantaj **
 
 **animoj? **
 
-****
 
-La preøo estas rekomendata de æiuj bonaj Spiritoj; 
+La preĝo estas rekomendata de ĝiuj bonaj Spiritoj;
 
-cetere, øi estas petata de la malperfektaj Spiritoj kiel ri- 
+cetere, ĝi estas petata de la malperfektaj Spiritoj kiel ri-
 
-medo por faciligi iliajn suferojn. La animo, por kiu oni 
+medo por faciligi iliajn suferojn. La animo, por kiu oni
 
-preøas, øuas faciligon, æar preøo estas atesto de intereso, 
+preĝas, ĝuas faciligon, ĝar preĝo estas atesto de intereso,
 
-kaj la malfeliæulo estas æiam kvietigata, kiam li trovas 
+kaj la malfeliĝulo estas ĝiam kvietigata, kiam li trovas
 
-karitemajn korojn, kiuj kompatas liajn dolorojn. Cetere, 
+karitemajn korojn, kiuj kompatas liajn dolorojn. Cetere,
 
-per la preøo oni ekscitas la penson kaj la deziron fari 
+per la preĝo oni ekscitas la penson kaj la deziron fari
 
-tion, kio estas necesa, por esti feliæa; tiel oni povas mal- 
+tion, kio estas necesa, por esti feliĝa; tiel oni povas mal-
 
-longigi lian punon, se liaflanke li helpas per sia bona 
+longigi lian punon, se liaflanke li helpas per sia bona
 
-volo. \("La Libro de la Spiritoj", n-ro 664. — "Revue 
+volo. ("La Libro de la Spiritoj", n-ro 664. — "Revue
 
-Spirite", 1859, paøo 315: **Efikoj de la preøo super su- **
+Spirite", 1859, paĝo 315: **Efikoj de la preĝo super su- **
 
-**ferantaj Spiritoj. **\) 
-
+**ferantaj Spiritoj. **)
 
 
-**162. En kio konsistas la øuoj de la feliæaj animoj? **
+**162. En kio konsistas la ĝuoj de la feliĝaj animoj? **
 
 **Æu ili pasigas la eternecon en kontemplado? **
 
-****
 
-La justeco postulas, ke la rekompenco estu proporcia 
-
-158 
-
-ALLAN KARDEC 
+La justeco postulas, ke la rekompenco estu proporcia
 
 
-
-je la merito, same kiel la puno je la graveco de la peko; 
-
-estas do nekalkuleblaj gradoj en la øuado de la animo, 
-
-de la momento kiam øi eniras en la vojon de la bono øis 
-
-kiam øi atingas la perfektecon. 
-
-La feliæo de la bonaj Spiritoj konsistas en la kono 
-
-de æiuj aferoj, ne havi malamon, nek ¼aluzon, nek envion, 
-
-nek ambicion kaj nenian el la pasioj, kiuj faras la mal- 
-
-feliæon de la homoj. La amo, kiu ilin unuigas, estas por 
-
-ili la fonto de superega feliæo. Ili ne havas niajn bezo- 
-
-nojn, nek suferojn, nek angorojn de la materia vivo. La 
-
-stato de æiama kontemplado estus stultega, monotona 
-
-feliæo; øi estus la feliæo de la egoistoj, æar ilia ekzisto 
-
-estus s enfina nuleco. 
-
-Kontraýe, la spirita vivo estas senæesa aktiveco per 
-
-la misioj, kiujn la Spiritoj ricevas de la Plej Alta Estulo, 
-
-kiel Liaj agentoj en la regado de la universoj; misioj 
-
-proporciaj je ilia progreso, kaj pri kiuj ili estas feliæaj, 
-
-æar tiuj misioj liveras al ili okazojn esti utilaj kaj fari 
-
-la bonon. \("La Libro de la Spiritoj", n-ro 558: **Okupoj **
-
-**kaj misioj de la Spiritoj. **— "Revue Spirite", 1860, paøoj 321 kaj 322: **La puraj Spiritoj; la loøejo de la feliæegaj. ** 
-
-— Same, 1861, paøo 179: **Madame Gourdon**.\) 
+ALLAN KARDEC
 
 
+je la merito, same kiel la puno je la graveco de la peko;
 
-*R i m a r k o *. Ni invitas la kontraýulojn de Spiritismo kaj 
+estas do nekalkuleblaj gradoj en la ĝuado de la animo,
 
-tiujn, kiuj ne akceptas la reenkarniøon, doni al la supraj pro- 
+de la momento kiam ĝi eniras en la vojon de la bono ĝis
 
-blemoj solvon pli logikan per æiu alia principo krom tiu de 
+kiam ĝi atingas la perfektecon.
 
-la plureco de la ekzistadoj. 
+La feliĝo de la bonaj Spiritoj konsistas en la kono
+
+de ĝiuj aferoj, ne havi malamon, nek ¼aluzon, nek envion,
+
+nek ambicion kaj nenian el la pasioj, kiuj faras la mal-
+
+feliĝon de la homoj. La amo, kiu ilin unuigas, estas por
+
+ili la fonto de superega feliĝo. Ili ne havas niajn bezo-
+
+nojn, nek suferojn, nek angorojn de la materia vivo. La
+
+stato de ĝiama kontemplado estus stultega, monotona
+
+feliĝo; ĝi estus la feliĝo de la egoistoj, ĝar ilia ekzisto
+
+estus s enfina nuleco.
+
+Kontraŭe, la spirita vivo estas senĝesa aktiveco per
+
+la misioj, kiujn la Spiritoj ricevas de la Plej Alta Estulo,
+
+kiel Liaj agentoj en la regado de la universoj; misioj
+
+proporciaj je ilia progreso, kaj pri kiuj ili estas feliĝaj,
+
+ĝar tiuj misioj liveras al ili okazojn esti utilaj kaj fari
+
+la bonon. ("La Libro de la Spiritoj", n-ro 558: **Okupoj **
+
+**kaj misioj de la Spiritoj. **— "Revue Spirite", 1860, paĝoj 321 kaj 322: **La puraj Spiritoj; la loĝejo de la feliĝegaj. **
+
+— Same, 1861, paĝo 179: **Madame Gourdon**.)
 
 
+*R i m a r k o *. Ni invitas la kontraŭulojn de Spiritismo kaj
+
+tiujn, kiuj ne akceptas la reenkarniĝon, doni al la supraj pro-
+
+blemoj solvon pli logikan per ĝiu alia principo krom tiu de
+
+la plureco de la ekzistadoj.
 
 
+F I N O
 
-F I N O 
-
-****
-
-
-
-****
-
-****
 
 **La Komenco de la Historio **
 
 
+En la jaro 1848, en la vilaĝeto Hydesville, Þtato Nov-
 
-En la jaro 1848, en la vilaøeto Hydesville, Þtato Nov- 
+Jorko, Usono, loĝis John D. Fox kun sia edzino Margaret
 
-Jorko, Usono, loøis John D. Fox kun sia edzino Margaret 
+kaj du filinoj: — M a r g a r e t t a , 1 5 - jara, kaj Katie, 12- jara.
 
-kaj du filinoj: — M a r g a r e t t a , 1 5 - jara, kaj Katie, 12- jara. 
+En la nokto de 31 de Marto de tiu jaro la knabinoj ek-
 
-En la nokto de 31 de Marto de tiu jaro la knabinoj ek- 
+timis pro fortaj frapoj sur la muroj de ilia dormoĝambro, kaj
 
-timis pro fortaj frapoj sur la muroj de ilia dormoæambro, kaj 
+enkuris en la ĝambron de siaj gepatroj
 
-enkuris en la æambron de siaj gepatroj 
+S- ro John D. Fox eliris kaj rigardis ĝirkaŭ la domo, sed
 
-S- ro John D. Fox eliris kaj rigardis æirkaý la domo, sed 
+neniu estis tie. La frapado tamen daŭre ripetadis plu. Iom
 
-neniu estis tie. La frapado tamen daýre ripetadis plu. Iom 
+p o s t i o m l a k n a b i n o j k o n v i n k i ĝ i s , k e l a f r a p a n t o n e e s t a s danĝera, forpelis la timon kaj alparolis lin. Per interkonsentita nombro da frapoj li respondis la demandojn pri ciferoj
 
-p o s t i o m l a k n a b i n o j k o n v i n k i ø i s , k e l a f r a p a n t o n e e s t a s danøera, forpelis la timon kaj alparolis lin. Per interkonsentita nombro da frapoj li respondis la demandojn pri ciferoj 
+— aĝo, nombro da infanoj k. s. — ĝiam ĝuste. Oni proponis
 
-— aøo, nombro da infanoj k. s. — æiam øuste. Oni proponis 
+al li interkonsentitan abocon per frapoj kaj li rakontis sian
 
-al li interkonsentitan abocon per frapoj kaj li rakontis sian 
+p r o p r a n h i s t o r i o n . L i e s t i s k o l p o r t i s t o 3 1 - j a r a , n o m a t a C h a r -
 
-p r o p r a n h i s t o r i o n . L i e s t i s k o l p o r t i s t o 3 1 - j a r a , n o m a t a C h a r - 
+les Rosma, havis kvin infanojn: tri knabinojn kaj du knab-
 
-les Rosma, havis kvin infanojn: tri knabinojn kaj du knab- 
+ojn. Antaŭ kvin jaroj oni murdis lin en tiu domo por rabi
 
-ojn. Antaý kvin jaroj oni murdis lin en tiu domo por rabi 
+kvincent dolarojn, kiujn li tenis. Lian kadavron oni enter-
 
-kvincent dolarojn, kiujn li tenis. Lian kadavron oni enter- 
+igis en la kelo de tiu domo.
 
-igis en la kelo de tiu domo. 
+La familio Fox kaj ties najbaroj fosis en la kelo por ser-
 
-La familio Fox kaj ties najbaroj fosis en la kelo por ser- 
+ĝi la kadavron, sed la loko estis marĝa kaj akvo kun koto
 
-æi la kadavron, sed la loko estis maræa kaj akvo kun koto 
+inundis ĝiun fosa¼on. Oni devis forlasi tiun klopodadon ne
 
-inundis æiun fosa¼on. Oni devis forlasi tiun klopodadon ne 
+t r o v i n t e l a k a d a v r o n .
 
-t r o v i n t e l a k a d a v r o n . 
+La knabinoj forvojaĝis: Margaretta iris al Rochester,
 
-La knabinoj forvojaøis: Margaretta iris al Rochester, 
+N. J., en la hejmon de sia edzinigita fratino S- ino Fish; Katie
 
-N. J., en la hejmon de sia edzinigita fratino S- ino Fish; Katie 
+veturis al najbara urbo.
 
-veturis al najbara urbo. 
+En ambaŭ lokoj la frapoj komenciĝis kaj aliaj personoj
 
-En ambaý lokoj la frapoj komenciøis kaj aliaj personoj 
+k o n s t a t i s , k e a n k a ŭ i l i h a v a s l a p o v o n r i c e v i t i a j n i n t e l i g e n t -
 
-k o n s t a t i s , k e a n k a ý i l i h a v a s l a p o v o n r i c e v i t i a j n i n t e l i g e n t - 
+ajn frapojn. Tiuj provoj fariĝis epidemio en Usono kaj trans-
 
-ajn frapojn. Tiuj provoj fariøis epidemio en Usono kaj trans- 
+saltis la oceanojn kaj disvastiĝis en Anglujo, Francujo k. a.
 
-saltis la oceanojn kaj disvastiøis en Anglujo, Francujo k. a. 
+landoj tra la mondo.
 
-landoj tra la mondo. 
 
-160 
+ALLAN KARDEC
 
-ALLAN KARDEC 
 
+Oni forte kalumniis la fratinojn Fox, sed malgraŭ tio la
 
+frapoj furoris tra la mondo kaj tiel naskiĝis Spiritismo.
 
-Oni forte kalumniis la fratinojn Fox, sed malgraý tio la 
+Nur 56 jarojn pli poste, kiam la frapoj en Hydesville j a m
 
-frapoj furoris tra la mondo kaj tiel naskiøis Spiritismo. 
+estis tute forgesitaj, iu okazinta¼o pravigis la historion de
 
-Nur 56 jarojn pli poste, kiam la frapoj en Hydesville j a m 
+Charles Rosma.
 
-estis tute forgesitaj, iu okazinta¼o pravigis la historion de 
+L a 2 3 - an de , la "Boston Journal" publik -
 
-Charles Rosma. 
+igis artikolon pri la eltrovo de homa skeleto en la kelo de
 
-L a 2 3 - an de Novembro 1904, la "Boston Journal" publik - 
+ruinigita domo de Hydesville. La iama loĝejo de familio
 
-igis artikolon pri la eltrovo de homa skeleto en la kelo de 
+F o x estis nun forlasita ruina¼o kaj iuj knaboj, revenantaj el
 
-ruinigita domo de Hydesville. La iama loøejo de familio 
+lernejo, tie haltis por ludi en la ruinoj, kaj konstatis, ke en
 
-F o x estis nun forlasita ruina¼o kaj iuj knaboj, revenantaj el 
+la kelo estis falinta interna muro, iam starigita paralele kun
 
-lernejo, tie haltis por ludi en la ruinoj, kaj konstatis, ke en 
+la ekstera, kaj inter tiuj du muroj kuþis homa skeleto kaj
 
-la kelo estis falinta interna muro, iam starigita paralele kun 
+f e r a k o f r o .
 
-la ekstera, kaj inter tiuj du muroj kuþis homa skeleto kaj 
+T iuj estis la resta¼oj de Charles Rosma, murdita tie an-
 
-f e r a k o f r o . 
+taŭ 61 jaroj, fare de antaŭaj loĝantoj en tiu domo nun ruin -
 
-T iuj estis la resta¼oj de Charles Rosma, murdita tie an- 
+igita.
 
-taý 61 jaroj, fare de antaýaj loøantoj en tiu domo nun ruin - 
+La fosado en la kelo neniam trovus la kadavron, ĝar ĝi
 
-igita. 
+kuþis post la interna muro de la kelo, dum oni fosis nur
 
-La fosado en la kelo neniam trovus la kadavron, æar øi 
+i n t e r n e , s u p o z a n t e , ke tiu muro estis ekstera.
 
-kuþis post la interna muro de la kelo, dum oni fosis nur 
+La asertoj de la mortinto estis do veraj kaj similaj faktoj
 
-i n t e r n e , s u p o z a n t e , ke tiu muro estis ekstera. 
+okazas ĝis nun en aliaj lokoj de la mondo. Spiritismo renask -
 
-La asertoj de la mortinto estis do veraj kaj similaj faktoj 
+iĝas ĝiam, ĝar ĝia fundamento estas naturaj faktoj, kiuj ĝiam
 
-okazas øis nun en aliaj lokoj de la mondo. Spiritismo renask - 
+ripetiĝas.
 
-iøas æiam, æar øia fundamento estas naturaj faktoj, kiuj æiam 
+Nun ekzistas tre riĝa kaj bela mediumeca literaturo, kiu
 
-ripetiøas. 
+kreskas kun ĝiu tago.
 
-Nun ekzistas tre riæa kaj bela mediumeca literaturo, kiu 
+Tiuj faktoj estas eternaj. Ties neperfekta observado
 
-kreskas kun æiu tago. 
+naskis la malnovajn mitologiojn, religiojn, superstiĝojn; ilia
 
-Tiuj faktoj estas eternaj. Ties neperfekta observado 
+pli detala studado em nia tempo estas la kreskanta vivo de
 
-naskis la malnovajn mitologiojn, religiojn, superstiæojn; ilia 
+Spiritismo.
 
-pli detala studado em nia tempo estas la kreskanta vivo de 
+Studante tiujn faktojn, Allan Kardec publikigis de 1857
 
-Spiritismo. 
+ĝis 1869 tre interesajn librojn, el kiuj jam aperis en Es-
 
-Studante tiujn faktojn, Allan Kardec publikigis de 1857 
+peranto la plej gravaj, nome “La Libro de la Spiritoj”, “La
 
-øis 1869 tre interesajn librojn, el kiuj jam aperis en Es- 
+Libro de la Mediumoj”, “La Evangelio laŭ Spiritismo”.
 
-peranto la plej gravaj, nome “La Libro de la Spiritoj”, “La 
+Æar la faktoj nun nomataj spiritismaj ripetiĝas spon t a-
 
-Libro de la Mediumoj”, “La Evangelio laý Spiritismo”. 
+nee en ĝiuj lokoj kaj en ĝiuj tempoj, Spiritismo nepre varbos
 
-Æar la faktoj nun nomataj spiritismaj ripetiøas spon t a- 
+al si en la estonteco la tutan mondon, simile kiel ĝiuj aliaj
 
-nee en æiuj lokoj kaj en æiuj tempoj, Spiritismo nepre varbos 
+vera¼oj apogataj sur faktoj. Øi ne estas ia religia sekto de
 
-al si en la estonteco la tutan mondon, simile kiel æiuj aliaj 
+iuj homoj, kiel tiom da aliaj. En la estonteco ĝi apartenos
 
-vera¼oj apogataj sur faktoj. Øi ne estas ia religia sekto de 
+al ĝiuj.
 
-iuj homoj, kiel tiom da aliaj. En la estonteco øi apartenos 
 
-al æiuj. 
+KIO ESTAS SPIRITISMO ?
 
 
+Æiuj atakoj, kontraŭdiroj, persekutoj, kalumnioj estos van-
 
-KIO ESTAS SPIRITISMO ? 
+aj kaj tiel ridindaj kiel la iama malkonsento pri la movoj
 
-161 
+de la Tero kaj pri ekzisto de antipodanoj.
 
+Nur nescio fanatike neas sen antaŭa studado de la temo
 
+diskutata.
 
-Æiuj atakoj, kontraýdiroj, persekutoj, kalumnioj estos van- 
-
-aj kaj tiel ridindaj kiel la iama malkonsento pri la movoj 
-
-de la Tero kaj pri ekzisto de antipodanoj. 
-
-Nur nescio fanatike neas sen antaýa studado de la temo 
-
-diskutata. 
-
-****
 
 **La Trad. **
 
-**\* **
 
-****
-
-PRI LA TRADUKO 
+PRI LA TRADUKO
 
 
+*N i a k a r m e m o r a s a m i d e a n o P r o f . D- ro L. C. Porto Car-reiro Neto subite mortis, la 21- n a d e J u l i o 1 9 6 4 , k i a m l i e s t i s* *f a r a n t a l a m a l n e t o n p o r l a t r a d u k o d e ĝ i t i u b o n e g a l i b r o . *
 
-*N i a k a r m e m o r a s a m i d e a n o P r o f . D- ro L. C. Porto Car-reiro Neto subite mortis, la 21- n a d e J u l i o 1 9 6 4 , k i a m l i e s t i s* *f a r a n t a l a m a l n e t o n p o r l a t r a d u k o d e æ i t i u b o n e g a l i b r o . *
+*K v a n k a m n e p o s e d a n t e l i a n k o m p e t e n t e c o n m i d e v i s f i n i* *l a t r a d u k a d o n k a j e l d o n i l a l i b r o n ; t i a l l a k l e r a j l e g a n t o j* *a t e n t o s , k e l a d u a d u o n o d e l a l i b r o n e e s t a s t i e l e l e g a n t e* *t r a d u k i t a k i e l l a u n u a p a r t o , s e d m i e s p e r a s , k e a n k a ŭ m i a* *traduko estas tre fidela al la originalo. *
 
-*K v a n k a m n e p o s e d a n t e l i a n k o m p e t e n t e c o n m i d e v i s f i n i* *l a t r a d u k a d o n k a j e l d o n i l a l i b r o n ; t i a l l a k l e r a j l e g a n t o j* *a t e n t o s , k e l a d u a d u o n o d e l a l i b r o n e e s t a s t i e l e l e g a n t e* *t r a d u k i t a k i e l l a u n u a p a r t o , s e d m i e s p e r a s , k e a n k a ý m i a* *traduko estas tre fidela al la originalo. *
-
-* *
 
 *I . G . B . *
 
-* *
 
-* *
-
-* *
-
-\_\_\_\_\_\_\_\_\_\_\_ 
-
-* *
-
-!(images/000002.jpg)
-
-!(images/000005.jpg)
-
-!(images/000004.jpg)
+___________
 
 
+Aliaj senpagaj verkoj de **Allan Kardec **en **Esperanto**:
 
-Aliaj senpagaj verkoj de **Allan Kardec **en **Esperanto**: 
-
-****
 
 **LA LIBRO DE LA SPIRITOJ **
 
 **http://www.febnet.org.br/pdf/esperant/spiritoj.pdf **
 
-enhavanta la principojn de la **Spiritisma Doktrino **pri la senmorteco de la animo, la naturo de la Spiritoj kaj ties rilatoj kun la homoj, la moralaj leøoj, la nuntempa vivo, la estonta vivo kaj la estonteco de la homaro, laý la instruado donita de la Superaj Spiritoj pere de pluraj mediumoj, kolektitajn kaj ordigitajn de **ALLAN KARDEC. ** 
-
-
-
+enhavanta la principojn de la **Spiritisma Doktrino **pri la senmorteco de la animo, la naturo de la Spiritoj kaj ties rilatoj kun la homoj, la moralaj leĝoj, la nuntempa vivo, la estonta vivo kaj la estonteco de la homaro, laŭ la instruado donita de la Superaj Spiritoj pere de pluraj mediumoj, kolektitajn kaj ordigitajn de **ALLAN KARDEC. **
 
 
 **LA EVANGELIO LAÝ SPIRITISMO **
 
 **http://www.febnet.org.br/pdf/esperant/evangelio.pdf **
 
-enhavanta la eksplikadon de la moralaj maksimoj de la Kristo, ilian 
+enhavanta la eksplikadon de la moralaj maksimoj de la Kristo, ilian
 
 konformecon kun Spiritismo kaj ilian aplikadon al la diversaj situacioj de la vivo. ** **
-
-
-
 
 
 **LA LIBRO DE LA MEDIUMOJ **
 
 **http://www.febnet.org.br/pdf/mediumoj.pdf **
 
-enhavanta la specialan instruadon de la Spiritoj pri la teorio de æiaspecaj manifestiøoj, la rimedojn de komunikado kun la nevidebla mondo, la 
+enhavanta la specialan instruadon de la Spiritoj pri la teorio de ĝiaspecaj manifestiĝoj, la rimedojn de komunikado kun la nevidebla mondo, la
 
-disvolviøon de la mediumeco, la malfacila¼ojn kaj rifojn, kiujn oni povas renkonti en la praktikado de Spiritismo. 
-
-
-
+disvolviĝon de la mediumeco, la malfacila¼ojn kaj rifojn, kiujn oni povas renkonti en la praktikado de Spiritismo.
 
 
 # Document Outline
 
 + Untitled
-

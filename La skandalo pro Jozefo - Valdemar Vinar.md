@@ -1,33 +1,15 @@
-% La skandalo pro Jozefo
-% Valdemar Vinar
-
-!(images/000001.jpg)
-
-
-LA SKANDALO PRO JOZEFO
-
-eLIBRO
-
-eLIBRO
-
-*Valdemar Vinaæ*
+*Valdemar Vinaĝ*
 
 **La skandalo**
 
 
-
 ## **pro Jozefo**
 
-### I N K O
-
-1
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-*Valdemar Vinaæ*
-
+*Valdemar Vinaĝ*
 
 
 ## **LA SKANDALO PRO JOZEFO**
@@ -38,37 +20,28 @@ eLIBRO
 
 *Aperis en * Panoramo, *literatura*
 
-*almanako de * Starto. 
+*almanako de * Starto.
 
 *Skanis kaj tekstigis Miroslav Malovec*
 
-eLIBRO
 
-*Aranĝis: Franko Luin*
+*@omnibus.se*
 
-**ISBN 91-7303-156-9**
+*http://www.omnibus.se/*
 
-*inko@omnibus.se*
-
-*http://www.omnibus.se/inko*
-
-
-
-## **JULIO 2002**
 
 ### 2
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Ofte oni cerbumas, kiamaniere malkaŝi la absolutan
 
-veron. Laŭdire ĉies aserto enhavas eron da vero, 
+veron. Laŭdire ĉies aserto enhavas eron da vero,
 
-tamen neniu eldiras veron kompletan. Kiel do solvi la problemon? 
+tamen neniu eldiras veron kompletan. Kiel do solvi la problemon?
 
-Nenio ŝajnas al mi pli facila. Enmetu ĉies eldirojn en unu kaldronon, intermiksu — kaj kribru la erojn da pura vero. Necesas nur ĝuste elekti tiujn malfalsajn. 
+Nenio ŝajnas al mi pli facila. Enmetu ĉies eldirojn en unu kaldronon, intermiksu — kaj kribru la erojn da pura vero. Necesas nur ĝuste elekti tiujn malfalsajn.
 
 ***La atestantoj:***
 
@@ -82,81 +55,71 @@ Nenio ŝajnas al mi pli facila. Enmetu ĉies eldirojn en unu kaldronon, intermik
 
 *Korpgvardiano*
 
-3
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 *… kaj ŝi diris al Potifar: la sklavo, kiun vi venigis al ni, la* *hebreo, venis al mi por adulti kun mi — sed kiam mi laŭte* *ekkriis, li lasis sian veston ĉe mi kaj elkuris el la domo …*
 
 GENEZO, XXXIX, 17-18
 
-*\(En traduko de Zamenhof:*
+*(En traduko de Zamenhof:*
 
-*17 Kaj ŝi rakontis al li tion saman, dirante: La sklavo, la* *Hebreo, kiun vi venigis al ni, venis al mi, por petoli kun* *mi; 18 sed kiam mi laŭte ekkriis, li lasis sian veston ĉe mi* *kaj elkuris el la domo.\)*
+*17 Kaj ŝi rakontis al li tion saman, dirante: La sklavo, la* *Hebreo, kiun vi venigis al ni, venis al mi, por petoli kun* *mi; 18 sed kiam mi laŭte ekkriis, li lasis sian veston ĉe mi* *kaj elkuris el la domo.)*
 
-4
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Eldiras babilema negrino
 
 *La atestintino, apartenante el etna minoritato, ne tute* *perfekte posedas la oficialan lingvon. La eldonanto tamen* *evitas korektojn, por ne forviŝi la spontanecon de aŭtenta* *eldiro. *
 
-Kia malvero\! Pesto trafu mian sinjorinon\! Jes, malveron ŝi parolas al sinjoro Potifar, grandan malveron\! 
+Kia malvero! Pesto trafu mian sinjorinon! Jes, malveron ŝi parolas al sinjoro Potifar, grandan malveron!
 
-ĉio tute aliebla, mi bone konas la veron. ĉu vi volas mi parolu la veron? Sed poste vi mutas, vi ne perfidas al sinjorino, ĉu? Se sinjorino scias ke mi parolas, mi plej multe punita, eble per morto — fakte, ĉu vi ne kredas? 
+ĉio tute aliebla, mi bone konas la veron. ĉu vi volas mi parolu la veron? Sed poste vi mutas, vi ne perfidas al sinjorino, ĉu? Se sinjorino scias ke mi parolas, mi plej multe punita, eble per morto — fakte, ĉu vi ne kredas?
 
-Mi ege timas sinjorinon, ŝi multe severa kaj nebonko-ra. Mi nur iomete misfaras kaj ŝi forte koleras kaj krias kaj batpunas. Nur aŭdu: foje mi kombas kaj subite kom-bilo falas el mia mano. Neŝate mi faris, fakte. Sed ŝi tuj kaptas skurĝon kaj vipas, ĝis mia sango elfluas. Mi ploras pro doloro. Ankoraŭ nun restas cikatreto sur mia femuro, vi povas palpi, jen provu — pli supre — ankoraŭ pli, jes, tie —˛i, ˛i, lasu jam, tiklas\! …
+Mi ege timas sinjorinon, ŝi multe severa kaj nebonko-ra. Mi nur iomete misfaras kaj ŝi forte koleras kaj krias kaj batpunas. Nur aŭdu: foje mi kombas kaj subite kom-bilo falas el mia mano. Neŝate mi faris, fakte. Sed ŝi tuj kaptas skurĝon kaj vipas, ĝis mia sango elfluas. Mi ploras pro doloro. Ankoraŭ nun restas cikatreto sur mia femuro, vi povas palpi, jen provu — pli supre — ankoraŭ pli, jes, tie —˛i, ˛i, lasu jam, tiklas! …
 
-5
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Ankoraŭ aŭdu: Iam poste mi sola en sinjorina ĉam-
 
-bro. Kuŝas multaj ujoj bonodoraj sur tableto. Mi prenas unu flakonon, malŝtopas, flaras parfumon — bela bonodoro … Subite sinjorino venas, vidas kaj tuj kriaĉas: lasu, ci malpura negrino, nenio por ci\! — Sciu, ŝi abomenas min pro mia nigra haŭto. ĉu mi kulpas la haŭton? Pro kio helhaŭtuloj pensas ke ni malpli bonaj? 
+bro. Kuŝas multaj ujoj bonodoraj sur tableto. Mi prenas unu flakonon, malŝtopas, flaras parfumon — bela bonodoro … Subite sinjorino venas, vidas kaj tuj kriaĉas: lasu, ci malpura negrino, nenio por ci! — Sciu, ŝi abomenas min pro mia nigra haŭto. ĉu mi kulpas la haŭton? Pro kio helhaŭtuloj pensas ke ni malpli bonaj?
 
-Alifoje mi ordigas en ĉambro. Subite vazo falas. Fra-kasita sur tero. Sinjorino aŭdas bruon, rapide venas, ege koleras, krias freneze: ci kanajlo, kion ci faras, bastardi-no, ci meritas plejfortan batpunon por memori\! Tuj en torturejon\! Jam ŝi fakte volas fari, sed sinjoro Potifar venas kaj malpermesas. Mi multe dankas. 
+Alifoje mi ordigas en ĉambro. Subite vazo falas. Fra-kasita sur tero. Sinjorino aŭdas bruon, rapide venas, ege koleras, krias freneze: ci kanajlo, kion ci faras, bastardi-no, ci meritas plejfortan batpunon por memori! Tuj en torturejon! Jam ŝi fakte volas fari, sed sinjoro Potifar venas kaj malpermesas. Mi multe dankas.
 
-Sinjoro pli bona ol ŝi. Li ne malŝatas nian haŭton. Sinjoro faras afablan okulon, ŝerce pinĉas mian sidilon kaj tiklas jen kaj jen, kaj ridas, kiam mi evitas. Li parolas: fripona bubinaĉo, vi ne plu infano, vi jam junulino bel-figura\! Sed sinjorino ne ŝatas aŭdi, kiam sinjoro tion parolas. Tuj ordonas mi iri for. Kaj ankaŭ ordonas mi vualu miajn cicojn — ŝi parolas miaj cicoj malplaĉaj. ĉu fakte? 
+Sinjoro pli bona ol ŝi. Li ne malŝatas nian haŭton. Sinjoro faras afablan okulon, ŝerce pinĉas mian sidilon kaj tiklas jen kaj jen, kaj ridas, kiam mi evitas. Li parolas: fripona bubinaĉo, vi ne plu infano, vi jam junulino bel-figura! Sed sinjorino ne ŝatas aŭdi, kiam sinjoro tion parolas. Tuj ordonas mi iri for. Kaj ankaŭ ordonas mi vualu miajn cicojn — ŝi parolas miaj cicoj malplaĉaj. ĉu fakte?
 
 Rigardu, ĉu ne plaĉas al vi? Marimbo ŝatas rigardi miajn cicojn, kaj ankaŭ karesi, multe karesi mian haŭton. Al li plaĉas kaj al mi ankaŭ plaĉas kaj poste ni kuŝas en ĝardeno sub tiu plej granda figarbo — kaj tio multe bela, ni ege ŝatas …
 
 ĉu vi ne konas Marimbon? Li ankaŭ nigra. Kiam ni
 
-6
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ankoraŭ infanoj tute malgrandaj, ni vivas en ĝangalo. 
+ankoraŭ infanoj tute malgrandaj, ni vivas en ĝangalo.
 
 Marimbo en mia sama tribo. Li pli aĝa ol mi, sed ne
 
-multe. Nun li sklavo de sinjoro Potifar. Mi ŝatas Marimbon. Marimbo ankaŭ ŝatas. Li parolas min pli ĉarma ol mia sinjorino. 
+multe. Nun li sklavo de sinjoro Potifar. Mi ŝatas Marimbon. Marimbo ankaŭ ŝatas. Li parolas min pli ĉarma ol mia sinjorino.
 
-ĉu mia sinjorino al vi plaĉas? ŝi sufiĉe aĝa. Mi bone rigardas, kiam ŝi en baseno: malfirma brusto kaj grasaj koksoj. Multe manĝas. ĉiumatene mi devas masaĝi tutan korpon de sinjorino, sed nemulte helpas. — Sinjorino havas ankaŭ falsan hararon, unu, du, multajn. Kaj multe ŝi ŝminkas vizaĝon por kaŝi faldetojn. Post la skandalo kun Hebreo ŝi ĉiam pli malbela. 
+ĉu mia sinjorino al vi plaĉas? ŝi sufiĉe aĝa. Mi bone rigardas, kiam ŝi en baseno: malfirma brusto kaj grasaj koksoj. Multe manĝas. ĉiumatene mi devas masaĝi tutan korpon de sinjorino, sed nemulte helpas. — Sinjorino havas ankaŭ falsan hararon, unu, du, multajn. Kaj multe ŝi ŝminkas vizaĝon por kaŝi faldetojn. Post la skandalo kun Hebreo ŝi ĉiam pli malbela.
 
-Sciu, la Hebreo Jozefo ankaŭ sklavo de sinjoro Potifar. 
+Sciu, la Hebreo Jozefo ankaŭ sklavo de sinjoro Potifar.
 
 Multaj sklavoj ĉe nia sinjoro, nigraj, brunaj, helhaŭtaj —
 
-sed Jozefo plej bela. Nun Jozefo en karcero, sed antaŭe sinjoro multe ŝatas Jozefon: Ordonas li ne laboru, nur sidu kaj parolu kun sinjoro kaj bone manĝu kaj ankaŭ donu ordonojn al aliaj sklavoj. Marimbo ne ŝatas Jozefon. Parolas: ĉiuj sklavoj egalaj, sed Jozefo ne sklavo kaj ne sinjoro. Marimbo volas, ke sklavoj faru ribelon kontraŭ sinjoroj. Sklavoj ege pli multaj ol sinjoroj, sed venas el multaj triboj. Unu sklavo parolas, alia sklavo ne komprenas. Kiel fari ribelon, koleras Marimbo. Nu, por mi ne gravas ribelo, por mi gravas, ke Marimbo amas. Nanga parolas, ke virinoj egale ĉiam sklavoj. 
+sed Jozefo plej bela. Nun Jozefo en karcero, sed antaŭe sinjoro multe ŝatas Jozefon: Ordonas li ne laboru, nur sidu kaj parolu kun sinjoro kaj bone manĝu kaj ankaŭ donu ordonojn al aliaj sklavoj. Marimbo ne ŝatas Jozefon. Parolas: ĉiuj sklavoj egalaj, sed Jozefo ne sklavo kaj ne sinjoro. Marimbo volas, ke sklavoj faru ribelon kontraŭ sinjoroj. Sklavoj ege pli multaj ol sinjoroj, sed venas el multaj triboj. Unu sklavo parolas, alia sklavo ne komprenas. Kiel fari ribelon, koleras Marimbo. Nu, por mi ne gravas ribelo, por mi gravas, ke Marimbo amas. Nanga parolas, ke virinoj egale ĉiam sklavoj.
 
-Nanga multe saĝa kaj bonkora. ŝi mia kvazaŭpatrino. 
+Nanga multe saĝa kaj bonkora. ŝi mia kvazaŭpatrino.
 
-7
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Vi ne komprenas, ĉu? Sciu, kiam mi tute malgranda
 
@@ -164,103 +127,95 @@ bebo, soldatoj atakis nian tribon en ĝangalo por preni sklavojn. Niaj viroj def
 
 granda masakro, multaj mortas, kabanoj brulas, ĉio ka-puta. Kiuj vunditaj, soldatoj mortigas. Mia patrino an-kaŭ morta. Nanga komprenas min kaj zorgas mi restu
 
-viva. El granda tribo nur malmultaj restas vive. Parolas Nanga, mi ne memoras. 
+viva. El granda tribo nur malmultaj restas vive. Parolas Nanga, mi ne memoras.
 
-¯uste tiam sinjoro Potifar havas junan sinjorinon kaj aranĝas grandan domon. Bezonas multajn sklavojn. Se
+uste tiam sinjoro Potifar havas junan sinjorinon kaj aranĝas grandan domon. Bezonas multajn sklavojn. Se
 
-li aĉetas nure virojn, pli pagas — se ankaŭ virinojn kaj infanojn, li pagas malpli. Sinjoro saĝa, aĉetas ĉiujn. Ri-dinde: mi tiam ankoraŭ ne scias paroli, sed jam sklavino\! 
+li aĉetas nure virojn, pli pagas — se ankaŭ virinojn kaj infanojn, li pagas malpli. Sinjoro saĝa, aĉetas ĉiujn. Ri-dinde: mi tiam ankoraŭ ne scias paroli, sed jam sklavino!
 
-Nu, kreskas kaj kreskas kaj baldaŭ komencas servi la sinjorinon. Kun Nanga mi parolas negran parolon, an-kaŭ kun Marimbo. Sed de sinjorino lernas paroli ankaŭ la noblan parolon. Nun mi jam bone parolas, ĉu? Se mi ne nigra, neniu scias, ke mi sklavino. 
+Nu, kreskas kaj kreskas kaj baldaŭ komencas servi la sinjorinon. Kun Nanga mi parolas negran parolon, an-kaŭ kun Marimbo. Sed de sinjorino lernas paroli ankaŭ la noblan parolon. Nun mi jam bone parolas, ĉu? Se mi ne nigra, neniu scias, ke mi sklavino.
 
-Sinjorino unue afabla. Sed poste venas Jozefo, kaj sinjorino havas okulojn nur por li. Sciu, sinjoro Potifar mal-juna kaj ne bela — Jozefo juna kaj svelta kaj aminda. Sinjorino multe deziras kun li kuŝi, mi bone atentas: ŝi pa-radas kiel pavo kaj ĉiam ŝminkas kaj prenas belan veston kaj parfumas kaj multe okulumas al Jozefo. Sed Jozefo ignoras, li ne kuraĝa, ĉiam flegma, ne emas amindumi. ĉu normala? Eble li ankoraŭ ne scias seksumi, 
+Sinjorino unue afabla. Sed poste venas Jozefo, kaj sinjorino havas okulojn nur por li. Sciu, sinjoro Potifar mal-juna kaj ne bela — Jozefo juna kaj svelta kaj aminda. Sinjorino multe deziras kun li kuŝi, mi bone atentas: ŝi pa-radas kiel pavo kaj ĉiam ŝminkas kaj prenas belan veston kaj parfumas kaj multe okulumas al Jozefo. Sed Jozefo ignoras, li ne kuraĝa, ĉiam flegma, ne emas amindumi. ĉu normala? Eble li ankoraŭ ne scias seksumi,
 
-8
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-povruleto — nu, mi ofte parolas al mi: nur atendu, Jozefo, se vi iam venas en mian brakumon, vi bone spertos pri ampetolado\! …
+povruleto — nu, mi ofte parolas al mi: nur atendu, Jozefo, se vi iam venas en mian brakumon, vi bone spertos pri ampetolado! …
 
 Ne pensu, ke mi ĉiesulino, tute ne: Sed kiam homo
 
-juna, iam-tiam amoreti ne malutilas, ĉu? Kion alian mi havas de la vivo? Nanga parolas, ke mi nur zorgu ne fari idon. Se mi havas grandan ventron, sinjorino pelas min for. Nu bone, sed kiel mi zorgu? Mi ne scias. ĉu vi scias? Mi devas demandi al Nanga. 
+juna, iam-tiam amoreti ne malutilas, ĉu? Kion alian mi havas de la vivo? Nanga parolas, ke mi nur zorgu ne fari idon. Se mi havas grandan ventron, sinjorino pelas min for. Nu bone, sed kiel mi zorgu? Mi ne scias. ĉu vi scias? Mi devas demandi al Nanga.
 
 Jes, vi volas aŭdi la skandalon kun Jozefo, ĉu? Do mi parolu: Unufoje sinjoro Potifar tutan tagon for de la do-mo. Sinjorino matene ordonas fari varman banon kun
 
-multa bonodoro. ŝi longe ŝprucas en baseno, poste ordonas, ke mi forte masaĝu. Mi faras kun granda forto kaj ŝi ĝemas, sed parolas: nur ne ĉesu, faru ankoraŭ, ci aĉulino\! Mi jam multe laca, sed al sinjorino ne gravas. Poste sinjorino bone manĝas kaj mi devas longe kombi, fine ŝi prenas falsan hararon violkoloran, alte kombitan. ¯i malplaĉas, mi emas ridi, sed maldevas pro sinjorino. 
+multa bonodoro. ŝi longe ŝprucas en baseno, poste ordonas, ke mi forte masaĝu. Mi faras kun granda forto kaj ŝi ĝemas, sed parolas: nur ne ĉesu, faru ankoraŭ, ci aĉulino! Mi jam multe laca, sed al sinjorino ne gravas. Poste sinjorino bone manĝas kaj mi devas longe kombi, fine ŝi prenas falsan hararon violkoloran, alte kombitan. i malplaĉas, mi emas ridi, sed maldevas pro sinjorino.
 
 ŝi ŝmiras parfuman akvon sur tuta korpo kaj multe
 
-ŝminkas vizaĝon kolore. Poste prenas lozan vualan veston helverdan. ¯i bela, sed ege maldika, ĉion vi trae rigardas, tute ĉion. Fine sinjorino surmetas multajn juve-lojn, ĉie ŝi havas: sur kapo, en oreloj, ĉirkaŭ kolo, sur brakoj kaj fingroj kaj kruroj, ĉie. Longe ŝi rigardas kontraŭ la granda spegulo, turnas koksojn, skuas kapon kaj 9
+ŝminkas vizaĝon kolore. Poste prenas lozan vualan veston helverdan. i bela, sed ege maldika, ĉion vi trae rigardas, tute ĉion. Fine sinjorino surmetas multajn juve-lojn, ĉie ŝi havas: sur kapo, en oreloj, ĉirkaŭ kolo, sur brakoj kaj fingroj kaj kruroj, ĉie. Longe ŝi rigardas kontraŭ la granda spegulo, turnas koksojn, skuas kapon kaj 9
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-elstarigas mamojn — ĝis mi volas forkuri por ne ridaĉi. 
+elstarigas mamojn — ĝis mi volas forkuri por ne ridaĉi.
 
 Sed sinjorino ordonas: iru al Jozefo, ke li venu, mi bezonas paroli … Nu, mi bone scias, kion ŝi volas de Jozefo
 
-— vi komprenas, ĉu? 
+— vi komprenas, ĉu?
 
-Do mi faras, kaj Jozefo venas. Mi venas kun li, sed sinjorino ordonas mi iru for, ŝi ne bezonas min tutan vesperon. Mi iras do, sed scivolas, kion faras sinjorino kun Jozefo. Restas kaŝita sub teraso, jen tie sub densa vepro kaj atendas. Aŭdas, ke Jozefo parolas, sed malforte, vor-ton mi ne komprenas. Poste silento — kaj subite sinjorino kriaĉas ege — aŭdas batadon, kaj jen vidas: Jozefo kuras el domo al teraso — li nuda kaj sinjorino malantaŭe kun lia vesto\! Ega plezuro por mi\! 
+Do mi faras, kaj Jozefo venas. Mi venas kun li, sed sinjorino ordonas mi iru for, ŝi ne bezonas min tutan vesperon. Mi iras do, sed scivolas, kion faras sinjorino kun Jozefo. Restas kaŝita sub teraso, jen tie sub densa vepro kaj atendas. Aŭdas, ke Jozefo parolas, sed malforte, vor-ton mi ne komprenas. Poste silento — kaj subite sinjorino kriaĉas ege — aŭdas batadon, kaj jen vidas: Jozefo kuras el domo al teraso — li nuda kaj sinjorino malantaŭe kun lia vesto! Ega plezuro por mi!
 
 Sed subite — kion mi vidas? Jen venas tra ĝardeno
 
-sinjoro Potifar kun pluraj soldatoj, kaj ĉion rigardas\! Tio bona, mi pensas kaj ĝojas: nun li certe punos sinjorinon plej severe\! Sed neniel — ŝi sagaca kiel simio. Tuj ŝi komencas kriaĉi kvazaŭ freneza: punu Jozefon, li atakas min kaj volas kunkuŝi\! — Nu, granda tumulto, ĉiuj rigardas kaj sinjorino senĉese frenezumas: punu Jozefon, skurĝi lin vi devas\! 
+sinjoro Potifar kun pluraj soldatoj, kaj ĉion rigardas! Tio bona, mi pensas kaj ĝojas: nun li certe punos sinjorinon plej severe! Sed neniel — ŝi sagaca kiel simio. Tuj ŝi komencas kriaĉi kvazaŭ freneza: punu Jozefon, li atakas min kaj volas kunkuŝi! — Nu, granda tumulto, ĉiuj rigardas kaj sinjorino senĉese frenezumas: punu Jozefon, skurĝi lin vi devas!
 
 Tiam mi pensas, ke Jozefo volas al sinjoro paroli la veron — sed imagu: li nur staras kaj mutas, kapo klini-ta kvazaŭ stupida azeno. Do sinjoro vokas una kruelan soldaton, kiu forta kiel virbovo — kaj li multe batas Jozefon per skurĝo. Certe ega doloro, sed povra Jozefo nur 10
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ne multe krias. Mi malgaja pro lia doloro — sed ankaŭ al mi pensas: bone tiel al vi, Jozefo, kial vi fiera kaj ne volas iom amindumi negran sklavineton? Eble vi ankaŭ abomenas nigran haŭton, prefere vi fidas noblan sinjorinon — do jen vi havas\! 
+ne multe krias. Mi malgaja pro lia doloro — sed ankaŭ al mi pensas: bone tiel al vi, Jozefo, kial vi fiera kaj ne volas iom amindumi negran sklavineton? Eble vi ankaŭ abomenas nigran haŭton, prefere vi fidas noblan sinjorinon — do jen vi havas!
 
-La sinjorinon mi multe malŝatas pro la malvero. ŝi ege malbona, kruela kvazaŭ krokodilo, ne havas koron, ŝi tute fia\! La demonoj de ĝangalo devas terure puni ŝin, parolas Nanga. 
+La sinjorinon mi multe malŝatas pro la malvero. ŝi ege malbona, kruela kvazaŭ krokodilo, ne havas koron, ŝi tute fia! La demonoj de ĝangalo devas terure puni ŝin, parolas Nanga.
 
-Do, nun vi scias ĉion. Kredu min, mi parolas al vi ververan veron. Sed vi nepre silentu, neniu alia scias — nur Nanga. Kaj Marimbo — kaj nun vi. Vi bona, vi plaĉas al mi. 
+Do, nun vi scias ĉion. Kredu min, mi parolas al vi ververan veron. Sed vi nepre silentu, neniu alia scias — nur Nanga. Kaj Marimbo — kaj nun vi. Vi bona, vi plaĉas al mi.
 
-Nun mi iras for, devas al kuirejo. Sciu, mi ege apetitas je acidaj olivoj kun azenina lakto … Kio — ĉu naŭzas vin? Nu, vi pravas, lastatempe mi iom strange apetitas. 
+Nun mi iras for, devas al kuirejo. Sciu, mi ege apetitas je acidaj olivoj kun azenina lakto … Kio — ĉu naŭzas vin? Nu, vi pravas, lastatempe mi iom strange apetitas.
 
 ĉu vi ne scias, kion signifas? Mi devas demandi al Nanga, ŝi saĝa …
 
 ĉu vi ne emas veni vespere en ĝardenon? Ni povas
 
-ankoraŭ babili. Venu, mi atendas jen tie sub la plej granda figarbo — tie malluno, neniu rigardas nin. Vi ne abomenas nigran haŭton, ĉu? 
+ankoraŭ babili. Venu, mi atendas jen tie sub la plej granda figarbo — tie malluno, neniu rigardas nin. Vi ne abomenas nigran haŭton, ĉu?
 
-11
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 *… post kelka tempo la edzino de lia sinjoro rigardis Jozefon kaj diris: kuŝiĝu kun mi …*
 
 GENEZO, XXXIX, 7
 
-*\(En traduko de Zamenhof:*
+*(En traduko de Zamenhof:*
 
-*Post kelka tempo la edzino de lia sinjoro ĵetis siajn ri-gardojn sur Jozefon, kaj diris: Kuŝiĝu kun mi.\)*
+*Post kelka tempo la edzino de lia sinjoro ĵetis siajn ri-gardojn sur Jozefon, kaj diris: Kuŝiĝu kun mi.)*
 
-12
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Konfeso de la Potifar-edzino
 
-Ne, ne — neniu al mi parolu pri Jozefo\! Eĉ lian no-
+Ne, ne — neniu al mi parolu pri Jozefo! Eĉ lian no-
 
 mon mi ne volas aŭdi. Li tiel ofendis min, kiel
 
-kuraĝus neniu en la vasta faraona regno. Kaj li, tiu barbara elmigrinto, mizera nurnura sklavo, tia malnobla neniulo — li kuraĝis\! … Belege li rekompencis mian favoron\! Li kraĉmakulis mian virinecon, miajn feminan
+kuraĝus neniu en la vasta faraona regno. Kaj li, tiu barbara elmigrinto, mizera nurnura sklavo, tia malnobla neniulo — li kuraĝis! … Belege li rekompencis mian favoron! Li kraĉmakulis mian virinecon, miajn feminan
 
 dignon kaj homan memfidon, kvankam eĉ kisi miajn
 
-maleolojn li ne indas. Estis ja mi, kiu foje persvadis Potifaron, ke li aĉetu Jozefon de tiuj sklavovendistoj. 
+maleolojn li ne indas. Estis ja mi, kiu foje persvadis Potifaron, ke li aĉetu Jozefon de tiuj sklavovendistoj.
 
 Por diri veron, hodiaŭ mi mem aĉ ne plu scias, pro kio mi tiam faris, mi stultulino — verŝajne nur pro troa kompatemo. Laŭ lia febla, senforta staturo ja unuavide evidentis, ke por pena laboro li absolute ne taŭgas. Tia povruleto li aspektis, malgrasa, senpova, etmuskola; liaj nigraj okuloj plenaj de tristeco — kiel frape li kontrastis tiun palan helhaŭtan vizaĝon …
 
@@ -270,57 +225,53 @@ ras. Potifar jam volis forpeli kaj lin kaj la tutan nomadan vagabondaron — sed
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-kompatis la hebrean junulon, do mi diris al la edzo, atendu ja, ĉu ekzistas nur penlaboro, eble ni povus lin tamen iamaniere utiligi, ĉu li hazarde ne kapablas ion alian? 
+kompatis la hebrean junulon, do mi diris al la edzo, atendu ja, ĉu ekzistas nur penlaboro, eble ni povus lin tamen iamaniere utiligi, ĉu li hazarde ne kapablas ion alian?
 
-Jes, jes, nepre li kapablas, fervore asertis la negocistoj, tiu ĉi judo scias perfekte klarigi signifon de sonĝoj\! Provu nur, sinjorina moŝto, kaj certe vi bonspertos\! — Ho, friponoj sagacaj, ili tre bone sciis, ke la sonĝprofetado estas nia tradicia ŝatokupo, ia — mi diru — tutnacia manio, tial ili jesis tiel trorapide. 
+Jes, jes, nepre li kapablas, fervore asertis la negocistoj, tiu ĉi judo scias perfekte klarigi signifon de sonĝoj! Provu nur, sinjorina moŝto, kaj certe vi bonspertos! — Ho, friponoj sagacaj, ili tre bone sciis, ke la sonĝprofetado estas nia tradicia ŝatokupo, ia — mi diru — tutnacia manio, tial ili jesis tiel trorapide.
 
-Kompreneble, tiu malsprita dupo, mia sinjoro edzo, 
+Kompreneble, tiu malsprita dupo, mia sinjoro edzo,
 
-ne eltenis plu kontraŭstari, ĉar posedi lertan sonĝaŭguriston estas ja prestiĝa afero en nia monduma socio. 
+ne eltenis plu kontraŭstari, ĉar posedi lertan sonĝaŭguriston estas ja prestiĝa afero en nia monduma socio.
 
-Sekve li finfine tamen aĉetis, ne malzorginte marĉandi pri la prezo kiel eble plej multe. 
+Sekve li finfine tamen aĉetis, ne malzorginte marĉandi pri la prezo kiel eble plej multe.
 
-Tiu malsagaca Potifar\! Nun li ĉie fanfaronis, kiel bon-profite li akiris elstaran fremdlandan specialiston en la sonĝprofeta fako. Li alkutimiĝis preskaŭ ĉiutage venigi Jozefon, por infanece ĝoji pri lia lerteco improvize elok-venti laŭ malsamaj abstraktaĵoj. Estas dubinde, ĉu Potifar fakte tiel abunde sonĝis — pli eble li volus, avarulo maldeca, riĉe al si kompensi la monsumon elspezitan, ja mi konas lin tre bone\! 
+Tiu malsagaca Potifar! Nun li ĉie fanfaronis, kiel bon-profite li akiris elstaran fremdlandan specialiston en la sonĝprofeta fako. Li alkutimiĝis preskaŭ ĉiutage venigi Jozefon, por infanece ĝoji pri lia lerteco improvize elok-venti laŭ malsamaj abstraktaĵoj. Estas dubinde, ĉu Potifar fakte tiel abunde sonĝis — pli eble li volus, avarulo maldeca, riĉe al si kompensi la monsumon elspezitan, ja mi konas lin tre bone!
 
 Vere ridinda vidaĵo, kiam tiuj du konfidence kunsidis kaj grave mienis, laŭdire analizante la sonĝenhavojn. Mi kutimis sidi iom proksime kaj observi ilin, sed apenaŭ 14
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 mi povis aŭdi ilian babiladon. Cetere tio neniel interesis min, ĉar la fato de mia edza sinjoro por mi absolute ne gravas — kaj krome, je sonĝoj mi ne kredas. Al sonĝoj mi nepre preferas revojn …
 
-Jes, revi mi ege ŝatas\! … Nenio estas pli agrabla ol dum postmmanĝa siesto senmove pigri sur molaj kusenoj kaj maldormi kun okuloj fermitaj. Sklavino milde priventumas vin — kaj vi povas liberlasi la pensojn, ke ili vagu sencele tra malreala neniejo kvazaŭ kamelidoj petolantaj sub kokosarboj de ombrodona oazo — ĝis
+Jes, revi mi ege ŝatas! … Nenio estas pli agrabla ol dum postmmanĝa siesto senmove pigri sur molaj kusenoj kaj maldormi kun okuloj fermitaj. Sklavino milde priventumas vin — kaj vi povas liberlasi la pensojn, ke ili vagu sencele tra malreala neniejo kvazaŭ kamelidoj petolantaj sub kokosarboj de ombrodona oazo — ĝis
 
 fine ĉio koncentriĝas je imago pri ajna neekzistanta iulo, kun kiu vi povas amindume finti, intime babilzumi kaj dolĉavoĉe flustri bagatelajn flataĵojn, sensencajn, malp-rudentajn … Kia bonŝanco, la ravaj rendevuetoj kun
 
-fiktiva amanto elrevita\! 
+fiktiva amanto elrevita!
 
 Domaĝe, ke ion tian oni povas nurnure revi — la re-
 
-ala vivo aspektas ja tute aliel\! Neniam oni tiel liberas, kiam revante. ĉu mi entute dum ĝisnuna vivado estis
+ala vivo aspektas ja tute aliel! Neniam oni tiel liberas, kiam revante. ĉu mi entute dum ĝisnuna vivado estis
 
-iam ajn libera? Neniam, neniam\! 
+iam ajn libera? Neniam, neniam!
 
-Dum mia infanaĝo gardis min sklavaj vartistinoj, ĉar panjo laŭdire estis tiel subtila, ke tujsekve post mia naskiĝo ŝi forpasis en la regon de mortintoj. Kaj mi asertu, ke la vartistinoj gardis min vere tre zorgeme. Memkomprene, ĉar se mi, la solinfano de renoma personkuracisto de la plej serena faraona moŝto, iel kontuziĝus, la sklavinoj povus tion repagi eble eĉ per propra vivo. 
+Dum mia infanaĝo gardis min sklavaj vartistinoj, ĉar panjo laŭdire estis tiel subtila, ke tujsekve post mia naskiĝo ŝi forpasis en la regon de mortintoj. Kaj mi asertu, ke la vartistinoj gardis min vere tre zorgeme. Memkomprene, ĉar se mi, la solinfano de renoma personkuracisto de la plej serena faraona moŝto, iel kontuziĝus, la sklavinoj povus tion repagi eble eĉ per propra vivo.
 
-15
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Sed kiu plej multe malprofitis pro tio, estis ĝuste mi\! 
+Sed kiu plej multe malprofitis pro tio, estis ĝuste mi!
 
 Neniam mi darfis petoli kun aliaj infanoj, bani min mi devis nur en malprofunda baseno interne de la domo
 
 sub severa inspekto de la sklavinaro, sunumadon mi povis ĝui sole po difinitaj porcioj, eĉ unu kamaradinon mi neniam havis. Vere teda infanaĝo: ludiloj ĉiaspecaj abundis, sed iesajna amo aŭ almenaŭ inklino absolute mankis. Eĉ plej etan simptomon de simpatio mi malhavis. ĉio ĉirkaŭe estis iel fremdeca, rigida, indiferenta kaj senimpresa, kvazaŭŝajna …
 
-Cetere, samtia estis ankaŭ mia patro mem: maldika, 
+Cetere, samtia estis ankaŭ mia patro mem: maldika,
 
-altstatura, severmiena grandsinjoro. Nur malofte mi trafis lin en nia vastespeca domo, kiun mi hezitas nomi hejmo, ĉar hejmo estas ja ejo, kie oni amas unuj aliajn, ĉu ne — kaj ĝuste tion mi malhavis. 
+altstatura, severmiena grandsinjoro. Nur malofte mi trafis lin en nia vastespeca domo, kiun mi hezitas nomi hejmo, ĉar hejmo estas ja ejo, kie oni amas unuj aliajn, ĉu ne — kaj ĝuste tion mi malhavis.
 
 Sed — ke mi estu justa — unu estaĵo tamen ŝatis min: mia granda longhara nigra virkato, kiu ofte venadis por kurŝripozi sur miaj genuoj; mi karesis ĝin kaj ĝi kontente, obtuze ronronis ĝuante varmon de mia korpo. Mi
 
@@ -328,73 +279,68 @@ konfesu, ke tiukaze ĝi ŝajnis al mi multe pli amikeca, pli ŝatinda, ja mi dir
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-dis ĉe la faraona kortego — kaj mi neniel bedaŭris lian foreston. 
+dis ĉe la faraona kortego — kaj mi neniel bedaŭris lian foreston.
 
-Nemalfrue post mia viriniĝo oni edzinigis min sen demandi pri mia konsento. Cetere, estro de la faraona korpogvardio estas ja tiel aŭtoritata altrangulo, ke stulteta junulino ne rajtas eĉ ekhavi ideon pri eventuala rezisto kontraŭ tia bonŝanco, ĉu ne vere? Verdire mi indiferen-tis, ĉar mian eminentan fianĉon mi renkontis unuafoje nur ĉe la nupto — kaj tiam ja estis malfrue por spiti. Li estis dika, preskaŭ senhara, stultmiena kaj proksimume trioble pli aĝa ol mi. 
+Nemalfrue post mia viriniĝo oni edzinigis min sen demandi pri mia konsento. Cetere, estro de la faraona korpogvardio estas ja tiel aŭtoritata altrangulo, ke stulteta junulino ne rajtas eĉ ekhavi ideon pri eventuala rezisto kontraŭ tia bonŝanco, ĉu ne vere? Verdire mi indiferen-tis, ĉar mian eminentan fianĉon mi renkontis unuafoje nur ĉe la nupto — kaj tiam ja estis malfrue por spiti. Li estis dika, preskaŭ senhara, stultmiena kaj proksimume trioble pli aĝa ol mi.
 
 La nupta ceremonio estis luksega, terure longdaŭra
 
-kaj solene rigida. Kontraŭe, la malvirgiga procedo maldaŭris, ŝoke min eknaŭzis kaj tute seniluziigis. ĉu tion oni nomas amo?\! Oni simple venas, lascive alkuŝas kaj malkompleze uzaĉas vin kvazaŭ ian senvaloran ilon …
+kaj solene rigida. Kontraŭe, la malvirgiga procedo maldaŭris, ŝoke min eknaŭzis kaj tute seniluziigis. ĉu tion oni nomas amo?! Oni simple venas, lascive alkuŝas kaj malkompleze uzaĉas vin kvazaŭ ian senvaloran ilon …
 
-ho, kia abomenaĵo\! Femina karno kaj bruta viando, ĉio jen egalas: kaj tion kaj jenon oni senĝene konsumpre-nas, satiĝinte deruliĝas for, ekdormaĉas kaj kontente ronkegas kvazaŭ tromanĝinta porko. Tio do estas ge-edzeco — ho fi\! …
+ho, kia abomenaĵo! Femina karno kaj bruta viando, ĉio jen egalas: kaj tion kaj jenon oni senĝene konsumpre-nas, satiĝinte deruliĝas for, ekdormaĉas kaj kontente ronkegas kvazaŭ tromanĝinta porko. Tio do estas ge-edzeco — ho fi! …
 
 ĉu mirinde, ke mi malamas mian edzon ekde la unua
 
 tago? Jes, mi tutanime abomenas lin, terure naŭzas min lia grasa ventrego, liaj ŝvitozaj manoj, lia raŭka voĉo, lia daŭra nazkataro kun ripetataj ekternoj kaj ĉiamaj mun-getado kaj naztrumpetado —al tia kretena mishomo mi
 
-17
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-estas dumvive devoligita — kaj al tiu aĉa senila debilu-lo mi eble devus naski idon?\! Ne, ne, ne — centmiltoje ne, neniam\! Prefere mi senvivigus ĝin tuj en mia sino …
+estas dumvive devoligita — kaj al tiu aĉa senila debilu-lo mi eble devus naski idon?! Ne, ne, ne — centmiltoje ne, neniam! Prefere mi senvivigus ĝin tuj en mia sino …
 
-Tamen dioj gardu — jen kiaj fipensoj povas enkapiĝi, se oni sentas sin tiel soleca … Vidu, eĉ la nigraharan ka-ton mi ne plu havas. Ja post la nupto mi kunprenis ĝin, sed Potifar tuj ordonis dronigi ĝin sub stulta preteksto, ke la katoj laŭdire disigas malsanojn. Tia stupida superstiĉo\! — Do, mi ne havis plu eĉ ian ajn vivaĵon nek ink-linan vivulon en la tuta mondo. Kia miro, ke mi ekmal-sanis pro tristeco kaj enuo …
+Tamen dioj gardu — jen kiaj fipensoj povas enkapiĝi, se oni sentas sin tiel soleca … Vidu, eĉ la nigraharan ka-ton mi ne plu havas. Ja post la nupto mi kunprenis ĝin, sed Potifar tuj ordonis dronigi ĝin sub stulta preteksto, ke la katoj laŭdire disigas malsanojn. Tia stupida superstiĉo! — Do, mi ne havis plu eĉ ian ajn vivaĵon nek ink-linan vivulon en la tuta mondo. Kia miro, ke mi ekmal-sanis pro tristeco kaj enuo …
 
-Jes, la enuo estas grava, insida malsano, ĉu vi ne kredas? ¯i ekestas tute kaŝite, preskaŭ nerimarkeble, sed poiome intensiĝas pli kaj pli ĝis fine ĝi venenas tutan vian animon, uzurpante vian memon ĝis la fingropintoj. 
+Jes, la enuo estas grava, insida malsano, ĉu vi ne kredas? i ekestas tute kaŝite, preskaŭ nerimarkeble, sed poiome intensiĝas pli kaj pli ĝis fine ĝi venenas tutan vian animon, uzurpante vian memon ĝis la fingropintoj.
 
-Ho, mi tiel enuis, ŝancelvagante sencele tra senhomaj specoj de l’superba ŝtonpalaco; el ĉiuj anguloj de la pompe meblitaj ĉambregoj faŭkis nenieco, senkialeco. 
+Ho, mi tiel enuis, ŝancelvagante sencele tra senhomaj specoj de l’superba ŝtonpalaco; el ĉiuj anguloj de la pompe meblitaj ĉambregoj faŭkis nenieco, senkialeco.
 
-Treege mi enviis al la sklavinoj, ke ili povas interbabi-ladi, klaĉi kaj ridi, ŝerci, kvereli, senĝene flirti kaj amoreti, dormi are en komuna ejo, laŭdezire geiĝi, lulkanti al siaj beboj kaj mamnutri ilin — kiel liberaj, kiel riĉaj estis la sklavinoj kompare al mi\! 
+Treege mi enviis al la sklavinoj, ke ili povas interbabi-ladi, klaĉi kaj ridi, ŝerci, kvereli, senĝene flirti kaj amoreti, dormi are en komuna ejo, laŭdezire geiĝi, lulkanti al siaj beboj kaj mamnutri ilin — kiel liberaj, kiel riĉaj estis la sklavinoj kompare al mi!
 
 Sed ne nur tiuj, ankaŭ ĉiu alia ŝajnis al mi enviinda; ja eĉ Potifaron mi enviis pro la rilato al Jozefo. ĉu estis envio, ĉu ĵaluzo — mi mem ne scias. La multspeca talento 18
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 de tiu hebreo estis nome tiel okulfrapa, ke eĉ Potitar malgraŭ sia malspriteco baldaŭ komprenis, ke Jozefo
 
-krom la signifoklarigado de sonĝoj estas utiligebla an-kaŭ por aliaj, pli gravaj aferoj. Iam-tiam mi eĉ miris vidante, ke la trokredema domsinjoro invitas la sklavon por konsulti lin pri aferoj de l’familia havaĵo kaj hejma mas-trado — tio ne decas ja\! Sed jen ĝuste Potifar: malzorgema pigrulo, ĉiam preta ŝarĝi iun alian per siaj propraj tedaĵoj, por ke li mem povu laŭvole tordiĝi ĉe la kortego, 
+krom la signifoklarigado de sonĝoj estas utiligebla an-kaŭ por aliaj, pli gravaj aferoj. Iam-tiam mi eĉ miris vidante, ke la trokredema domsinjoro invitas la sklavon por konsulti lin pri aferoj de l’familia havaĵo kaj hejma mas-trado — tio ne decas ja! Sed jen ĝuste Potifar: malzorgema pigrulo, ĉiam preta ŝarĝi iun alian per siaj propraj tedaĵoj, por ke li mem povu laŭvole tordiĝi ĉe la kortego,
 
-ĝuadi delikatajn bongustaĵojn de la faraona kuirejo kaj senfine babilaĉi kun aliaj altfunkciuloj pri etsignifaj ba-gatelajoj. 
+ĝuadi delikatajn bongustaĵojn de la faraona kuirejo kaj senfine babilaĉi kun aliaj altfunkciuloj pri etsignifaj ba-gatelajoj.
 
 Fakto estas, ke Jozefo estiĝis lia nepra favorato kaj konfidato, plenrajtigita prizorgadi ĉiujn farotaĵojn de nia luksa dommastrumado kaj familiaj negocoj. Sekve de tio li ĝuis eksternorman privilegion enveni nian loĝdomon kiam ajn sen antaŭanonco kaj aparta permeso. Kaj li venadis ofte — mi ne hezitu diri, eĉ tro ofte …
 
-Ja kiam mi verdire ekkonis, ke mi enamiĝis al Jozefo? 
+Ja kiam mi verdire ekkonis, ke mi enamiĝis al Jozefo?
 
-… Jese, bone vi aŭdas — mi fakte enamiĝis; naive, spontane, senpripense kaj senkondiĉe. ĉu mirinde? Neniel\! 
+… Jese, bone vi aŭdas — mi fakte enamiĝis; naive, spontane, senpripense kaj senkondiĉe. ĉu mirinde? Neniel!
 
 Jozefo ja ĉiarilate kontrastis Potifaron. Li estis inteligenta, malsamspece inĝenia, kaj sciis mildavoĉe tamen atentoveke paroli pri interesaj aferoj, ekzemple pri bezono harmonie kunvivadi — certe tio estis nuraj fantaziaĵoj, sed ege plaĉaj kaj iel strange feliĉigaj. Estis bal-19
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-zamo por mia malsana animo: fine mi sukcesis forigi la netolereblan enuon\! 
+zamo por mia malsana animo: fine mi sukcesis forigi la netolereblan enuon!
 
 Mire mi konstatis, ke jen homo vere homeca, kiu emas kompreni ies animon … Tio ĉi ŝajnis al mi subite kiel miraklo, ia donaco de l’ĉielo, ia fatala sugesto: jen reale, vivanta viro, kiu frape similas al tiu mia elrevito —
 
-certe ne povas esti nura hazardo, ke li fakte, sangokor-pe ekzistas. Probable li alvenis de lontane sole pro mi, por efektivigi miajn revojn, transformi ilin je difinita, fiksa personaĵo. Tutcerte estis tiel — ĉar plenkore mi deziris, ke tiel estu. 
+certe ne povas esti nura hazardo, ke li fakte, sangokor-pe ekzistas. Probable li alvenis de lontane sole pro mi, por efektivigi miajn revojn, transformi ilin je difinita, fiksa personaĵo. Tutcerte estis tiel — ĉar plenkore mi deziris, ke tiel estu.
 
 Firme mi tion kredis kaj feliĉis. Kvankam matura vi-
 
 rino, nur nun mi komencis vivi primaveron de mia femineco, spertante mian tardan unuan amon. Unuan kaj
 
-kredeble porĉiaman. 
+kredeble porĉiaman.
 
 Ekde tiu konsciiĝo mi komencis intence serĉi la ĉeeston de Jozefo. Neniun okazon mi maluzis. Senpacience mi ĝojatendis lin, kaj ĉiu lia alveno pliintensigis mian korbatadon. Vane mi fervoris kaj mian vango-ruĝiĝon
 
@@ -402,17 +348,15 @@ pro lia alrigardo — mian nefruan aman ekardon mi trovis hontinda, kaj tamen mi
 
 ĝis eĉ post lia foriro, mia memo resonancis per ĝi, tuta mia estaĵo agorditis je belsona, dominanta melodio de superba amkanto …
 
-20
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Kaj dioj tiel favoris min, ke ili eĉ sonĝigis min pri Jozefo\! La nereala, iluzia imagito de ismaj revoj modifiĝis en miaj nunaj sonĝoj je amato tute reala kun difina kor-poformo kaj konkreta konduto. Nur ĉi-tempe mi lernis aprezi la veran valoron de sonĝoj, kvankam tiuj miaj ne bezonis ja klarigon. Ilia enhavo estis tute senkomplika kaj absolute unusignifa — tamen tiel rava kaj intensa, ke nemalofte mi eĉ vekiĝis …
+Kaj dioj tiel favoris min, ke ili eĉ sonĝigis min pri Jozefo! La nereala, iluzia imagito de ismaj revoj modifiĝis en miaj nunaj sonĝoj je amato tute reala kun difina kor-poformo kaj konkreta konduto. Nur ĉi-tempe mi lernis aprezi la veran valoron de sonĝoj, kvankam tiuj miaj ne bezonis ja klarigon. Ilia enhavo estis tute senkomplika kaj absolute unusignifa — tamen tiel rava kaj intensa, ke nemalofte mi eĉ vekiĝis …
 
-Malgraŭ tio — ŝajnis al mi, ke en ĉiuj ĉi sonĝoj restas ankoraŭ io enĉifrita, neesprimita, io grandioza eĉ fatala — kaj subite frapis min ekpenso: rigardu, jen la ĝusta patro por via ido\! Jozefo ja\! 
+Malgraŭ tio — ŝajnis al mi, ke en ĉiuj ĉi sonĝoj restas ankoraŭ io enĉifrita, neesprimita, io grandioza eĉ fatala — kaj subite frapis min ekpenso: rigardu, jen la ĝusta patro por via ido! Jozefo ja!
 
-Estis kiel fulmo el sennuba ĉielo. Kia ideo\! Certe la dioj mem entrudis ĝin al mi. Jes, mi havigos idon far Jozefo\! ¯i estos patrodevene saĝa, belaspekta kaj bonmo-ra, ringobuklan hararon ĝi havos, malhelajn okuletojn rosinaspektajn, la karakterizan buŝtrajton kun milda ri-deto simila al tiu de lia paĉjo — etulo mia plej ĉarma, aminda, bebeto kun fajna haŭto rozkolora, panjo vin
+Estis kiel fulmo el sennuba ĉielo. Kia ideo! Certe la dioj mem entrudis ĝin al mi. Jes, mi havigos idon far Jozefo! i estos patrodevene saĝa, belaspekta kaj bonmo-ra, ringobuklan hararon ĝi havos, malhelajn okuletojn rosinaspektajn, la karakterizan buŝtrajton kun milda ri-deto simila al tiu de lia paĉjo — etulo mia plej ĉarma, aminda, bebeto kun fajna haŭto rozkolora, panjo vin
 
 dorlotos kaj lulos kaj abunde mamnutros, por ke vi povu kontente ekdormi kaj dolĉe baji kvazaŭ birdido en nes-teto molmola — baju, ho baju, mia amegata, elsopirita, rozvanga Jozefideto — —
 
@@ -420,65 +364,61 @@ Freneze feliĉa mi estis pro jena bonŝanco. Neniam plu mi sentos min soleca; e�
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-a, nia infano\! Mi sentis min jam kvazaŭgraveda pro la mema penso, kiun mi kaŝe portis plej profunde en mia animo. 
+a, nia infano! Mi sentis min jam kvazaŭgraveda pro la mema penso, kiun mi kaŝe portis plej profunde en mia animo.
 
-Nur urĝe necesas ĉion-ĉi reteni kiel gravan sekreton kaj protekti kontraŭ ĉiuj, precipe kontraŭ Potifar. Li estas ja tre ĵaluzema kaj kapablus eĉ eble mortigi kaj min kaj la infaneton. 
+Nur urĝe necesas ĉion-ĉi reteni kiel gravan sekreton kaj protekti kontraŭ ĉiuj, precipe kontraŭ Potifar. Li estas ja tre ĵaluzema kaj kapablus eĉ eble mortigi kaj min kaj la infaneton.
 
 Do, ekde tiam mi embuskis konvenan okazon por ka-
 
-ŝe kunveni kun Jozefo, kaj senpacience ĝojatendis la ontan rendevuon. 
+ŝe kunveni kun Jozefo, kaj senpacience ĝojatendis la ontan rendevuon.
 
 Daŭris nelonge. Nome kelkajn tagojn post la decidiĝo mi hazarde eksciis, ke la juna faraono estas okazigonta luksan festenon, kiun devas partopreni ĉiuj altrangaj funkciuloj, por kune pritrakti organizajn preparlaborojn koncerne novan piramidon, kiun la superulo intencas
 
-siaomaĝe konstruigi. La kunveno okazu je la ekvinoksa festo. 
+siaomaĝe konstruigi. La kunveno okazu je la ekvinoksa festo.
 
 Mi bone sciis, ke tiaj kunsidoj estas ĉiam ceremonio-plenaj kaj pro abundo da enuigaj apoteozaj paroladoj kutime prokrastiĝas ĝis malfrua nokto. Estis por mi bon-
 
-ŝanca tio, ke Potifar sufiĉe longan tempon forestos ek-sterhejme. 
+ŝanca tio, ke Potifar sufiĉe longan tempon forestos ek-sterhejme.
 
 Nun, fine venis la avide atendita tago. Ties plimulton mi pasigis belaspektigante min — kaj en tarda posttag-mezo mi ordonis al sklavino, ke ŝi venigu Jozefon, kun kiu mi priparolu la samtempan staton de nia dommast-22
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-rumado. Kompreneble, tio estis nura preteksto, ĉar pri tiaj aferoj mi neniam eĉ iomete interesiĝis. 
+rumado. Kompreneble, tio estis nura preteksto, ĉar pri tiaj aferoj mi neniam eĉ iomete interesiĝis.
 
 Precize mi rememoras la tiaman, al mi multpromesan
 
 antaŭvesperon:
 
-Vi surprizitis, trovinte min sola, ĉu? Kaj post kiam mi sugestis al vi eksidi apude de mi, vi vangoruĝiĝis pro embaraso — ho, pudorema fraŭlo, tiel aminda\! Kvankam alifoje tiel elokventa, nun vi komencis balbuteme kaj malflue paroli pri iaj bagatelaĵoj, kies temon mi ne plu memoras. Verdire eĉ tiame mi ne aŭskultis la vorten-havon, sole via voĉsono min forte impresis. Viaj manoj malkvietis pro mensa konfuzo — mi bone rimarkis kaj
+Vi surprizitis, trovinte min sola, ĉu? Kaj post kiam mi sugestis al vi eksidi apude de mi, vi vangoruĝiĝis pro embaraso — ho, pudorema fraŭlo, tiel aminda! Kvankam alifoje tiel elokventa, nun vi komencis balbuteme kaj malflue paroli pri iaj bagatelaĵoj, kies temon mi ne plu memoras. Verdire eĉ tiame mi ne aŭskultis la vorten-havon, sole via voĉsono min forte impresis. Viaj manoj malkvietis pro mensa konfuzo — mi bone rimarkis kaj
 
 ekĝojis pri tio, ĉar mi same ja malpaciencis, avida je vi …
 
 Plenanime mi celis vin, tutkorpe mi apertis min por
 
-vi, virgece pura kvazaŭ junulinjo unuafoje akceptonta sopiratan amanton, per ĉiuj inaĵoj mi ekburĝonis, kon-vinke mi sentis, ke nur ĉi tiam mi plenmaturiĝas — rigardu, karulo, kiel superbe mi floras, venu jam, venu kaj prenu — papilieto subtila, tenere min tuŝu kaj igu min fekunda arbo eldononta miraklan frukton de vivo nov-enaskita … Ja ne hezitu, vidu kiel mi ardas, tutpretas, la amsoifo jam troiĝas, lasu vin karesi, ja brakumu min, brakumu ripete, plejforte, min kovru per kisoj kaj ardi-gu ĝis plena gea satiĝo …\! 
 
 Sed vi ne faris. Nenion vi faris. Vi nur sidaĉis kvazaŭ 23
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-lignaĵo kaj gapis kun buŝo duone malfermita. Kaj kiam mi flate tuŝis vian vangon — ĉu mi ne eraras? — vi skuiĝis kaj naŭze retiris vin, kvazaŭ mi estus abomeninda leprulino, kaj en viaj okuloj vidiĝis sindefenda, malami-keca rezisto. 
+lignaĵo kaj gapis kun buŝo duone malfermita. Kaj kiam mi flate tuŝis vian vangon — ĉu mi ne eraras? — vi skuiĝis kaj naŭze retiris vin, kvazaŭ mi estus abomeninda leprulino, kaj en viaj okuloj vidiĝis sindefenda, malami-keca rezisto.
 
 Kaj tiumomente ĉio en mi ruiniĝis. Jen mi ekkonis
 
-vian fikarakteron\! Plej ravan ĝardenon de pasia, sindo-na amo mi volis al vi sperti, nur manon etendi sufiĉis kaj ĉion, entute ĉion vi estus ricevinta —sed vi malkuraĝis\! 
+vian fikarakteron! Plej ravan ĝardenon de pasia, sindo-na amo mi volis al vi sperti, nur manon etendi sufiĉis kaj ĉion, entute ĉion vi estus ricevinta —sed vi malkuraĝis!
 
-Pro kia kialo? ĉu pro timo, ke Potifar ne eksigu vin de tiu dubinda oficaĉo? Ja kiel nur, k i e l vi kapablis perfide forŝakri mian dignon, min tutan, pro ia mizera posteno?\! 
+Pro kia kialo? ĉu pro timo, ke Potifar ne eksigu vin de tiu dubinda oficaĉo? Ja kiel nur, k i e l vi kapablis perfide forŝakri mian dignon, min tutan, pro ia mizera posteno?!
 
-Ni povintus ja paradize feliĉi, almenaŭ tiuvespere — kaj tiamaniere vi ĉion fuŝis; vi traktis min kiel favan publi-kulinon, kaj mi subite ŝajnis ĉefroli en obscena farso\! 
+Ni povintus ja paradize feliĉi, almenaŭ tiuvespere — kaj tiamaniere vi ĉion fuŝis; vi traktis min kiel favan publi-kulinon, kaj mi subite ŝajnis ĉefroli en obscena farso!
 
-Tian humiligon mi ne povis ja toleri, mi devis, d e v i s vangofrapi vin kaj bati kaj bati kapo-nekapo, eble mi eĉ mortigintus vin — kaj vi tamen ne provis defendi vin, nur fuĝi vi kapablis, jen ununura faro, kiun vi scipovis\! 
+Tian humiligon mi ne povis ja toleri, mi devis, d e v i s vangofrapi vin kaj bati kaj bati kapo-nekapo, eble mi eĉ mortigintus vin — kaj vi tamen ne provis defendi vin, nur fuĝi vi kapablis, jen ununura faro, kiun vi scipovis!
 
-Kaj kiam mi volis ankoraŭ reteni vin, vi prefere lasis en miaj manoj vian mantelon kaj kuregis kiel freneza negliĝulo sur la terason. 
+Kaj kiam mi volis ankoraŭ reteni vin, vi prefere lasis en miaj manoj vian mantelon kaj kuregis kiel freneza negliĝulo sur la terason.
 
-Kaj — malbena fatalhoro\! — tiumomente mi ekrimar-
+Kaj — malbena fatalhoro! — tiumomente mi ekrimar-
 
 kis, ke ĝuste preterpasas mia plej honorinda edza moŝ-
 
@@ -486,29 +426,28 @@ to, tro frue rehejmiĝanta kaj pompe akompanata de aro da siaj elstaraj policano
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ĉiuj haltis kaj stupide gapis embarasite, ne povante kompreni la skandalozan spektaklon. 
+ĉiuj haltis kaj stupide gapis embarasite, ne povante kompreni la skandalozan spektaklon.
 
-Skurĝigu lin, Potifar\! kriis mi en furioza kolero. Skur-
+Skurĝigu lin, Potifar! kriis mi en furioza kolero. Skur-
 
-ĝigu Jozefon, li volis malĉaste perforti min\! Rigardu la senhontulon\! Ja skurĝigu lin\! 
+ĝigu Jozefon, li volis malĉaste perforti min! Rigardu la senhontulon! Ja skurĝigu lin!
 
-Kion alian mi povis fari? 
+Kion alian mi povis fari?
 
 Memkomprene, mia malsprita edzo unue bovrigardis
 
 kvazaŭ falinte desur la ĉielo, ĉar la senvesta neniontaŭ-
 
-gulo malvoĉis, timtremante kiel kano en vento. Sed kiam mi persiste postulis gravan punon por Jozefo, Potifar venigis unu brutalan murdemulon for de gvardia posteno kaj ordonis vipregali sian perfidan eksfavoriton. 
+gulo malvoĉis, timtremante kiel kano en vento. Sed kiam mi persiste postulis gravan punon por Jozefo, Potifar venigis unu brutalan murdemulon for de gvardia posteno kaj ordonis vipregali sian perfidan eksfavoriton.
 
-Ho, kiel ĝojis mi pro ĉiu skurĝbato\! Bone al vi, mi
+Ho, kiel ĝojis mi pro ĉiu skurĝbato! Bone al vi, mi
 
-pensis, bone tiel: Vi mortigis en mi amon — jen la plej grava krimo, kiun oni ne pardonas\! — —
+pensis, bone tiel: Vi mortigis en mi amon — jen la plej grava krimo, kiun oni ne pardonas! — —
 
 ĉu oni opiniu min kruela? Neniel, nur malfeliĉa mi
 
-estas, senlime malfeliĉa. ĉioman amon mi disipis por Jozefo, kaj nenio restis por iu ajn alia, eĉ ne por mi mem. 
+estas, senlime malfeliĉa. ĉioman amon mi disipis por Jozefo, kaj nenio restis por iu ajn alia, eĉ ne por mi mem.
 
 La koro rigidas kaj korpo velkas — por kiu mi floru? …
 
@@ -516,265 +455,241 @@ Neniam elfontos lakto el mia mamo por satigi etulon —
 
 tombo vivanta mi estas, vulkano senerupcia …
 
-A˛, vi malbeninda obstinulo — sufokiĝu per via orgoj-la troĉasteco, putru ĝismorte en la malliberejo, kie vin arestigis tiu grasventra idioto — neniam plu mi volas vidi vin, neniam pri vi aŭdi\! Jen, kion vi faris el mi — ĉu vi ne bedaŭras? —
+A˛, vi malbeninda obstinulo — sufokiĝu per via orgoj-la troĉasteco, putru ĝismorte en la malliberejo, kie vin arestigis tiu grasventra idioto — neniam plu mi volas vidi vin, neniam pri vi aŭdi! Jen, kion vi faris el mi — ĉu vi ne bedaŭras? —
 
-25
-
-LA SKANDALO PRO JOZEFO
-
-eLIBRO
-
-ĉiuj iru for\! For de mi — neniu al mi parolu pri Joze-fo\! Eĉ aŭdi lian nomon mi ne povas … Jozefo, Jozefo —
-
-kial vi miskomprenis min, stultuleto naiva, senruza, so-pirato mia —Joĉjo\!… Venu, ho venu, mi petegas — venu ĉi nokte por preni min — almenaŭ en sonĝo …
-
-26
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
+
+ĉiuj iru for! For de mi — neniu al mi parolu pri Joze-fo! Eĉ aŭdi lian nomon mi ne povas … Jozefo, Jozefo —
+
+kial vi miskomprenis min, stultuleto naiva, senruza, so-pirato mia —Joĉjo!… Venu, ho venu, mi petegas — venu ĉi nokte por preni min — almenaŭ en sonĝo …
+
+
+LA SKANDALO PRO JOZEFO
+
 
 *… kaj la sinjoro de Jozefo fordonis lin en malliberejon, kie* *la arestitoj de la reĝo estis tenataj. Kaj li restadis tie en la* *malliberejo …. *
 
 GENEZO, XXXIX, 20
 
-*\(En traduko de Zamenhof:*
+*(En traduko de Zamenhof:*
 
-*20 Kaj la sinjoro de Jozef prenis lin kaj fordonis lin en* *malliberejon, en la lokon, kie la malliberuloj de la reĝo* *estis tenataj; kaj li estis tie en la malliberejo.\)* 27
+*20 Kaj la sinjoro de Jozef prenis lin kaj fordonis lin en* *malliberejon, en la lokon, kie la malliberuloj de la reĝo* *estis tenataj; kaj li estis tie en la malliberejo.)* 27
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Plendoj de Jozefo arestita
 
-Plago kaj pesto\! Kiel longe oni ankoraŭ tenos min, 
+Plago kaj pesto! Kiel longe oni ankoraŭ tenos min,
 
-damne, en jena sordida, ŝimfetora tenebrejo? 
+damne, en jena sordida, ŝimfetora tenebrejo?
 
-Ho, mi povrulo, en belega kaĉo mi sidas\! Panjo mia
+Ho, mi povrulo, en belega kaĉo mi sidas! Panjo mia
 
 plej kara, bone estas, ke vi ne ĝisvivis mian ĉi-tempan malhonorigon. Kiel vi suferus, vidante min kaŭri post la krado kvazaŭ laborbeston — vi, kiu ĉiam antaŭdiradis mian bonŝancon, asertante, ke vi naskis min en la sepa tago, en tiu laŭdira ripoztago de l’Kreinto. En efektivo —
 
-fatala malsukcesulo mi estas jam ekde mia koncipiĝo. 
+fatala malsukcesulo mi estas jam ekde mia koncipiĝo.
 
-Ja kial, damne, ĝuste mi devis naskiĝi en la familio kun tiel malsimplaj parencrilatoj? El inter dek miaj pli aĝaj fratoj tiujn ses la patro generis dum sia unua edzeco kun mia onklino, sekve de kio mi neniam certis, ĉu ili estas miaj fratoj, ĉu kuzoj — kaj la ceteraj kvar estis na-skitoj de du sklavinoj, kiujn la praonklo Laban donis el mia patro kune kun siaj ambaŭ filinoj. Komplikita afero, kiu malserenigis mian tutan infanaĝon. 
+Ja kial, damne, ĝuste mi devis naskiĝi en la familio kun tiel malsimplaj parencrilatoj? El inter dek miaj pli aĝaj fratoj tiujn ses la patro generis dum sia unua edzeco kun mia onklino, sekve de kio mi neniam certis, ĉu ili estas miaj fratoj, ĉu kuzoj — kaj la ceteraj kvar estis na-skitoj de du sklavinoj, kiujn la praonklo Laban donis el mia patro kune kun siaj ambaŭ filinoj. Komplikita afero, kiu malserenigis mian tutan infanaĝon.
 
 Jes, ja, paĉjo Jakobo vere favoris min, sed eĉ tro okulfrape — ĉar ĝuste lia inklino vekis fortan malŝaton de 28
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-miaj fratoj. Ili antaŭtimis probable, ke mi ne estiĝu ĉef-heredonto de l’patra havaĵo malgraŭ tio, ke mi estis la plej juna inter ili ĉiuj, tiam. Cetere, tia praktiko estis jam elprovita en nia familio; laŭdire mia paĉjo malprave aro-gis al si la rajtojn de unuenaskito por malutilo de sia pli aĝa ĝemelfrato Ezaŭ, per ruza artifiko elloginte patran benon de avo Isaak, kiu pro blindeco misdistingis siajn filojn … Vere tikla historiaĵo, kiun oni ĉiam prialudis nur duonbuŝe kaj flustravoĉe en nia familio. 
+miaj fratoj. Ili antaŭtimis probable, ke mi ne estiĝu ĉef-heredonto de l’patra havaĵo malgraŭ tio, ke mi estis la plej juna inter ili ĉiuj, tiam. Cetere, tia praktiko estis jam elprovita en nia familio; laŭdire mia paĉjo malprave aro-gis al si la rajtojn de unuenaskito por malutilo de sia pli aĝa ĝemelfrato Ezaŭ, per ruza artifiko elloginte patran benon de avo Isaak, kiu pro blindeco misdistingis siajn filojn … Vere tikla historiaĵo, kiun oni ĉiam prialudis nur duonbuŝe kaj flustravoĉe en nia familio.
 
 Tamen mi almenaŭ komprenis, kial paĉjo Jakobo es-
 
-tas tie morozulo, daŭre nubmiena kaj vortŝparema. Versimile memriproĉoj turmentis lin kaj pentigis pro tiu fia peko. Probable ĝuste tial li alkutimiĝis ĉiuokaze emfazi la severecon de Eternulo kaj nepran devon de ni ĉiuj senescepte obeadi Liajn ordonojn. 
+tas tie morozulo, daŭre nubmiena kaj vortŝparema. Versimile memriproĉoj turmentis lin kaj pentigis pro tiu fia peko. Probable ĝuste tial li alkutimiĝis ĉiuokaze emfazi la severecon de Eternulo kaj nepran devon de ni ĉiuj senescepte obeadi Liajn ordonojn.
 
 A˛, paĉjo, kiomfoje ni knaboj devis reaŭskulti vian
 
-rakontadon pri praavo Abraham, kiu — obea al la ordo-no de Eternulo — volontis ofermortigi sian propran file-ton Izaak\! Laŭdire nur lastamomente aŭdiĝis laŭtvoĉa malpermeso de Disinjoro: Ne faru\! … Kia turmenta ekzameno\! Damne, ĉu la Eternulo fakte estas tiel kruele-ga, tiel malica? Ja kian animtorturon la praavo devis sperti, kondukante sian knabeton al la oferaltaro por buĉi lin kvazaŭ brutaĉon — kaj kia angoro kredeble atakis la povran etulon, post kiam la patro kateninte lin prenis tranĉilegon, preta finfari la ferocan fiagon\! …
+rakontadon pri praavo Abraham, kiu — obea al la ordo-no de Eternulo — volontis ofermortigi sian propran file-ton Izaak! Laŭdire nur lastamomente aŭdiĝis laŭtvoĉa malpermeso de Disinjoro: Ne faru! … Kia turmenta ekzameno! Damne, ĉu la Eternulo fakte estas tiel kruele-ga, tiel malica? Ja kian animtorturon la praavo devis sperti, kondukante sian knabeton al la oferaltaro por buĉi lin kvazaŭ brutaĉon — kaj kia angoro kredeble atakis la povran etulon, post kiam la patro kateninte lin prenis tranĉilegon, preta finfari la ferocan fiagon! …
 
-29
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Plurfoje revidiĝis al mi la horora spektaklo en sonĝo
 
-— sed tiuokaze mi mem aktoradis la rolon de l’oferota knabo. Kutime mi vekiĝis ŝvitkovrita pro teruro kriante: Ne faru, patro\! Ne faru\! … Bone mi memoras, panjo, 
+— sed tiuokaze mi mem aktoradis la rolon de l’oferota knabo. Kutime mi vekiĝis ŝvitkovrita pro teruro kriante: Ne faru, patro! Ne faru! … Bone mi memoras, panjo,
 
-viajn kvietigajn vortojn, kiam vi konsoladis min dirante: ĉu denove inkubo premas vin? Nu, trankviliĝu jam, ne ploru plu, ĉio malbona forpasos ja … Kaj karese vi dorlotis min ĝis mi ĉesis plorsingulti kaj ree ekdormis en via mola brakumo. 
+viajn kvietigajn vortojn, kiam vi konsoladis min dirante: ĉu denove inkubo premas vin? Nu, trankviliĝu jam, ne ploru plu, ĉio malbona forpasos ja … Kaj karese vi dorlotis min ĝis mi ĉesis plorsingulti kaj ree ekdormis en via mola brakumo.
 
-Jes — mia afabla, bonkora panjo\! La ununura aminda
+Jes — mia afabla, bonkora panjo! La ununura aminda
 
-estaĵo en la misa familio. Mia ĉiama protektantino, mia zorgema gardanĝelo\! 
+estaĵo en la misa familio. Mia ĉiama protektantino, mia zorgema gardanĝelo!
 
-Verdire ĉiam mi sentis min fremdulo inter la pli aĝaj fratoj. Se mi volis partopreni en iliaj knabaj ludoj, ĉiufoje ili forpelis min, kontraŭĵetante ŝtonojn kaj moke kriante: Malaperu, ĉemizpisulo\! Cicemaj idaĉoj ne allasitas: Postkuru vian fipanjon, ke ŝi elkakigu vin\! — Kio do restis al mi? Izoli min kaj nur de ioma distanco priobservadi la knabecan petoladon de mia netolerema frataro. 
+Verdire ĉiam mi sentis min fremdulo inter la pli aĝaj fratoj. Se mi volis partopreni en iliaj knabaj ludoj, ĉiufoje ili forpelis min, kontraŭĵetante ŝtonojn kaj moke kriante: Malaperu, ĉemizpisulo! Cicemaj idaĉoj ne allasitas: Postkuru vian fipanjon, ke ŝi elkakigu vin! — Kio do restis al mi? Izoli min kaj nur de ioma distanco priobservadi la knabecan petoladon de mia netolerema frataro.
 
-Sole Ruben, tiu plej aĝa inter ili, traktadis min iom dece kaj iam-tiam eĉ defendetis min kontraŭ atakoj de tiuj ceteraj. 
+Sole Ruben, tiu plej aĝa inter ili, traktadis min iom dece kaj iam-tiam eĉ defendetis mntraŭ atakoj de tiuj ceteraj.
 
 Jes, en etoso de ĝenerala malakordiĝo kaj nebonaj
 
 interrilatoj mi elkreskadis. Verdira solinfano mi sentis min inter la multnombra frataro. Kvazaŭ kukolido en
 
-fremda nesto, kies hejmloĝantoj ĉiel al mi malsimilis. 
+fremda nesto, kies hejmloĝantoj ĉiel al mi malsimilis.
 
-30
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Ilian sintenon mi ofte konsideris stranga eĉ nekompre-nebla. 
+Ilian sintenon mi ofte konsideris stranga eĉ nekompre-nebla.
 
 Foje mi nevidata gvate spektis fraton Isaąr, dum li
 
 kaŭris en vepro masturbante. Tiutempe mi ankoraŭ ne
 
-komprenis la sencon de lia konduto, kiu ŝajnis al mi ridinda kaj laŭtkrie mi mokis lin. Isaąr furioziĝis, kaptis min kaj ege batpunis. Veplorante mi kuris al la patro por plende al li sciigi la okazintaĵon. Paĉjo ekkoleris, venigis Isaąron, akre riproĉis lin kaj plej severe al li malperme-sis masturbadon, asertante ke lia pisilo ĉesos funkcii kaj defalos, se li traktos ĝin tiel malĉaste. Mi tiam ĝojis pro la satisfakcio — sed poste mi ekkonis, ke la malsimpatio de l’frataro kontraŭ mi ankoraŭ pli profundiĝis ekde tiu evento. 
+komprenis la sencon de lia konduto, kiu ŝajnis al mi ridinda kaj laŭtkrie mi mokis lin. Isaąr furioziĝis, kaptis min kaj ege batpunis. Veplorante mi kuris al la patro por plende al li sciigi la okazintaĵon. Paĉjo ekkoleris, venigis Isaąron, akre riproĉis lin kaj plej severe al li malperme-sis masturbadon, asertante ke lia pisilo ĉesos funkcii kaj defalos, se li traktos ĝin tiel malĉaste. Mi tiam ĝojis pro la satisfakcio — sed poste mi ekkonis, ke la malsimpatio de l’frataro kontraŭ mi ankoraŭ pli profundiĝis ekde tiu evento.
 
 Memkomprene, mi malkaŝis la aferon al panjo kaj
 
-konfidence demandis ŝin pri la signifo de la ”malĉasta konduto”. Iom embarase ŝi ekridetis, perfingre ordigis mian taŭzitan hararon, kaj apudsidiginte min komencis rakonti pri du superbaj urboj, kiuj ne plu ekzistas. Laŭ ŝia diro, ties enloĝantoj trovis plaĉon en tre diboĉa vivmaniero, traktadis malbonmore kaj maldece, dediĉis sin al senbrida voluptamo — ĝis la Eternulo ege ekkoleris, per incendio kaj sulfurpluvo detruis ambaŭ urbojn kun ĉiaĵoj, savinte ununuran familion de ia Lot, kiu laŭdire estis nia samdevenulo, eble frato de la praavo Abraham. 
+konfidence demandis ŝin pri la signifo de la ”malĉasta konduto”. Iom embarase ŝi ekridetis, perfingre ordigis mian taŭzitan hararon, kaj apudsidiginte mmencis rakonti pri du superbaj urboj, kiuj ne plu ekzistas. Laŭ ŝia diro, ties enloĝantoj trovis plaĉon en tre diboĉa vivmaniero, traktadis malbonmore kaj maldece, dediĉis sin al senbrida voluptamo — ĝis la Eternulo ege ekkoleris, per incendio kaj sulfurpluvo detruis ambaŭ urbojn kun ĉiaĵoj, savinte ununuran familion de ia Lot, kiu laŭdire estis nia samdevenulo, eble frato de la praavo Abraham.
 
 Suspire mi aŭskultis la impresan rakontadon pri la ĝis-31
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-funda ruinigo de Sodomo kaj Gomoro. Imaginte la teru-raĵojn, mi sentis vibron ĉe la nuko kaj emis larmi pro la kompatinda sorto de la virino, kiu pro scivolemo iĝis salkolono. Ekde tiam mi plore rifuzadis manĝi platku-kojn;. vidante kiel panjo salas paston, mi antaŭtimis, ke mi hazarde ne formanĝu eron de la praonklino muelita je salpolvo. 
+funda ruinigo de Sodomo kaj Gomoro. Imaginte la teru-raĵojn, mi sentis vibron ĉe la nuko kaj emis larmi pro la kompatinda sorto de la virino, kiu pro scivolemo iĝis salkolono. Ekde tiam mi plore rifuzadis manĝi platku-kojn;. vidante kiel panjo salas paston, mi antaŭtimis, ke mi hazarde ne formanĝu eron de la praonklino muelita je salpolvo.
 
 Tiel mi sciiĝis pri la senkompata puno, kiu trafis So-domon kaj Gomoron — sed kion signifas ”malĉaste kon-
 
-duti” mi tamen ne komprenis. 
+duti” mi tamen ne komprenis.
 
 Samtiel ne tute komprenita restis por mi la malbon-
 
 fama evento masakra en Sięm. Nur memoras mi, ke
 
-miaj fratoj Simeon kaj Levi ununokte rehejmiĝis en ŝir-pecigitaj vestoj, ege sangante el abundaj vundoj. Multajn tagojn daŭris ilia resaniĝo, tamen pri la kialo de la akcidento oni parolis nur en duonlaŭtaj aludoj. Kiam mi demandis panjon, kio verdire okazis, ŝi ĉirkaŭfrazis kaj flankenturnis parolon, asertante, ke temas pri afero, kiun mi ne ankoraŭ komprenus. Nur sufiĉe pli poste mi eksciis, ke iuj junuloj el Sięm atencis tiam nian fratinon Dina por sekse misuzi ŝin — kaj pro tiu krimo Simeon kaj Levi, atakinte la urbon, venĝorekompence masakris ties viroseksajn enloĝantojn. 
+miaj fratoj Simeon kaj Levi ununokte rehejmiĝis en ŝir-pecigitaj vestoj, ege sangante el abundaj vundoj. Multajn tagojn daŭris ilia resaniĝo, tamen pri la kialo de la akcidento oni parolis nur en duonlaŭtaj aludoj. Kiam mi demandis panjon, kio verdire okazis, ŝi ĉirkaŭfrazis kaj flankenturnis parolon, asertante, ke temas pri afero, kiun mi ne ankoraŭ komprenus. Nur sufiĉe pli poste mi eksciis, ke iuj junuloj el Sięm atencis tiam nian fratinon Dina por sekse misuzi ŝin — kaj pro tiu krimo Simeon kaj Levi, atakinte la urbon, venĝorekompence masakris ties viroseksajn enloĝantojn.
 
 Vidu, panjo, ĉu mi, damne, povas feliĉi, sciante ke
 
-miaj fratoj estas amasmurdintoj? 
+miaj fratoj estas amasmurdintoj?
 
-32
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-
-
-\* \* \*
 Benjamen, frateto mia kara, orfeto povra, senpatrina —
 
 
-ja kiel vi fartas nuntempe? ĉu vi sanas, ĉu vi prosperas? 
+ja kiel vi fartas nuntempe? ĉu vi sanas, ĉu vi prosperas?
 
-Nur unujara bebo vi estis, kiam oni disigis nin — nun vi havas jam preskaŭ tri jarojn. Ja kiu flegas vin? ĉu oni ne traktas vin maljuste? … Ho, se vi scius, kiel mi antaŭĝojis eksciinte de panjo, ke mi ricevis frateton\! Damne, fine mi ekhavos ververan fraton, naskiton de mia propra
+Nur unujara bebo vi estis, kiam oni disigis nin — nun vi havas jam preskaŭ tri jarojn. Ja kiu flegas vin? ĉu oni ne traktas vin maljuste? … Ho, se vi scius, kiel mi antaŭĝojis eksciinte de panjo, ke mi ricevis frateton! Damne, fine mi ekhavos ververan fraton, naskiton de mia propra
 
-patrino\! 
+patrino!
 
-Jes, tiam mi ankoraŭ ne sciis, ke nia panjo naskinte vin forpasos senrevene al la frida vastespaca mondo de l’tenebro poreterna. ĉu eble jen denova ekzameno de la Eternulo? Kial, doninte al mi la fraton, Li samtempe prenis de mi la patrinon? ĉu jen tiu Dia justeco, patro? 
+Jes, tiam mi ankoraŭ ne sciis, ke nia panjo naskinte vin forpasos senrevene al la frida vastespaca mondo de l’tenebro poreterna. ĉu eble jen denova ekzameno de la Eternulo? Kial, doninte al mi la fraton, Li samtempe prenis de mi la patrinon? ĉu jen tiu Dia justeco, patro?
 
-ĉiam vi asertadis ja, ke bone okazas, kion Dio aranĝas. 
+ĉiam vi asertadis ja, ke bone okazas, kion Dio aranĝas.
 
 Probable mi blasfemas, opiniante Liajn intencojn enig-maj, misterplenaj, iel problemaj eĉ dubindaj — eble Li kreis la homojn nur por havi kiun turmenti per ekzamenoj kaj tiel amuziĝi en sia izoleco — ĉu ne kredeblas? …
 
-Mortonte, panjo, vi admonis min resti ĉiam virtama, 
+Mortonte, panjo, vi admonis min resti ĉiam virtama,
 
-modesta kaj tolerema. Kredeble vi deziris, ke mi fariĝu kvazaŭa vivmodelo por nia Benjamen. Mi ne sukcesis, 
+modesta kaj tolerema. Kredeble vi deziris, ke mi fariĝu kvazaŭa vivmodelo por nia Benjamen. Mi ne sukcesis,
 
 panjo. En la medio de senĉesa ofendado, humiligado kaj maljustaĵoj, ĉu oni, damne, kapablas resti modela, sen-riproĉa? Oni devas ja spiti atencojn, oni devas iamaniere defendadi sin por konservi homecan dignon, por pruvi 33
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-almenaŭ al si mem, ke oni kapablas fronti malicajn ata-kojn de stultuloj. ĉar lukti kontraŭ stulteco — ĉu ne estas konstanta homa devo? 
+almenaŭ al si mem, ke oni kapablas fronti malicajn ata-kojn de stultuloj. ĉar lukti kontraŭ stulteco — ĉu ne estas konstanta homa devo?
 
-Mi eltrovis do efikan rimedon, kiel teni miajn fratojn en senĉesa angoro pri heredotaĵoj, bone sciante, ke ĝuste tio estas malforta flanko de ilia karaktero. Mi pretek-stis sonĝojn, kiuj ŝajne aŭguris miajn estontajn honori-gojn, bonfarton eĉ gloron preskaŭreĝan. Plejparte estis nur simplaj alegorioj facile klarigeblaj, por ke miaj mal-spritaj fratoj povu ilin deĉifri — ekzemple pri iliaj dek grenfaskoj, kiuj humile kliniĝis antaŭ tiu mia — kaj similaj stupidaĵoj. Kaj oni imagu: la blago efikis\! La fratoj parte ekscitiĝis pro miaj fieremo kaj malhumileco, parte zorgumis, ĉu la aŭguroj eble ne praviĝos estontatempe. Nemirinde do — ili grave ekmalamis min. 
+Mi eltrovis do efikan rimedon, kiel teni miajn fratojn en senĉesa angoro pri heredotaĵoj, bone sciante, ke ĝuste tio estas malforta flanko de ilia karaktero. Mi pretek-stis sonĝojn, kiuj ŝajne aŭguris miajn estontajn honori-gojn, bonfarton eĉ gloron preskaŭreĝan. Plejparte estis nur simplaj alegorioj facile klarigeblaj, por ke miaj mal-spritaj fratoj povu ilin deĉifri — ekzemple pri iliaj dek grenfaskoj, kiuj humile kliniĝis antaŭ tiu mia — kaj similaj stupidaĵoj. Kaj oni imagu: la blago efikis! La fratoj parte ekscitiĝis pro miaj fieremo kaj malhumileco, parte zorgumis, ĉu la aŭguroj eble ne praviĝos estontatempe. Nemirinde do — ili grave ekmalamis min.
 
 Aldone, por pliintensigi iliajn envion kaj antaŭtimon, mi ellogadis el la patro diversajn pruvetojn de lia favoro, kio ĉiam rezultigis malpaciĝon ĉe mia frataro. Iliaj kolero kaj malsimpatio kulminis, post kiam la patro do-nacis al mi belan multkoloran kitelon, kiun li por mi aĉetis de nomadaj foirvendistoj el Oriento. Sed ĝuste tiu donaco iĝis por mi fatala …
 
-Ho, kian angoron mi suferis tiam, sur la paŝtejo lontane de nia hejmo\! …Damne, eĉ hodiaŭ revidiĝas al mi la detaloj de la tiama evento: kiel la fratoj kaptis min subite kaj katenis — kiel ili interkonsultis kiamaniere 34
+Ho, kian angoron mi suferis tiam, sur la paŝtejo lontane de nia hejmo! …Damne, eĉ hodiaŭ revidiĝas al mi la detaloj de la tiama evento: kiel la fratoj kaptis min subite kaj katenis — kiel ili interkonsultis kiamaniere 34
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 senvivigi min — kiel poste Ruben persvadis ilin, ke ili nur sinkigu min en malnovan senakvan puton — la ena
 
 humida malvarmo kaj precipe la terura antaŭtimo pri
 
-iompostioma mortado pro malsato … ho fi\! 
+iompostioma mortado pro malsato … ho fi!
 
 Kiel esperige eksonis poste la blekado de kameloj —
 
-jen ja karavano\! Damne, ĝi proksimiĝas — se mi vekri-os, eble oni helpos min\! 
+jen ja karavano! Damne, ĝi proksimiĝas — se mi vekri-os, eble oni helpos min!
 
-Jes, oni savis mian vivon, sed kontraŭ kia prezo\! La friponaj fratoj resuprenigis min el la puto nur por sen-
+Jes, oni savis mian vivon, sed kontraŭ kia prezo! La friponaj fratoj resuprenigis min el la puto nur por sen-
 
-ĝene vendi min al la ismaelidaj negocistoj vojaĝantaj el Galaad en Egiption kun ŝarĝo de balzamoj. Ili ne rifuzis aĉeti sklavon, des pli eble, se miaj fratoj malice asertis, ke mi estas sperta sonĝaŭguristo. 
+ĝene vendi min al la ismaelidaj negocistoj vojaĝantaj el Galaad en Egiption kun ŝarĝo de balzamoj. Ili ne rifuzis aĉeti sklavon, des pli eble, se miaj fratoj malice asertis, ke mi estas sperta sonĝaŭguristo.
 
 Do, almenaŭ vivanta mi restis. Kia bonŝanco en la
 
-malfeliĉo\! Tamen kia humiligo — esti vendita de siaj fratoj — —
+malfeliĉo! Tamen kia humiligo — esti vendita de siaj fratoj — —
 
 Mi eĉ ne scias, kiom oni pagis por mi. Versimile mi
 
 estis ne tre altpreza, ĉar la fratoj eĉ senvestigis min kaj duonnudan transdonis al la aĉetintoj. Mian preferatan buntan kitelon ili disŝiris kaj makulis per sango de buĉi-ta ŝafido, por ke ili povu kredigi la patron, ke mi estis diskarnita de sovaĝaj bestoj. Povra ŝafido …
 
-Kaj povra paĉjo — kiamaniere ili afliktis lin\! 
+Kaj povra paĉjo — kiamaniere ili afliktis lin!
 
-Tamen pleje povras mia malgranda frateto Benjamen. 
+Tamen pleje povras mia malgranda frateto Benjamen.
 
 De nun li estos vivanta kiel sendefenda duonorfo ofer-lasita al maljustaĵoj de la malica parencaro. Adiaŭ ver-35
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 simile por ĉiam, senespere je revido. Kiel sklavon oni forkondukas min fremdlanden, mi tamen sentas min
 
-kvazaŭ liberigita. For de tiu kanajlaro, kiun mi ne povas nomi samsanguloj\! Ja kia morala mizero, sangoparencan proksimulon fari nura komercobjekto\! …
+kvazaŭ liberigita. For de tiu kanajlaro, kiun mi ne povas nomi samsanguloj! Ja kia morala mizero, sangoparencan proksimulon fari nura komercobjekto! …
 
 
-
-\* \* \*
-Ja kurioza popolo, tiuj egiptoj\! 
+Ja kurioza popolo, tiuj egiptoj!
 
 
 Nekredebla miksaĵo de klereco kaj superstiĉoj akom-
 
-panas ilin ne nur dumvive, sed eĉ postmorte. Kun infa-na naiveco ili kredas, ke mortinto daŭrigas sian vivadon kaj spiritan kaj korpan en alia, transa mondo. Tamen ŝajnas, ke ilia paradiza mortintejo estas konsiderinde malriĉa kaj per nenio provizita, ĉar la enirontoj devas ĉiujn vivbezonaĵojn kunporti, se ili volas en la ombro-regno same bonfarti kiel dum sia vivado surtera. 
+panas ilin ne nur dumvive, sed eĉ postmorte. Kun infa-na naiveco ili kredas, ke mortinto daŭrigas sian vivadon kaj spiritan kaj korpan en alia, transa mondo. Tamen ŝajnas, ke ilia paradiza mortintejo estas konsiderinde malriĉa kaj per nenio provizita, ĉar la enirontoj devas ĉiujn vivbezonaĵojn kunporti, se ili volas en la ombro-regno same bonfarti kiel dum sia vivado surtera.
 
-Kaj bonfarti ili scias ja, damne kun ili\! Kiel diboĉemaj, voluptamaj, gloravidaj ili estas\! Cetere ĉio-ĉi plej klare respeguliĝas en ilia ŝtatsistemo mem: ne la plej prudentaj aĝuloj estras, sed plej ambiciaj riĉuloj. Kaj tiu plej alte postenanta ambiciulo nomas sin faraono. ĉiuj adoras lin kiel dion, absolute ĉion li posedas kaj senlime li potencas. 
+Kaj bonfarti ili scias ja, damne kun ili! Kiel diboĉemaj, voluptamaj, gloravidaj ili estas! Cetere ĉio-ĉi plej klare respeguliĝas en ilia ŝtatsistemo mem: ne la plej prudentaj aĝuloj estras, sed plej ambiciaj riĉuloj. Kaj tiu plej alte postenanta ambiciulo nomas sin faraono. ĉiuj adoras lin kiel dion, absolute ĉion li posedas kaj senlime li potencas.
 
 Kapturniĝo atakis min super la beleco kaj okulfrapa
 
-lukso, kiujn mi ekvidis ĉie ĉirkaŭe, venigita en la urbon. 
+lukso, kiujn mi ekvidis ĉie ĉirkaŭe, venigita en la urbon.
 
 Damne, eĉ kredi al propraj okuloj mi ne emis, rigardante 36
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-la superbajn templojn kaj palacojn — mi, kiu kutimis al sobra modesto, ĝis nun vivinte en argila domaĉo kaduk-difektita kaj tro malvasta por la tielnombra familio. 
+la superbajn templojn kaj palacojn — mi, kiu kutimis al sobra modesto, ĝis nun vivinte en argila domaĉo kaduk-difektita kaj tro malvasta por la tielnombra familio.
 
 Jes, mirakla lando ŝajnis al mi Egiptio. ĉion mi trovad-is fabele plaĉa kaj ŝatinda — ja eĉ mia sorto mem ŝajnis al mi ne tiel malfavora, kiel mi unue antaŭtimis. Kvankam sklavo, tamen mi atingis kromordinaran postenon
 
-kaj ne estis devigata manlabori, kio kompreneble al mi konvenis. Des pli mi povis priobservadi ĉirkaŭaĵojn. 
+kaj ne estis devigata manlabori, kio kompreneble al mi konvenis. Des pli mi povis priobservadi ĉirkaŭaĵojn.
 
-Kio precipe okulfrapis kaj daŭre altiradis mian atenton, estis la egiptaj virinoj. En mia hejmregiono, en la lando Kanaana, miaj samgentaninoj surportadas ja pe-zajn malhelajn vestaĵojn, kiuj dece vualkaŝas iliajn kor-popartojn. Tute male ĉe la egiptinoj: oni dirus, ke ili vestas sin kun ununura intenco emfazi sian feminecon. Bo-ne mi rememoras, kiel konfuzita mi estadis dekomence, vidante virinojn en diafanaj roboj sub kiuj klare kon-turiĝis defiaj kurblinioj de alloga inkorpo … Mi eĉ hontis rigardi ilin malkaŝe kaj permesadis al mi tian ĝuon nur subokule kaj pelpebrumadaŭre. Tamen poiome mi
+Kio precipe okulfrapis kaj daŭre altiradis mian atenton, estis la egiptaj virinoj. En mia hejmregiono, en la lando Kanaana, miaj samgentaninoj surportadas ja pe-zajn malhelajn vestaĵojn, kiuj dece vualkaŝas iliajn kor-popartojn. Tute male ĉe la egiptinoj: oni dirus, ke ili vestas sin kun ununura intenco emfazi sian feminecon. Bo-ne mi rememoras, kiel konfuzita mi estadis dekomence, vidante virinojn en diafanaj roboj sub kiuj klare kon-turiĝis defiaj kurblinioj de alloga rpo … Mi eĉ hontis rigardi ilin malkaŝe kaj permesadis al mi tian ĝuon nur subokule kaj pelpebrumadaŭre. Tamen poiome mi
 
-tiel plikuraĝiĝis, ke ekvidinte belaspektan inon, mi apenaŭ povis forturni de ŝi mian rigardon. Nur tiutempe mi konsciiĝis, ke belkreskinta virinkorpo estas la plej perfekta kreitaĵo de la Eternulo. Kaj baldaŭ mi ekkomprenis, ke la korpokulto neforigeble apartenas al la moroj 37
+tiel plikuraĝiĝis, ke ekvidinte belaspektan inon, mi apenaŭ povis forturni de ŝi mian rigardon. Nur tiutempe mi konsciiĝis, ke belkreskinta virrpo estas la plej perfekta kreitaĵo de la Eternulo. Kaj baldaŭ mi ekkomprenis, ke la korpokulto neforigeble apartenas al la moroj 37
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-kaj kutimoj de l’egiptoj, same kiel la naiva adorado je pluraj gedioj kun ties komplika hierarkio. 
+kaj kutimoj de l’egiptoj, same kiel la naiva adorado je pluraj gedioj kun ties komplika hierarkio.
 
 Observante la morojn en mia nova vivmedio, mi bal-
 
-daŭ ekkomprenis, ke pri la karaktero de l’egipta socio estas same, kiel pri tiuj hieroglifaj surskriboj, kiujn oni situigas sur ĉiu vaka surfaco: Unue fremdulo perceptas nur unuopajn bildetojn de ne tre klara signifo, sed iom-postiome li ellernas malkaŝi ties kontinuecon; kaj deĉi-frinte aron da pentraĵetoj, oni solvas ties veran sencon kaj ekkomprenas la ideon de l’skribinto. Jes, mi ellernis legi ne nur en la hieroglifaĵoj, sed ankaŭ en la animoj de miaj mastroj. Ne estas nur hazardo, ke nek tie nek jene mi trovis esprimojn poeziajn; nurnure malvarma, sobra senpersoneco enestas. La reliefaj skulptitaĵoj ĉiuloke nur okulfrape akcentas supernaturan grandecon de la superuloj, abundvorte prilaŭdante iliajn laŭdirajn virtojn kaj heroajn farojn. ĉio estas monstroze monumenta, rigide patosa, malsincera kaj hipokrite mensoga. Al intima poezio la egiptoj tute ne inklinas. ĉio nur kvazaŭas. 
+daŭ ekkomprenis, ke pri la karaktero de l’egipta socio estas same, kiel pri tiuj hieroglifaj surskriboj, kiujn oni situigas sur ĉiu vaka surfaco: Unue fremdulo perceptas nur unuopajn bildetojn de ne tre klara signifo, sed iom-postiome li ellernas malkaŝi ties kontinuecon; kaj deĉi-frinte aron da pentraĵetoj, oni solvas ties veran sencon kaj ekkomprenas la ideon de l’skribinto. Jes, mi ellernis legi ne nur en la hieroglifaĵoj, sed ankaŭ en la animoj de miaj mastroj. Ne estas nur hazardo, ke nek tie nek jene mi trovis esprimojn poeziajn; nurnure malvarma, sobra senpersoneco enestas. La reliefaj skulptitaĵoj ĉiuloke nur okulfrape akcentas supernaturan grandecon de la superuloj, abundvorte prilaŭdante iliajn laŭdirajn virtojn kaj heroajn farojn. ĉio estas monstroze monumenta, rigide patosa, malsincera kaj hipokrite mensoga. Al intima poezio la egiptoj tute ne inklinas. ĉio nur kvazaŭas.
 
-Cetere mia mastro mem — jen ja tipa ekzemplo, damne\! 
+Cetere mia mastro mem — jen ja tipa ekzemplo, damne!
 
-Ho, Potifar, vi malestiminda, sagaca aĝulo ĉielprofite-ma, senekzemple ŝparema kaj modele avara\! Ja eĉ min
+Ho, Potifar, vi malestiminda, sagaca aĝulo ĉielprofite-ma, senekzemple ŝparema kaj modele avara! Ja eĉ min
 
 aĉetante, vi senhonte marĉandis kvazaŭ pri ia bruto. Kaj kiam vi poste invitadis min al via familia manĝotablo, kredeble estis nur merite de via edzino. Cetere eĉ tiuka-38
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 ze vi elpensis specialan ruzon, por ke mi ne povu tro manĝokonsumi:
 
@@ -782,40 +697,36 @@ Unue vi ĉiam rakontis al mi enhavon de via pasint-
 
 nokta sonĝo — kaj finparolinte vi tujsekve ekmanĝis, fervore instigante min klarigi ties signifon kaj ŝajnigante vin ege scivola. Anstataŭ manĝi mi devis do babili ver-similajn elpensaĵojn. Kaj se al vi ŝajnis, ke mi volas kon-cizigi mian paroladon, tiam per rafine starigitaj deman-doj vi devigis min priparoladi bagatelajn detalojn, dum vi mem manĝegis plenbuŝe, konsumante la plej bongus-tajn produktojn de via eminenta kuirejo. Nur post kiam vi ŝtope plenigis vian ventregon, kun laŭta rukto vi kutime ŝovis al mi pladon de legomo, emfaze prilaŭdante ties bonfaran kaj sanprosperigan valoron. Samtempe vi kvazaŭ envieme admiradis mian sveltan figuron, afekte malbenante vian korpulentecon, kiu laŭdire antaŭhalti-gas vin manĝi ĝissate; damne, tion mi vere ne rimarkis
 
-— sed kompense mi baldaŭ malkaŝis vian artifikon, vi fripono maldeca\! 
+— sed kompense mi baldaŭ malkaŝis vian artifikon, vi fripono maldeca!
 
 Malgraŭ ĉio ĉi mi ne kapablas kontraŭkoleri vin. Viaj kuglodika figuro kaj memfida sinteno impresas tiel ko-mike, ke vi estas pli eble mokinda — sed kontraŭflanke eĉ iom kompatinda. Ja neniam vi emas humuri kaj ŝer-ci, senĉese vi ion strebas, klopodas, aktivas kaj fervoras, dum ĉia ĉi via penado celas nenien. Nurnure aĵoj por vi ĉiom valoras, la ecoj neniom. Honoravidulo vi estas, tro-39
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-fiera pri ĉiaspecaj akiraĵoj: pri via altranga ofico, pri la luksega domo, pri bienoj, pri amaso da sklavoj, pri via favoro de l’faraono, pri via alloga edzino — ja eĉ pri mi mem, kiun vi kutimis demonstri al viaj gastoj kiel kuri-ozan sovaĝbeston el ekzota regiono. Mi ĉiam estis por vi io kvazaŭ parolanta papago, kalkulscia ĉevalo aŭ pen-tripova simio. 
+fiera pri ĉiaspecaj akiraĵoj: pri via altranga ofico, pri la luksega domo, pri bienoj, pri amaso da sklavoj, pri via favoro de l’faraono, pri via alloga edzino — ja eĉ pri mi mem, kiun vi kutimis demonstri al viaj gastoj kiel kuri-ozan sovaĝbeston el ekzota regiono. Mi ĉiam estis por vi io kvazaŭ parolanta papago, kalkulscia ĉevalo aŭ pen-tripova simio.
 
 Jes, pro via animsimpleco vi eĉ ne kapablis kompre-
 
 ni, kiel ĝenaj por ĉiuj invititoj estis tiuj kunvenoj en via domo, kiujn vi sagace nomis ”festenoj de spirito”, ĉar la ĉefa allogaĵo, per kiu vi regalis la kunvenintojn, estis ne bongustajoj rafine preparitaj — kiel kutimas en la egipta mondumo — sed prezentado de miaj tieldiritej sonĝ-
 
-aŭguraj kapabloj. Estadis pli eble histrionaĵoj ol festenoj. 
+aŭguraj kapabloj. Estadis pli eble histrionaĵoj ol festenoj.
 
 Al la prave surprizitaj gastoj vi ĉiam proponis nur iom da acideta vino abunde akvomiksita, laŭdire por ke ili konservu klaran menson. Damne, mankis nur aldone
 
-enspezi enirpagon, kaj impreso pri ia foiraktoraĉo estus perfekta\! 
+enspezi enirpagon, kaj impreso pri ia foiraktoraĉo estus perfekta!
 
 Jes, vere stranga popolo, tiuj egiptoj. Pri multaj aferoj ili lertas, diversajn malsanojn ili scias kuraci, iliaj kleruloj amasigas abundajn manuskriptojn, iliaj astroobservan-toj prikalkuladas ĉion ajn sur la firmamento, iliaj sacer-dotoj priaŭguradas estontecon al la superuloj — sed tute oni neglektas la pli-malpli regule alternantajn jarperio-dojn de fekundigaj inundoj kaj de sekva ega tersekeco, 40
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-kiu rezultigas ĝeneralan malsategon tutlande. Damne, endas ja iel racie organizi la aferon, ĉu ne? 
+kiu rezultigas ĝeneralan malsategon tutlande. Damne, endas ja iel racie organizi la aferon, ĉu ne?
 
-Tamen — ĉu estas mi, kiu zorgumu pri tio? 
-
+Tamen — ĉu estas mi, kiu zorgumu pri tio?
 
 
-\* \* \*
-Kiel varmega, sunoriĉa tago estis tiame\! …
+Kiel varmega, sunoriĉa tago estis tiame! …
 
 
 Preterpasante la mastran domon, sur la teraso mi ek-
@@ -828,57 +739,51 @@ Kvazaŭ hodiaŭ mi revidas tion:
 
 Malbendamne — kia paŝtaĵo por la okuloj dea sens-
 
-perta, flavbeka virgulo kamparana\! ĉu li iam povis ne-
+perta, flavbeka virgulo kamparana! ĉu li iam povis ne-
 
-ĝenite rigard-frandi tiom da femina karno harmonie el-starigita sub la diafana vualrobo, kiu kapablas kaŝi preskaŭ nenion? Kaj kio ne videblas, kio nur supozatas, tion skizas nun la ekscitita fantazio proponanta malpudorajn imagojn pri la kaŝitaj intimaĵoj … Kia ĝuego malsobra gvati la ravajn kurboformojn de matura inkorpo — jen vidaĵo vere unika\! Damne, Eternulo, vi fakte ĉion povas, se el nura ripo de nia prapatro vi kapablis elsorĉi tian belegaĵon agace efikan …
+ĝenite rigard-frandi tiom da femina karno harmonie el-starigita sub la diafana vualrobo, kiu kapablas kaŝi preskaŭ nenion? Kaj kio ne videblas, kio nur supozatas, tion skizas nun la ekscitita fantazio proponanta malpudorajn imagojn pri la kaŝitaj intimaĵoj … Kia ĝuego malsobra gvati la ravajn kurboformojn de matura rpo — jen vidaĵo vere unika! Damne, Eternulo, vi fakte ĉion povas, se el nura ripo de nia prapatro vi kapablis elsorĉi tian belegaĵon agace efikan …
 
-41
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Jes, fascinita mi gapis ne povante turni rigardon for de la incita spektaĵo: jen ja prezentiĝas modelo de esencpu-ra femineco alloge sternita por diboĉa amfestado\! … ĉu mi kulpas, ke mia viraĵo subite rigidas kaj emfaze pre-tendas sian naturan rajton? Nemirinde ja\! 
+Jes, fascinita mi gapis ne povante turni rigardon for de la incita spektaĵo: jen ja prezentiĝas modelo de esencpu-ra femineco alloge sternita por diboĉa amfestado! … ĉu mi kulpas, ke mia viraĵo subite rigidas kaj emfaze pre-tendas sian naturan rajton? Nemirinde ja!
 
 Sed diable, nun mi ekrimarkis, ke la okuloj de l’ku-
 
-ŝanta virino estas nur duonfermitaj kaj ke ŝi subokule observas min\! Pro embarasiĝo mi forkurontis, sed antaŭ ol mi kapablis moviĝi, la mastrino vigle eksidis, abrup-te alŝovis antaŭ min la pladon plenan de oranĝoj kaj leĝere diris: ”ĉu vi soifas? Ja prenu la fruktojn, ili bongustas\!” 
+ŝanta virino estas nur duonfermitaj kaj ke ŝi subokule observas min! Pro embarasiĝo mi forkurontis, sed antaŭ ol mi kapablis moviĝi, la mastrino vigle eksidis, abrup-te alŝovis antaŭ min la pladon plenan de oranĝoj kaj leĝere diris: ”ĉu vi soifas? Ja prenu la fruktojn, ili bongustas!”
 
 Poste ŝi pigreme levis sin, oscedante streĉis la korpon kaj sen liveri al mi eĉ unu pluan rigardon majeste fortre-tis, per modernaj balancetoj reliefigante sian karnoriĉan gluteon …
 
 
-
-\* \* \*
-Damne, kia enuo, ĉi-tiele malagado\! … Depost kiam oni
+Damne, kia enuo, ĉi-tiele malagado! … Depost kiam oni
 
 
-forkondukis tiujn du kunulojn, la reĝan ĉefkelneron kun la kortega bakistestro, la restado en juna malliberejo iĝas netolerebla. Kun tiuj du almenaŭ interbabili eblis. 
+forkondukis tiujn du kunulojn, la reĝan ĉefkelneron kun la kortega bakistestro, la restado en juna malliberejo iĝas netolerebla. Kun tiuj du almenaŭ interbabili eblis.
 
-Ba, povruloj — ili fakte kredis, ke ni scipovas ekspli-kadi sonĝ-signifojn; kiel naiva ideo\! Ne sonĝojn, sed homojn oni deĉifru por antaŭscii ilian estonton. Mi sim-42
+Ba, povruloj — ili fakte kredis, ke ni scipovas ekspli-kadi sonĝ-signifojn; kiel naiva ideo! Ne sonĝojn, sed homojn oni deĉifru por antaŭscii ilian estonton. Mi sim-42
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ple ellernis diveni karakteron de homoj laŭ iliaj konduto kaj sintenado — jen ĉio, kamaradoj. 
+ple ellernis diveni karakteron de homoj laŭ iliaj konduto kaj sintenado — jen ĉio, kamaradoj.
 
-Pri vi, moŝta estro de kortegaj bakistoj, scias ja kiu ajn, ke vi adis defraŭdi abundon da faruno el la reĝa provizejo — damne, kion alian povis do la faraono fari ol mortopuni vin por ĉies averto? 
+Pri vi, moŝta estro de kortegaj bakistoj, scias ja kiu ajn, ke vi adis defraŭdi abundon da faruno el la reĝa provizejo — damne, kion alian povis do la faraono fari ol mortopuni vin por ĉies averto?
 
-Kontraŭe vi, ĉefkelenero, laŭdire montris nuran mall-ertecon ĉe solena festeno, tropleniginte la reĝan poka-lon. Kelkaj gutoj da vino elverŝiĝis kaj la ofendita faraono en malbona humoro ordonis enkarcerigi vin. Probablis do, ke lia kolero baldaŭ pasos kaj ke vi reatingos vian antaŭan postenon, ĉar — laŭ onidiro — la juna faraono ŝatas justecon. Vi tre ĝojis pro mia pribonŝanca aŭguro kaj preskaŭ larmis pro kortuŝo, forironte. Bone mi rememoras, ke vi ĵurpromesis pledi por mi ĉe la reĝo. 
+Kontraŭe vi, ĉefkelenero, laŭdire montris nuran mall-ertecon ĉe solena festeno, tropleniginte la reĝan poka-lon. Kelkaj gutoj da vino elverŝiĝis kaj la ofendita faraono en malbona humoro ordonis enkarcerigi vin. Probablis do, ke lia kolero baldaŭ pasos kaj ke vi reatingos vian antaŭan postenon, ĉar — laŭ onidiro — la juna faraono ŝatas justecon. Vi tre ĝojis pro mia pribonŝanca aŭguro kaj preskaŭ larmis pro kortuŝo, forironte. Bone mi rememoras, ke vi ĵurpromesis pledi por mi ĉe la reĝo.
 
-Nu, verŝajne baldaŭ vi forgesis, ĉar jam sufiĉe da tempo forpasis depost tiam, kaj mi — damne\! — ĉiam an-
+Nu, verŝajne baldaŭ vi forgesis, ĉar jam sufiĉe da tempo forpasis depost tiam, kaj mi — damne! — ĉiam an-
 
-koraŭ sidaĉas en jena malbenita ejo. ĉi-foje do restis mia sonĝaŭguro senprofita. Ba, ne gravas, almenaŭ ion por amuziĝi mi havis. 
+koraŭ sidaĉas en jena malbenita ejo. ĉi-foje do restis mia sonĝaŭguro senprofita. Ba, ne gravas, almenaŭ ion por amuziĝi mi havis.
 
 ĉu aliaj interesatoj ne troviĝas? He, gesinjoraj moŝtoj
 
-— ĉu neniu el inter vi deziras sonĝprofeti al si?\! Hola, hola, mondumaj grandsinjoroj, noblaj sinjorinoj, ĉarmaj virgulinoj — degnu alpaŝi, mi priservos vin per favora antaŭdiro pri via brila estonteco\! Specialan rabaton vi 43
+— ĉu neniu el inter vi deziras sonĝprofeti al si?! Hola, hola, mondumaj grandsinjoroj, noblaj sinjorinoj, ĉarmaj virgulinoj — degnu alpaŝi, mi priservos vin per favora antaŭdiro pri via brila estonteco! Specialan rabaton vi 43
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ĝuos hodiaŭ: Damne, ĉu neniu scivolas pri sia bonŝan-co? 
+ĝuos hodiaŭ: Damne, ĉu neniu scivolas pri sia bonŝan-co?
 
 Enuo, enuo — teda enuo …
 
@@ -890,7 +795,7 @@ praj sonĝoj — sed estus ja stultaĵo: unue je sonĝaŭgu-rado mi ne kredas �
 
 mian sekvan sintenon. Damne, ĝi procezis ja tiel suges-te, ke eĉ hodiaŭ mi kapablas plej detale reriveli ĝin: Mi baniĝas en vasta maro. Naĝante mi petole ŝvebas
 
-tra la akvo — sed subite mi eksentas, ke io komencas malhelpi miajn movojn, supozeble estas algoj — tamen strebante liberiĝi mi konstatas, ke ne algoj, sed longegaj haroj estas, kio serpentamaniere ĉirkaŭvolvas miajn membrojn kaj malebligas moviĝi — ega forto tiras min malsupren kaj minacas dronigi — jes ja: evidente monst-ra polpo ĉirkaŭpremas min per pluraj alsuĉpovaj tentakloj, abomena polpo kun du kugloformaj kapoj, el kiuj rigide gapas po unu okulo blindaspekta\! Teruro kaj naŭ-
+tra la akvo — sed subite mi eksentas, ke io komencas malhelpi miajn movojn, supozeble estas algoj — tamen strebante liberiĝi mi konstatas, ke ne algoj, sed longegaj haroj estas, kio serpentamaniere ĉirkaŭvolvas miajn membrojn kaj malebligas moviĝi — ega forto tiras min malsupren kaj minacas dronigi — jes ja: evidente monst-ra polpo ĉirkaŭpremas min per pluraj alsuĉpovaj tentakloj, abomena polpo kun du kugloformaj kapoj, el kiuj rigide gapas po unu okulo blindaspekta! Teruro kaj naŭ-
 
 zo atakas min — sed subite mi ekkomprenas, ke ne pol-paj tentakloj sed feminaj gamboj estas, kio katenas min
 
@@ -900,9 +805,8 @@ mambuloj de ia ina estaĵo nevidata, ĝemelkune ili flosas 44
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ĉe la akvonivelo kaj kaĵole tuŝas mian vizaĝon per siaj cicoj burĝonaspektaj — kaj jen ankaŭ malica voĉo moke aŭdiĝas: ja prenu la fruktojn, ili bongustas … bongustas.. 
+ĉe la akvonivelo kaj kaĵole tuŝas mian vizaĝon per siaj cicoj burĝonaspektaj — kaj jen ankaŭ malica voĉo moke aŭdiĝas: ja prenu la fruktojn, ili bongustas … bongustas..
 
 bongustas — — kaj nun mi eksentas, ke ia kavaĵo minacas absorbi min, vane mi luktas por liberiĝi, senŝance mi baraktas — la eniĝo estas jam neevitebla, mi ne plu kapablas rezisti — la nedifinebla aĵo jam per potenca en-suĉo glutas min — — sed mirinde, la enŝova procedo
 
@@ -913,14 +817,12 @@ bongustas — — kaj subita voluptego konvulsia akre tra-iras mian korpon elfun
 ĝisnune nespertitan …
 
 
-
-\* \* \*
 Dum kelkaj tagoj post la ekstravaganca sonĝo mi evita-
 
 
-dis renkonti la mastrinon, ĉar — sen scii kial — mi estis konvinkita, ke ĝuste al ŝi esence rilatas tiu mia erotika sonĝosperto. Mi kvazaŭ timis, ke ŝi iel divenu tion laŭ mia sinteno. 
+dis renkonti la mastrinon, ĉar — sen scii kial — mi estis konvinkita, ke ĝuste al ŝi esence rilatas tiu mia erotika sonĝosperto. Mi kvazaŭ timis, ke ŝi iel divenu tion laŭ mia sinteno.
 
-Tamen — ju pli mi rifuzadis subiĝi al la seksdelicaj fantaziaĵoj, des pli avide mi deziris, ke la sonĝo ripetiĝu. 
+Tamen — ju pli mi rifuzadis subiĝi al la seksdelicaj fantaziaĵoj, des pli avide mi deziris, ke la sonĝo ripetiĝu.
 
 Sed vane. Dum sendormaj noktoj mi ade renversiĝis en mia lito deflanke alflanke, sopirante en la tenebro rei-magi ŝian allogan, incitan figuron — denove mi kvazaŭ-
 
@@ -928,27 +830,24 @@ spektis ŝin kuŝi sur la kusenoj, mi fantaziis, ke ĉi-foje ŝi 45
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 eĉ invitis min kunĝuadi la seksvolupton — duondormis mi kaj duonrevis … Kaj en tiu strange labila animstato, kiam la spirito ŝvebas inter maldormo kaj eksonĝo, en mia ekscitita fantazio riveliĝis malpudoraj seksludoj, en kiuj ni ambaŭ kunaktoris, senĝene uzante plej variajn teknikojn de geiĝo, pri kiuj mi mem eĉ ne sciis, ĉu ili estas entute realigeblaj; tamen senbride mi fikciis, dume praktikante malĉastan memtuŝadon laŭ la metodo de
 
 frato Isaąr, kiun mi iame primokis …
 
-La libido tute superregis min. Pri nenio alia ol pri ŝi mi kapablis pensi, kvazaŭ obsedita mi kondutis. Preskaŭ ĉiunokte mi ripetadis la pasioplenan riton de fiktiva kuniĝo, ĉiam strebante pleje prokrasti la momenton de supera delico. Feliĉe mi konstatis, ke la iama averto de l’patro pruviĝis blaga, ĉar mia virorgano tute ne defalis, sed funkciis perfekte. 
+La libido tute superregis min. Pri nenio alia ol pri ŝi mi kapablis pensi, kvazaŭ obsedita mi kondutis. Preskaŭ ĉiunokte mi ripetadis la pasioplenan riton de fiktiva kuniĝo, ĉiam strebante pleje prokrasti la momenton de supera delico. Feliĉe mi konstatis, ke la iama averto de l’patro pruviĝis blaga, ĉar mia virorgano tute ne defalis, sed funkciis perfekte.
 
 Dum tiu tempo, renkontante ŝin, mi vole-nevole okulgustume pritaksadis la proporciojn de ŝia korpo —
 
 kaj iom post iom en mia animo vekiĝis fantastika sopi-ro travivi amkontaktiĝon kun ŝi ne nur fikcie, laŭimage en fraŭleca solejo, sed tute reale, en efektiva duopa in-timo. Kaj ĉi mia intensa dezirego versimile eĉ mani-
 
-festiĝis per mia ekstera sinteno, ĉar kiomfoje niaj vidoj renkontiĝis, ĉiam ŝi forte vangoruĝiĝis kaj embarase flankenturnis la rigardon … Damne, ĉu eblas?\! ĉu ŝiaj pensoj fakte direktiĝas al la sama celo kiel tiuj miaj? 
+festiĝis per mia ekstera sinteno, ĉar kiomfoje niaj vidoj renkontiĝis, ĉiam ŝi forte vangoruĝiĝis kaj embarase flankenturnis la rigardon … Damne, ĉu eblas?! ĉu ŝiaj pensoj fakte direktiĝas al la sama celo kiel tiuj miaj?
 
-46
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Prenu la fruktojn … ili bongustas — — ĉu ŝi eble jam tiam ….? 
+Prenu la fruktojn … ili bongustas — — ĉu ŝi eble jam tiam ….?
 
 Jes, nun mi jam certis, ke nepre ontas la fatala mo-
 
@@ -960,15 +859,15 @@ gaŭa mateniĝo, ĉu post la venonta plenluno? … Tage-
 
 nokte mi atendos. ĉu mi ne brulkonsumiĝos pro la so-
 
-pirego? 
+pirego?
 
 Sed nelonge daŭris. En unu festotago vespere, skla-
 
-vino alvenis por al mi mesaĝi urĝan inviton de la mastrino. Jen do mia bonŝanco\! Nun okazu, kio okazontas, je ĉio mi jam fajfas — hodiaŭ ŝi devos al mi subiĝi, volupte ŝi devos barakti en mia brakumo kaj plorsingulti pro delico de spontanea, senbrida amorado, kiam ĉiuj sen-soj koncentriĝas al tiu unusola kapturniga travivaĵo unika, kian ŝi kredeble neniam povis sperti ĉeflanke de sia sentaŭga edzaĉo porkograsa.. 
+vino alvenis por al mi mesaĝi urĝan inviton de la mastrino. Jen do mia bonŝanco! Nun okazu, kio okazontas, je ĉio mi jam fajfas — hodiaŭ ŝi devos al mi subiĝi, volupte ŝi devos barakti en mia brakumo kaj plorsingulti pro delico de spontanea, senbrida amorado, kiam ĉiuj sen-soj koncentriĝas al tiu unusola kapturniga travivaĵo unika, kian ŝi kredeble neniam povis sperti ĉeflanke de sia sentaŭga edzaĉo porkograsa..
 
-Nun ek do, mi malevitu la aventuron\! —
+Nun ek do, mi malevitu la aventuron! —
 
-Agace superba ŝi vidiĝis, starante en subtila diafana robo ĉe fenestro, dorse al la pordo, tra kiu mi eniris. 
+Agace superba ŝi vidiĝis, starante en subtila diafana robo ĉe fenestro, dorse al la pordo, tra kiu mi eniris.
 
 Damne, kia rafineco, kiam vi leĝere malstreĉis la korpon, kunmetinte la manojn postnuke, por ke la malfruaj sunradioj skizu la allogajn konturojn de via figuro tra la loza vualvestaĵo, kiu nur akcentis la suban nudecon …
 
@@ -976,63 +875,58 @@ Kaj kia artifiko, kiam vi turninte vin kvazaŭ vi ektimis 47
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 pro mia jama ĉeesto kaj ordigante vian veston ne neglektis kvazaŭ senvole emfazi la riĉecon de la brustofruk-toj, pro rigardo al kiuj atakis min dolĉa kapturniĝo kaj stranga vibrado ie ĉe la hipogastro …
 
 Versimile nurnurajn stupidaĵojn mi parolis dum la
 
-sekva vid-al-vido kvazaŭkompleza — ĉar solsole pri tio mi devis pensi, kiamaniere eki la amludon. Ja ĝis nun mi ne geiĝis ankoraŭ, sekve mankis al mi spertoj pri respek-tiva sekskonduto; damne, ĉu mi ne ridindigos min per io maldeca aŭ ĉu mi ne kaŭzos al ŝi doloron aŭ abomenon per ia malĝustaĵo?. 
+sekva vid-al-vido kvazaŭkompleza — ĉar solsole pri tio mi devis pensi, kiamaniere eki la amludon. Ja ĝis nun mi ne geiĝis ankoraŭ, sekve mankis al mi spertoj pri respek-tiva sekskonduto; damne, ĉu mi ne ridindigos min per io maldeca aŭ ĉu mi ne kaŭzos al ŝi doloron aŭ abomenon per ia malĝustaĵo?.
 
-La tempo pasantis kaj mi ĉiam nur babilaĉis pri nenio kaj cerbumis, kiamaniere kunkoitigi ŝin. Perokule mi ŝtelfrandis la promesdonajn bongustaĵojn de ŝia plen-forma korpo, kiuj antaŭanoncis diboĉan festenon — kaj dume mi sentis, ke mia seksaĵo jam enormas, eble estas eĉ rimarkebla sub la tuniko — malbeninda situacio, nun kiom mi faru\! Jam mi pretis disigi la agrafon de mia kitelo — kiam ŝi subite alpaŝis kaj mantuŝis min …
+La tempo pasantis kaj mi ĉiam nur babilaĉis pri nenio kaj cerbumis, kiamaniere kunkoitigi ŝin. Perokule mi ŝtelfrandis la promesdonajn bongustaĵojn de ŝia plen-forma korpo, kiuj antaŭanoncis diboĉan festenon — kaj dume mi sentis, ke mia seksaĵo jam enormas, eble estas eĉ rimarkebla sub la tuniko — malbeninda situacio, nun kiom mi faru! Jam mi pretis disigi la agrafon de mia kitelo — kiam ŝi subite alpaŝis kaj mantuŝis min …
 
-Malbendamne — ĝuste tion ŝi devis ne fari\! Kvazaŭ
+Malbendamne — ĝuste tion ŝi devis ne fari! Kvazaŭ
 
-svenonta mi sentis min pro ŝia ektuŝo — la narkota bonodoro emananta el ŝia korpo, la ebriiga tuŝapudeco de ŝiaj inaĵoj, la intensa femineco koncentrigita en ektuŝo de ŝia varme mola polmo — ĉio ĉi min igis tutperplek-sa. Antaŭ miaj okuloj malheliĝis kaj ie interne ŝajnis al mi aŭdi severan voĉon: Ne faru, Jozefo\! Ne faru\! Cete-48
+svenonta mi sentis min pro ŝia ektuŝo — la narkota bonodoro emananta el ŝia korpo, la ebriiga tuŝapudeco de ŝiaj inaĵoj, la intensa femineco koncentrigita en ektuŝo de ŝia varme mola polmo — ĉio ĉi min igis tutperplek-sa. Antaŭ miaj okuloj malheliĝis kaj ie interne ŝajnis al mi aŭdi severan voĉon: Ne faru, Jozefo! Ne faru! Cete-48
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 re estis superflue; eĉ se mi estus kion ajn volinta, la ori-ginan intencon mi nepre ne povus efektivigi, ĉar sam-momente mi eksentis, kiel mia seksenergio neniiĝas —
 
-Hometoj oraj, ĉiuj rigardu: jen amanto tro ambicia, 
+Hometoj oraj, ĉiuj rigardu: jen amanto tro ambicia,
 
 kiu alhastis por adultigi la edzinon de sia propra mastro
 
-— kaj jen kiel li sukcesis\! Kia skandalo — ĉiuj primoku lin\! 
+— kaj jen kiel li sukcesis! Kia skandalo — ĉiuj primoku lin!
 
-Prave vi komencis pugnobati, sinjorino, la sklavon, 
+Prave vi komencis pugnobati, sinjorino, la sklavon,
 
 kiu kuraĝis ŝtelonti vian ĉastecon kaj ne kapablis finfari. Kitelo-nekitelo, egale mi estas nudigita ĝis la fundo de mia memo — nenio restas ol fuĝi … sed kiam ja, kien
 
-eskapi for de mi\! 
+eskapi for de mi!
 
-Kaj kio sekvis tuj poste, estis nur konsekvencoj tute normalaj. Skurĝu nur, kolego sklavo, skurĝu plenforte, stupidulo, vipu min ja ambaŭmane, por ke la dolorego superu ĉion, kio vekriegas en mia elrabita interno\! …. 
+Kaj kio sekvis tuj poste, estis nur konsekvencoj tute normalaj. Skurĝu nur, kolego sklavo, skurĝu plenforte, stupidulo, vipu min ja ambaŭmane, por ke la dolorego superu ĉion, kio vekriegas en mia elrabita interno! ….
 
 
-
-\* \* \*
 ĉu ankoraŭ nesufiĉe da fiaĵoj? ĉu denovan hororon ne-
 
 
-cesas sperti? Malbena mia scivolemo, kiu devigis min surgrimpi la kradon de mia subplafona fenestreto, kiam ekestis tiu tumulto ekstere; prefere mi devis ne fari tion, neglekti la tutan aferon, ne aŭskulti kaj ne rigardi — ĉar kion mi ekvidis? 
+cesas sperti? Malbena mia scivolemo, kiu devigis min surgrimpi la kradon de mia subplafona fenestreto, kiam ekestis tiu tumulto ekstere; prefere mi devis ne fari tion, neglekti la tutan aferon, ne aŭskulti kaj ne rigardi — ĉar kion mi ekvidis?
 
-Meze de la vastespaca korto — jen rigradu\! — atletstatura nigrahaŭtulo duonnuda, per dikaj ĉenoj katenita ĉe 49
+Meze de la vastespaca korto — jen rigradu! — atletstatura nigrahaŭtulo duonnuda, per dikaj ĉenoj katenita ĉe 49
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-fortika paliso. Iom fore pretas tri gvardiistoj fortstaturaj kun longaj skurĝoj enmane; ekzekutontoj probable. 
+fortika paliso. Iom fore pretas tri gvardiistoj fortstaturaj kun longaj skurĝoj enmane; ekzekutontoj probable.
 
 Nu jes, pasintvespere mi ekaŭdis ja onidiron, ke iu
 
-negro aŭdacis instigi sklavribelon kaj, malsukcesinte, hodiaŭ li estas ekzekutota — do jen la preparoj, evidente. Aliaj gvardianoj postenas rondĉirkaŭe starante en malstreĉa pozo — kaj malantaŭ ili, korpo ĉe korpo, pre-mamase abundas gesklavoj. La tuta kortospaco plenplenas de ili. Senmove kaj senbrue ili staras — indiferenta homamaso. 
+negro aŭdacis instigi sklavribelon kaj, malsukcesinte, hodiaŭ li estas ekzekutota — do jen la preparoj, evidente. Aliaj gvardianoj postenas rondĉirkaŭe starante en malstreĉa pozo — kaj malantaŭ ili, korpo ĉe korpo, pre-mamase abundas gesklavoj. La tuta kortospaco plenplenas de ili. Senmove kaj senbrue ili staras — indiferenta homamaso.
 
 Kaj jen subite: en larĝa fenestro ĝuste kontraŭ mi
 
-trans la korto — Potifar mem vidigas sin en sia solena uniformo gvardiestra\! Per triobla laŭdo li altiras ĉies atenton — kaj post dramefika paŭzo patose mansignas
+trans la korto — Potifar mem vidigas sin en sia solena uniformo gvardiestra! Per triobla laŭdo li altiras ĉies atenton — kaj post dramefika paŭzo patose mansignas
 
 al la skurĝotenantoj. Kaj tiuj malhaste, senafekte ekas sian malnoblan agadon:
 
@@ -1044,7 +938,6 @@ mienas, iliaj okuloj vidigas sangavidon, iliaj brakmusko-50
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 loj krevminace streĉiĝas, tamen sian kruelan agadon ili ne ĉesigas; tenante nun ambaŭmane siajn vipojn, plenforte ili bategas — sango jam torentas el la ĉifigita haŭ-
 
@@ -1052,41 +945,37 @@ to de la negra dorso, kies pecigita karno ne vidiĝas kiel ununura naŭza vundo.
 
 Ja kie vi restadas, Eternulo, ke vi mem ne aŭdas? ĉu vi eble ne komprenas negran lingvon? Helpkrioj de mor-tontoj ja ne tre diferencas, sendepende de haŭtkoloro ili sonas egale, ties signifon oni ne povas miskompreni. Ja kiel vi ĉi-foje ne aŭdigas vian striktan malpermeson NE
 
-FARU?\! Se ne temas pri hebreo, ĉu ne estas via afero? 
+FARU?! Se ne temas pri hebreo, ĉu ne estas via afero?
 
-Damne, ĉu eble ne estis vi, kiu ankaŭ la negrojn kreis? 
+Damne, ĉu eble ne estis vi, kiu ankaŭ la negrojn kreis?
 
-Kiu do estis? ĉu tamen ekzistas aliaj dioj krom vi? 
+Kiu do estis? ĉu tamen ekzistas aliaj dioj krom vi?
 
-Vi malvoĉas, Eternulo; ĉu ne aŭdas vi, ĉu neglektas? 
+Vi malvoĉas, Eternulo; ĉu ne aŭdas vi, ĉu neglektas?
 
 Tute same vi mutas, kiel jena homamaso ĉirkaŭstaran-
 
-ta. Tutpasive ili algapas la abomenan spektaklon anstataŭ savi la kondamniton — ili estas ja pluroble pli multaj ol la ĉeestantaj gvardianoj — ja kial do, kial?\! Sugestu al ili, Eternulo, ke ili agu iamaniere\! ĉu ili ne aŭdis tiun longan nehomecan ekhojlon, kiun elbuŝigis la mortan-ta povrulo — ĉu ili ne vidis la agonian fortostreĉon de lia torturita korpo? Jen rigardu, nun la eksa homo jam pen-das de la ĉenoj senmove, simila al senforma maso de
+ta. Tutpasive ili algapas la abomenan spektaklon anstataŭ savi la kondamniton — ili estas ja pluroble pli multaj ol la ĉeestantaj gvardianoj — ja kial do, kial?! Sugestu al ili, Eternulo, ke ili agu iamaniere! ĉu ili ne aŭdis tiun longan nehomecan ekhojlon, kiun elbuŝigis la mortan-ta povrulo — ĉu ili ne vidis la agonian fortostreĉon de lia torturita korpo? Jen rigardu, nun la eksa homo jam pen-das de la ĉenoj senmove, simila al senforma maso de
 
-sangmakulita brutkarno\! …
+sangmakulita brutkarno! …
 
-51
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Ho, Eternulo, kian misgenton vi fuŝproduktis, kreinte la homon\! En la tiama sesa tago fatala, kial vi ne preferis jam ripozi? Ja ĉiu surtera speco de bestoj kaj eĉ de la kreskaĵoj celas sindefendi, protekti sin mem kontraŭ atakoj deflanke de aliaj specoj — sole la homoj interbatalas kaj senĉese cerbumas, kiamaniere masakri unuj aliajn. Kaj interluktante ili uzas ne nur ungojn kaj dentojn, kiel faras ĉiuj bestoj, sed produktas artefaritajn mortigilojn por sklavigi alitribanojn. Vere misan modelon vi starigis, Eternulo, kreinte la onidiran estron de la mondo\! — —
+Ho, Eternulo, kian misgenton vi fuŝproduktis, kreinte la homon! En la tiama sesa tago fatala, kial vi ne preferis jam ripozi? Ja ĉiu surtera speco de bestoj kaj eĉ de la kreskaĵoj celas sindefendi, protekti sin mem kontraŭ atakoj deflanke de aliaj specoj — sole la homoj interbatalas kaj senĉese cerbumas, kiamaniere masakri unuj aliajn. Kaj interluktante ili uzas ne nur ungojn kaj dentojn, kiel faras ĉiuj bestoj, sed produktas artefaritajn mortigilojn por sklavigi alitribanojn. Vere misan modelon vi starigis, Eternulo, kreinte la onidiran estron de la mondo! — —
 
 ĉu mirinde, ke post tiu hodiaŭa travivaĵo mi ekdubis, Dio, eĉ pri via vera ekzisto? Jes ja, paĉjo certe konster-niĝus kaj konsiderus mian ekpenson nepardonebla peko grave punenda. Bone do — se vi punos min, Disinjoro, tiam mi almenaŭ certos, ke vi fakte ekzistas. Dum mia infanaĝo al mi sufiĉis simple kredi, simile kiel oni kredas fabelojn sen pritaksi ilian pravecon; la kredo estis agrabla kaj neniel primeditenda, ĉar la vivado mem estis malkomplika, senproblema. Sed maturiĝinte oni ĉiam
 
 pli kaj pli sentas ian malharmonion inter tiu spontane, naiva, infaneca kredo kaj racia konsidero. Tiujn ambaŭ oni bezonas: sen uzadi raciajn kapablojn oni memvole kondamnus sin resti blindiĝema malprogresulo — kaj
 
-forĵetinte la religian kredon, oni sentas sin seniluziigita, kvazaŭ priŝtelita je peco de sia animo; senkreda vivado fridas … Kia dilemo\! 
+forĵetinte la religian kredon, oni sentas sin seniluziigita, kvazaŭ priŝtelita je peco de sia animo; senkreda vivado fridas … Kia dilemo!
 
-52
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Mi petas, petegas vin, Eternulo — se vi fakte ekzistas, rezultigu al mi pruvon pri tio\! Nur unufoje mi ekaŭdis vian voĉon — tamen ĉu eble ne estis nur produkto de
+Mi petas, petegas vin, Eternulo — se vi fakte ekzistas, rezultigu al mi pruvon pri tio! Nur unufoje mi ekaŭdis vian voĉon — tamen ĉu eble ne estis nur produkto de
 
 mia ekscitita fantazio? Mi petas, ne lasu min ŝanceliri tra la malfavora mondo sen apoga bastono de la la kredo je ia supera potenco, kiu prudente direktas ĉies agadon al bonaj celoj. Direktu la homgenton laŭ ĝusta vojo al daŭ-
 
@@ -1100,83 +989,76 @@ eblas efektivigi tion tujsekve, ĉar eble eĉ Dio ne kapablas fari tiel egan mir
 
 fere per io alia, de mi facile perceptebla: igu min eliri el jena malliberejo, donu al mi povon ade bonfari al bezo-nantoj, renkontigu min kun miaj patro kaj patrindeve-na frato Benjamen, permesu al mi puni la aliajn fratojn pro ilia peko kontraŭ mi farita kaj fine montri al ili mian noblecon per indulga pardono. Se tion ĉi vi rezultigos, neniam plu mi pridubos vian ekziston, sed adorados vin dumvive kaj disfamigos vian gloron tra ĉiuj regionoj de la vastevasta mondo …
 
-Sed damne — kiom longe ankoraŭ? 
+Sed damne — kiom longe ankoraŭ?
 
-53
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 *… kaj oni rapide eligis lin el la malliberejo, kaj li razis sin* *kaj ŝanĝis sian veston kaj venis …*
 
 GENEZO, XLII,14
 
-*\(En traduko de Zamenhof:*
+*(En traduko de Zamenhof:*
 
-*… kaj oni rapide eligis lin el la malliberejo, kaj li sin razis kaj ŝanĝis siajn vestojn kaj venis …\)*
+*… kaj oni rapide eligis lin el la malliberejo, kaj li sin razis kaj ŝanĝis siajn vestojn kaj venis …)*
 
-54
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Potifar, la bonkorulo
 
-Kia ĝojo revidi vin, Jozefo? ĉu fakte jam pasis du jaroj depost tiam? Je Amono, kiel hastas la tempo, 
+Kia ĝojo revidi vin, Jozefo? ĉu fakte jam pasis du jaroj depost tiam? Je Amono, kiel hastas la tempo,
 
-forportate nin al la eterneco\! 
+forportate nin al la eterneco!
 
-Bonvenu, kamarado\! Vere dolore mi sentadis vian for-
+Bonvenu, kamarado! Vere dolore mi sentadis vian for-
 
-eston dum vi restadis tie malsupre. Mankis al mi viaj prudentaj sonĝeksplikoj, ege ili al mi mankis. Eble vi eĉ ne povas imagi, kiel oni suferas pro malhavo de inteligenta kunulo; ja kun kiu mi povas kvalifike interparoladi meze de tiuj malkleruloj? Diru sincere: ĉu vi ankaŭ rememoris min almenaŭ iomete? 
+eston dum vi restadis tie malsupre. Mankis al mi viaj prudentaj sonĝeksplikoj, ege ili al mi mankis. Eble vi eĉ ne povas imagi, kiel oni suferas pro malhavo de inteligenta kunulo; ja kun kiu mi povas kvalifike interparoladi meze de tiuj malkleruloj? Diru sincere: ĉu vi ankaŭ rememoris min almenaŭ iomete?
 
 Nu, ne staru tiel embarase kaj ne rigardu min nub-
 
-miene. Prenu ja lokon ĉe mia modesta manĝotablo kiel antaŭe, nur aranĝu vin komforte, tute hejmece, neniel
+miene. Prenu ja lokon ĉe mia modesta manĝotablo kiel antaŭe, nur aranĝu vmforte, tute hejmece, neniel
 
 ĝeniĝu. Ja mi estas jam manĝinta, jen tamen restis iomo
 
-— vi scias ja, tiu mia malbeninda stomako … Nur aten-tu, certatempe vi devos bridi vian apetiton, ĉar via stomako kredeble dekutimiĝis festeni, ĉu? Nu, ne nubmie-nu, indas ja iomete interŝerci, ĉu ne vere? 
+— vi scias ja, tiu mia malbeninda stomako … Nur aten-tu, certatempe vi devos bridi vian apetiton, ĉar via stomako kredeble dekutimiĝis festeni, ĉu? Nu, ne nubmie-nu, indas ja iomete interŝerci, ĉu ne vere?
 
 Ne kredu, ke mi forgesis vin dum via foresto. Ofte mi pripensis vin, dirante al mi: necesas liberigi tiun povru-lon — tamen ĉu endas, ke mi mem persone okupiĝu pri
 
-55
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 ĉiuj bagatelaĵoj? Ja eĉ tempeto ne restas al mi por privat-aj aferoj, ĉiun mian tempon forrabas mia porpublika de-
 
-ĵorado. Verdire vi estas enviinda, se vi povis pasigi pli ol du jarojn tute kviete, senigita de ĉiuj zorgoj — ho, vi fripono, sagace vi sciis aranĝi … Ne, ne, nenion repliku, eĉ ne pepu prefere\! Mi komprenas vin ja tute bone, ne necesas ion ajn klarigi. 
+ĵorado. Verdire vi estas enviinda, se vi povis pasigi pli ol du jarojn tute kviete, senigita de ĉiuj zorgoj — ho, vi fripono, sagace vi sciis aranĝi … Ne, ne, nenion repliku, eĉ ne pepu prefere! Mi komprenas vin ja tute bone, ne necesas ion ajn klarigi.
 
 Entute, Jozefo — plej konvenas nurnure muti lasta-
 
-tempe. Malbonaj cirkonstancoj formiĝas, Jozefo. Sciu, estas danĝere eĉ en sia propra domo laŭtparoli. La mu-roj estas aŭdipovaj, iun ajn oni devas suspekti — ĉiuj spionas\! Ja vi konas min bone kaj scias do, ke mi ne kutimas kave frazi — bonkredu, Jozefo, ĉio ĉe ni aĉiĝas nuntempe. Imagu nur: la sklavaro komencas ribeli\! ĉu ion tian oni aŭdis iam ajn? Kion ili postulas verdire? Ili estas ja nurnuraj barbaroj diversgentaj, malkleraj misge-neritoj malpursangaj, plejparte negroj — kaj tiuj eble emas egalrajti kun ni egiptoj\! Kia senhonto — ja diru\! La sklavaro vivteniĝas ja je kostopago de la ŝtato\! Se la ŝtato ne igus ilin labori kontraŭ nutraĵoj kaj loĝado, ili mortaĉus kvazaŭ brutaro senfuraĝa — ĉu mi ne pravas? Sed tion ili ne agnoskas, ribeli ili emas\! 
+tempe. Malbonaj cirkonstancoj formiĝas, Jozefo. Sciu, estas danĝere eĉ en sia propra domo laŭtparoli. La mu-roj estas aŭdipovaj, iun ajn oni devas suspekti — ĉiuj spionas! Ja vi konas min bone kaj scias do, ke mi ne kutimas kave frazi — bonkredu, Jozefo, ĉio ĉe ni aĉiĝas nuntempe. Imagu nur: la sklavaro komencas ribeli! ĉu ion tian oni aŭdis iam ajn? Kion ili postulas verdire? Ili estas ja nurnuraj barbaroj diversgentaj, malkleraj misge-neritoj malpursangaj, plejparte negroj — kaj tiuj eble emas egalrajti kun ni egiptoj! Kia senhonto — ja diru! La sklavaro vivteniĝas ja je kostopago de la ŝtato! Se la ŝtato ne igus ilin labori kontraŭ nutraĵoj kaj loĝado, ili mortaĉus kvazaŭ brutaro senfuraĝa — ĉu mi ne pravas? Sed tion ili ne agnoskas, ribeli ili emas!
 
-Nun imagu, en kia situacio troviĝas mi kiel ĉefo de la faraona korpogvardio\! Mi respondecas ja pri ĝenerala trankvilo. ĉiun eĉ plej etan eventon oni imputos debe-te al mia konto. Vi ne kredus, Jozefo, kiom da laŭdiraj 56
+Nun imagu, en kia situacio troviĝas mi kiel ĉefo de la faraona korpogvardio! Mi respondecas ja pri ĝenerala trankvilo. ĉiun eĉ plej etan eventon oni imputos debe-te al mia konto. Vi ne kredus, Jozefo, kiom da laŭdiraj 56
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 amikoj embuskas por uzurpi mian postenon. Neenviin-
 
-da situacio … Jes, tiel statas la aferoj ĝenerale en nia socio: post ĉiu angulo gvatas kelkiu por kvermeti piedon al funkciulo pli alta postenanta — kien perdiĝis nia moralo, kiel misiĝis la iama solidareco de nia reganta kla-so\! 
+da situacio … Jes, tiel statas la aferoj ĝenerale en nia socio: post ĉiu angulo gvatas kelkiu por kvermeti piedon al funkciulo pli alta postenanta — kien perdiĝis nia moralo, kiel misiĝis la iama solidareco de nia reganta kla-so!
 
 Komprenu, Jozefo, ke ĉio ĉi ekstreme nervozigas min, eĉ kviete dormi mi ne plu kapablas. Jam ĝiskole mi satas de tia deĵorado, se mi devas tiel pene retenadi mian oficon. Iam-tiam mi eĉ mem demandas, ĉu tio penvalo-ras. Tamen kion mi faru? En mia aĝo oni ne povas ja eki ion novan. Cetere kion mi komencu? Antaŭnelonge mi
 
-sentis min jam tiel deprimita, tiel senespera, ke mi ek-pensis eĉ manlabori — imagu nur, kia freneza ideo\! —
+sentis min jam tiel deprimita, tiel senespera, ke mi ek-pensis eĉ manlabori — imagu nur, kia freneza ideo! —
 
 sed ĉu mi entute rajtas tion? Ja mia nobela deveno pre-destinas min por altranga deĵorado, ĉu? La burokrata aparato englutis min kaj ne plu eblas liberiĝi …
 
-Tamen sufiĉe jam da tiu vana lamentado\! Mi invitis
+Tamen sufiĉe jam da tiu vana lamentado! Mi invitis
 
-vin ne por plendi pri miaj malfacilaĵoj. Cetere, ĉu vi scias, pro kio mi alvenigis vin? Vi apenaŭ divenus. 
+vin ne por plendi pri miaj malfacilaĵoj. Cetere, ĉu vi scias, pro kio mi alvenigis vin? Vi apenaŭ divenus.
 
-Eble vi konjektas, ke mi intencas riproĉi vin pro via konduto al mia edzino? Neniel, Jozefo, absolute ne\! Por mi persone indiferentas, kio okazis inter vi du, tio lasas min neglekta, pri tio mi tute malzorgas …
+Eble vi konjektas, ke mi intencas riproĉi vin pro via konduto al mia edzino? Neniel, Jozefo, absolute ne! Por mi persone indiferentas, kio okazis inter vi du, tio lasas min neglekta, pri tio mi tute malzorgas …
 
 Atendu, mia kara, nenion kontraŭdiru — mi ne emas
 
@@ -1184,33 +1066,31 @@ pribabiladi tiun tedan aferon. ĉu vi opinias, ke mi tiam 57
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 kredis ŝian blagon? Kamarado, unuavide mi malkaŝis
 
-ŝian naivan artifikon\! Mi tre bone scias, ke la kokradon iniciatis ne vi, sed ŝi mem. ŝian karakteron mi konas tiel perfekte, ke ĉia klarigado superfluas. Sciu, Jozefo, virinon oni vere ekkonas nur edziniginte ŝin. Kaj tiu mia estas ja aparta malvirtulino:
+ŝian naivan artifikon! Mi tre bone scias, ke la kokradon iniciatis ne vi, sed ŝi mem. ŝian karakteron mi konas tiel perfekte, ke ĉia klarigado superfluas. Sciu, Jozefo, virinon oni vere ekkonas nur edziniginte ŝin. Kaj tiu mia estas ja aparta malvirtulino:
 
 Kvazaŭ ia stranga manio estas ĉe ŝi. Ekstreme ordone-ma ŝi estas, ĉion ŝi volus aksigi ĉirkaŭ si, ĉiam ŝi strebas altiradi atenton al sia ekstravaganca memo. Kun iu ajn nova viro ŝi pretas flirti, provokante lian flatadon. Sed mi bone scias, ke tion ŝi faras precipe por ĵaluzigi min kaj demonstri, kiel sopirata ŝi estas. Jes ja, ŝia frivola sinteno kolerigas min, sed alikaŭze ol ŝi konjektas: ŝia defia konduto kaŭzas malbonan sangon en nia honora
 
-socio — jen kio ĝenas min\! Per rabokuloj mi devas gar-di mian bonfamon, vi komprenas, Jozefo, ĉu? Certe vi komprenas, ĉar vi estas eksterordinare saĝa. 
+socio — jen kio ĝenas min! Per rabokuloj mi devas gar-di mian bonfamon, vi komprenas, Jozefo, ĉu? Certe vi komprenas, ĉar vi estas eksterordinare saĝa.
 
-Sed ĝuste tial vi ankaŭ ŝin devis kompreni\! Sciu, ŝi atingis jam la aĝon, kiam la virinoj emas amindumi junulojn. Tiam nemirinde, ke ŝi persistis kunpekigi vin, tio estas tute laŭnatura. Sed vi, naiva virgulo obstine pudora, anstataŭ kompreni tion kaj volonte kontentigi ŝin, kiel decus al obeema sklavo — vi preferis rifuzi\! Kio mis-ordiĝis en via cerbujo? Se vi estus plenuminta ŝian avidon, ĉio procezus tute kaŝite kaj senskadale. Damno kun vi\! Kial vi, je Amono, ne konfidencis al mi mem la tutan 58
+Sed ĝuste tial vi ankaŭ ŝin devis kompreni! Sciu, ŝi atingis jam la aĝon, kiam la virinoj emas amindumi junulojn. Tiam nemirinde, ke ŝi persistis kunpekigi vin, tio estas tute laŭnatura. Sed vi, naiva virgulo obstine pudora, anstataŭ kompreni tion kaj volonte kontentigi ŝin, kiel decus al obeema sklavo — vi preferis rifuzi! Kio mis-ordiĝis en via cerbujo? Se vi estus plenuminta ŝian avidon, ĉio procezus tute kaŝite kaj senskadale. Damno kun vi! Kial vi, je Amono, ne konfidencis al mi mem la tutan 58
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-aferon? ĉio povis esti senproblema. ĉu vi eble konjektas min ĵaluzema? Eĉ neniel\! 
+aferon? ĉio povis esti senproblema. ĉu vi eble konjektas min ĵaluzema? Eĉ neniel!
 
 Cetere ne supozu, ke amorado kun mia seksmiena
 
-edzino estas io delica — neniel\! ŝi nur ŝajnigas sin pasi-ulino — en la geedza lito ŝi neniigas ĉiujn iluziojn; absolute senpasia ŝi estas, apatia, pasiva — oni povus ĉe ŝi malvarmumi, tiel ŝi fridas. Imagu nur, ke eĉ mi mem
+edzino estas io delica — neniel! ŝi nur ŝajnigas sin pasi-ulino — en la geedza lito ŝi neniigas ĉiujn iluziojn; absolute senpasia ŝi estas, apatia, pasiva — oni povus ĉe ŝi malvarmumi, tiel ŝi fridas. Imagu nur, ke eĉ mi mem
 
-neniam sukcesis ardigi ŝin. — ĉu vi kredas? Do, nenion vi havas por bedaŭri. 
+neniam sukcesis ardigi ŝin. — ĉu vi kredas? Do, nenion vi havas por bedaŭri.
 
 Sciu, Jozefo: edzinon oni tenas nur por reprezenti kaj iam-tiam por generi idojn. Por ĝui seksdelicon oni iru en malĉastejon, el inter publikulinoj vi povas elekti laŭgus-te kaj laŭ momenta humoro. Se mi mem ekemas diboĉe
 
-sekspetoli, ĉiam mi elektas nigrahaŭtulinon. Jes, Jozefo, nepre mi rekomendas al vi negrinojn\! Perfektan figuron ili havas, elastan bruston, longajn krurojn kaj malbenin-de lertajn manojn. Grandiozaj amorantinoj ili estas, spe-ciale edukitaj por la publikulina metio; nenion ajn vi bezonas fari, ĉion aranĝas ili mem laŭ variaj manieroj, certe vi ne enuos — fidu mian konsilon, pri erotiko mi estas fama eksperto\! 
+sekspetoli, ĉiam mi elektas nigrahaŭtulinon. Jes, Jozefo, nepre mi rekomendas al vi negrinojn! Perfektan figuron ili havas, elastan bruston, longajn krurojn kaj malbenin-de lertajn manojn. Grandiozaj amorantinoj ili estas, spe-ciale edukitaj por la publikulina metio; nenion ajn vi bezonas fari, ĉion aranĝas ili mem laŭ variaj manieroj, certe vi ne enuos — fidu mian konsilon, pri erotiko mi estas fama eksperto!
 
 Sed verdire — kial mi lecionas? Ja mi ne venigis vin por instrui vin pri seksumado. Nur preterpase mi men-ciis, por ke vi sciu, ke mi absolute ne havas skrupulojn nek eble antaŭjuĝojn rasismajn. Cetere vi mem povas
 
@@ -1218,21 +1098,20 @@ tion prijuĝi proprasperte. Ankaŭ vi estas ja barbaro, kaj 59
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-malgraŭe mi allasis vin en mian domon. Eĉ nebagatelan monsumon mi ne domaĝis por akiri vin; indas eĉ dubi, ĉu vi respektive estimas tion. ĉiam mi celis nurnure vian bonfarton, tion vi devas al mi kredi. Neniam — mi em-fazas — neniam mi iel ajn malicemis kontraŭ vi. 
+malgraŭe mi allasis vin en mian domon. Eĉ nebagatelan monsumon mi ne domaĝis por akiri vin; indas eĉ dubi, ĉu vi respektive estimas tion. ĉiam mi celis nurnure vian bonfarton, tion vi devas al mi kredi. Neniam — mi em-fazas — neniam mi iel ajn malicemis kontraŭ vi.
 
 Memkompreneble, la konsekvencon kiun mi rezulti-
 
-gis el la tiama skandalo kun mia edzino, tiun vi ne rajtas konsideri maljusta. 
+gis el la tiama skandalo kun mia edzino, tiun vi ne rajtas konsideri maljusta.
 
-Jes ja, kulpiĝinta estas ŝi — sed tion mi ne povis pub-like agnoski\! Komprenu ja: ĉu indis, ke oni fingromon-tradu min kiel kokriton, ke mian honestan nomon oni
+Jes ja, kulpiĝinta estas ŝi — sed tion mi ne povis pub-like agnoski! Komprenu ja: ĉu indis, ke oni fingromon-tradu min kiel kokriton, ke mian honestan nomon oni
 
 kotentiru? Tio kompromitas ne nur min mem, sed sam-
 
-tiel la tutan nobelsocion — pro tiaĵo oni neniam pardonus min\! Kaj se jam mia histeria edzinaĉo vekis tian bru-egon, kion mi estis faronta? ĉiam oni adaptu sin laŭ cirkonstancoj, jen la esenca principo de inteligenteco. His-toriajn faktojn ĉiam akomodas talentohavaj individuoj laŭ sia bezono. Memoru, mia kara: ĉio estas alia ol oni oficiale asertas; se oni ĉiam devus malkaŝi veran staton de l’aferoj, oni ne kapablus regi. 
+tiel la tutan nobelsocion — pro tiaĵo oni neniam pardonus min! Kaj se jam mia histeria edzinaĉo vekis tian bru-egon, kion mi estis faronta? ĉiam oni adaptu sin laŭ cirkonstancoj, jen la esenca principo de inteligenteco. His-toriajn faktojn ĉiam akomodas talentohavaj individuoj laŭ sia bezono. Memoru, mia kara: ĉio estas alia ol oni oficiale asertas; se oni ĉiam devus malkaŝi veran staton de l’aferoj, oni ne kapablus regi.
 
-Sed sufiĉe jam, Jozefo — vi ade devigas min parolturni ĉirkaŭ la ĉefa kaŭzo de via jena ĉeesto\! 
+Sed sufiĉe jam, Jozefo — vi ade devigas min parolturni ĉirkaŭ la ĉefa kaŭzo de via jena ĉeesto!
 
 Supozeble vi agnoskas, ke post la skandaloza evento
 
@@ -1240,15 +1119,14 @@ vi ne povas plu resti en mia familia domo. Dum tiuj du jaroj de via foresto oni 
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-undo da kalumnioj kaj klaĉoj — vi scias ja, kiel malicaj oni estas\! 
+undo da kalumnioj kaj klaĉoj — vi scias ja, kiel malicaj oni estas!
 
 Krom tio, mia edzino ege malamas vin, kion vi cete-
 
-re devas kompreni: estas ununura vi, kiu povus iam malkaŝi, kiel ĉio efektive okazis — kaj tion ŝi nepre devas malebligi. Tutcerte ŝi provus pli-malpli baldaŭ senigi sin de vi, supozeble eĉ per ne tre delikata maniero — vi komprenas. Taŭgaj rimedoj estas ja kiam ajn ĉemane en nia socio. 
+re devas kompreni: estas ununura vi, kiu povus iam malkaŝi, kiel ĉio efektive okazis — kaj tion ŝi nepre devas malebligi. Tutcerte ŝi provus pli-malpli baldaŭ senigi sin de vi, supozeble eĉ per ne tre delikata maniero — vi komprenas. Taŭgaj rimedoj estas ja kiam ajn ĉemane en nia socio.
 
-Kiel do ni aranĝu pri vi? Mi ekzemple povus teni vin en dumviva aresto, por ŝirmi vin kontraŭ ŝiaj insidoj —
+Kiel do ni aranĝu pri vi? Mi ekzemple povus teni vin en dumviva aresto, por ŝirmi vntraŭ ŝiaj insidoj —
 
 sed tio malharmonias al mia sentema naturo, eĉ sen
 
@@ -1256,49 +1134,44 @@ konsideri tion sufiĉe multekosta. Ankaŭ mi povus simp-le vendi vin. Finfine vi
 
 inteligentaj sklavoj multoble superas la oferton. Kredeble estas nur maldaŭra modo, tamen des pli bone elu-
 
-zebla. 
+zebla.
 
-Sed — ĉu vi opinias, ke vin mi kapablus kondukigi al foiro kvazaŭ brutaĉon? Neniam, Jozefo, neniam: Vin mi devas utiligi pli prudente. Sciu, Jozefo: mi d o n a c o s vin\! Jes, mi donacos — Kaj ĉu vi emas divenprovi, al kiu? 
+Sed — ĉu vi opinias, ke vin mi kapablus kondukigi al foiro kvazaŭ brutaĉon? Neniam, Jozefo, neniam: Vin mi devas utiligi pli prudente. Sciu, Jozefo: mi d o n a c o s vin! Jes, mi donacos — Kaj ĉu vi emas divenprovi, al kiu?
 
-Vi ne divenus, kamarado … Al nia Plej Serena Faraona Moŝto mem mi donacos vin\! Memkomprene sen pre-61
+Vi ne divenus, kamarado … Al nia Plej Serena Faraona Moŝto mem mi donacos vin! Memkomprene sen pre-61
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 tendi ian ajn rekompencon. Mian denaturan grandani-
 
-mecon vi konas ja, ĉar vi mem sufiĉe spertis ĝin. Neniam oni avaru, precipe en rilato al la estroj. Cetere mi enkalkulas, ke nia afabla suvereno degnos vidigi sian bonvolan favoron al mia nenielsignifa persono per taŭga maniero laŭ sia plej saĝa bontrovo. 
+mecon vi konas ja, ĉar vi mem sufiĉe spertis ĝin. Neniam oni avaru, precipe en rilato al la estroj. Cetere mi enkalkulas, ke nia afabla suvereno degnos vidigi sian bonvolan favoron al mia nenielsignifa persono per taŭga maniero laŭ sia plej saĝa bontrovo.
 
-Nia superulo eĉ jam scias pri vi, Jozefo — vi miras, ĉu? 
+Nia superulo eĉ jam scias pri vi, Jozefo — vi miras, ĉu?
 
-Probable iu stultulo elbabilaĉis ĉe la kortego, ke mi posedas lertan sonĝaŭguriston — kaj laŭdire ĝuste tian la Dieca Faraono nun urĝe bezonas. Interesa hazardo, ĉu? 
+Probable iu stultulo elbabilaĉis ĉe la kortego, ke mi posedas lertan sonĝaŭguriston — kaj laŭdire ĝuste tian la Dieca Faraono nun urĝe bezonas. Interesa hazardo, ĉu?
 
-Nu, plezuru, Jozefo, plezuru — ĉar ega feliĉo trafis vin\! —
+Nu, plezuru, Jozefo, plezuru — ĉar ega feliĉo trafis vin! —
 
 Sed mi vidas, ke preskaŭ nenion vi formanĝis; ĉu la
 
-legomon vi ne trovas bongusta? Ne, ne, jam lasu — nun vi ne plu havas tempon por festeni. Mi estas jam antaŭanoncita ĉe la Faraona Moŝto. Mi donos al vi tiucele iun eluzitan veston el mia garderobo; poste vi repagos. Du miaj gvardianoj akompanos vin ĝis la imperiestra palaco. 
+legomon vi ne trovas bongusta? Ne, ne, jam lasu — nun vi ne plu havas tempon por festeni. Mi estas jam antaŭanoncita ĉe la Faraona Moŝto. Mi donos al vi tiucele iun eluzitan veston el mia garderobo; poste vi repagos. Du miaj gvardianoj akompanos vin ĝis la imperiestra palaco.
 
-Kaj nun jam rapidu, amiko\! Mi deziras al vi sukceson en via nova posteno. Kaj taŭgaokaze ne forgesu al la Plej Serena Faraono emfazi, ke estis mi, kiu malkovris vian eksterordinaran talenton kaj eĉ tiagrade evoluigis ĝin, ke
+Kaj nun jam rapidu, amiko! Mi deziras al vi sukceson en via nova posteno. Kaj taŭgaokaze ne forgesu al la Plej Serena Faraono emfazi, ke estis mi, kiu malkovris vian eksterordinaran talenton kaj eĉ tiagrade evoluigis ĝin, ke
 
-ĝi povas utili al la prospero de la tuta imperio. Dieca nia faraono, la Plej Supera Estro de l’vaste vasta mondo vivu poreterne kaj daŭre bonfartu ankaŭ postmorte\! —
+ĝi povas utili al la prospero de la tuta imperio. Dieca nia faraono, la Plej Supera Estro de l’vaste vasta mondo vivu poreterne kaj daŭre bonfartu ankaŭ postmorte! —
 
-62
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 A˛, kiom da diplomata inĝenio oni devas disipi por
 
 montri sin lojala kortegano …
 
-63
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 *… kaj la faraono diris al Jozefo: mi estas faraono, sed sen* *via ordono neniu levos sian manon aŭ sian piedon en la* *tuta egipta lando. *
 
@@ -1306,111 +1179,103 @@ eLIBRO
 
 GENEZO, XLI, 44-45
 
-*\(En traduko de Zamenhof:*
+*(En traduko de Zamenhof:*
 
-*Kaj Faraono diris al Jozef: Mi estas Faraono; sed sen* *via ordono neniu levos sian manon aŭ sian piedon en la* *tuta Egipta lando. Kaj Faraono donis al Jozef la nomon* *Cafnat-Panea˛, kaj li donis al li kiel edzinon Asnaton,* *filinon de Poti-Fera, pastro el On. Kaj Jozef komencis* *veturadon tra la Egipta lando.\)*
+*Kaj Faraono diris al Jozef: Mi estas Faraono; sed sen* *via ordono neniu levos sian manon aŭ sian piedon en la* *tuta Egipta lando. Kaj Faraono donis al Jozef la nomon* *Cafnat-Panea˛, kaj li donis al li kiel edzinon Asnaton,* *filinon de Poti-Fera, pastro el On. Kaj Jozef komencis* *veturadon tra la Egipta lando.)*
 
-64
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Korpogvardia veterano
 
-Kanajla misordo\! Jam denove la tagmanĝo ne pretas
+Kanajla misordo! Jam denove la tagmanĝo ne pretas
 
-ĝustatempe\! Denove ni atendu ĝis oni bonvolos el-
+ĝustatempe! Denove ni atendu ĝis oni bonvolos el-
 
-doni la mizeran vorpecon. Kiom da prokrastoj\! Ree kaj ree tio ripetiĝas, de tago al tago. Miamemore, neniam estadis tia malordo en distribuado de soldatmanĝaĵoj, kiel lastatempe — kaj multe mi memoras, tion kredu …
+doni la mizeran vorpecon. Kiom da prokrastoj! Ree kaj ree tio ripetiĝas, de tago al tago. Miamemore, neniam estadis tia malordo en distribuado de soldatmanĝaĵoj, kiel lastatempe — kaj multe mi memoras, tion kredu …
 
 Ja kelkdek jarojn mi jam deĵoras en la korpogvardio
 
 de nia Plej Serena Faraona Moŝto, mi mem eĉ ne plu
 
-kalkulas. Simple de mia junaĝo — ĝusatadire ekde tiu tago, kiam la patrino alkondukis min al la serĝento kaj diris, jen tiun knabaĉon faris al mi unu el viaj uloj, kiun mi depost tiam ne sukcesis retrovi, do prenu la bubon kaj vivtenu, mi ne plu kapablas, sed ankaŭ ne volas, ke li laboregu kiel mizera sklavaĉo\! Jes, tiel diris mia afabla panjo …
+kalkulas. Simple de mia junaĝo — ĝusatadire ekde tiu tago, kiam la patrino alkondukis min al la serĝento kaj diris, jen tiun knabaĉon faris al mi unu el viaj uloj, kiun mi depost tiam ne sukcesis retrovi, do prenu la bubon kaj vivtenu, mi ne plu kapablas, sed ankaŭ ne volas, ke li laboregu kiel mizera sklavaĉo! Jes, tiel diris mia afabla panjo …
 
-La gvardio do edukis min kaj trejnis. Jes, bone edukis kaj harde trejnis. Kiom da jaroj forpasis depost tiu tempo\! Hodiaŭ mi estas jam ververa veterano, meritoriĉa kaj de ĉiuj kunuloj respektata. Tamen nur malmultaj el mia taĉmento ankoraŭ memoras, ke estis mi, kiu tiame antaŭ jaroj vipopunis Jozefon la Hebreon. ĉu vi ne kre-65
+La gvardio do edukis min kaj trejnis. Jes, bone edukis kaj harde trejnis. Kiom da jaroj forpasis depost tiu tempo! Hodiaŭ mi estas jam ververa veterano, meritoriĉa kaj de ĉiuj kunuloj respektata. Tamen nur malmultaj el mia taĉmento ankoraŭ memoras, ke estis mi, kiu tiame antaŭ jaroj vipopunis Jozefon la Hebreon. ĉu vi ne kre-65
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-das — fakte\! Memkomprene, estis por mi aparta honori-go, multaj kamaradoj enviis min pro tio. Sciu, mi tiam estis la plej fortstatura knabego el la tuta gvardio — do, kiam ekestis tiu tumulto ĉirkaŭ Jozefo, la ĉefa gvardies-tro Potifar alvenigis min kaj ordonis, ke mi vipregalu la malĉastan judon. 
+das — fakte! Memkomprene, estis por mi aparta honori-go, multaj kamaradoj enviis min pro tio. Sciu, mi tiam estis la plej fortstatura knabego el la tuta gvardio — do, kiam ekestis tiu tumulto ĉirkaŭ Jozefo, la ĉefa gvardies-tro Potifar alvenigis min kaj ordonis, ke mi vipregalu la malĉastan judon.
 
 Nu, mi plenumis la taskon perfekte, kun ekstra emfa-
 
-zo. La ĉefestro tre kontentis kaj rekompencis min tiam per duobla kromporcio de viando je vespermanĝo; miaj kolegoj furiozis de envio, kompreneble … Ho, jes, me-morinda, feliĉa tago por mi. Apenaŭ ja por Jozefo — sed kiom koncernis min Jozefo, kiom koncernis min lia kulpiĝo kaj samtiel la obskuraj negocaĉoj en la familio de Potifar entute? 
+zo. La ĉefestro tre kontentis kaj rekompencis min tiam per duobla kromporcio de viando je vespermanĝo; miaj kolegoj furiozis de envio, kompreneble … Ho, jes, me-morinda, feliĉa tago por mi. Apenaŭ ja por Jozefo — sed kiom koncernis min Jozefo, kiom koncernis min lia kulpiĝo kaj samtiel la obskuraj negocaĉoj en la familio de Potifar entute?
 
-Cetere, mi povas certigi vin, ke la judaĉo estis tiukaze senkulpa kiel ŝafo, tion mi ekkonis unuavide. Min neniu kapablas trompi, sufiĉis nur rigardeti la mienon de tiu fripona paro, kaj tuj mi sciis kiel statas la afero. Potifarino estas ja deĉiame famkonata malĉastulino, kiu neniam evitis okazon por provoki virseksulojn per sia incita sinteno — kaj certe estis ŝi, kiu kaŭzis la tutan skandalon. Tio estis mia unua ekpenso kaj certe mi ne eraris. 
+Cetere, mi povas certigi vin, ke la judaĉo estis tiukaze senkulpa kiel ŝafo, tion mi ekkonis unuavide. Min neniu kapablas trompi, sufiĉis nur rigardeti la mienon de tiu fripona paro, kaj tuj mi sciis kiel statas la afero. Potifarino estas ja deĉiame famkonata malĉastulino, kiu neniam evitis okazon por provoki virseksulojn per sia incita sinteno — kaj certe estis ŝi, kiu kaŭzis la tutan skandalon. Tio estis mia unua ekpenso kaj certe mi ne eraris.
 
 Sed mi estas profesiulo, ĉu ne vere? En la gvardio oni vivtenas nin ne por pensi, sed por bati. Se sinjoro ordonas vipi, tiam oni vipu plenforte, sen demandi pri la ki-66
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 aloj. Pensi licas al estruloj, nia tasko estas deĵori. Pri ĉio respondecas la estroj, kaj tiuj ĉiam pravas, ĉar por pravi oni ja fariĝas estro, ĉu ne? …
 
-Cetere batregalon la hebreo tamen meritis, ĉar li kondutis kiel stultulo. ĉu decas rifuzi amorproponon de tia virino? Se estintus mi, kiun Potifarino incite provokis, mi jam scius kiamaniere pritrakti ŝin: senhezite mi seksu-mus ŝin kaj finfarite. Tute mi malzorgus, ĉu ŝi estas no-belulino, ĉu ordinara ĉiesulino. Ino kiel ino, pri seksaĵoj ĉiuj ili egalas. Kaj viro, kiu tion ne komprenas, estas aŭ nepra stultulo aŭ nenionkapabla impotentulo. Miaflan-ke, neniam mi evitis okazon kunkuŝigi iun ajn virinon, se mi trovis ŝin seksplezurinda. 
+Cetere batregalon la hebreo tamen meritis, ĉar li kondutis kiel stultulo. ĉu decas rifuzi amorproponon de tia virino? Se estintus mi, kiun Potifarino incite provokis, mi jam scius kiamaniere pritrakti ŝin: senhezite mi seksu-mus ŝin kaj finfarite. Tute mi malzorgus, ĉu ŝi estas no-belulino, ĉu ordinara ĉiesulino. Ino kiel ino, pri seksaĵoj ĉiuj ili egalas. Kaj viro, kiu tion ne komprenas, estas aŭ nepra stultulo aŭ nenionkapabla impotentulo. Miaflan-ke, neniam mi evitis okazon kunkuŝigi iun ajn virinon, se mi trovis ŝin seksplezurinda.
 
-Sciu, mi ĝenerale malŝatas la tiel nomatajn virtulojn. 
+Sciu, mi ĝenerale malŝatas la tiel nomatajn virtulojn.
 
-Okulfrape ili manifestas siajn ĉastecon, animpurecon, malpretendemon kaj martiremon — ĉu mi scias kion ankoraŭ\! Sed ĉio ĉi estas ja kontraŭnatura, ĉu? La vulgara popolaĉo devas eviti tiajn rafinaĵojn. Jes ja, la nobeluloj bonŝancas daŭrigi sian vivadon ankoraŭ postmorte en
+Okulfrape ili manifestas siajn ĉastecon, animpurecon, malpretendemon kaj martiremon — ĉu mi scias kion ankoraŭ! Sed ĉio ĉi estas ja kontraŭnatura, ĉu? La vulgara popolaĉo devas eviti tiajn rafinaĵojn. Jes ja, la nobeluloj bonŝancas daŭrigi sian vivadon ankoraŭ postmorte en
 
 luksaj sarkofagoj kaj pompe meblitaj tomboĉambroj, kie iliaj mumioj kuŝas balzamitaj kaj provizitaj de ĉiaspecaj vivbezonaĵoj, ili ĉiam ekzistos plu — sed niulo? Niulo finos sian mizerplenan vivaĉon ie en sterkejo, kie oni senceremonie enterigos lin kvazaŭ favan hundokadav-ron aŭ simple forlasos en dezerto kiel vorotaĵon por sovaĝbestoj. Do kia asketemo dumvive? Kiaj fastoj? ĉion 67
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-eblan mi devas elĝui nur nun, ĉi tempe, antaŭmorte, ĉu vi komprenas? Mi surkraĉis iajn idealojn, moralon, hon-orojn, tio estas nur malrealaj ecoj elpensitaj por trompi trokredemajn malsaĝulojn. Realan fakton mi bezonas, 
+eblan mi devas elĝui nur nun, ĉi tempe, antaŭmorte, ĉu vi komprenas? Mi surkraĉis iajn idealojn, moralon, hon-orojn, tio estas nur malrealaj ecoj elpensitaj por trompi trokredemajn malsaĝulojn. Realan fakton mi bezonas,
 
-nepron, pruvatestan, palpeblan fakton\! Kaj ĉu vi scias, kio estas? Plena manĝujo, sciu — jen tiu plej reala, ned-isputebla fakto, kiun mi agnoskas\! Nenion alian mi bezonas, je ĉio alia mi fajfas. 
+nepron, pruvatestan, palpeblan fakton! Kaj ĉu vi scias, kio estas? Plena manĝujo, sciu — jen tiu plej reala, ned-isputebla fakto, kiun mi agnoskas! Nenion alian mi bezonas, je ĉio alia mi fajfas.
 
 Nun, dank’ al nia Plej Saĝa Superulo, ni ĉiam havas
 
-plenan ujon, eĉ kiam ĉie alilande oni laŭdire tre suferas, ja eble eĉ amase mortadas de malsatego. Nu jes, kaŭzas tion la malfekundeco, kiu jam depost kelkaj senpluvaj jaroj trafis la tutan mondon laŭdire. Ja por mi malgravas, se iuj barbaraj gentoj elmortaĉos — precipe, ke ni egiptoj, ne malsatas. 
+plenan ujon, eĉ kiam ĉie alilande oni laŭdire tre suferas, ja eble eĉ amase mortadas de malsatego. Nu jes, kaŭzas tion la malfekundeco, kiu jam depost kelkaj senpluvaj jaroj trafis la tutan mondon laŭdire. Ja por mi malgravas, se iuj barbaraj gentoj elmortaĉos — precipe, ke ni egiptoj, ne malsatas.
 
-Kaj vidu, ĉion oni misuzas por trompe propagandi\! 
+Kaj vidu, ĉion oni misuzas por trompe propagandi!
 
 Troviĝis nome malsprituloj asertantaj, ke pri nia nuna bonfarto meritas ĝuste tiu hebrea ulo Jozefo, laŭdire, ĉar li konstruigis la grandegajn grenejojn kaj ordonis amasigi nutraĵojn dum la antaŭaj jaroj, kiam ĉio abundis —
 
-ba, kia stulta parolo\! Se nia Dieca Faraono ne sonĝintus pri tiuj bovinoj grasaj kaj malgrasaj, ĉu Jozefo povus an-taŭscii la okazontaĵojn? Nu vidu, kiu do meritas pri nia bonfarto? Klarigi signifon de tia lumevidenta sonĝo scipovas ja kiu ajn, sed profete sonĝi povas nur elektitoj de dioj, ĉu mi ne pravas? 
+ba, kia stulta parolo! Se nia Dieca Faraono ne sonĝintus pri tiuj bovinoj grasaj kaj malgrasaj, ĉu Jozefo povus an-taŭscii la okazontaĵojn? Nu vidu, kiu do meritas pri nia bonfarto? Klarigi signifon de tia lumevidenta sonĝo scipovas ja kiu ajn, sed profete sonĝi povas nur elektitoj de dioj, ĉu mi ne pravas?
 
-68
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-Cetere oni devas konstati, ke la sagaca judo tre lerte eluzis tiun faraonan sonĝon por fondi sian enviindan, abruptan karieron. Nuntempe li estas, krom la reĝo, la plej potenca funkciulo, kvazaŭa vicfaraono, kiu estras la tutan Egiptian regnon kaj mastrumas ĉiujn ŝtatnego-cojn. Diru mem: ĉu indas, ke tia sklavdevena barbaro igu veturigadi sin en reĝa ĉaro tra la lando? Kaj imagu, oni eĉ freneze jubilas al li renkonte, tapiŝumas lian vojon per floroj kaj laŭrobranĉetoj kaj oracias lin kiel savinton\! 
+Cetere oni devas konstati, ke la sagaca judo tre lerte eluzis tiun faraonan sonĝon por fondi sian enviindan, abruptan karieron. Nuntempe li estas, krom la reĝo, la plej potenca funkciulo, kvazaŭa vicfaraono, kiu estras la tutan Egiptian regnon kaj mastrumas ĉiujn ŝtatnego-cojn. Diru mem: ĉu indas, ke tia sklavdevena barbaro igu veturigadi sin en reĝa ĉaro tra la lando? Kaj imagu, oni eĉ freneze jubilas al li renkonte, tapiŝumas lian vojon per floroj kaj laŭrobranĉetoj kaj oracias lin kiel savinton!
 
-Ba, stultuloj — ĉu ili opinias, ke li agas senprofite? 
+Ba, stultuloj — ĉu ili opinias, ke li agas senprofite?
 
 Vidu, unusola vipregalo sufiĉis por elkapigi el li ĉiu-jn modestecon, oferemon kaj idealojn. Eĉ sian hebrean devenon li neis, akceptinte novan nomon egiptlingvan, kiun egale neniu memortenas. Ankaŭ sian pudoron li
 
-venkis, edzinigis pastran filinon kaj naskigis du bubojn. 
+venkis, edzinigis pastran filinon kaj naskigis du bubojn.
 
-Ba, sklavo nobeliĝis — nekredebla idiotaĵo\! 
+Ba, sklavo nobeliĝis — nekredebla idiotaĵo!
 
 Memkomprene, la alsimiligo de lia vivmaniero al egiptaj moroj estis nur ruza, profitcela kvazaŭo. Propra-konscie li ĉiam restas barbara fremdlandano, kiu ne
 
-povas venki sian sklavecan inklinon al la primitiva gento. ĉu vi ne kredas? Kial do li kelkfoje sendis pere de sia vagabonda frataro tian amasegon da nutraĵoj el la ŝta-ta provizejo en la Kanaanan landon, ja eĉ senpage\! ĉu tio ne estis evidenta misuzo de oficpovo? 
+povas venki sian sklavecan inklinon al la primitiva gento. ĉu vi ne kredas? Kial do li kelkfoje sendis pere de sia vagabonda frataro tian amasegon da nutraĵoj el la ŝta-ta provizejo en la Kanaanan landon, ja eĉ senpage! ĉu tio ne estis evidenta misuzo de oficpovo?
 
-Sed tio ŝajnis al li ankoraŭ nesufiĉe\! Por li ne sufiĉis, ke li mem bonfartas kvazaŭ porko en sekalejo — li de-69
+Sed tio ŝajnis al li ankoraŭ nesufiĉe! Por li ne sufiĉis, ke li mem bonfartas kvazaŭ porko en sekalejo — li de-69
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-vis eĉ almigrigi sian tutan familion\! Kaj ĉu vi scias, kiom-nombra estas tia juda familio? Estis ne nur lia patro kaj la dek unu fratoj, sed aldone ankaŭ bofratinoj, gekuzoj, bofilinoj, genevoj kaj nekalulebla geneparo. Kiam ĉiuj ĉi en siaj bizaraj kostumoj enmarŝis nian urbon kun kelkaj veturiloj ŝarĝitaj per ĉiaspeca fatraso, ili aspektis kiel trupo de histrionoj kaj ridindaj ŝercafektuloj. Tia tumulto ekestis, ke ni devis duobligi patrolojn por teni ordon. 
+vis eĉ almigrigi sian tutan familion! Kaj ĉu vi scias, kiom-nombra estas tia juda familio? Estis ne nur lia patro kaj la dek unu fratoj, sed aldone ankaŭ bofratinoj, gekuzoj, bofilinoj, genevoj kaj nekalulebla geneparo. Kiam ĉiuj ĉi en siaj bizaraj kostumoj enmarŝis nian urbon kun kelkaj veturiloj ŝarĝitaj per ĉiaspeca fatraso, ili aspektis kiel trupo de histrionoj kaj ridindaj ŝercafektuloj. Tia tumulto ekestis, ke ni devis duobligi patrolojn por teni ordon.
 
-Kaj nun ili ĉiuj restadas ĉi tie, en nia regiono, tiuj fiaj elmigrintoj, kiuj senbride naskproduktiĝas kvazaŭ ratoj. 
+Kaj nun ili ĉiuj restadas ĉi tie, en nia regiono, tiuj fiaj elmigrintoj, kiuj senbride naskproduktiĝas kvazaŭ ratoj.
 
-Kaj tiun ĉi homamason ni nutru je ŝtataj elspezoj. Nur atendu, post kelkaj jaroj ili formanĝegos ĉion kvazaŭ lokustoj kaj fine englutos eĉ nin mem. Malbena kanajlaro\! 
+Kaj tiun ĉi homamason ni nutru je ŝtataj elspezoj. Nur atendu, post kelkaj jaroj ili formanĝegos ĉion kvazaŭ lokustoj kaj fine englutos eĉ nin mem. Malbena kanajlaro!
 
-Kaj ĉion ĉi kulpas tiu damnita Jozefo. Oficiale ja oni sciigis, ke lian parencaron invitis la Superulo mem, sed kiu ankoraŭ kredas oficialajn sciigojn? ĉiam la aferoj statas aliel, ol la estruloj asertas. Certe estis rezulto de intrigoj far Jozefo. Ho, mi malŝategas lin\! Se mi ĉion ĉi antaŭsciintus, tiam la batmemorigo estus ankoraŭ multe pli efika …
+Kaj ĉion ĉi kulpas tiu damnita Jozefo. Oficiale ja oni sciigis, ke lian parencaron invitis la Superulo mem, sed kiu ankoraŭ kredas oficialajn sciigojn? ĉiam la aferoj statas aliel, ol la estruloj asertas. Certe estis rezulto de intrigoj far Jozefo. Ho, mi malŝategas lin! Se mi ĉion ĉi antaŭsciintus, tiam la batmemorigo estus ankoraŭ multe pli efika …
 
 ĉu li eble ankoraŭ rememoras, kiel li muĝis kaj ĝem-
 
@@ -1420,53 +1285,47 @@ ordonon. Ja ĉiam mi deĵoris konscience, servante al kia 70
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-ajn reĝimo. Respondecas mia ĉefestro, mi nur praktikas mian profesion. Certe, tiel estas prave: estas Potifar, kiu respondecas\! Kaj se Jozefo eble ordonus, ke mi skurĝu Potifaron, volonte mi farus, kial ne? Harda disciplino estas ja firma bazo de homa kunvivado, ĉu ne? 
+ajn reĝimo. Respondecas mia ĉefestro, mi nur praktikas mian profesion. Certe, tiel estas prave: estas Potifar, kiu respondecas! Kaj se Jozefo eble ordonus, ke mi skurĝu Potifaron, volonte mi farus, kial ne? Harda disciplino estas ja firma bazo de homa kunvivado, ĉu ne?
 
-Jes, jes — tiel statas la aferoj, tiel pasas la vivado. Po-tenculoj alternas, unu malaperas kaj alia supreniĝas, pli-malpli fia ol tiu antaŭa. Tronoj detruiĝas, superbaj urbe-goj iĝas ruinoj, formortas tutaj homgentoj, vastaj regionoj kun florriĉaj ĝardenoj ŝanĝiĝas je dezertoj … Tamen ununuraĵo ĉiam postrestas: estas ni, gvardianoj, policanoj, soldatoj, militistoj, armitoj, solduloj, profesie ek-zercitaj amasmurdistoj. ĉio alia pereos posttempe, ĉio estos forgesita, ĉio ajn: la stulta, spritmanka ĉasteco de Jozefo samkiel lia posta honorigo, la venĝema malfavoro de Potifar kaj avideca voluptemo de lia edzino, kies nomon oni eĉ ne plu rememoros — la grandegaj piramidoj de ĉiopotencaj faraonoj dispeciĝos, luksajn palacojn kaj belegajn templojn kaj kolosajn statuojn ŝutkovros sab-loamasoj alpelataj de orienta vento — ĉio, ĉio ajn estos foje pasinta, sole ni, batalpretaj militontoj, ni ĉion post-daŭros. 
+Jes, jes — tiel statas la aferoj, tiel pasas la vivado. Po-tenculoj alternas, unu malaperas kaj alia supreniĝas, pli-malpli fia ol tiu antaŭa. Tronoj detruiĝas, superbaj urbe-goj iĝas ruinoj, formortas tutaj homgentoj, vastaj regionoj kun florriĉaj ĝardenoj ŝanĝiĝas je dezertoj … Tamen ununuraĵo ĉiam postrestas: estas ni, gvardianoj, policanoj, soldatoj, militistoj, armitoj, solduloj, profesie ek-zercitaj amasmurdistoj. ĉio alia pereos posttempe, ĉio estos forgesita, ĉio ajn: la stulta, spritmanka ĉasteco de Jozefo samkiel lia posta honorigo, la venĝema malfavoro de Potifar kaj avideca voluptemo de lia edzino, kies nomon oni eĉ ne plu rememoros — la grandegaj piramidoj de ĉiopotencaj faraonoj dispeciĝos, luksajn palacojn kaj belegajn templojn kaj kolosajn statuojn ŝutkovros sab-loamasoj alpelataj de orienta vento — ĉio, ĉio ajn estos foje pasinta, sole ni, batalpretaj militontoj, ni ĉion post-daŭros.
 
 Foriĝu de la vojo, mizeraj civiluloj, jen ni eminentula-ro de l’mondo marŝas per firma, samritma paŝo, unu du, unu du — aŭdu la tertremadon — paŝas ni, la plej konvinka potenco, ni, la poreterna armeo mortiprete fidela 71
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-al ia-ajna makabra ideo\! Ni, ni ĉion superas, la tutan Teron ni estras, vi ĉiuj aliaj estas nur sklavoj, kiuj devas vivtenadi nin. Kliniĝu antaŭ ni, penege laboru kaj se necese eĉ mortaĉu pro malsato por nin satigi, oferdona-cu viajn filojn — ĉar sciu: la dioj eternaj, ĉiopovaj, sen-kompataj kaj sangavidaj — estas ni\! …. 
+al ia-ajna makabra ideo! Ni, ni ĉion superas, la tutan Teron ni estras, vi ĉiuj aliaj estas nur sklavoj, kiuj devas vivtenadi nin. Kliniĝu antaŭ ni, penege laboru kaj se necese eĉ mortaĉu pro malsato por nin satigi, oferdona-cu viajn filojn — ĉar sciu: la dioj eternaj, ĉiopovaj, sen-kompataj kaj sangavidaj — estas ni! ….
 
-Jes, homidoj, tiel estas. ĉu vi jam komprenas, kion signifas esti brava gvardiano? La soldateco estas la plej pri-vilegia metio kun garantiitaj bonfarto, honoro kaj gloro, ĉiam kaj ĉie. Eĉ nian funebron oni aranĝos je ŝtata elspezo … Kiel bagatela estas tiu banala aventuro de ia Jozefo kompare al nia historia predestino\! 
+Jes, homidoj, tiel estas. ĉu vi jam komprenas, kion signifas esti brava gvardiano? La soldateco estas la plej pri-vilegia metio kun garantiitaj bonfarto, honoro kaj gloro, ĉiam kaj ĉie. Eĉ nian funebron oni aranĝos je ŝtata elspezo … Kiel bagatela estas tiu banala aventuro de ia Jozefo kompare al nia historia predestino!
 
 Ho, bone, tre bone decidis mia povra patrino … Ekde
 
 tiu tago mi ne revidis ŝin. Eĉ ŝian vizaĝon mi jam apenaŭ kapablas rememori. Eble afabla ŝi estis. Certe ŝi ne plu vivas hodiaŭ. Dioj scias, kiam kaj kiel ŝi mortis …
 
-Sed miltondre — oni jam ekis distribui la manĝajojn\! 
+Sed miltondre — oni jam ekis distribui la manĝajojn!
 
 Kaj mi idioto jen senutile meditaĉas — —
 
-He, kamaradoj, lasu min trapasi, ne kubutumu\! Vaki-
+He, kamaradoj, lasu min trapasi, ne kubutumu! Vaki-
 
-gu por mi spacon, kanajloj — meritohava veterano estas preferenda, ĉu vi ne scias tion?\! Damne, mi rajtas ja ricevi mian manĝaĵon — he, vi tie, tuje eldonu al mi mian tagmanĝon, alie mi plendos rekte ĉe Jozefo, la Hebreo\! 
+gu por mi spacon, kanajloj — meritohava veterano estas preferenda, ĉu vi ne scias tion?! Damne, mi rajtas ja ricevi mian manĝaĵon — he, vi tie, tuje eldonu al mi mian tagmanĝon, alie mi plendos rekte ĉe Jozefo, la Hebreo!
 
-Ne ridaĉu, stupiduloj — ĉu vi ne scias, ke li estas mia intima konato?\! — —
+Ne ridaĉu, stupiduloj — ĉu vi ne scias, ke li estas mia intima konato?! — —
 
-Do ĉesu jam — jen kion vi faras, idiotoj, vi faligis min\!\! 
+Do ĉesu jam — jen kion vi faras, idiotoj, vi faligis min!!
 
-72
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Ne piedbatu min, kamaradoj — ĉu vi ne vidas, jen ja ho-mo kuŝas surtere — ĉu vi eble tretmortigos min pro
 
-maĉpeco da aĉa voraĵo?\! Kvazaŭ aro de furioziĝintaj ĉe-valoj vi kuregas transe — merde, kondutu ja kiel homoj, bastardoj misgeneritaj — aaaŭ\! mia torako krevas — hel-pu min stariĝi, pro ĉiuj dioj — mizerikordu, ne lasu min ĉi tie mortaĉi — ĉu vi frene … hooo\!\! —
+maĉpeco da aĉa voraĵo?! Kvazaŭ aro de furioziĝintaj ĉe-valoj vi kuregas transe — merde, kondutu ja kiel homoj, bastardoj misgeneritaj — aaaŭ! mia torako krevas — hel-pu min stariĝi, pro ĉiuj dioj — mizerikordu, ne lasu min ĉi tie mortaĉi — ĉu vi frene … hooo!! —
 
-73
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Klariga aldono
 
@@ -1476,77 +1335,65 @@ ran fenomenon: jena libro verdire ne finiĝas, sed
 
 simple ĉesas. Kredeble la eldiraĵo de la brava gvardiano estis ial interrompita. Divenprovi la kaŭzon povus rezultigi nur hipotezon, kion ni prefere evitu. Des pli strikte la eldonanto rifuzas eventualan ekpenson kompletigi la verkon per laŭlibera fikciaĵo, ĉar tia senrespondeca in-terveno konsiderinde minacus la historio-sciencan valoron de la jene lanĉitaj dokumentoj. Cetere atentema leginto certe jam amasigis sufiĉe da faktoj, kiuj al li permesas formi pravan imagon pri la antaŭlonga okazin-
 
-taĵo, kiu ĝis nun estis kovrita per vualo de nuraj konjek-toj kaj supozoj. 
+taĵo, kiu ĝis nun estis kovrita per vualo de nuraj konjek-toj kaj supozoj.
 
 Publikigante la aŭtentikaĵojn ni intencis pruve de-
 
-monstri, ke efektive ĉio okazadas aliel, ol oni oficiale asertas. Por riveli netan veron necesas kribri la respek-tivajn faktojn. Jen kion ni celis. ĉu ni sukcesis, tion bon-vole prijuĝu la afabla leginto. 
+monstri, ke efektive ĉio okazadas aliel, ol oni oficiale asertas. Por riveli netan veron necesas kribri la respek-tivajn faktojn. Jen kion ni celis. ĉu ni sukcesis, tion bon-vole prijuĝu la afabla leginto.
 
-**Valda Vinaæ**
+**Valda Vinaĝ**
 
-74
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 Pri la aŭtoro
 
-Valda Vinaæ naskiĝis la 31-an de majo 1918 en la
+Valda Vinaĝ naskiĝis la 31-an de en la
 
 hungara urbo Kaposvár. Liaj gepatroj estis ĉe˛oj
 
-kaj nur dumvojaĝa hazardo kaŭzis, ke li enspiris la unuan aergluton en tiu ĉi loko. Post baldaŭa morto de lia patro, la patrino de la juna Vladimir nur malfacile vivtenis sin kaj sian filon, sed tamen li povis frekventi gimnazion en Praha, kiun li finis per abiturienta ekzameno en la j. 
+kaj nur dumvojaĝa hazardo kaŭzis, ke li enspiris la unuan aergluton en tiu ĉi loko. Post baldaŭa morto de lia patro, la patrino de la juna Vladimir nur malfacile vivtenis sin kaj sian filon, sed tamen li povis frekventi gimnazion en Praha, kiun li finis per abiturienta ekzameno en la j.
 
-1937. 
+1937.
 
 Jam ekde studentaj jaroj datiĝas liaj unuaj provoj aŭ-
 
-toraj kaj teatraj. Li grupigis kelkajn gejunulojn, kiuj sub la nomo ”La tago” komencis ludi sur la ”malgranda sce-nejo” en la strato Smeâky en Praha. V. Vinaæ mem skribis por la aktora grupo teatrajn tekstojn, sprite kritikajn unuaktajn aktualaĵojn kaj ŝercajn versaĵojn. Li mem an-kaŭ aktoris kaj sub lia kapabla reĝisorado komencis tiam kelkaj el la nuntempe konataj ĉeąj geaktoroj. 
+toraj kaj teatraj. Li grupigis kelkajn gejunulojn, kiuj sub la nomo ”La tago” komencis ludi sur la ”malgranda sce-nejo” en la strato Smeâky en Praha. V. Vinaĝ mem skribis por la aktora grupo teatrajn tekstojn, sprite kritikajn unuaktajn aktualaĵojn kaj ŝercajn versaĵojn. Li mem an-kaŭ aktoris kaj sub lia kapabla reĝisorado komencis tiam kelkaj el la nuntempe konataj ĉeąj geaktoroj.
 
-V. Vinaæ poste fariĝis redaktoro kaj kunlaboranto de la ĉeą radioelsendado. Post la dua mondmilito li de-diĉis sin plene al teatra laboro. Li estis aktoro, poste reĝisoro en teatroj en Liberec, Plzeñ kaj laste en Cheb. Dum siaj laborjaroj, jam kiel reĝisoro, li sukcese elstudis Fil-75
+V. Vinaĝ poste fariĝis redaktoro kaj kunlaboranto de la ĉeą radioelsendado. Post la dua mondmilito li de-diĉis sin plene al teatra laboro. Li estis aktoro, poste reĝisoro en teatroj en Liberec, Plzeñ kaj laste en Cheb. Dum siaj laborjaroj, jam kiel reĝisoro, li sukcese elstudis Fil-75
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-martan Akademion en Praha \(FAMU\) kaj verkis kelkajn
+martan Akademion en Praha (FAMU) kaj verkis kelkajn
 
-ĉe˛lingvajn faklibrojn pri filmaj kaj filozofiaj temoj. 
+ĉe˛lingvajn faklibrojn pri filmaj kaj filozofiaj temoj.
 
-V. Vinaæ esperantistiĝis en la j. 1949. Post eĉ ne unu jaro studado li sukcesis ĉe la ekzamenoj de ĉe-instruisto kaj ĉe la ekzamenoj de tiama EAĉSR pri kapablo instrui Esperanton. Li tuj komencis tradukadi el la ĉeą litera-turo kaj ankaŭ reverki literaturaĵojn laŭ fremdlingvaj motivoj. En postaj jaroj maturiĝis ankaŭ lia origina Es-peranta verkado, kion pruvis gajnitaj premioj en diversaj literaturaj konkursoj. Krom prozaĵoj kaj poeziaĵoj li verkis kelkajn unupersonajn dramojn, kiuj estis sukcese prezentitaj far ĉeą aktorino Eva Seemannová. La plej sukcesa el tiuj estas ”ĉerande de l’abismo”, kiun E. Se-emanová elstudis sub la reĝisora gvido de la aŭtoro kaj multfoje ĝin prezentis en ĉe˛oslovakio, GDR kaj Neder-lando en Esperanto kaj ankaŭ ĉe˛lingve en ĉe˛oslo-
+V. Vinaĝ esperantistiĝis en la j. 1949. Post eĉ ne unu jaro studado li sukcesis ĉe la ekzamenoj de ĉe-instruisto kaj ĉe la ekzamenoj de tiama EAĉSR pri kapablo instrui Esperanton. Li tuj komencis tradukadi el la ĉeą litera-turo kaj ankaŭ reverki literaturaĵojn laŭ fremdlingvaj motivoj. En postaj jaroj maturiĝis ankaŭ lia origina Es-peranta verkado, kion pruvis gajnitaj premioj en diversaj literaturaj konkursoj. Krom prozaĵoj kaj poeziaĵoj li verkis kelkajn unupersonajn dramojn, kiuj estis sukcese prezentitaj far ĉeą aktorino Eva Seemannová. La plej sukcesa el tiuj estas ”ĉerande de l’abismo”, kiun E. Se-emanová elstudis sub la reĝisora gvido de la aŭtoro kaj multfoje ĝin prezentis en ĉe˛oslovakio, GDR kaj Neder-lando en Esperanto kaj ankaŭ ĉe˛lingve en ĉe˛oslo-
 
-vakio. La dramo estis tradukita ankaŭ en la nederlandan lingvon far René Kok. 
+vakio. La dramo estis tradukita ankaŭ en la nederlandan lingvon far René Kok.
 
-**ĉefaj sukcesoj de V. Vinaæ:**
+**ĉefaj sukcesoj de V. Vinaĝ:**
 
 *ĉeąj fabeloj* — libro aperinta en Japanio en 1962
 
-*Voĉoj el mallumo* — parafrazoj el poeziaĵoj de naturaj gentoj \(manuskripto\)
+*Voĉoj el mallumo* — parafrazoj el poeziaĵoj de naturaj gentoj (manuskripto)
 
 *La insulo de neresanigeblaj* — dua premio de Belartaj Konkursoj, Stockholm, 1980
 
-76
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
 *La astronomia horloĝo en Prago* — dua premio en Literatura Konkurso, Zaragoza, Hispanio
 
 Premioj en la Literaturaj Konkursoj en Bydgoszcz kaj en Internaciaj Floraj Ludoj en Barcelona
 
-Valda Vinaæ kiel verkisto batalis por la plej noblaj homaj ideoj, por toleremo, komprenemo kaj por paca kunvivado. Li estis ne nur bona esperantisto, verkisto kaj reĝisoro, sed antaŭ ĉio bona homo kaj fervora batalan-to por paco. Tial la esperantistoj en ĉe˛oslovakio estis profunde kortuŝitaj, kiam estis anoncita lia neatendita forpaso la 1-an de decembro 1981 en la urbo Cheb. 
+Valda Vinaĝ kiel verkisto batalis por la plej noblaj homaj ideoj, por toleremo, komprenemo kaj por paca kunvivado. Li estis ne nur bona esperantisto, verkisto kaj reĝisoro, sed antaŭ ĉio bona homo kaj fervora batalan-to por paco. Tial la esperantistoj en ĉe˛oslovakio estis profunde kortuŝitaj, kiam estis anoncita lia neatendita forpaso la 1-an de en la urbo Cheb.
 
-77
 
 LA SKANDALO PRO JOZEFO
 
-eLIBRO
 
-www.omnibus.se/inko
-
-**ISBN 91-7303-156-9**
-
-78
-
+www.omnibus.se/

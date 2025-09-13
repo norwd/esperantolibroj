@@ -1,49 +1,10 @@
-% Rinkitinko en Oz
-% Donald Broadribb
+Rinkit en Oz
 
-!(images/000110.jpg)
+De Baum, L. Frank (Lyman Frank), 1856–1919
 
+Ilustrita de Neill, John R. (John Rea), 1877–1943
 
-!(images/000056.png)
-
-!(images/000078.png)
-
-!(images/000007.png)
-
-!(images/000023.png)
-
-!(images/000097.png)
-
-!(images/000044.jpg)
-
-!(images/000036.png)
-
-!(images/000001.png)
-
-* * 
-
-Rinkitinko en Oz
-
-De Baum, L. Frank \(Lyman Frank\), 1856–1919
-
-Ilustrita de Neill, John R. \(John Rea\), 1877–1943
-
-Tradukita el la Angla al Esperanto de Broadribb, Donald \(Donald Richard\), 1933–
-
-Unue eldonita en la Angla kiel *Rinkitink in Oz* de Reilly & Britton, 1916. 
-
-Unue eldonita en Esperanto de Bookleaf Publishing, 1997. V[idu http://www.poboxes.com/bookleaf/](http://www.poboxes.com/bookleaf/)
-
-Ĉi tiu traduko kopirajta © 1997 Donald Broadribb. Ĉi tiu eldono estas korektita versio, junio 2000. 
-
-La ilustraĵoj kaj aranĝo de ĉi tiu eldono laŭeble plej konformas al tiuj de la originala Angla eldono de 1916. La litertipo estas 16 sur 18.7 pkt Elegant Garamond. 
-
-!(images/000043.png)
-
-!(images/000049.png)
-
-!(images/000010.png)
-
+Tradukita el la Angla al Esperanto de Broadribb, Donald (Donald Richard), 1933–
 
 
 ENKONDUKO AL ĈI TIU RAKONTO
@@ -64,7 +25,7 @@ Lando Oz antaŭ ol ili ĉiuj kunvenas
 
 en la Smeralda Urbo por partopreni
 
-en la bankedo de Ozma. Efektive, 
+en la bankedo de Ozma. Efektive,
 
 mi kredas ke vi trovos ĉi tiun
 
@@ -72,7 +33,7 @@ rakonton tre diferenca de la aliaj
 
 historioj pri Oz, sed mi esperas ke vi
 
-ne malpli ĝuos ĝin. 
+ne malpli ĝuos ĝin.
 
 Se al mi estos permesate verki
 
@@ -93,10 +54,9 @@ ekzisti ekster felando. Mi suspektas
 ke ĉirkaŭ la tempo kiam vi legos ĉi
 
 
+tiun rakonton pri Rinkit mi verkos tiun historion de
 
-tiun rakonton pri Rinkitinko mi verkos tiun historion de
-
-Aventuroj en Oz. 
+Aventuroj en Oz.
 
 Ne forgesu ofte skribi al mi kaj doni al mi viajn
 
@@ -106,128 +66,96 @@ ricevas tre multajn leterojn de miaj legantoj, sed ĉiu estas
 
 ĝojo por mi kaj mi respondas tuj kiam mi trovas sufiĉan
 
-tempon. 
+tempon.
 
 L. FRANK BAUM
 
-Reĝa Historiisto de Oz. 
+Reĝa Historiisto de Oz.
 
-“OZCOT” 
+“OZCOT”
 
 ĉe HOLLYWOOD
 
-en KALIFORNIO, 
+en KALIFORNIO,
 
-1916. 
-
-!(images/000090.png)
-
+1916.
 
 
 LISTO DE ĈAPITROJ
 
-1
 
 La Princo de Pingario . . . . . . . . . . . . . . 17
 
-2
 
-La Alveno de Reĝo Rinkitinko . . . . . . . . 29
+La Alveno de Reĝo Rinkit . . . . . . . . 29
 
-3
 
 La Batalistoj el la Nordo . . . . . . . . . . . . 44
 
-4
 
 La Dizertita Insulo . . . . . . . . . . . . . . . . 56
 
-5
 
 La Tri Perloj. . . . . . . . . . . . . . . . . . . . . 71
 
-6
 
 La Magia Boato . . . . . . . . . . . . . . . . . . 92
 
-7
 
 La Ĝemelaj Insuloj . . . . . . . . . . . . . . . . 109
 
-8
 
-Rinkitinko Grave Eraras. . . . . . . . . . . . . 127
+Rinkit Grave Eraras. . . . . . . . . . . . . 127
 
-9
 
 Donaco por Zella . . . . . . . . . . . . . . . . . 142
 
-10
 
 La Ruzeco de Reĝino Koro . . . . . . . . . . 153
 
-11
 
 Zella Iras al Koregoso . . . . . . . . . . . . . . 167
 
-12
 
 La Ekscitiĝo de Bilbilo la Kapro. . . . . . . 175
 
-13
 
 Zella Savas la Princon . . . . . . . . . . . . . . 180
 
-14
 
 La Eskapo . . . . . . . . . . . . . . . . . . . . . . 192
 
-15
 
 La Fuĝo de la Regantoj . . . . . . . . . . . . . 210
 
-16
 
 Nikoroĉjo Rifuzas Kronon . . . . . . . . . . . . 216
 
-17
 
 La Reĝo de la Knomoj . . . . . . . . . . . . . 226
 
-18
 
 Ingo Transdonas Sian Palruĝan Perlon . . . 237
 
-19
 
-Rinkitinko Subridas . . . . . . . . . . . . . . . . 265
+Rinkit Subridas . . . . . . . . . . . . . . . . 265
 
-20
 
 Doroteo Venas Savi . . . . . 275
 
-21
 
 La Sorĉisto Trovas
 
 Sorĉaĵon . . . . . . . . . . . 281
 
-22
 
 La Bankedo de Ozma . . . 291
 
-23
 
 La Perla Regno. . . . . . . . 301
 
-24
 
 La Kaptita Reĝo . . . . . . . 307
-
-!(images/000103.png)
-
-!(images/000106.png)
-
 
 
 La Princo de Pingario
@@ -244,11 +172,11 @@ Nonesta Oceano lavas la
 
 limojn de la Regno
 
-Rinkitinko, inter kiuj kaj la Lando Oz situas strio de
+Rinkit, inter kiuj kaj la Lando Oz situas strio de
 
 la lando de la Reĝo de la Knomoj kaj la Sabla
 
-Dezerto. La Regno Rinkitinko ne estas tre granda kaj
+Dezerto. La Regno Rinkit ne estas tre granda kaj
 
 situas proksime al la oceano, kaj ĉiuj domoj kaj la
 
@@ -256,21 +184,18 @@ palaco de la Reĝo estis konstruitaj apud la bordo. La
 
 civitanoj loĝas grandparte sur la akvo, boatante kaj
 
-fiŝkaptante, kaj la riĉoj de Rinkitinko akiriĝas per
-
-17
+fiŝkaptante, kaj la riĉoj de Rinkit akiriĝas per
 
 
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 komercado laŭlonge de la bordo kaj kun la insuloj
 
-plej proksimaj. 
+plej proksimaj.
 
 Kvar tagojn da veturado per boato norde de Rinki-
 
-tinko estas la Insulo Pingario, kaj kiam komenciĝas
+t estas la Insulo Pingario, kaj kiam komenciĝas
 
 nia rakonto ĉi tie mi devas informi vin iomete pri tiu
 
@@ -284,7 +209,7 @@ duonan kilometron larĝa; sekve, kvankam Pingario
 
 longas ses kaj duonan kilometrojn de la nordo ĝis la
 
-sudo, oni ne povas diri ke ĝi estas tre granda insulo. 
+sudo, oni ne povas diri ke ĝi estas tre granda insulo.
 
 Ĝi estas vere bela, tamen, kaj al la okuloj de la mevoj
 
@@ -294,9 +219,9 @@ similas grandegan verdan kojnon kuŝantan sur la
 
 akvo, ĉar ĝiaj herbo kaj arboj donas al ĝi la koloron
 
-de smeraldo. 
+de smeraldo.
 
-La herbo atingis la randon de la deklivaj bordoj; 
+La herbo atingis la randon de la deklivaj bordoj;
 
 la belaj arboj okupis la tutan centran parton de
 
@@ -304,16 +229,13 @@ Pingario, farante seninterrompan arbareton kie la
 
 branĉoj renkontiĝis superkape kaj estis ĝuste sufiĉa
 
-spaco sub ili por la komfortaj domoj de la loĝantoj. 
+spaco sub ili por la komfortaj domoj de la loĝantoj.
 
 Tiuj domoj troviĝis dise ĉie en la insulo, tiel ke
 
 mankis urbo aŭ urbego, krom se oni nomus la tutan
 
-insulon urbo. La baldakeno de folioj, alte superkape, 
-
-18
-
+insulon urbo. La baldakeno de folioj, alte superkape,
 
 
 Ĉapitro Unu
@@ -324,7 +246,7 @@ loĝantoj en la arbareto ĉiuj povis rigardi preter la
 
 rektajn arbotrunkojn kaj trans la herbokovritajn
 
-deklivojn al la purpura akvo de la Nonesta Oceano. 
+deklivojn al la purpura akvo de la Nonesta Oceano.
 
 Ĉe la larĝa ekstremo de la insulo, norde, staris la
 
@@ -338,7 +260,7 @@ polurita oro, ĉar la Reĝo estis ekstreme riĉa. Tute
 
 laŭlonge de la bordo de Pingario troviĝis la plej
 
-grandaj kaj plej altkvalitaj perloj en la tuta mondo. 
+grandaj kaj plej altkvalitaj perloj en la tuta mondo.
 
 Tiuj perloj kreskis en la ŝeloj de grandaj ostroj, kaj
 
@@ -350,11 +272,11 @@ Reĝo. Tial, unufoje en ĉiu jaro, lia Moŝto povis sendi
 
 ses el siaj boatoj, kun sesdek remantoj kaj multaj
 
-sakoj da valoraj perloj, al la Regno Rinkitinko, kie
+sakoj da valoraj perloj, al la Regno Rinkit, kie
 
 situis urbo nomata Gilgado, en kiu la palaco de Reĝo
 
-Rinkitinko staris sur rokoplena promontoro kaj agis, 
+Rinkit staris sur rokoplena promontoro kaj agis,
 
 per siaj altaj turoj, kiel lumturo por gvidi velistojn al
 
@@ -364,17 +286,14 @@ kasisto de la Reĝo, kaj la boatoj reiris al la insulo
 
 portante riĉajn varojn kaj tiujn nutraĵprovizojn kiujn
 
-bezonis la popolo kaj la reĝa familio de Pingario. 
-
-19
+bezonis la popolo kaj la reĝa familio de Pingario.
 
 
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 La homoj de Pingario neniam vizitis alian landon
 
-ol Rinkitinkon, kaj tial malmultaj aliaj landoj sciis ke
+ol Rinkitn, kaj tial malmultaj aliaj landoj sciis ke
 
 ekzistas tiu insulo. Sudokcidente estis insulo nomata
 
@@ -384,7 +303,7 @@ tre norde de Pingario—ses tagojn da veturado per
 
 boato, laŭdire—estis ĝemelaj insuloj nomataj Regoso
 
-kaj Koregoso, loĝataj de feroca kaj militema popolo. 
+kaj Koregoso, loĝataj de feroca kaj militema popolo.
 
 Multajn jarojn antaŭ la efektiva komenco de ĉi tiu
 
@@ -406,22 +325,19 @@ invadintojn el Regoso kaj Koregoso kaj detruis ilin
 
 kaj iliajn boatojn, tiel ke eĉ ne unu militisto revenis
 
-al sia propra lando. 
+al sia propra lando.
 
 Tiu venkiĝo de la malamikoj ŝajnis eĉ pli mirinda
 
 ĉar la perloserĉistoj de Pingario estis mildaj kaj
 
-pacemaj personoj kaj malofte kverelis eĉ inter si mem. 
+pacemaj personoj kaj malofte kverelis eĉ inter si mem.
 
 Iliaj solaj armiloj estis iliaj ostrorastiloj; tamen restas
 
 fakto ke ili pelis siajn ferocajn malamikojn el Regoso
 
-kaj Koregoso for de siaj bordoj. 
-
-20
-
+kaj Koregoso for de siaj bordoj.
 
 
 Ĉapitro Unu
@@ -440,7 +356,7 @@ al lia lando, kaj por konkeri kaj por venĝi, kaj
 
 tiuokaze li povus malmulte esperi sukcese kontraŭ-
 
-batali ilin. 
+batali ilin.
 
 Tiu malkvieto flanke de Reĝo Kitikuto instigis lin
 
@@ -454,7 +370,7 @@ regatojn. Li estis bona Reĝo kaj loĝis tre kontente en
 
 sia bela palaco, kun sia bela Reĝino Gario kaj ilia
 
-sola infano, Princo Ingo. 
+sola infano, Princo Ingo.
 
 La riĉoj de Pingario kreskis jaron post jaro; kaj
 
@@ -468,17 +384,14 @@ de la Nonesta Oceano. Se tiuj kondiĉoj restus
 
 neĝenite, ne necesus paroli pri Pingario en ĉi tiu
 
-rakonto. 
+rakonto.
 
 Princo Ingo, la heredonto de ĉiuj riĉoj kaj la
 
-reĝposteno de Pingario, kreskis ĉirkaŭate de ĉia lukso; 
-
-21
+reĝposteno de Pingario, kreskis ĉirkaŭate de ĉia lukso;
 
 
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 sed li estis maturspirita etulo, kvankam iom tro solena
 
@@ -496,7 +409,7 @@ rastilon por eltreni la ostrojn kaj li estis vere tre fiera
 
 kiam li povis porti grandan blankan perlon al sia
 
-patro. 
+patro.
 
 Ne estis lernejo sur la insulo, ĉar la popolo de
 
@@ -506,11 +419,11 @@ niaj modernaj infanoj avantaĝojn kiaj lernejoj kaj
 
 kleraj profesoroj, sed la Reĝo posedis plurajn
 
-manuskriptajn librojn, kies paĝoj konsistis el ŝafpelo. 
+manuskriptajn librojn, kies paĝoj konsistis el ŝafpelo.
 
 Ĉar li estis inteligentulo, li povis instrui al sia filo
 
-iom da legado, skribado, kaj aritmetiko. 
+iom da legado, skribado, kaj aritmetiko.
 
 Studante siajn lecionojn Princo Ingo kutimis iri en
 
@@ -520,16 +433,13 @@ rampi en la branĉojn de alta arbo, kie li iam konstruis
 
 platformon kun komforta seĝo sursidebla, kaj ĉion
 
-kaŝis la baldakeno de folioj. Tie, kie neniu ĝenis lin, 
+kaŝis la baldakeno de folioj. Tie, kie neniu ĝenis lin,
 
 li studadis la ŝafpelon sur kiu estis skribitaj la
 
-kuriozaj signoj de la Pingaria lingvo. 
+kuriozaj signoj de la Pingaria lingvo.
 
-Reĝo Kitikuto multe fieris pri sia malgranda filo, 
-
-22
-
+Reĝo Kitikuto multe fieris pri sia malgranda filo,
 
 
 Ĉapitro Unu
@@ -564,13 +474,13 @@ kontraŭbatali ilin, ĉar mia popolo estas ja malmulte
 
 trejnita batali; ili certe kaŭzus al ni multajn vundojn
 
-kaj suferadon.” 
+kaj suferadon.”
 
 “Ĉu do ni estas malpli fortaj ol dum la tempo de
 
-mia avo?” demandis Princo Ingo. 
+mia avo?” demandis Princo Ingo.
 
-La Reĝo penseme kapneis. 
+La Reĝo penseme kapneis.
 
 “Tio ne,” diris li. “Por ke vi plene komprenu tiun
 
@@ -582,17 +492,14 @@ mi de ĉiam gardas zorgege, kaŝante de ĉiuj homoj la
 
 fakton ke ili ekzistas. Sed, por ke kiam mi mortos la
 
-23
 
-
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 sekreto ne perdiĝu, mi decidis informi vin kio estas
 
-tiuj talismanoj kaj kie ili estas kaŝitaj. Venu kun mi, 
+tiuj talismanoj kaj kie ili estas kaŝitaj. Venu kun mi,
 
-mia filo.” 
+mia filo.”
 
 Li gvidis lin tra la ĉambroj de la palaco ĝis ili
 
@@ -604,7 +511,7 @@ risorton en la kahelkovrita planko. Tuj unu el la
 
 kaheloj subeniris kaj la Reĝo etendis manon en la
 
-kavaĵon kaj eltiris silkan sakon. 
+kavaĵon kaj eltiris silkan sakon.
 
 Tiun sako li sekve malfermis, kaj montris al Ingo
 
@@ -614,7 +521,7 @@ granda kiel marmora globeto. Unu estis blua kaj
 
 unu estis delikate rozkolora, sed la tria estis
 
-purblanka. 
+purblanka.
 
 “Ĉi tiuj tri perloj,” diris la Reĝo, parolante per
 
@@ -636,13 +543,8 @@ donas al la portanto forton tiel grandan ke nenia forto
 
 povas kontraŭi lin. Tiu palruĝe brilanta protektas sian
 
-24
 
-!(images/000055.png)
-
-
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 posedanton kontraŭ ĉiuj minacantaj danĝeroj, negrave
 
@@ -650,41 +552,41 @@ el kie ili venas. La tria perlo—ĉi tiu purblanka—
 
 kapablas paroli, kaj ĝiaj vortoj estas ĉiam saĝaj kaj
 
-helpaj.” 
+helpaj.”
 
-“Kion vi diras, mia patro\!” kriis la Princo, ege
+“Kion vi diras, mia patro!” kriis la Princo, ege
 
-mirante; “ĉu vi diras al mi ke perlo kapablas paroli? 
+mirante; “ĉu vi diras al mi ke perlo kapablas paroli?
 
-Laŭsone tio estas neebla.” 
+Laŭsone tio estas neebla.”
 
 “Via dubo ŝuldiĝas al via manko de scio pri
 
 fepovoj,” respondis la Reĝo serioze. “Aŭskultu, mia
 
-filo, kaj vi scios ke mi parolas la veron.” 
+filo, kaj vi scios ke mi parolas la veron.”
 
 Li tenis la blankan perlon ĉe orelo de Ingo kaj la
 
-Princo aŭdis voĉeton klare diri: “Via patro pravas. 
+Princo aŭdis voĉeton klare diri: “Via patro pravas.
 
 Neniam dubu tion kion vi ne povas kompreni, ĉar la
 
-mondo estas plena de mirindaĵoj.” 
+mondo estas plena de mirindaĵoj.”
 
 “Mi petas pardonon de vi, kara patro,” diris la
 
 Princo, “ĉar klare mi aŭdis la perlon paroli, kaj ĝiaj
 
-vortoj estis plenaj de saĝeco.” 
+vortoj estis plenaj de saĝeco.”
 
-“La povoj de la aliaj perloj estas eĉ pli grandaj,” 
+“La povoj de la aliaj perloj estas eĉ pli grandaj,”
 
-pludiris la Reĝo. “Se mi estus malriĉa ĉiualimaniere, 
+pludiris la Reĝo. “Se mi estus malriĉa ĉiualimaniere,
 
 ĉi tiuj gemoj farus min pli riĉa ol ĉiu alia monarko
 
-en la mondo.” 
+en la mondo.”
 
 “Mi kredas tion,” respondis Ingo, rigardante la
 
@@ -692,13 +594,10 @@ belajn perlojn tre respektoplene. “Sed diru al mi, mia
 
 patro, kial vi timas la militistojn el Regoso kaj
 
-26
-
-
 
 Ĉapitro Unu
 
-Koregoso kiam vi posedas tiajn mirindajn povojn?” 
+Koregoso kiam vi posedas tiajn mirindajn povojn?”
 
 “La povoj apartenas al mi nur kiam mi portas la
 
@@ -722,7 +621,7 @@ la magiajn perlojn dum la tempo de la Granda
 
 Batalo, pri kiu vi tre ofte jam aŭdis, kaj la palruĝa
 
-perlo protektis lin kontraŭ damaĝo, dum la blua
+perlo protektis lntraŭ damaĝo, dum la blua
 
 perlo ebligis ke li kaj lia popolo forpelu la
 
@@ -730,13 +629,13 @@ malamikojn. Ofte mi suspektas ke la detruantan
 
 ŝtormon kaŭzis la femarvirinoj, sed pri tio mi ne
 
-havas pruvon.” 
+havas pruvon.”
 
 “Mi ofte demandis al mi kiel ni sukcesis venki en
 
 tiu batalo,” komentis Ingo penseme. “Sed la perloj
 
-helpos nin se la militistoj revenos, ĉu ne?” 
+helpos nin se la militistoj revenos, ĉu ne?”
 
 “Ili estas same potencaj kiel ĝis nun,” deklaris la
 
@@ -746,13 +645,8 @@ malamikon. Sed por ke kiam mi mortos la sekreto ne
 
 estu kaŝita forde la sekva Reĝo, mi nun donas ĝin
 
-27
 
-!(images/000113.png)
-
-
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 por ke vi gardu ĝin. Memoru ke ĉi tiuj perloj estas
 
@@ -760,9 +654,9 @@ la laŭrajta heredaĵo de ĉiuj Reĝoj de Pingario. Se iam
 
 mi estos forprenita disde vi, Ingo, gardu bone ĉi tiun
 
-trezoron kaj ne forgesu ĝian kaŝejon.” 
+trezoron kaj ne forgesu ĝian kaŝejon.”
 
-“Mi ne forgesos,” diris Ingo. 
+“Mi ne forgesos,” diris Ingo.
 
 La Reĝo remetis la perlojn en la kaŝejon kaj la
 
@@ -770,23 +664,18 @@ knabo iris al sia propra ĉambro por pripensi la
 
 mirindan sekreton kiun lia patro tiutage konfidis al
 
-li ke li gardu ĝin. 
-
-28
-
-!(images/000021.png)
+li ke li gardu ĝin.
 
 
-
-La Alveno de Reĝo Rinkitinko
+La Alveno de Reĝo Rinkit
 
 ĈAPITRO 2
 
-Kelkajn tagojn poste, 
+Kelkajn tagojn poste,
 
-dum 
+dum
 
-hela 
+hela
 
 sunoplena
 
@@ -796,13 +685,13 @@ blovis milde kaj dolĉe de
 
 la oceano kaj la arboj
 
-skuis siajn foliŝarĝitajn branĉojn, la Reĝa Gardisto, 
+skuis siajn foliŝarĝitajn branĉojn, la Reĝa Gardisto,
 
 kies tasko estis patroli la bordon, venis kurante al la
 
 Reĝo kun informo ke nekonata boato proksimiĝas al
 
-la insulo. 
+la insulo.
 
 Unue la Reĝo multe timis kaj ekpaŝis cele la
 
@@ -810,11 +699,8 @@ kaŝitajn perlojn, sed la sekvan momenton li pensis ke
 
 unu boato, eĉ se plena de malamikoj, ne povus
 
-29
 
-
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 damaĝi lin, do li bridis sian timon kaj marŝis al la
 
@@ -824,19 +710,19 @@ viroj de Pingario ankaŭ kunvenis tie, kaj Princo Ingo
 
 sekvis sian patron. Veninte al la bordo de la akvo, ili
 
-ĉiuj staris gapante fervore la alvenantan boaton. 
+ĉiuj staris gapante fervore la alvenantan boaton.
 
 Ĝi estis tre granda boato, ili vidis, kaj kovrita per
 
 baldakeno el purpura silko, brodita per oro. Ĝin remis
 
-dudek viroj, po dek ĉiuflanke. Dum ĝi proksimiĝis, 
+dudek viroj, po dek ĉiuflanke. Dum ĝi proksimiĝis,
 
 Ingo povis vidi ke en la malantaŭo, sidante sur alta
 
 kusenkovrita ŝtatseĝo, estis malgranda viro kiu estis
 
-tiel ege dika ke li estis preskaŭ egale larĝa kiel alta. 
+tiel ege dika ke li estis preskaŭ egale larĝa kiel alta.
 
 Tiu viro estis vestita per loza silka robo purpura kies
 
@@ -850,7 +736,7 @@ rando. Ĉe la kontraŭa ekstremo de la boato staris
 
 kuriozforma kaĝo, kaj pluraj grandaj kestoj el
 
-santalligno estis stakitaj apud la centro de la veturilo. 
+santalligno estis stakitaj apud la centro de la veturilo.
 
 Dum la boato proksimiĝis al la bordo la dika
 
@@ -864,21 +750,18 @@ vizaĝo estis ronda kiel pomo kaj preskaŭ egale
 
 rozkolora. Ĉesinte riverencadi li ridetis tiel dolĉe kaj
 
-30
-
-
 
 Ĉapitro Du
 
 feliĉe ke Ingo opiniis ke nepre li estas tre gaja
 
-persono. 
+persono.
 
-La pruo de la boato surteriĝis sur la plaĝo, 
+La pruo de la boato surteriĝis sur la plaĝo,
 
 ekĉesigante sian rapidon tiel subite ke la vireto estis
 
-surprizita kaj preskaŭ falis kapantaŭe en la maron. 
+surprizita kaj preskaŭ falis kapantaŭe en la maron.
 
 Sed li sukcesis ekpreni la seĝon per unu mano kaj la
 
@@ -890,11 +773,11 @@ juvelitan ĉapon ĉirkaŭ sian kapon, li kriis per gaja
 
 voĉo:
 
-“Nu, finfine, jen mi alvenis\!” 
+“Nu, finfine, jen mi alvenis!”
 
-“Tion mi rimarkas,” respondis Reĝo Kitikuto, 
+“Tion mi rimarkas,” respondis Reĝo Kitikuto,
 
-riverencante tre digne. 
+riverencante tre digne.
 
 La dikulo ĉirkaŭrigardetis ĉiujn solenajn vizaĝojn
 
@@ -904,25 +787,22 @@ ridis kaj duone gajkrietis, ĉar la sonoj kiujn li faris
 
 estis kuriozaj kaj komikaj kaj tentis ĉiun aŭdanton
 
-ridi kun li. 
+ridi kun li.
 
-“He, he—ho, ho, ho\!” li muĝis. “Ne anticipis min, 
+“He, he—ho, ho, ho!” li muĝis. “Ne anticipis min,
 
-mi komprenas. Kik-ik-ik-ik\! Estas komike—vere
+mi komprenas. Kik-ik-ik-ik! Estas komike—vere
 
-komike. Ne sciis ke mi venas, ĉu? Hu, hu, hu, hu\! 
+komike. Ne sciis ke mi venas, ĉu? Hu, hu, hu, hu!
 
-Estas certe amuze. Sed jen mi, malgraŭ tio.” 
+Estas certe amuze. Sed jen mi, malgraŭ tio.”
 
-“Ĉit\!” diris profunda, muĝe grumbla voĉo. “Vi
+“Ĉit!” diris profunda, muĝe grumbla voĉo. “Vi
 
-ridindigas vin.” 
-
-31
+ridindigas vin.”
 
 
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Ĉiuj rigardis por vidi el kie venis tiu voĉo, sed
 
@@ -932,7 +812,7 @@ remantoj de la boato estis ĉiuj solenaj kaj silentaj kaj
 
 certe neniu sur la bordo parolis. Sed la vireto aspektis
 
-tute ne surprizita, eĉ ne ĉagrenita. 
+tute ne surprizita, eĉ ne ĉagrenita.
 
 Reĝo Kitikuto nun alparolis la fremdulon, dirante
 
@@ -942,23 +822,23 @@ Reĝo Kitikuto nun alparolis la fremdulon, dirante
 
 vi degnos surteriĝi kaj laŭoportune informi nin pri
 
-kiun ni honorate rajtas akcepti kiel gaston.” 
+kiun ni honorate rajtas akcepti kiel gaston.”
 
 “Dankon; mi faros tion,” respondis la malgranda
 
 dikulo, paŝante kvazaŭ anaso el sia loko en la boato
 
-kaj transirante, iom malfacile, sur la sablan plaĝon. 
+kaj transirante, iom malfacile, sur la sablan plaĝon.
 
-“Mi estas Reĝo Rinkitinko, el la Urbo Gilgado en la
+“Mi estas Reĝo Rinkit, el la Urbo Gilgado en la
 
-Regno Rinkitinko, kaj mi venis al Pingario por mem
+Regno Rinkit, kaj mi venis al Pingario por mem
 
 vidi la monarkon kiu sendas al mia urbo tiom da
 
-belaj perloj. Delonge mi deziras viziti ĉi tiun insulon; 
+belaj perloj. Delonge mi deziras viziti ĉi tiun insulon;
 
-sekve, kiel mi jam diris, jen mi\!” 
+sekve, kiel mi jam diris, jen mi!”
 
 “Min plezurigas bonvenigi vin,” diris Reĝo
 
@@ -968,45 +848,40 @@ servistoj? Ĉu ne estas danĝere ke la Reĝo de grava
 
 lando longe veturas en unusola nefortika boato, kaj
 
-kun nur dudek servistoj?” 
+kun nur dudek servistoj?”
 
-“Nu, supozeble,” respondis Reĝo Rinkitinko, 
-
-32
-
-!(images/000012.png)
+“Nu, supozeble,” respondis Reĝo Rinkit,
 
 
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 ridante. “Sed kion alian mi povis fari? Miaj regatoj
 
 ne permesus ke mi iru ien ajn, se ili scius. Do mi
 
-simple forkuris.” 
+simple forkuris.”
 
-“Forkuris\!” kriis Reĝo Kitikuto, surprizite. 
+“Forkuris!” kriis Reĝo Kitikuto, surprizite.
 
-“Komike, ĉu ne? He, he, he—u, hu\!” ridis Rinki-
+“Komike, ĉu ne? He, he, he—u, hu!” ridis Rinki-
 
-tinko, kaj nur tiel mi povas laŭeble literumi la gajajn
+t, kaj nur tiel mi povas laŭeble literumi la gajajn
 
 sonojn de lia ridado. “Imagu, Reĝo forkuras de sia
 
-propra popolo—hu, hu—kik, ik, ik, ik\! Sed mi devis, 
+propra popolo—hu, hu—kik, ik, ik, ik! Sed mi devis,
 
-ĉu vi komprenas\!” 
+ĉu vi komprenas!”
 
-“Kial?” demandis la alia Reĝo. 
+“Kial?” demandis la alia Reĝo.
 
-“Ili timas ke mi miskondutos. Ili ne fidas min. 
+“Ili timas ke mi miskondutos. Ili ne fidas min.
 
-Kik-ik-ik—Ho ve\! Ne fidas sian propran Reĝon. 
+Kik-ik-ik—Ho ve! Ne fidas sian propran Reĝon.
 
-Komike, ĉu ne?” 
+Komike, ĉu ne?”
 
-“Nenia damaĝo povas trafi vin sur ĉi tiu insulo,” 
+“Nenia damaĝo povas trafi vin sur ĉi tiu insulo,”
 
 diris Kitikuto, ŝajnigante ne rimarki la kuriozecon de
 
@@ -1018,9 +893,9 @@ mia propra popolo. Intertempe, bonvolu akompani
 
 min al mia palaco, kie oni faros ĉion por komfortigi
 
-kaj feliĉigi vin.” 
+kaj feliĉigi vin.”
 
-“Multe dankas,” respondis Rinkitinko, puŝante sian
+“Multe dankas,” respondis Rinkit, puŝante sian
 
 blankan ĉapon sur sian maldekstran orelon kaj elkore
 
@@ -1028,79 +903,73 @@ premante la manon de sia fratmonarko. “Mi estas
 
 certa ke vi povos komfortigi min se vi havas multe
 
-34
-
-* * 
 
 Ĉapitro Du
 
-da manĝaĵoj. Kaj rilate al feliĉeco—ha, ha, ha, ha\!—
+da manĝaĵoj. Kaj rilate al feliĉeco—ha, ha, ha, ha!—
 
-nu, jen mia problemo. Mi estas *tro* feliĉa. Sed atendu\! 
+nu, jen mia problemo. Mi estas *tro* feliĉa. Sed atendu!
 
-Mi kunportis al vi kelkajn donacojn en ĉi tiuj kestoj. 
+Mi kunportis al vi kelkajn donacojn en ĉi tiuj kestoj.
 
 Bonvolu ordoni al viaj servistoj ke ili portu ilin al la
 
-palaco.” 
+palaco.”
 
 “Certe,” respondis Reĝo Kitikuto, multe plaĉite, kaj
 
-tuj li diris la necesajn ordonojn al siaj servistoj. 
+tuj li diris la necesajn ordonojn al siaj servistoj.
 
 “Kaj krome,” daŭrigis la dika Reĝeto, “ili ankaŭ
 
-prenu mian kapron el lia kaĝo.” 
+prenu mian kapron el lia kaĝo.”
 
-“Kapron\!” kriis la Reĝo de Pingario. 
+“Kapron!” kriis la Reĝo de Pingario.
 
 “Precize; mia kapro Bilbilo. Mi ĉiam rajdas lin
 
 kien ajn mi iras, ĉar tute ne al mi plaĉas marŝi, ĉar
 
-mi estas iomete dika—ĉu ne, Kitikuto?—iomete dika\! 
+mi estas iomete dika—ĉu ne, Kitikuto?—iomete dika!
 
-Hu, hu, hu—kik, ik\!” 
+Hu, hu, hu—kik, ik!”
 
 La Pingarianoj komencis levi la grandan kaĝon el
 
-la boato, sed ĝuste tiam bruska voĉo kriis: “Zorgu, 
+la boato, sed ĝuste tiam bruska voĉo kriis: “Zorgu,
 
-friponoj\!” kaj ĉar la vortoj laŭŝajne venis el la buŝo
+friponoj!” kaj ĉar la vortoj laŭŝajne venis el la buŝo
 
 de la kapro la servistoj tiom surpriziĝis ke ili
 
-maldelikate faligis la kaĝon sur la sablon. 
+maldelikate faligis la kaĝon sur la sablon.
 
-“Jen\! Mi avertis vin\!” kriis la voĉo kolere. “Vi
+“Jen! Mi avertis vin!” kriis la voĉo kolere. “Vi
 
 forfrotis la haŭton de mia maldekstra genuo. Ja kial
 
-vi ne milde traktis min?” 
+vi ne milde traktis min?”
 
-“Trankvile, Bilbilo,” diris Reĝo Rinkitinko konsole; 
+“Trankvile, Bilbilo,” diris Reĝo Rinkit konsole;
 
 “ne riproĉu, mia knabo. Memoru ke ili estas
 
-35
 
-
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 fremduloj, kaj ni estas iliaj gastoj.” Post tio li turnis
 
 sin al Kitikuto kaj komentis: “Vi ne havas parolantajn
 
-kaprojn sur via insulo, supozeble.” 
+kaprojn sur via insulo, supozeble.”
 
-“Ni tute ne havas kaprojn,” respondis la Reĝo; 
+“Ni tute ne havas kaprojn,” respondis la Reĝo;
 
-“nek iajn ajn bestojn kapablajn paroli.” 
+“nek iajn ajn bestojn kapablajn paroli.”
 
-“Ankaŭ mi volegas ke mia besto ne povu paroli,” 
+“Ankaŭ mi volegas ke mia besto ne povu paroli,”
 
-diris Rinkitinko, palpebrumante komike al Ingo kaj
+diris Rinkit, palpebrumante komike al Ingo kaj
 
 poste rigardante la kaĝon. “Li estas kelkfoje tre
 
@@ -1112,37 +981,34 @@ parolantan kapron, kun kiu mi povos konversacii
 
 dum mi rajdos en mia urbo sur lia dorso; sed—kik-
 
-ik-ik-ik\!—la fripono traktas min kvazaŭ mi estus
+ik-ik-ik!—la fripono traktas min kvazaŭ mi estus
 
-kamenpurigisto anstataŭ Reĝo. He, he, he, kik, ik\! 
+kamenpurigisto anstataŭ Reĝo. He, he, he, kik, ik!
 
-Kamenpurigisto—hu, hu, hu\!—kaj mi estas Reĝo\! 
+Kamenpurigisto—hu, hu, hu!—kaj mi estas Reĝo!
 
 Komike, ĉu ne?” Tiujn lastajn vortojn li parolis al
 
-Princo Ingo, kiun li tuŝetis familiare sub la mentono, 
+Princo Ingo, kiun li tuŝetis familiare sub la mentono,
 
-tre embarasante la knabon. 
+tre embarasante la knabon.
 
 “Kial vi ne rajdas sur ĉevalo?” demandis Reĝo
 
-Kitikuto. 
+Kitikuto.
 
 “Mi ne povas grimpi sur ĝian dorson, ĉar mi estas
 
-iom dika; jen la kialo. Ki, ki, kik, ik\!—iom dika—
+iom dika; jen la kialo. Ki, ki, kik, ik!—iom dika—
 
-hu, hu, hu\!” Li paŭzis por viŝi la larmojn de gajeco
+hu, hu, hu!” Li paŭzis por viŝi la larmojn de gajeco
 
 el siaj okuloj kaj aldonis: “Sed mi povas facile suriri
-
-36
-
 
 
 Ĉapitro Du
 
-kaj deiri la dorson de Bilbilo.” 
+kaj deiri la dorson de Bilbilo.”
 
 Nun li malfermis la kaĝon kaj la kapro zorge
 
@@ -1154,23 +1020,23 @@ estis broditaj arĝentaj kardoj, kiun li ligis sur la
 
 dorson de la kapro. La dika Reĝo transmetis sian
 
-kruron trans la selon kaj sidigis sin komforte, 
+kruron trans la selon kaj sidigis smforte,
 
 dirante:
 
-“Gvidu, mia nobla gastiganto, kaj ni sekvos.” 
+“Gvidu, mia nobla gastiganto, kaj ni sekvos.”
 
-“Kion\! Laŭ tiu kruta monteto?” kriis la kapro. 
+“Kion! Laŭ tiu kruta monteto?” kriis la kapro.
 
-“Deiru de mia dorso tuj, Rinkitinko, alie mi ne
+“Deiru de mia dorso tuj, Rinkit, alie mi ne
 
-movos min eĉ unu paŝon.” 
+movos min eĉ unu paŝon.”
 
 “Sed—pripensu, Bilbilo,” protestis la Reĝo. “Kiel
 
-mi povos ascendi tiun monteton se mi ne rajdos?” 
+mi povos ascendi tiun monteton se mi ne rajdos?”
 
-“Marŝu\!” muĝe grumblis Bilbilo. 
+“Marŝu!” muĝe grumblis Bilbilo.
 
 “Sed mi estas tro dika. Vere, Bilbilo, vi surprizas
 
@@ -1178,7 +1044,7 @@ min. Ĉu mi ne portis vin tiel distancen por ke vi
 
 povu vidi iom de la mondo kaj ĝui la vivon? Kaj
 
-nun vi tiom maldankemas ke vi rifuzas porti min\! 
+nun vi tiom maldankemas ke vi rifuzas porti min!
 
 Interkompense estas pripense, mia knabo. La boato
 
@@ -1186,31 +1052,28 @@ portis vin al ĉi tiu bordo ĉar vi ne scipovas naĝi, kaj
 
 nun vi devos porti min laŭ la monteto ĉar mi ne
 
-povas grimpi. Nu, Bilbilo, ĉu ne juste?” 
+povas grimpi. Nu, Bilbilo, ĉu ne juste?”
 
 “Nu, nu, nu,” diris la kapro, malafable, “silentu
 
-37
 
+Rinkit en Oz
 
+kaj mi portos vin. Sed vi vere enuigas min,
 
-Rinkitinko en Oz
-
-kaj mi portos vin. Sed vi vere enuigas min, 
-
-Rinkitinko, per via senĉesa babilado.” 
+Rinkit, per via senĉesa babilado.”
 
 Farinte tiun proteston Bibbili komencis marŝe
 
 ascendi la monteton, portante la dikan Reĝon sur sia
 
-dorso tute facile. 
+dorso tute facile.
 
 Princon Ingon kaj lian patron kaj la tutan
 
 servistaron de Pingario multe mirigis aŭdi tiun
 
-disputon inter Reĝo Rinkitinko kaj lia kapro; sed ili
+disputon inter Reĝo Rinkit kaj lia kapro; sed ili
 
 estis tro ĝentilaj por fari kritikajn komentojn dum
 
@@ -1218,7 +1081,7 @@ estis tro ĝentilaj por fari kritikajn komentojn dum
 
 kapro kaj la Princo sekvis, la servistoj venis plej
 
-malantaŭe kun la kestoj el santalligno. 
+malantaŭe kun la kestoj el santalligno.
 
 Kiam ili proksimiĝis al la palaco, la Reĝino kaj ŝiaj
 
@@ -1228,7 +1091,7 @@ eskortita solene al la grandioza tronĉambro de la
 
 palaco. Tie oni malfermis la kestojn kaj Reĝo Rinki-
 
-tinko montris la multaj belajn silkaĵojn kaj puntojn
+t montris la multaj belajn silkaĵojn kaj puntojn
 
 kaj juvelojn kiuj plenigis ilin. Ĉiu el la korteganoj kaj
 
@@ -1238,27 +1101,22 @@ Reĝino ricevis multajn riĉajn donacojn kaj Ingo ne
 
 malmultajn. Tiel la tempo pasis plaĉe ĝis la
 
-Ĉambelano anoncis ke la manĝo estas preta. 
+Ĉambelano anoncis ke la manĝo estas preta.
 
 Bilbilo la kapro deklaris ke li preferas manĝi la
 
 dolĉan riĉan herbon kiu kreskas abunde sur la tereno
 
-38
 
-!(images/000067.png)
+Rinkit en Oz
 
-
-
-Rinkitinko en Oz
-
-de la palaco, kaj Rinkitinko diris ke la besto neniam
+de la palaco, kaj Rinkit diris ke la besto neniam
 
 povis toleri esti enfermita en stalo; do ili deprenis la
 
 selon de lia dorso kaj permesis lin vagi kien ajn li
 
-deziras. 
+deziras.
 
 Dum la manĝo Ingo dividis sian atenton inter
 
@@ -1268,9 +1126,9 @@ aŭskultado al la gajaj paroloj de la dika Reĝo, kiu
 
 ridis kiam li ne manĝis kaj manĝis kiam li ne ridis
 
-kaj laŭŝajne multe ĝuis la oportunon. 
+kaj laŭŝajne multe ĝuis la oportunon.
 
-“Dum kvar tagoj mi loĝis en tiu mallarĝa boato,” 
+“Dum kvar tagoj mi loĝis en tiu mallarĝa boato,”
 
 diris li, “kaj la sola distraĵo estis rigardi la remistojn
 
@@ -1278,11 +1136,11 @@ kaj kvereli kun Bilbilo; do min multe plezurigas
 
 denove esti sur la tero kun tiel amikemaj kaj agrablaj
 
-homoj.” 
+homoj.”
 
-“Vi multe honoras nin,” diris Reĝo Kitikuto, 
+“Vi multe honoras nin,” diris Reĝo Kitikuto,
 
-ĝentile riverencante. 
+ĝentile riverencante.
 
 “Tute ne—tute ne, mia frato. Ĉi tiu Pingario nepre
 
@@ -1296,21 +1154,18 @@ negocado per viaj perloj. Tial mi de multaj jaroj volas
 
 veni ĉi tien por renkonti vin, sed mia popolo diris:
 
-‘Ne\! Restu enhejme kaj bone kondutu, alie ni punos
+‘Ne! Restu enhejme kaj bone kondutu, alie ni punos
 
-vin.’ ” 
-
-40
-
+vin.’ ”
 
 
 Ĉapitro Du
 
 “Ĉu ili ne trovos ke Via Moŝto mankas en via
 
-palaco en Gilgado?” demandis Kitikuto. 
+palaco en Gilgado?” demandis Kitikuto.
 
-“Mi kredas ke ne,” respondis Rinkitinko. 
+“Mi kredas ke ne,” respondis Rinkit.
 
 “Komprenu, unu el miaj lertaj regatoj verkis
 
@@ -1330,9 +1185,9 @@ la sentojn de la povrulo ke mi decidis fermi min en
 
 mian propran ĉambron kaj studi la rulaĵon ĝis mi
 
-scipovos bone konduti—hi, hik, kik, ik, ik\!—bone
+scipovos bone konduti—hi, hik, kik, ik, ik!—bone
 
-konduti\! Lerta ideo, ĉu ne? Multe lerta\! Kaj mi
+konduti! Lerta ideo, ĉu ne? Multe lerta! Kaj mi
 
 dekretis ke neniu eniru mian ĉambron, alie mi ege
 
@@ -1344,29 +1199,28 @@ timas min. Post tio mi metis la pergamenon en mian
 
 poŝon kaj eskapis tra la malantaŭa pordo al mia
 
-boato—kaj jen mi. Ho, hu-hu, kik-ik\! Imagu kiom
+boato—kaj jen mi. Ho, hu-hu, kik-ik! Imagu kiom
 
 da ĉagreno estus en Gilgado se miaj regatoj scius kie
 
-mi estas jam ĉiminute\!” 
+mi estas jam ĉiminute!”
 
 “Mi volonte vidus tiun pergamenon,” diris la
 
 solenokula Princo Ingo, “ĉar se ĝi efektive instruas
 
-41
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 onin bone konduti ĝi nepre valoras sian pezon per
 
-perloj.” 
+perloj.”
 
-“Ho, ĝi estas bonega eseo,” diris Rinkitinko, “kaj
+“Ho, ĝi estas bonega eseo,” diris Rinkit, “kaj
 
 bele skribita per ansera plumo. Aŭskultu ĉi tion: Vi
 
-ĝuos ĝin—ti, hi, hi\!—ĝuos ĝin.” 
+ĝuos ĝin—ti, hi, hi!—ĝuos ĝin.”
 
 Li prenis el sia poŝo pergamenan rulaĵon ligitan
 
@@ -1376,19 +1230,19 @@ laŭtlegis ĉi tion:
 
 “ ‘Bona Persono estas Tiu kiu Neniam estas Mal-
 
-bona.’ Kion vi opinias, ĉu? Bela penso, ĉu ne? ‘Sekve, 
+bona.’ Kion vi opinias, ĉu? Bela penso, ĉu ne? ‘Sekve,
 
 por esti Bona, vi devas eviti Tion kio estas Malbona.’
 
-Ho, hu-hu-hu\!—tre lerte\! Kiam mi retroiros mi
+Ho, hu-hu-hu!—tre lerte! Kiam mi retroiros mi
 
-nomumos la verkinton de tio reĝa hipolorumo, ĉar, 
+nomumos la verkinton de tio reĝa hipolorumo, ĉar,
 
 tute sendube, li estas la plej saĝa persono en mia
 
-regno—kion li ofte mem diris al mi.” Dirinte tion, 
+regno—kion li ofte mem diris al mi.” Dirinte tion,
 
-Rinkitinko klinis sin en sia seĝo kaj faris sian
+Rinkit klinis sin en sia seĝo kaj faris sian
 
 kuriozan nelaŭtan ridadon ĝis li tusis, kaj li tusis ĝis
 
@@ -1398,23 +1252,22 @@ sian vizaĝon tiel komike gaje ke malmultaj povis
 
 deteni sin de kunridado, kaj eĉ la bona Reĝino devis
 
-nelaŭte ridi malantaŭ sia ventumilo. 
+nelaŭte ridi malantaŭ sia ventumilo.
 
-Kiam Rinkitinko resobriĝis post sia ridegado kaj
+Kiam Rinkit resobriĝis post sia ridegado kaj
 
 viŝis siajn okulojn per fajna punta poŝtuko, Princo
 
 Ingo diris al li:
 
-42
 
 Ĉapitro Du
 
-“La pergameno diras veron.” 
+“La pergameno diras veron.”
 
 “Jes, ĝi estas tute sendube vera,” respondis Rinki-
 
-tinko, “kaj se mi povus persvadi Bilbilon legi ĝin li
+t, “kaj se mi povus persvadi Bilbilon legi ĝin li
 
 estus multe pli bona kapro ol nun. Jen alia parto:
 
@@ -1436,31 +1289,28 @@ sekva alineo: ‘Eble vi ne trovos ke estas egale Plaĉe
 
 Bone Konduti kiel Malbone, sed Aliaj Personoj
 
-opinios ke estas pli Plaĉe.’ Ha-hu-ho\! kik-ik\! ‘Aliaj
+opinios ke estas pli Plaĉe.’ Ha-hu-ho! kik-ik! ‘Aliaj
 
-Personoj opinios ke estas pli Plaĉe\!’—hi, hi, hik, 
+Personoj opinios ke estas pli Plaĉe!’—hi, hi, hik,
 
-kik\!—‘pli Plaĉe.’ Jadi—jadi\! En tio troviĝas nobla
+kik!—‘pli Plaĉe.’ Jadi—jadi! En tio troviĝas nobla
 
 instigo bone konduti, kaj kiam mi havos sufiĉan
 
-tempon mi provos ĝin.” 
+tempon mi provos ĝin.”
 
-Li denove viŝis siajn okulojn per la punta poŝtuko, 
+Li denove viŝis siajn okulojn per la punta poŝtuko,
 
 kaj subite memorante sian manĝon, li ekprenis siajn
 
-tranĉilon kaj forkon kaj komencis manĝi. 
+tranĉilon kaj forkon kaj komencis manĝi.
 
-43
-
-!(images/000057.png)
 
 La Batalistoj el la Nordo
 
 ĈAPITRO 3
 
-Al Reĝo Rinkitinko tiom
+Al Reĝo Rinkit tiom
 
 plaĉis la Insulo Pingario
 
@@ -1468,29 +1318,28 @@ ke li daŭrigis sian reston
 
 tagon post tagon kaj
 
-semajnon post semajno, 
+semajnon post semajno,
 
 bone manĝante, parolante kun Reĝo Kitikuto, kaj
 
-dormante. De tempo al tempo li legis sian rulaĵon. 
+dormante. De tempo al tempo li legis sian rulaĵon.
 
 “Ĉar,” diris li, “kiam mi reiros hejmen, miaj regantoj
 
-fervore volos scii ĉu mi lernis ‘Kiel Bone Konduti’, 
+fervore volos scii ĉu mi lernis ‘Kiel Bone Konduti’,
 
-kaj mi nepre ne seniluziigu ilin.” 
+kaj mi nepre ne seniluziigu ilin.”
 
 La dudek remistoj loĝis sur la malgranda
 
 ekstremo de la insulo, kun la perloserĉistoj, kaj ŝajne
 
-44
 
 Ĉapitro Tri
 
 al ili tute ne gravis ĉu aŭ ne iam ili reiros al la
 
-Regno Rinkitinko. La kapro Bilbilo vagis sur la
+Regno Rinkit. La kapro Bilbilo vagis sur la
 
 herbokovritaj deklivoj, aŭ inter la arboj, kaj pasigis
 
@@ -1504,41 +1353,40 @@ kun la kapro ili tenis sin for de li. Tio plaĉis al la
 
 besto, kiu ŝajnis bone kontenta esti sola por fari kion
 
-li deziras. 
+li deziras.
 
 Foje Princo Ingo, dezirante esti ĝentila, marŝis al
 
-la kapro kaj diris: “Bonan matenon, Bilbilo.” 
+la kapro kaj diris: “Bonan matenon, Bilbilo.”
 
 “La mateno ne estas bona,” respondis Bilbilo
 
 grumble. “Estas nube kaj humide, kaj laŭaspekte
 
-pluvos.” 
+pluvos.”
 
 “Mi esperas ke vi kontentas en nia regno,” pludiris
 
 la knabo, ĝentile ignorante la severajn vortojn de la
 
-aliulo. 
+aliulo.
 
 “Ne,” diris Bilbilo. “Mi neniam kontentas; do ne
 
 gravas al mi ĉu mi estas en via regno aŭ en iu alia
 
-regno. Foriru—ĉu vi bonvolos?” 
+regno. Foriru—ĉu vi bonvolos?”
 
 “Certe,” respondis la Princo, kaj post tiu forpuŝo
 
-li ne reprovis amikiĝi kun Bilbilo. 
+li ne reprovis amikiĝi kun Bilbilo.
 
 Nun kiam la Reĝo, lia patro, estas tiom okupata
 
 pri sia reĝa gasto, Ingo ofte estis lasita distri sin, ĉar
 
-45
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 ne estus permeseble ke knabo partoprenu en la
 
@@ -1552,7 +1400,7 @@ en sia “arbosupra ripozejo”, legante la valorajn
 
 manuskriptojn de sia patro kaj pensante pri tio kion
 
-li legas. 
+li legas.
 
 Ne supozu ke Ingo estis dorlotata aŭ aroganta ĉar
 
@@ -1574,9 +1422,9 @@ al aliaj knaboj; sed en la praktiko, lin premis liaj
 
 ĉirkaŭaĵoj, kaj li estis pli serioza kaj pensema ol
 
-konvenas por liaaĝulo. 
+konvenas por liaaĝulo.
 
-Ingo estis en sia arbo unu matenon kiam, 
+Ingo estis en sia arbo unu matenon kiam,
 
 senaverte, granda nebulo ekkovris la Insulon
 
@@ -1586,13 +1434,10 @@ tiu en kiu li sidas, sed la folioj super li neebligis ke
 
 la humideco malsekigu lin, do li rulis sin en sia
 
-sidejo kaj profunde ekdormis. 
+sidejo kaj profunde ekdormis.
 
-46
 
-!(images/000095.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Tiun tutan antaŭtagmezon la nebulo daŭris. Reĝo
 
@@ -1608,23 +1453,23 @@ brodado, do ŝi kunvokis siajn servistinojn kaj rakontis
 
 al ili belegajn rakontojn pri pasintaj temoj, por pasigi
 
-la tedajn horojn. 
+la tedajn horojn.
 
-Sed nelonge post la tagmezo la vetero ŝanĝiĝis. 
+Sed nelonge post la tagmezo la vetero ŝanĝiĝis.
 
 La densa nebulo forruliĝis kvazaŭ peza nubo kaj
 
 subite la suno ŝutis siajn helajn radiojn sur la
 
-insulon. 
+insulon.
 
-“Tre bone\!” kriis Reĝo Kitikuto. “Ni spertos plaĉan
+“Tre bone!” kriis Reĝo Kitikuto. “Ni spertos plaĉan
 
 posttagmezon, mi certas,” kaj li blovestingis la
 
-kandelojn. 
+kandelojn.
 
-Tie li staris momenton senmove, kvazaŭ ŝtonigite, 
+Tie li staris momenton senmove, kvazaŭ ŝtonigite,
 
 ĉar terura krio el ekster la palaco atingis liajn
 
@@ -1636,25 +1481,22 @@ kurado de piedoj dum ĉiu en la palaco, plene de
 
 ektimo, rapidis eksteren por vidi kio okazis. Eĉ dika
 
-malgranda Rinkitinko saltis de sia seĝo kaj sekvis
+malgranda Rinkit saltis de sia seĝo kaj sekvis
 
 sian gastiganton kaj la aliajn tra la arkohava
 
-vestiblo. 
+vestiblo.
 
-48
-
-!(images/000091.jpg)
 
 Ĉapitro Tri
 
 Post multaj jaroj la plej profundaj timoj de Reĝo
 
-Kitikuto realiĝis. 
+Kitikuto realiĝis.
 
 Surteriĝante ĉe la plaĝo, kiu estis nur kelkajn
 
-paŝojn for de la palaco mem, estis centoj da boatoj, 
+paŝojn for de la palaco mem, estis centoj da boatoj,
 
 ĉiu el ili estis plena de amaso da ferocaj batalistoj. Ili
 
@@ -1662,49 +1504,48 @@ saltis sur la teron sovaĝe kriante defion kaj rapidis al
 
 la palaco de la Reĝo, supren svingante siajn glavojn
 
-kaj lancojn kaj batalhakilojn. 
+kaj lancojn kaj batalhakilojn.
 
 Reĝo Kitikuto, tiel plene surprizita ke li
 
 perpleksis, gapis la alvenantan armeon terurate kaj
 
-malgajigate. 
+malgajigate.
 
-“Ili estas la homoj el Regoso kaj Koregoso\!” li
+“Ili estas la homoj el Regoso kaj Koregoso!” li
 
-ĝemis. “Ni vere perdiĝis\!” 
+ĝemis. “Ni vere perdiĝis!”
 
-Tiam li ekpensis, unuafoje, pri siaj mirindaj perloj. 
+Tiam li ekpensis, unuafoje, pri siaj mirindaj perloj.
 
 Turninte sin rapide li rekuris en la palacon kaj rapidis
 
 al la halo kie kaŝiĝis la trezoroj. Sed la ĉefo de la
 
-batalistoj vidis la Reĝon eniri la palacon kaj ĉasis lin, 
+batalistoj vidis la Reĝon eniri la palacon kaj ĉasis lin,
 
 kredante ke li intencas eskapi. Ĝuste kiam la Reĝo
 
-klinis sin por premi la sekretan risorton en la kaheloj, 
+klinis sin por premi la sekretan risorton en la kaheloj,
 
 la batalisto ekkaptis lin de malantaŭe kaj sternis lin
 
 sur lian dorson sur la plankon, kaj samtempe li kriis
 
-al siaj soldatoj alporti ŝnuregojn kaj ligi la kaptiton. 
+al siaj soldatoj alporti ŝnuregojn kaj ligi la kaptiton.
 
 Tion ili faris tre rapide, kaj baldaŭ Reĝo Kitikuto
 
 trovis sin senpove ligita kaj superfortita de la
 
-49
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 malamikoj. En tiu malgajiga kondiĉo lin levis la
 
 batalistoj kaj eksteren portis, kie la bona Reĝo vidis
 
-hontigan scenon. 
+hontigan scenon.
 
 La Reĝino kaj ŝiaj servistinoj, la oficiroj kaj
 
@@ -1716,13 +1557,13 @@ la invadantoj kaj ligitaj per ŝnuregoj. Tuj ili komencis
 
 porti siajn viktimojn al la boatoj, enĵetante ilin
 
-senzorge kvazaŭ ili estus amasoj da varoj. 
+senzorge kvazaŭ ili estus amasoj da varoj.
 
 La Reĝo ĉirkaŭrigardis serĉante sian filon Ingo, sed
 
 malsukcesis trovi la knabon inter la kaptitoj. Nek la
 
-dika Reĝo, Rinkitinko, estis ie videbla. 
+dika Reĝo, Rinkit, estis ie videbla.
 
 La batalistoj svarmadis en la palaco kvazaŭ abeloj
 
@@ -1730,15 +1571,15 @@ en abelujo, serĉante ĉiun kiu kaŝis sin, kaj post iom
 
 longa daŭro de la serĉo la ĉefo demandis senpacience:
 
-“Ĉu vi trovas iun alian?” 
+“Ĉu vi trovas iun alian?”
 
-“Ne,” liaj soldatoj diris al li. “Ni kaptis ĉiujn.” 
+“Ne,” liaj soldatoj diris al li. “Ni kaptis ĉiujn.”
 
 “Sekve,” ordonis la ĉefo, “forprenu ĉion valoran el
 
 la palaco kaj distiru ĝiajn murojn kaj turojn, tiel ke
 
-eĉ ne unu ŝtono restos sur alia\!” 
+eĉ ne unu ŝtono restos sur alia!”
 
 Dum la batalistoj okupas sin pri tiu tasko ni reiru
 
@@ -1748,13 +1589,12 @@ suno ekbrilis, vekiĝis el sia dormo kaj komencis
 
 descendi de sia sidejo en la arbo. Sed la terorigaj krioj
 
-50
 
 Ĉapitro Tri
 
 de la popolo, miksitaj kun la krioj de la krudaj
 
-militistoj, devigis lin heziti kaj aŭskulti atente. 
+militistoj, devigis lin heziti kaj aŭskulti atente.
 
 Post tio li rapide grimpis en la arbon, multe
 
@@ -1768,11 +1608,11 @@ atinginte la supron li depuŝis la foliojn kaj vidis
 
 grandan amason da boatoj sur la bordo—fremdaj
 
-boatoj, kun standardoj kiajn li neniam antaŭe vidis. 
+boatoj, kun standardoj kiajn li neniam antaŭe vidis.
 
-Turninte sin por rigardi la palacon de sia patro, 
+Turninte sin por rigardi la palacon de sia patro,
 
-li trovis ĝin ĉirkaŭata de amaso da malamikoj. 
+li trovis ĝin ĉirkaŭata de amaso da malamikoj.
 
 Tiam Ingo ekkonsciis pri la vero: ke la insulon
 
@@ -1786,7 +1626,7 @@ sin ĝis la svensento forpasis. Post tio per sia balteo
 
 li ligis sin al la branĉo kaj denove kuraĝis rigardi
 
-tra la folioj. 
+tra la folioj.
 
 La batalistoj nun okupis sin per portado de Reĝo
 
@@ -1794,15 +1634,12 @@ Kitikuto kaj Reĝino Gario kaj ĉiuj aliaj kaptitoj al la
 
 boatoj, kie ili enĵetis ilin kaj kunĉenis ilin. Teruran
 
-scenon la Princo devis vidi, sed li sidis tute senmove, 
+scenon la Princo devis vidi, sed li sidis tute senmove,
 
 kaŝita de la laŭro da foliplenaj branĉoj disde ĉiu
 
 person sur la tero. Ingo tute bone sciis ke li neniom
 
-51
-
-!(images/000004.png)
 
 Ĉapitro Tri
 
@@ -1810,7 +1647,7 @@ povos helpi siajn amatajn gepatrojn, kaj ke se li
 
 descendos li nur estos devigata partopreni en ilia
 
-kruela sorto. 
+kruela sorto.
 
 Nun procesio de la Norduloj pasis inter la boatoj
 
@@ -1828,13 +1665,13 @@ kupolojn kaj turojn kaj centoj da batalistoj tiris tiujn
 
 ŝnuregojn ĝis la kupoloj kaj turoj ekfalis ruiniĝinte
 
-sur la teron. Post tio ili dispecigis la murojn mem, 
+sur la teron. Post tio ili dispecigis la murojn mem,
 
 ĝis malmulto de la bela palaco postrestis, krom vasta
 
 amaso da blankaj marmoraj blokoj faligitaj kaj
 
-dispuŝitaj sur la tero. 
+dispuŝitaj sur la tero.
 
 Princo Ingo amare larmis pro malĝojo rigardante
 
@@ -1852,11 +1689,10 @@ estis tiom multenombraj ke ili estiĝis vico etendiĝanta
 
 de unu bordo al la alia kaj ili detruis ĉiun domon
 
-renkontatan kaj kaptis ĉiun loĝanton. 
+renkontatan kaj kaptis ĉiun loĝanton.
 
-53
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 La perloserĉistoj kiuj loĝis sur la suba ekstremo de
 
@@ -1870,7 +1706,7 @@ pikiloj kaj glavoj de la invadantoj teruris la korojn de
 
 la sendefenda popolo de Pingario, kies solaj armiloj
 
-estis la ostrorastiloj. 
+estis la ostrorastiloj.
 
 Kiam noktiĝis la tuta Insulo Pingario jam estis
 
@@ -1878,7 +1714,7 @@ plene konkerita de la viroj el la Nordo, kaj ĝia
 
 tuta popolo estis sklavoj de la konkerintoj. La
 
-sekvan matenon la viroj el Regoso kaj Koregoso, 
+sekvan matenon la viroj el Regoso kaj Koregoso,
 
 kiuj ne povis fari pli da fiagoj, foriris de la sceno
 
@@ -1898,7 +1734,7 @@ en la mondo. Kaj la centoj da sklavoj kaptitaj estos
 
 devigataj eklabori en la minoj de Regoso kaj la
 
-grenkampoj de Koregoso. 
+grenkampoj de Koregoso.
 
 Tiel kompleta estis la venko fare de la Norduloj
 
@@ -1906,9 +1742,6 @@ ke ne mirigas ke la batalistoj triumfe kantadis dum
 
 ili rerapidis hejmen. Grandaj premioj atendis, por
 
-54
-
-!(images/000000.png)
 
 Ĉapitro Tri
 
@@ -1916,11 +1749,8 @@ kiam ili montros al la aroganta Reĝo de Regoso kaj
 
 la terura Reĝino de Koregoso la rezultojn de siaj
 
-oceana atako kaj konkero. 
+oceana atako kaj konkero.
 
-55
-
-!(images/000009.png)
 
 La Dizertita Insulo
 
@@ -1934,9 +1764,9 @@ kaŝita en sia arbo. En la
 
 mateno li rigardis la
 
-Grandan 
+Grandan
 
-amason 
+amason
 
 da
 
@@ -1944,7 +1774,7 @@ boatoj foriri cele sian propran landon, kunportante
 
 liajn gepatrojn kaj samlandanojn, kiel ankaŭ ĉion
 
-valoran kiun havis la Insulo Pingario. 
+valoran kiun havis la Insulo Pingario.
 
 Malfeliĉaj vere estis la pensoj de la knabo kiam la
 
@@ -1954,17 +1784,16 @@ Ingo ne kuraĝis deiri de sia sekura sidejo antaŭ ol
 
 ĉiuj boatoj de la invadintoj malaperis preter la
 
-56
 
 Ĉapitro Kvar
 
-horizonto. Tiam li descendis, tre malrapide kaj atente, 
+horizonto. Tiam li descendis, tre malrapide kaj atente,
 
-ĉar li estis febla pro malsato kaj la longa laciga vaĉo, 
+ĉar li estis febla pro malsato kaj la longa laciga vaĉo,
 
 ĉar li estis en la arbo dum dudek kvar horoj sen
 
-manĝaĵoj. 
+manĝaĵoj.
 
 La suno brilis sur la belan verdan insulon tiel
 
@@ -1976,17 +1805,17 @@ la arboj kaj la papilioj flugis de floro al floro tiel
 
 feliĉe kiel kiam la lando estis plena de prospera kaj
 
-kontenta popolo. 
+kontenta popolo.
 
 Ingo timis ke nur li restas el la tuta nacio. Eble li
 
-devos pasigi sian vivon tie, tute sola. Li ne malsatos, 
+devos pasigi sian vivon tie, tute sola. Li ne malsatos,
 
 ĉar la maro donos al li ostrojn kaj fiŝojn, kaj la arboj
 
 fruktojn; tamen la vivo frontanta lin estis tute ne
 
-alloga. 
+alloga.
 
 La unua ago de la knabo estis marŝo al kie la
 
@@ -1994,7 +1823,7 @@ palaco iam staris kaj serĉo tra la ruinoj ĝis li trovis
 
 kelkajn erojn da manĝaĵo kiujn pretervidis la
 
-malamikoj. Li sidis sur bloko el marmoro kaj manĝis, 
+malamikoj. Li sidis sur bloko el marmoro kaj manĝis,
 
 kaj larmoj plenigis liajn okulojn dum li rigardis la
 
@@ -2002,13 +1831,12 @@ ruinojn ĉirkaŭ si. Sed Ingo penis elteni brave, kaj
 
 satinginte sin li marŝis al la puto, intencante ĉerpi
 
-sitelon da trinkakvo. 
+sitelon da trinkakvo.
 
 Bonfortune ankaŭ tiun puton pretervidis la
 
-57
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 invadantoj kaj la sitelo estis ankoraŭ ligita al la
 
@@ -2020,25 +1848,25 @@ la puton, kiam subite lin alarmis iom sufokita voĉo
 
 elkrianta:
 
-“Atentu, tie supre\!” 
+“Atentu, tie supre!”
 
 La sono kaj la vortoj ŝajnis indiki ke la voĉo venis
 
 el la fundo de la puto, do Ingo subenrigardis. Nenio
 
-estis videbla, pro la mallumo. 
+estis videbla, pro la mallumo.
 
-“Kiu vi estas?” li kriis. 
+“Kiu vi estas?” li kriis.
 
-“Estas mi—Rinkitinko,” venis la respondo, kaj la
+“Estas mi—Rinkit,” venis la respondo, kaj la
 
-fundo de la puto eĥis: “Tink-i-tink-i-tink\!” fanto-
+fundo de la puto eĥis: “Tink-i-tink-i-tink!” fanto-
 
-mece. 
+mece.
 
-“Ĉu vi estas en la puto?” demandis la knabo, 
+“Ĉu vi estas en la puto?” demandis la knabo,
 
-multe surprizite. 
+multe surprizite.
 
 “Jes, kaj preskaŭ droninta. Mi enfalis dum mi
 
@@ -2048,51 +1876,50 @@ staras en ĉi tiu malseka truo, kun la kapo tuj super
 
 la akvo. Estas bonfortune ke la puto ne estas pli
 
-profunda, ĉar se mia kapo estus sub la akvo, 
+profunda, ĉar se mia kapo estus sub la akvo,
 
-anstataŭ super ĝi—hu, hu, hu, kik, ik\!—sub anstataŭ
+anstataŭ super ĝi—hu, hu, hu, kik, ik!—sub anstataŭ
 
-super, pensu—nu, tiuokaze mi ne parolus al vi nun\! 
+super, pensu—nu, tiuokaze mi ne parolus al vi nun!
 
-Ha, hu, hi\!” Kaj la puto morne eĥis: “Ha, hu, hi\!” 
+Ha, hu, hi!” Kaj la puto morne eĥis: “Ha, hu, hi!”
 
 kio, kiel vi sendube komprenas, estis rido duone gaja
 
-58
 
 Ĉapitro Kvar
 
-kaj duone malgaja. 
+kaj duone malgaja.
 
-“Mi multe bedaŭras,” diris la knabo responde. 
+“Mi multe bedaŭras,” diris la knabo responde.
 
 “Mirigas min ke vi havas emon eĉ iomete ridi. Sed
 
-kiel mi eligu vin?” 
+kiel mi eligu vin?”
 
 “Mi konsideradis tion dum la tuta nokto,” diris
 
-Rinkitinko, “kaj mi kredas ke plej bone estos ke vi
+Rinkit, “kaj mi kredas ke plej bone estos ke vi
 
 subenlasu la sitelon al mi, kaj mi kroĉos min al
 
 ĝi dum vi vindos la ĉenon kaj tiel tiros min
 
-supren.” 
+supren.”
 
 “Mi penos fari tion,” respondis Ingo, kaj li suben
 
 lasis la sitelon tre zorge ĝis li aŭdis la Reĝon voki:
 
-“Mi havas\! Nun tiru min—malrapide, mia knabo, 
+“Mi havas! Nun tiru min—malrapide, mia knabo,
 
 malrapide—por ke mi ne frotiĝu kontraŭ la mal-
 
-glatajn flankojn.” 
+glatajn flankojn.”
 
 Ingo komencis vindi la ĉenon, sed Reĝo Rinki-
 
-tinko estis tiom dika ke li estis tre peza kaj kiam
+t estis tiom dika ke li estis tre peza kaj kiam
 
 la knabo sukcesis tiri lin duone supren en la puto
 
@@ -2100,59 +1927,58 @@ lia forto estis jam elĉerpita. Li firmtenis la ĉenon
 
 laŭeble longe, sed subite ĝi glitis de lia teno kaj la
 
-sekvan minuton li aŭdis Rinkitinkon refali “plump\!” 
+sekvan minuton li aŭdis Rinkitn refali “plump!”
 
-en la akvon. 
+en la akvon.
 
-“Domaĝe\!” vokis Ingo, vere malfeliĉe; “sed vi estis
+“Domaĝe!” vokis Ingo, vere malfeliĉe; “sed vi estis
 
-tiel peza ke mi ne povis malhelpi.” 
+tiel peza ke mi ne povis malhelpi.”
 
-“Ve\!” anheletis la Reĝo, el la suba mallumo, dum
+“Ve!” anheletis la Reĝo, el la suba mallumo, dum
 
-59
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 li ŝprucis kaj tusis por eligi la akvon el sia buŝo. “Kial
 
-vi ne informis min ke vi delasos ĝin?” 
+vi ne informis min ke vi delasos ĝin?”
 
-“Mi ne havis sufiĉan tempon,” diris Ingo morne. 
+“Mi ne havis sufiĉan tempon,” diris Ingo morne.
 
-“Nu, mi ne suferas pro soifo,” deklaris la Reĝo, 
+“Nu, mi ne suferas pro soifo,” deklaris la Reĝo,
 
 “ĉar estas sufiĉa akvo en mi por flosigi ĉiujn boatojn
 
-de Regoso kaj Koregoso—almenaŭ tiel ŝajnas al mi. 
+de Regoso kaj Koregoso—almenaŭ tiel ŝajnas al mi.
 
-Sed ne gravas\! Mi ja ne efektive dronis, do kiel
+Sed ne gravas! Mi ja ne efektive dronis, do kiel
 
-gravas?” 
+gravas?”
 
 “Kion ni sekve faru?” demandis la knabo mal-
 
-kviete. 
+kviete.
 
-“Voku ke iu helpu vin,” estis la respondo. 
+“Voku ke iu helpu vin,” estis la respondo.
 
 “Estas neniu sur la insulo krom mi mem,” diris
 
 la knabo; “—kaj krom vi,” li pludiris, post aldona
 
-penso. 
+penso.
 
-“Mi ne estas sur ĝi—ja domaĝe\!—sed *en* ĝi,” 
+“Mi ne estas sur ĝi—ja domaĝe!—sed *en* ĝi,”
 
-respondis Rinkitinko. “Ĉu ĉiuj batalistoj jam foriris?” 
+respondis Rinkit. “Ĉu ĉiuj batalistoj jam foriris?”
 
 “Jes,” diris Ingo, “kaj ili kunprenis miajn patron
 
 kaj patrinon, kaj nian tutan popolon, ke ili estu iliaj
 
-sklavoj,” li aldonis, vane penante depremi ploron. 
+sklavoj,” li aldonis, vane penante depremi ploron.
 
-“Do—do\!” diris Rinkitinko softe; li paŭzis
+“Do—do!” diris Rinkit softe; li paŭzis
 
 momenton, kvazaŭ pensante. Fine li diris: “Ekzistas
 
@@ -2162,7 +1988,6 @@ puto povas esti unu el ili. Diru al mi, Ingo, ĉu vi
 
 povus delasi kelkajn manĝaĵojn por mi? Mi estas
 
-60
 
 Ĉapitro Kvar
 
@@ -2170,15 +1995,15 @@ preskaŭ morta pro malsato, kaj se vi povus suben
 
 sendi al mi kelkajn manĝaĵojn, mi estus enpute
 
-entute sata—hu, hu, hik, kik, ik\!—entute sata. Ĉu vi
+entute sata—hu, hu, hik, kik, ik!—entute sata. Ĉu vi
 
-komprenas la ŝercon, Ingo?” 
+komprenas la ŝercon, Ingo?”
 
-“Ne petu min ĝui ŝercon ĝuste nun, Via Moŝto,” 
+“Ne petu min ĝui ŝercon ĝuste nun, Via Moŝto,”
 
 petis Ingo per malfeliĉa voĉo; “sed se vi estos pacienca
 
-mi provos trovi ion manĝeblan por vi.” 
+mi provos trovi ion manĝeblan por vi.”
 
 Li rekuris al la ruinaĵoj de la palaco kaj komencis
 
@@ -2186,23 +2011,23 @@ serĉi erojn da manĝaĵoj per kiuj satiĝos la malsato de
 
 la Reĝo, kaj subite li surpriziĝis vidante la kapron
 
-Bilbilon, vaganta inter la marmoraj blokoj. 
+Bilbilon, vaganta inter la marmoraj blokoj.
 
-“Kio\!” kriis Ingo. “Ĉu la batalistoj ankaŭ ne kaptis
+“Kio!” kriis Ingo. “Ĉu la batalistoj ankaŭ ne kaptis
 
-vin?” 
+vin?”
 
-“Se ili kaptus min,” trankvile respondis Bilbilo, 
+“Se ili kaptus min,” trankvile respondis Bilbilo,
 
-“mi ne estus ĉi tie.” 
+“mi ne estus ĉi tie.”
 
-“Sed kiel vi eskapis?” demandis la knabo. 
+“Sed kiel vi eskapis?” demandis la knabo.
 
 “Sufiĉe facile. Mi tenis mian buŝon fermita kaj
 
 restis for de la friponoj,” diris la kapro. “Mi sciis ke
 
-la soldatoj ne atentos maldikan oldan beston kia mi, 
+la soldatoj ne atentos maldikan oldan beston kia mi,
 
 ĉar al la okulo de fremdulo mi aspektas tute
 
@@ -2210,27 +2035,26 @@ senvalora. Se ili scius ke mi kapablas paroli, kaj ke
 
 mia kapo enhavas pli da saĝeco ol cent iliaj propraj
 
-pensiloj, mi eble ne eskapus tiel facile.” 
+pensiloj, mi eble ne eskapus tiel facile.”
 
-“Eble vi pravas,” diris la knabo. 
+“Eble vi pravas,” diris la knabo.
 
-61
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 “Mi supozas ke ili kaptis la oldulon?” senzorge
 
-komentis Bilbilo. 
+komentis Bilbilo.
 
-“Kiun oldulon?” 
+“Kiun oldulon?”
 
-“Rinkitinkon.” 
+“Rinkitn.”
 
-“Ho, ne\! Lia Moŝto estas sur la fundo de la puto,” 
+“Ho, ne! Lia Moŝto estas sur la fundo de la puto,”
 
-diris Ingo, “kaj mi ne scias kiel reeligi lin.” 
+diris Ingo, “kaj mi ne scias kiel reeligi lin.”
 
-“Do li restu tie,” proponis la kapro. 
+“Do li restu tie,” proponis la kapro.
 
 “Estus kruele. Mi certas, Bilbilo, ke vi amas la
 
@@ -2238,25 +2062,25 @@ bonan Reĝon, vian mastron, kaj ne intencas kion
 
 diras viaj vortoj. Kune ni trovu ian metodon savi
 
-povran Reĝon Rinkitinkon. Li estas tre gaja kompano, 
+povran Reĝon Rinkitn. Li estas tre gaja kompano,
 
-kaj li havas koron ege afablan kaj molan.” 
+kaj li havas koron ege afablan kaj molan.”
 
-“Ho, nu; la oldulo ne estas tre malbona, ensume,” 
+“Ho, nu; la oldulo ne estas tre malbona, ensume,”
 
 agnoskis Bilbilo, parolante per pli amika tono. “Sed
 
-liaj ŝercaĉoj kaj dika rido ege enuigas min, kelkfoje.” 
+liaj ŝercaĉoj kaj dika rido ege enuigas min, kelkfoje.”
 
 Princo Ingo nun rekuris al la puto, dum la kapro
 
-sekvis pli nehaste. 
+sekvis pli nehaste.
 
-“Jen Bilbilo\!” vokis la knabo al la Reĝo. “Ŝajnas
+“Jen Bilbilo!” vokis la knabo al la Reĝo. “Ŝajnas
 
-ke la malamikoj ne prenis lin.” 
+ke la malamikoj ne prenis lin.”
 
-“La malamikoj estis bonfortunaj,” diris Rinkitinko. 
+“La malamikoj estis bonfortunaj,” diris Rinkit.
 
 “Sed ankaŭ mi, ĉar eble la besto povos helpi min el
 
@@ -2264,17 +2088,14 @@ ke la malamikoj ne prenis lin.”
 
 estas certa ke vi kaj Bilbilo, kuntirante, povos treni
 
-min al la tersurfaco.” 
+min al la tersurfaco.”
 
-62
 
-!(images/000013.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 “Estu pacienca kaj ni provos,” respondis Ingo
 
-kuraĝige, kaj li kuris serĉi ŝnuregon inter la ruinaĵoj. 
+kuraĝige, kaj li kuris serĉi ŝnuregon inter la ruinaĵoj.
 
 Baldaŭ li trovis ŝnuregon uzitan de la batalistoj kiam
 
@@ -2282,15 +2103,15 @@ ili faligis la turojn, kiun pro sia hasto ili forgesis
 
 forpreni, kaj iom malfacile li malligis la nodojn kaj
 
-portis la ŝnuregon al la buŝo de la puto. 
+portis la ŝnuregon al la buŝo de la puto.
 
 Bilbilo jam kuŝigis sin por dormi kaj la rekantaĵo
 
 de gaja kanto sonis neklare el la puto, pruvante ke
 
-Rinkitinko pacience strebas distri sin. 
+Rinkit pacience strebas distri sin.
 
-“Mi trovis ŝnuregon\!” Ingo suben vokis al li; kaj
+“Mi trovis ŝnuregon!” Ingo suben vokis al li; kaj
 
 la knabo faris maŝon en unu finaĵo de la ŝnurego, tra
 
@@ -2300,35 +2121,34 @@ li metis sur la bobenon de la vinĉo. Nun li vekis
 
 Bilbilon kaj ligis la ŝnuregon firme ĉirkaŭ la ŝultrojn
 
-de la kapro. 
+de la kapro.
 
 “Ĉu vi estas preta?” demandis la knabo, klinante
 
-sin super la puto. 
+sin super la puto.
 
-“Jes,” respondis la Reĝo. 
+“Jes,” respondis la Reĝo.
 
 “Kaj mi ne,” grumblis la kapro, “ĉar mi ankoraŭ
 
 ne finis mian dormon. Olda Rinki estos sufiĉe sekura
 
-en la puto ĝis mi dormos unu-du horojn pli.” 
+en la puto ĝis mi dormos unu-du horojn pli.”
 
-“Sed estas malseke en la puto,” protestis la knabo, 
+“Sed estas malseke en la puto,” protestis la knabo,
 
-“kaj Reĝo Rinkitinko povos reŭmatismiĝi, tiel ke li
+“kaj Reĝo Rinkit povos reŭmatismiĝi, tiel ke li
 
-devos rajdi sur via dorso kien ajn li iros.” 
+devos rajdi sur via dorso kien ajn li iros.”
 
-64
 
 Ĉapitro Kvar
 
-Aŭdinte tion Bilbio eksaltis tuj. 
+Aŭdinte tion Bilbio eksaltis tuj.
 
-“Ni eligu lin,” li diris fervore. 
+“Ni eligu lin,” li diris fervore.
 
-“Tenu firme\!” kriis Ingo al la Reĝo. Li kaptis la
+“Tenu firme!” kriis Ingo al la Reĝo. Li kaptis la
 
 ŝnuregon kaj helpis Bilbilon tiri. Ili baldaŭ trovis la
 
@@ -2336,13 +2156,13 @@ taskon pli malfacila ol ili antaŭsupozis. Unu-dufoje
 
 la pezo de la Reĝo minacis treni kaj la knabon kaj
 
-la kapron en la puton, por akompani Rinkitinkon. 
+la kapron en la puton, por akompani Rinkitn.
 
 Sed ili tiris firme, konsciante pri tiu danĝero, kaj fine
 
 la Reĝo ekeliĝis el la truo kaj falis sternite sur la
 
-teron. 
+teron.
 
 Dum iom da tempo li kuŝis anhelante kaj
 
@@ -2352,7 +2172,7 @@ Bilbilo estis simile lacigitaj pro sia longa peno tiri la
 
 ŝnuregon; tiel ke la trio ripozis senmove sur la herbo
 
-kaj rigardis silente unu la alian. 
+kaj rigardis silente unu la alian.
 
 Fine Bilbilo diris al la Reĝo:
 
@@ -2362,31 +2182,30 @@ puton? Ĉu vi ne scias ke tio estas danĝera ago? Vi
 
 povus rompi vian kolon per la falo, aŭ droni en la
 
-akvo.” 
+akvo.”
 
-“Bilbilo,” respondis la Reĝo solene, “vi estas kapro. 
+“Bilbilo,” respondis la Reĝo solene, “vi estas kapro.
 
-Ĉu vi imagas ke mi intence falis en tiun puton?” 
+Ĉu vi imagas ke mi intence falis en tiun puton?”
 
 “Mi imagas nenion,” koleris Bilbilo. “Mi scias nur
 
-ke tie vi estis.” 
+ke tie vi estis.”
 
-65
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Tie? He-he-hik-kik-ik\! Tute vere tie mi estis,” 
+“Tie? He-he-hik-kik-ik! Tute vere tie mi estis,”
 
-ridis Rinkitinko. “Tie en senluma truo, kie ne estis
+ridis Rinkit. “Tie en senluma truo, kie ne estis
 
 lumo; tie en akvoplena puto, kie la malseko plenege
 
-malsekigis min—kik-ik-ik-ik\!—plen-plenege\!” 
+malsekigis min—kik-ik-ik-ik!—plen-plenege!”
 
-“Kiel okazis?” demandis Ingo. 
+“Kiel okazis?” demandis Ingo.
 
-“Mi fuĝadis de la malamikoj,” klarigis la Reĝo, 
+“Mi fuĝadis de la malamikoj,” klarigis la Reĝo,
 
 “kaj mi senzorge rigardis trans mian ŝultron sam-
 
@@ -2404,17 +2223,17 @@ puto, ke mia mentono estas tuj super la akvo. Do mi
 
 staris senmove kaj kriis ke oni helpu; sed neniu aŭdis
 
-min.” 
+min.”
 
 “Se la batalistoj aŭdus vin,” diris Bilbilo, “ili eltirus
 
 vin kaj forportus vin por sklavigi vin. Vi devus labori
 
-por vivi, kaj tio estus por vi novaĵo.” 
+por vivi, kaj tio estus por vi novaĵo.”
 
-“Labori\!” kriis Rinkitinko. “Mi labori? Hu, hu, 
+“Labori!” kriis Rinkit. “Mi labori? Hu, hu,
 
-hik-kik-ik\! Absurde\! Mi estas tro diketa—eĉ dika—eĉ
+hik-kik-ik! Absurde! Mi estas tro diketa—eĉ dika—eĉ
 
 dikega—mi apenaŭ povas marŝi, kaj mi ne povus
 
@@ -2422,9 +2241,8 @@ perlabori mian salon. Do min ĝojigas ke la malamikoj
 
 ne trovis min, Bilbilo. Kiom da aliaj personoj
 
-eskapis?” 
+eskapis?”
 
-66
 
 Ĉapitro Kvar
 
@@ -2438,23 +2256,23 @@ satiginta vian reĝan apetiton, estos eble plej bone ke
 
 ni ĉirkaŭrigardu kaj vidu kion lasis al ni la ŝtelemaj
 
-batalistoj de Regoso kaj Koregoso.” 
+batalistoj de Regoso kaj Koregoso.”
 
-“Bonega ideo,” deklaris Rinkitinko. “Mi estas iom
+“Bonega ideo,” deklaris Rinkit. “Mi estas iom
 
 febla pro mia longa enkarceriĝo en la puto, sed mi
 
 povos rajdi la dorson de Bilbilo kaj ni do plej bone
 
-tuj komencu.” 
+tuj komencu.”
 
 Aŭdinte tion Bilbilo malafable rigardetis sian
 
 mastron sed diris nenion, ĉar ja estis la tasko de
 
-la kapro porti Reĝon Rinkitinkon kien ajn li deziras
+la kapro porti Reĝon Rinkitn kien ajn li deziras
 
-iri. 
+iri.
 
 Ili unue traserĉis la ruinaĵojn de la palaco, kaj kie
 
@@ -2462,23 +2280,22 @@ iam estis la kuirejo ili trovis malgrandan kvanton da
 
 manĝaĵoj kiujn duone kaŝis bloko da marmoro. Tion
 
-ili zorge metis en sakon por gardi ĝin por posta uzo, 
+ili zorge metis en sakon por gardi ĝin por posta uzo,
 
 post kiam la malgranda dika Reĝo unue manĝis tiom
 
-da ĝi kiom li volis. Tio pasigis iom longan tempon, 
+da ĝi kiom li volis. Tio pasigis iom longan tempon,
 
-ĉar Rinkitinko estis ege malsata kaj amis manĝi
+ĉar Rinkit estis ege malsata kaj amis manĝi
 
 nehaste. Fininte la manĝon li rajdsidis sur la dorson
 
 de Bilbilo kaj komencis esplori la insulon, dum
 
-Princo Ingo marŝis apud li. 
+Princo Ingo marŝis apud li.
 
-67
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Ili trovis ĉie ruinaĵojn kaj detruaĵojn. La domoj de
 
@@ -2486,15 +2303,15 @@ la homoj estis senescepte priŝtelitaj kaj poste disbatitaj
 
 aŭ bruligitaj. Eĉ ne unu boato restis sur la bordo, nek
 
-estis unusola persono, viro aŭ virino aŭ infano, 
+estis unusola persono, viro aŭ virino aŭ infano,
 
 restanta sur la insulo, escepte de ili mem. La solaj
 
 loĝantoj de Pingario nun konsistis el dika malgranda
 
-Reĝo, knabo kaj kapro. 
+Reĝo, knabo kaj kapro.
 
-Eĉ Rinkitinko, malgraŭ sia gajkoreco, trovis
+Eĉ Rinkit, malgraŭ sia gajkoreco, trovis
 
 malfacile ridi fronte al tiu ega katastrofo. Eĉ la
 
@@ -2506,7 +2323,7 @@ estis dezerto, la larmoj ofte plenigis liajn okulojn
 
 dum li rimarkis la ruinitecon de sia kare amata
 
-insulo. 
+insulo.
 
 Kiam, je la noktiĝo, ili atingis la suban ekstremon
 
@@ -2518,7 +2335,7 @@ toleri. Ĉio estis forprenita forde li—gepatroj, hejmo
 
 kaj lando—en tiel malgranda tempopaso ke lia
 
-perplekso egalis lian malfeliĉon. 
+perplekso egalis lian malfeliĉon.
 
 Ĉar neniu domo restis staranta, en kiu ili povos
 
@@ -2528,13 +2345,8 @@ branĉojn de kasiarbo kaj laŭeble komfortigis sin. Tiel
 
 lacigitaj kaj elĉerpitaj estis ili de la maltrankvilo kaj
 
-68
 
-!(images/000015.png)
-
-!(images/000038.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 doloroj de la tago ke iliaj ĉagrenoj baldaŭ fadis en la
 
@@ -2542,11 +2354,8 @@ nebulojn de dormolando. Besto kaj Reĝo kaj knabo
 
 kune dormis pace ĝis ilin vekis la kantado de la birdoj
 
-salutantaj la krespuskon de nova tago. 
+salutantaj la krespuskon de nova tago.
 
-70
-
-!(images/000020.png)
 
 La Tri Perloj
 
@@ -2554,7 +2363,7 @@ La Tri Perloj
 
 Post kiam Reĝo Rinki-
 
-tinko kaj Princo Ingo
+t kaj Princo Ingo
 
 banis sin en la maro kaj
 
@@ -2564,9 +2373,9 @@ manĝon, ili komencis
 
 demandi al si kion ili povos fari por plibonigi sian
 
-staton. 
+staton.
 
-“La povraj Gilgadanoj,” diris Rinkitinko gaje, “tre
+“La povraj Gilgadanoj,” diris Rinkit gaje, “tre
 
 malverŝajne iam denove vidos sian Reĝon mem, ĉar
 
@@ -2576,41 +2385,40 @@ frontu la fakton ke ni estas enkarcerigitaj por la resto
 
 de nia vivo sur ĉi tiu insulo, kaj ke niaj vivoj estos
 
-71
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kurtaj krom se ni povos akiri pli da manĝaĵoj ol kiom
 
-estas en ĉi tiu malgranda sako.” 
+estas en ĉi tiu malgranda sako.”
 
-“Mi ne mortmalsatos, ĉar mi povas manĝi herbon,” 
+“Mi ne mortmalsatos, ĉar mi povas manĝi herbon,”
 
 komentis la kapro per plezuresprima tono—aŭ tono
 
-tiel plezuresprima kiom Bilbilo povis fari. 
+tiel plezuresprima kiom Bilbilo povis fari.
 
 “Vere, tute vere,” diris la Reĝo. Poste li aspektis
 
 pensema dum momento kaj turninte sin al Ingo li
 
-demandis: “Ĉu vi opinias, Princo, ke se nepre necese, 
+demandis: “Ĉu vi opinias, Princo, ke se nepre necese,
 
-ni povos manĝi Bilbilon?” 
+ni povos manĝi Bilbilon?”
 
 La kapro ĝemis kaj riproĉe rigardis sian mastron
 
 dum li diris:
 
-“Monstro\! Ĉu vi, vere, manĝus vian malnovan
+“Monstro! Ĉu vi, vere, manĝus vian malnovan
 
-amikon kaj serviston?” 
+amikon kaj serviston?”
 
 “Ne se mi povus eviti tion, Bilbilo,” respondis la
 
-Reĝo afable. “Vi estus rimarkinde malmola manĝaĵo, 
+Reĝo afable. “Vi estus rimarkinde malmola manĝaĵo,
 
-kaj miaj dentoj ne estas tiel fortikaj kiel antaŭe.” 
+kaj miaj dentoj ne estas tiel fortikaj kiel antaŭe.”
 
 Dum tiu konversacio okazis Ingo subite memoris
 
@@ -2628,7 +2436,6 @@ ili sendube plu estas en sia kaŝloko, kaj Ingo kredis
 
 ke ili montriĝos granda helpo por li kaj liaj
 
-72
 
 Ĉapitro Kvin
 
@@ -2636,9 +2443,9 @@ kamaradoj dum ĉi tiu horo de bezono. Sed la palaco
 
 estis amaso da ruinoj; eble li nun ne povos trovi la
 
-lokon kie la perloj estis kaŝitaj. 
+lokon kie la perloj estis kaŝitaj.
 
-Li diris nenion pri tio al Rinkitinko, memorante
+Li diris nenion pri tio al Rinkit, memorante
 
 ke lia patro ordonis ke li gardu la sekreton de la
 
@@ -2646,7 +2453,7 @@ perloj kaj iliaj magiaj fortoj. Malgraŭe, la penso ke li
 
 povos akiri la mirindajn trezorojn de siaj prapatroj
 
-donis al la knabo novan esperon. 
+donis al la knabo novan esperon.
 
 Li stariĝis kaj diris al la Reĝo:
 
@@ -2656,9 +2463,9 @@ plaĉe ol ĉi tie malgraŭ la pereo de la palaco de mia
 
 patro. Kaj tie, se ie ajn, ni povos trovi metodon eliri
 
-niajn problemojn.” 
+niajn problemojn.”
 
-Tiu propono akiris aprobon fare de Rinkitinko kaj
+Tiu propono akiris aprobon fare de Rinkit kaj
 
 la grupeto tuj komencis sian reiron. Ĉar ne estis
 
@@ -2666,7 +2473,7 @@ bezono halti survoje, ili atingis la grandan ekstremon
 
 de la insulo ĉirkaŭ la tagmezo kaj tuj komencis
 
-traserĉi la ruinojn de la palaco. 
+traserĉi la ruinojn de la palaco.
 
 Ili trovis, kontentige al si, ke unu ĉambro ĉe la
 
@@ -2678,11 +2485,10 @@ de ŝtonoj. La Reĝo estis, laŭ sia diro, tro dika por
 
 forte labori, do li sidiĝis sur blokon de marmoro kaj
 
-rigardis dum Ingo purigis la ĉambron de ĝia rubo. 
+rigardis dum Ingo purigis la ĉambron de ĝia rubo.
 
-73
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Farinte tion, la knabo traserĉis la ruinojn ĝis li trovis
 
@@ -2692,9 +2498,9 @@ neuzebleco. Iom da litkovraĵoj kaj matraso ankaŭ
 
 troviĝis, do je la noktiĝo la ĉambreto jam estis tre
 
-komforta. 
+komforta.
 
-La sekvan matenon, dum Rinkitinko ankoraŭ
+La sekvan matenon, dum Rinkit ankoraŭ
 
 profunde dormis kaj Bilbilo okupadis sin per
 
@@ -2718,7 +2524,7 @@ kaŝiĝis la perloj, kuŝis pluraj grandaj kaj pezaj
 
 marmoraj blokoj, kiuj estis ŝiritaj el la diserigitaj
 
-muroj. 
+muroj.
 
 Tiu misfortuna trovo dum kelka tempo sen-
 
@@ -2730,27 +2536,26 @@ grave akiri la perlojn ke li ne kuraĝis cedi al
 
 senesperiĝo antaŭ ol ĉia homa peno estos farita, do
 
-li sidigis sin por pripensi la aferon tre zorge. 
+li sidigis sin por pripensi la aferon tre zorge.
 
-74
 
 Ĉapitro Kvin
 
-Intertempe Rinkitinko ellitiĝis kaj marŝis sur la
+Intertempe Rinkit ellitiĝis kaj marŝis sur la
 
 gazonon, kie li trovis Bilbilon kuŝanta kontente sur
 
-la herbo. 
+la herbo.
 
-“Kie estas Ingo?” demandis Rinkitinko, frotante
+“Kie estas Ingo?” demandis Rinkit, frotante
 
 siajn okulojn per siaj fingrartikoj ĉar ilia vido estis
 
-malklarigita de tro da dormo. 
+malklarigita de tro da dormo.
 
 “Ne demandu min,” diris la kapro, maĉante tre
 
-kontente remaĉaĵon el dolĉaj herboj. 
+kontente remaĉaĵon el dolĉaj herboj.
 
 “Bilbilo,” diris la Reĝo, kaŭrante apud la kapro kaj
 
@@ -2766,53 +2571,52 @@ la barbaroj kaj prenita forde mi, do estas neniu kiu
 
 povas inteligente konversaciadi kun mi. Mi estas la
 
-Reĝo kaj vi estas la kapro. Bonvolu rakonti al mi.” 
+Reĝo kaj vi estas la kapro. Bonvolu rakonti al mi.”
 
 “Ne,” diris Bilbilo, sulkante la frunton, ĉar la vizaĝo
 
-de kapro estas tre esprimkapabla. 
+de kapro estas tre esprimkapabla.
 
 “Se vi rifuzos, mi estos eĉ pli malfeliĉa, kaj mi
 
-scias ke via humoro estas tro dolĉa por permesi tion. 
+scias ke via humoro estas tro dolĉa por permesi tion.
 
-Rakontu al mi, Bilbilo.” 
+Rakontu al mi, Bilbilo.”
 
 La kapro rigardis lin kun malestima esprimo. Diris li:
 
 “Oni supozus ke vi estas nur kvarjaraĝa, Rinki-
 
-tinko\! Sed jen—mi obeos vian ordonon. Aŭskultu
+t! Sed jen—mi obeos vian ordonon. Aŭskultu
 
-75
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 atente, kaj la rakonto eblos helpos vin—kvankam mi
 
-dubas ke vi komprenos ĝian signifon.” 
+dubas ke vi komprenos ĝian signifon.”
 
 “Mi estas certa ke la rakonto helpos min,” deklaris
 
-la Reĝo, kies okuloj scintiladis. 
+la Reĝo, kies okuloj scintiladis.
 
-“Foje,” komencis la kapro. 
+“Foje,” komencis la kapro.
 
-“Kiam, Bilbilo?” demandis la Reĝo leĝere. 
+“Kiam, Bilbilo?” demandis la Reĝo leĝere.
 
 “Ne interrompu; estas malĝentile. Foje estis Reĝo
 
-kun kavo en sia kapo, kie kutime oni havas cerbon, 
+kun kavo en sia kapo, kie kutime oni havas cerbon,
 
-kaj—” 
+kaj—”
 
-“Ĉu la rakonto estas vera, Bilbilo?” 
+“Ĉu la rakonto estas vera, Bilbilo?”
 
-“Kaj la Reĝo kun kava kapo povis babiladi vortojn, 
+“Kaj la Reĝo kun kava kapo povis babiladi vortojn,
 
-kiuj ne havis sencon, kaj ridi sencerbe pro sensencaĵoj. 
+kiuj ne havis sencon, kaj ridi sencerbe pro sensencaĵoj.
 
-Tiu parto de la rakonto estas sufiĉe vera, Rinkitinko.” 
+Tiu parto de la rakonto estas sufiĉe vera, Rinkit.”
 
 “Do daŭrigu la rakonton, dolĉa Bilbilo. Tamen
 
@@ -2820,9 +2624,9 @@ estas malfacile kredi ke Reĝo povus esti sencerba—
 
 krom se, kompreneble, li pruvus tion per la fakto ke
 
-li posedas parolantan kapron.” 
+li posedas parolantan kapron.”
 
-Bilbilo gapis lin kolere dum plena minuto, silente. 
+Bilbilo gapis llere dum plena minuto, silente.
 
 Post tio li daŭrigis sian rakonton:
 
@@ -2830,57 +2634,56 @@ Post tio li daŭrigis sian rakonton:
 
 naskiĝis reĝa. Ankaŭ la reĝo estis vakkapa pro la
 
-sama akcidento, ĉar li naskiĝis sencerba.” 
+sama akcidento, ĉar li naskiĝis sencerba.”
 
-“Povrulo\!” komentis la Reĝo. “Ĉu li posedis
+“Povrulo!” komentis la Reĝo. “Ĉu li posedis
 
-parolantan kapron?” 
+parolantan kapron?”
 
-76
 
 Ĉapitro Kvin
 
-“Jes ja,” respondis Bilbilo. 
+“Jes ja,” respondis Bilbilo.
 
 “Do li eraris, efektive, pro sia naskiĝo mem. Ĉik-
 
-ik-ik-ik, u, hu\!” ridis Rinkitinko, dum lia dika korpo
+ik-ik-ik, u, hu!” ridis Rinkit, dum lia dika korpo
 
 skuiĝis pro amuziĝo. “Sed estas malfacile deteni sin
 
-de naskiĝo; ne eblas protesti, ĉu ne, Bilbilo?” 
+de naskiĝo; ne eblas protesti, ĉu ne, Bilbilo?”
 
 “Kiu do rakontas, mi volas scii,” tre kolere diris la
 
-kapro. 
+kapro.
 
 “Demandu al cerbohavulo, mia knabo; certe mi
 
-mem ne povas respondi,” respondis la Reĝo, 
+mem ne povas respondi,” respondis la Reĝo,
 
-ekridegante gaje denove. 
+ekridegante gaje denove.
 
 Bilbilo surhufiĝis kaj formarŝis digne, lasante
 
-Rinkitinkon denove ridadi pro la amara mieno de la
+Rinkitn denove ridadi pro la amara mieno de la
 
-vizaĝo de la besto. 
+vizaĝo de la besto.
 
 “Ho, Bilbilo, vi kaŭzos mian morton iutage—
 
-nepre vi kaŭzos\!” anhelegis la Reĝo, elprenante sian
+nepre vi kaŭzos!” anhelegis la Reĝo, elprenante sian
 
-puntan poŝtukon por viŝi siajn okulojn; ĉar, kiel ofte, 
+puntan poŝtukon por viŝi siajn okulojn; ĉar, kiel ofte,
 
-li ridis ĝis fluis larmoj. 
+li ridis ĝis fluis larmoj.
 
 Bilbilo estis profunde ĉagrenita kaj rifuzis eĉ turni
 
 sian kapon por rigardi sian mastron. Por eskapi de
 
-Rinkitinko li vagis inter la ruinoj de la palaco, kie li
+Rinkit li vagis inter la ruinoj de la palaco, kie li
 
-trovis Princon Ingon. 
+trovis Princon Ingon.
 
 “Bonan matenon, Bilbilo,” diris la knabo. “Mi
 
@@ -2888,17 +2691,16 @@ planis trovi vin, por konsulti vin pri grava afero. Se
 
 vi bonvolos reiri kun mi mi certas ke via bona
 
-77
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-juĝkapablo estos granda helpo.” 
+juĝkapablo estos granda helpo.”
 
 La koleran kapron tre trankviligis la respektoplena
 
 tono per kiu la knabo parolis al li, sed li tuj demandis:
 
-“Ĉu vi ankaŭ konsultos tiun vakkapan Reĝon tie?” 
+“Ĉu vi ankaŭ konsultos tiun vakkapan Reĝon tie?”
 
 “Mi bedaŭras aŭdi vin paroli pri via afabla mastro
 
@@ -2908,11 +2710,11 @@ respekton, ĉar ili estas la plej altaspecaj vivantoj, kaj
 
 Reĝoj meritas pli da respekto ol aliaj, ĉar ili estas
 
-postenigitaj regi multajn homojn.” 
+postenigitaj regi multajn homojn.”
 
 “Tamen,” diris Bilbilo plene konvinkite, “la kapo
 
-de Rinkitinko estas certe sencerba.” 
+de Rinkit estas certe sencerba.”
 
 “Tion mi malvolonte kredus,” insistis Ingo. “Sed
 
@@ -2922,33 +2724,32 @@ pli bona ol saĝeco. Li estas gaja malgraŭ misfortunoj
 
 kiuj plorigus aliulojn kaj li neniam diras malafablajn
 
-vortojn kiuj vundas la sentojn de liaj amikoj.” 
+vortojn kiuj vundas la sentojn de liaj amikoj.”
 
-“Tamen,” grumblis Bilbilo, “li estas—” 
+“Tamen,” grumblis Bilbilo, “li estas—”
 
 “Ni forgesu ĉion escepte de lia bona naturo, kiu
 
-metas novan koron en nin kiam ni malfeliĉas,” 
+metas novan koron en nin kiam ni malfeliĉas,”
 
-konsilis la knabo. 
+konsilis la knabo.
 
-“Sed li estas—” 
+“Sed li estas—”
 
 “Bonvolu veni kun mi,” interrompis Ingo, “ĉar la
 
-afero pri kiu mi volas paroli estas tre grava.” 
+afero pri kiu mi volas paroli estas tre grava.”
 
 Bilbilo sekvis lin, kvankam la knabo ankoraŭ aŭdis
 
-78
 
 Ĉapitro Kvin
 
-la kapron murmuradi ke la Reĝo ne havas cerbon. 
+la kapron murmuradi ke la Reĝo ne havas cerbon.
 
-Rinkitinko, vidante ilin eniri la ruinojn, ankaŭ sekvis, 
+Rinkit, vidante ilin eniri la ruinojn, ankaŭ sekvis,
 
-kaj atinginte ilin petis sian matenmanĝon. 
+kaj atinginte ilin petis sian matenmanĝon.
 
 Ingo malfermis la sakon da manĝaĵoj kaj dum li
 
@@ -2960,23 +2761,23 @@ blokoj de marmoro kiuj falis en la bankedhalon, mi
 
 kredas ke mi povus trovi rimedon per kiu ni povus
 
-eskapi de ĉi tiu senhava insulo.” 
+eskapi de ĉi tiu senhava insulo.”
 
-“Do,” murmuris Rinkitinko, per buŝo plena, “ni
+“Do,” murmuris Rinkit, per buŝo plena, “ni
 
-movu la blokojn de marmoro.” 
+movu la blokojn de marmoro.”
 
 “Sed kiel?” demandis Princo Ingo. “Ili estas
 
-pezegaj.” 
+pezegaj.”
 
 “Ha, jes, kiel?” respondis la Reĝo, ŝmacante
 
 kontente per siaj lipoj. “Jen serioza demando. Sed—
 
-mi scias\! Ni vidu kion diras pri tio mia fama
+mi scias! Ni vidu kion diras pri tio mia fama
 
-pergameno.” Li viŝis siajn fingrojn per tuko kaj poste, 
+pergameno.” Li viŝis siajn fingrojn per tuko kaj poste,
 
 preninte la rulaĵon el poŝo interne de sia brodita
 
@@ -2984,23 +2785,22 @@ bluzo, li malrulis ĝin kaj laŭtlegis la ĉisekvantajn
 
 vortojn: “ ‘Neniam tretu sur la piedfingrojn de alia
 
-persono.’ ” 
+persono.’ ”
 
-La kapro elspiris brue kaj malestime tra sia nazo; 
+La kapro elspiris brue kaj malestime tra sia nazo;
 
 Ingo silentis; la Reĝo rigardis de unu al la alia
 
-demandeme. 
+demandeme.
 
-79
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Jen precize la solvo\!” deklaris Rinkitinko. 
+“Jen precize la solvo!” deklaris Rinkit.
 
 “Tute certe,” diris Bilbilo malestime, “ĝi informas
 
-nin precize kiel movi la blokojn de marmoro.” 
+nin precize kiel movi la blokojn de marmoro.”
 
 “Ho, ĉu?” respondis la Reĝo, kaj post tio dum
 
@@ -3008,17 +2808,17 @@ momento li frotis la supron de sia kalva kapo
 
 perplekse. La sekvan momenton li ekridis gajege. La
 
-kapro rigardis Ingon kaj ĝemis. 
+kapro rigardis Ingon kaj ĝemis.
 
 “Kion mi diris al vi?” demandis la besto. “Ĉu mi
 
-pravis aŭ malpravis?” 
+pravis aŭ malpravis?”
 
-“Ĉi tiu rulaĵo,” diris Rinkitinko, “vere estas
+“Ĉi tiu rulaĵo,” diris Rinkit, “vere estas
 
 majstroverko. Ĝia konsilo ege valoras. ‘Neniam tretu
 
-sur la piedfingrojn de alia persono.’ Ni pripensu tion. 
+sur la piedfingrojn de alia persono.’ Ni pripensu tion.
 
 La konkludo estas ke ni tretu sur niaj propraj
 
@@ -3026,39 +2826,38 @@ piedfingroj, kiuj doniĝis al ni tiucele. Tial, se mi
 
 paŝus sur la piedfingrojn de alia persono, mi estus la
 
-alia persono. Hu, hu, hu\!—la alia persono—hi, hi, 
+alia persono. Hu, hu, hu!—la alia persono—hi, hi,
 
-hik-kik-ik\! Amuze, ĉu ne?” 
+hik-kik-ik! Amuze, ĉu ne?”
 
-“Ĉu mi ne diris—” komencis Bilbilo. 
+“Ĉu mi ne diris—” komencis Bilbilo.
 
 “Ne gravas kion vi diris, mia knabo,” muĝis la
 
 Reĝo. “Neniu stultulo povus solvi tion tiel bele kiel
 
-mi mem.” 
+mi mem.”
 
 “Ni ankoraŭ devas decidi kiel forpreni la blokojn
 
-de marmoro,” sugestis Ingo maltrankvile. 
+de marmoro,” sugestis Ingo maltrankvile.
 
 “Ligu ŝnuregon al ili kaj tiru,” diris Bilbilo. “Ne
 
-80
 
 Ĉapitro Kvin
 
-plu atentu Rinkitinkon, ĉar li ne estas pli saĝa ol la
+plu atentu Rinkitn, ĉar li ne estas pli saĝa ol la
 
 persono kiu verkis tiun sencerban rulaĵon. Nur
 
-alportu ŝnuregon, kaj ni ligos Rinkitinkon al unu ĝia
+alportu ŝnuregon, kaj ni ligos Rinkitn al unu ĝia
 
-finaĵo kiel pezaĵon kaj mi helpos vin tiri.” 
+finaĵo kiel pezaĵon kaj mi helpos vin tiri.”
 
 “Dankon, Bilbilo,” respondis la knabo. “Mi
 
-alportos ŝnuregon tuj.” 
+alportos ŝnuregon tuj.”
 
 Bilbilo trovis ke estas malfacile rampi trans la
 
@@ -3066,9 +2865,9 @@ ruinojn al la planko de la bankedhalo, sed malmultajn
 
 lokojn kapro ne povas atingi kiam ĝi penas, do Bilbilo
 
-fine sukcesis, kaj eĉ dika malgranda Rinkitinko fine
+fine sukcesis, kaj eĉ dika malgranda Rinkit fine
 
-partoprenis kun ili, kvankam multe senspire. 
+partoprenis kun ili, kvankam multe senspire.
 
 Ingo ligis unu finaĵon de la ŝnurego ĉirkaŭ blokon
 
@@ -3076,53 +2875,47 @@ de marmoro kaj poste faris maŝon alifinaĵe por
 
 ĉirkaŭiri la kapon de Bilbilo. Kiam ĉio estis preta la
 
-knabo prenis la ŝnuregon kaj helpis la kapron tiri; 
+knabo prenis la ŝnuregon kaj helpis la kapron tiri;
 
 tamen, malgraŭ sia penado, la giganta bloko ne
 
-moviĝis el sia loko. Vidante tion, Reĝo Rinkitinko
+moviĝis el sia loko. Vidante tion, Reĝo Rinkit
 
 antaŭeniris kaj komencis helpi, kaj la pezo de lia
 
 korpo devigis la pezan marmoron gliti unu-du
 
-metrojn for de sia kuŝejo. 
+metrojn for de sia kuŝejo.
 
 Sed la laboro estis malfacila kaj ili ĉiuj devis longe
 
-ripozi antaŭ ol entrepreni movi la sekvan blokon. 
+ripozi antaŭ ol entrepreni movi la sekvan blokon.
 
 “Agnosku, Bilbilo,” diris la Reĝo, “ke mi iom utilas
 
-en la mondo.” 
+en la mondo.”
 
-81
 
-!(images/000025.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 “Via pezo multe helpis,” agnoskis la kapro, “sed se
 
 via kapo estus tiel plena kiel via stomako la tasko
 
-estus eĉ pli facila.” 
+estus eĉ pli facila.”
 
 Kiam Ingo preparis ligi la ŝnuregon duafoje li ĝoje
 
 trovis ke se ili movos unu plian blokon de marmoro
 
-li povos malkovri la kahelon kun la sekreta risorto. 
+li povos malkovri la kahelon kun la sekreta risorto.
 
 Do la trio tiris per nova energio kaj ĝojige la bloko
 
 moviĝis kaj ruliĝis sur sian flankon, lasante Ingan
 
-libera depreni la trezoron laŭplaĉe. 
+libera depreni la trezoron laŭplaĉe.
 
-82
-
-!(images/000027.png)
 
 Ĉapitro Kvin
 
@@ -3138,7 +2931,7 @@ kaj kiel tio helpos, Ingo petis ilin atendi ĝis la sekva
 
 mateno, kiam li esperis kontentigi ilin ke ilia laborego
 
-ne estis vana. 
+ne estis vana.
 
 Malmulte fidante tiun promeson de nura knabo, la
 
@@ -3146,9 +2939,8 @@ kapro grumblis kaj la Reĝo ridis; sed Ingo ne atentis
 
 iliajn mokojn kaj ekkomencis labori preparante
 
-83
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 fiŝkaptan stangon, kun ŝnuro kaj hoko. Dum la
 
@@ -3156,39 +2948,39 @@ posttagmezo li vadis al kelkaj rokoj proksimaj al la
 
 bordo kaj atendis pacience ĝis kapti sufiĉajn perkojn
 
-por iliaj vesper- kaj maten-manĝoj. 
+por iliaj vesper- kaj maten-manĝoj.
 
-“Ha,” diris Rinkitinko, rigardante la belan kaptaĵon
+“Ha,” diris Rinkit, rigardante la belan kaptaĵon
 
 kiam Ingo revenis al la bordo; “ili bonege gustos
 
-kuirite; sed ĉu vi scipovas kuiri ilin?” 
+kuirite; sed ĉu vi scipovas kuiri ilin?”
 
 “Ne,” estis la respondo. “Mi ofte kaptis fiŝojn sed
 
 neniam kuiris ilin. Eble Via Moŝto komprenas la
 
-kuirarton.” 
+kuirarton.”
 
 “Kuiro kaj moŝteco estas du apartaj aferoj,” ridis
 
 la malgranda Reĝo. “Mi ne povus kuiri fiŝon eĉ se
 
-tio savus min de morto pro malsato.” 
+tio savus min de morto pro malsato.”
 
 “Rilate al mi,” diris Bilbilo, “mi neniam manĝas
 
 fiŝojn, sed mi povas informi kiel kuiri ilin, ĉar mi ofte
 
-rigardis dum la kuiristoj en la palaco laboris.” Do, 
+rigardis dum la kuiristoj en la palaco laboris.” Do,
 
 per la helpo de la kapro, la knabo kaj la Reĝo
 
 sukcesis prepari kaj kuiri la fiŝojn, kaj post tio manĝis
 
-ilin bonapetite. 
+ilin bonapetite.
 
-Tiun nokton, kiam Rinkitinko kaj Bilbilo ambaŭ
+Tiun nokton, kiam Rinkit kaj Bilbilo ambaŭ
 
 profunde dormis, Ingo kaŝe marŝis senbrue tra la
 
@@ -3198,7 +2990,6 @@ iĝinte, li tuŝis la sekretan risorton kiel instruis al li
 
 lia patro kaj ĝojige al li la kahelo subiris kaj malkaŝis
 
-84
 
 Ĉapitro Kvin
 
@@ -3210,7 +3001,7 @@ la kavaĵon kaj ĉirkaŭpalpis por trovi ĉu la valoregaj
 
 perloj ankoraŭ restas tie. Post momento liaj fingroj
 
-tuŝis la silkan sakon kaj, sen paŭzi por fermi la niĉon, 
+tuŝis la silkan sakon kaj, sen paŭzi por fermi la niĉon,
 
 li premis la trezoron kontraŭ sian bruston kaj kuris
 
@@ -3218,11 +3009,11 @@ en la lunlumon por ekzameni ĝin. Atinginte
 
 lumoplenan lokon li komencis malfermi la sakon, sed
 
-li rimarkis Bilbilon kuŝantan sur la apuda herbo. Do, 
+li rimarkis Bilbilon kuŝantan sur la apuda herbo. Do,
 
 tremante pro timo vidiĝi, li kuris al alia loko, kaj
 
-kiam li paŭzis li aŭdis Rinkitinkon ronkadi vigle. 
+kiam li paŭzis li aŭdis Rinkitn ronkadi vigle.
 
 Denove li fuĝis kaj sekvis vojeton al la marbordo, kie
 
@@ -3230,13 +3021,13 @@ li kaŭris sub dekliveto kaj komencis malfermi la
 
 ŝnurojn kiuj ligis la buŝon de la sako. Sed nun nova
 
-timo atakis lin. 
+timo atakis lin.
 
 “Se la perloj glitus de mia mano,” li pensis, “kaj
 
 ruliĝus en la akvon, mi eble perdus ilin por ĉiam. Mi
 
-nepru trovu pli sendanĝeran lokon.” 
+nepru trovu pli sendanĝeran lokon.”
 
 Tien kaj tien li vagis, ankoraŭ firme tenante la
 
@@ -3250,15 +3041,14 @@ mallume, do li trovis ke necesos sidi pacience ĝis la
 
 mateno antaŭ ol li kuraĝos tuŝi la perlojn. Dum tiuj
 
-85
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 horoj da atendado li havis tempon por pripensado kaj
 
 li riproĉis sin pro sia multa timo posedi la trezorojn
 
-de sia patro. 
+de sia patro.
 
 “Tiuj perloj apartenas al nia familio jam de
 
@@ -3266,7 +3056,7 @@ generacioj,” li pensis, “tamen ankoraŭ neniu perdis
 
 ilin. Se mi simple atente zorgos mi certe ne bezonos
 
-timi pri ilia sekureco.” 
+timi pri ilia sekureco.”
 
 Kiam tagiĝis kaj li povis klare vidi, Ingo malfermis
 
@@ -3274,7 +3064,7 @@ la sakon kaj elprenis la Bluan Perlon. Ne eblis ke
 
 aliaj vidos lin, do li uzis iom da tempo ekzamenante
 
-ĝin mire, dirante al si: “Ĉi tiu donos al mi forton.” 
+ĝin mire, dirante al si: “Ĉi tiu donos al mi forton.”
 
 Depreninte sian dekstran ŝuon li metis la Bluan
 
@@ -3292,25 +3082,22 @@ supren, tiel ke estis granda vaka spaco preter la loko
 
 kiun atingis la piedfingroj de la knabo kiam la ŝuo
 
-estis sur lia piedo. 
+estis sur lia piedo.
 
 Surmetinte la ŝuon kaj liginte la laĉojn li malfermis
 
 la sakon kaj elprenis la Palruĝan Perlon. “Ĉi tiu
 
-protektos min kontraŭ danĝero,” diris Ingo, kaj
+protektos mntraŭ danĝero,” diris Ingo, kaj
 
 depreninte la ŝuon de sia maldekstra piedo li zorge
 
-86
 
-!(images/000032.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 metis la perlon en la vakan piedfingrejon. Tiun ankaŭ
 
-li sekurigis en tiu loko per strio ŝirita el la poŝtuko. 
+li sekurigis en tiu loko per strio ŝirita el la poŝtuko.
 
 Surmetinte la duan ŝuon kaj laĉinte ĝin, la knabo
 
@@ -3322,7 +3109,7 @@ demandis:
 
 “Ĉu vi bonvolos konsili al mi kion fari, dum ĉi tiu
 
-mia horo de misfortuno?” 
+mia horo de misfortuno?”
 
 Klare la voĉeto de la perlo respondis:
 
@@ -3330,45 +3117,44 @@ Klare la voĉeto de la perlo respondis:
 
 Koregoso, kie vi povos liberigi viajn sklavigitajn
 
-gepatrojn.” 
+gepatrojn.”
 
 “Kiel mi povus fari tion?” kriis Princo Ingo, kiun
 
-mirigis aŭdi tian konsilon. 
+mirigis aŭdi tian konsilon.
 
 “Hodiaŭ nokte,” parolis la voĉo de la perlo, “estos
 
-ŝtormo, kaj en la mateno boato drivos sur la bordon. 
+ŝtormo, kaj en la mateno boato drivos sur la bordon.
 
-Prenu tiun boaton kaj remu al Regoso kaj Koregoso.” 
+Prenu tiun boaton kaj remu al Regoso kaj Koregoso.”
 
 “Kiel mi, febla knabo, tiros la boaton tiel
 
-distancen?” li demandis, dubante la eblecon. 
+distancen?” li demandis, dubante la eblecon.
 
 “La Blua Perlo donos al vi forton,” estis la
 
-respondo. 
+respondo.
 
 “Sed eble mia boato rompiĝos kaj mi dronos antaŭ
 
-ol atingi Regoson kaj Koregoson,” protestis la knabo. 
+ol atingi Regoson kaj Koregoson,” protestis la knabo.
 
-“La Palruĝa Perlo protektos vin kontraŭ damaĝo,” 
+“La Palruĝa Perlo protektos vntraŭ damaĝo,”
 
-88
 
 Ĉapitro Kvin
 
-murmuris la voĉo, softa kaj nelaŭta sed tute klara. 
+murmuris la voĉo, softa kaj nelaŭta sed tute klara.
 
-“Do mi agos laŭ via konsilo,” deklaris Ingo, 
+“Do mi agos laŭ via konsilo,” deklaris Ingo,
 
-parolante firme ĉar tiu promeso donis al li kuraĝon, 
+parolante firme ĉar tiu promeso donis al li kuraĝon,
 
 kaj dum li forprenis la perlon de sia orelo ĝi flustris:
 
-“Kiu estas saĝa kaj sentima, tiu nepre sukcesos.” 
+“Kiu estas saĝa kaj sentima, tiu nepre sukcesos.”
 
 Remetinte la Blankan Perlon en la fundon de la
 
@@ -3380,7 +3166,7 @@ de ĉiuj rigardantaj okuloj. Post tio li nerapide grimpis
 
 de la arbo kaj reiris al la ĉambro kie ankoraŭ dormas
 
-Reĝo Rinkitinko. 
+Reĝo Rinkit.
 
 La kapro manĝetadis sur la herbo sed aspektis
 
@@ -3396,7 +3182,7 @@ vekiĝis kaj demandis:
 
 ĝi, kaj mi ankoraŭ ne reakiris mian spiradon post la
 
-tiregado al tiuj pezaj blokoj. Diru al mi la sekreton.” 
+tiregado al tiuj pezaj blokoj. Diru al mi la sekreton.”
 
 “Sekreto konigita ne plu estas sekreto,” respondis
 
@@ -3406,39 +3192,38 @@ decas ke mi gardu al mi mem. Sed mi povas diri al
 
 vi almenaŭ unu aferon: Ni foriros de la insulo
 
-morgaŭ matene.” 
+morgaŭ matene.”
 
-89
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-La Reĝo aspektis perpleksa pro tiu deklaro. 
+La Reĝo aspektis perpleksa pro tiu deklaro.
 
-“Mi ne estas kapabla naĝanto,” diris li, “kaj, 
+“Mi ne estas kapabla naĝanto,” diris li, “kaj,
 
 kvankam mi estas sufiĉe dika por flosi sur la surfaco
 
-de la akvo, mi nur balanciĝus kaj tute nenien atingus.” 
+de la akvo, mi nur balanciĝus kaj tute nenien atingus.”
 
-“Ni ne naĝos, sed rajdos komforte en boato,” 
+“Ni ne naĝos, sed rajdos komforte en boato,”
 
-promesis Ingo. 
+promesis Ingo.
 
-“Ne estas boato sur ĉi tiu insulo\!” deklaris Rinki-
+“Ne estas boato sur ĉi tiu insulo!” deklaris Rinki-
 
-tinko, rigardante la knabon miroplene. 
+t, rigardante la knabon miroplene.
 
-“Vere,” diris Ingo. “Sed boato venos al ni matene.” 
+“Vere,” diris Ingo. “Sed boato venos al ni matene.”
 
 Li parolis certecoplene, ĉar li plene fidis la promeson
 
-de la Blanka Perlo; sed Rinkitinko, kiu sciis nenion
+de la Blanka Perlo; sed Rinkit, kiu sciis nenion
 
 pri la tri eksterordinaraj juveloj, komencis timi ke la
 
 malgranda Princo freneziĝis pro malfeliĉo kaj mis-
 
-fortuno. 
+fortuno.
 
 Pro tio la Reĝo ne plu demandis al la knabo sed
 
@@ -3452,17 +3237,14 @@ senpezigis la espero savi siajn karajn gepatrojn. Ne
 
 post la atako al Pingario fare de la ferocaj batalistoj
 
-la knabo estis tiel esperoplena kaj feliĉa. 
+la knabo estis tiel esperoplena kaj feliĉa.
 
-Dum Rinkitinko rajdis sur la dorso de Bilbilo, la
+Dum Rinkit rajdis sur la dorso de Bilbilo, la
 
 trio trairis la insulon kaj trovis en la centra parto
 
 kelkajn arbustojn kaj arbojn sur kiuj estis maturaj
 
-90
-
-!(images/000006.png)
 
 Ĉapitro Kvin
 
@@ -3472,17 +3254,17 @@ kaptitaj de Ingo—ili estis ilia sola manĝaĵo, kaj ju
 
 malpli ili havis, des pli ŝajnis grandiĝi la apetito de
 
-Rinktinko. 
+Rinkt.
 
 “Mi neniam estas pli feliĉa,” diris li ĝemante, “ol
 
-kiam mi manĝas.” 
+kiam mi manĝas.”
 
 Ĉirkaŭ la vesperiĝo la ĉielo nubiĝis kaj baldaŭ
 
 granda ŝtormo ekfuriozis. Princo Ingo kaj Reĝo Rinki-
 
-tinko rifuĝis en la protektanta ĉambro kiun ili pretigis
+t rifuĝis en la protektanta ĉambro kiun ili pretigis
 
 kaj tie Bilbilo ankaŭ kunestis. La kapron kaj la Reĝon
 
@@ -3490,7 +3272,7 @@ iom ĝenis la violenteco de la ŝtormo, sed Ingon ĝi ne
 
 ĝenis, ĉar lin plaĉis tiu pruvo ke la Blanka Perlo estas
 
-fidinda. 
+fidinda.
 
 Dum la tuta nokto la vento kriegis ĉirkaŭ la
 
@@ -3500,11 +3282,8 @@ falis. Sed jam je la mateniĝo la ŝtormo ĉesis kaj kiam
 
 la suno leviĝis neniu spuro de la tempesto restis
 
-escepte de kelkaj falintaj arboj. 
+escepte de kelkaj falintaj arboj.
 
-91
-
-!(images/000116.png)
 
 La Magia Boato
 
@@ -3524,17 +3303,16 @@ Blanka Perlo promesis al li. Eĉ ne dum momento li
 
 dubis ke li trovos ĝin kaj antaŭ ol li longe marŝis lia
 
-okulo ekvidis nigran objekton ĉe la akvorando. 
+okulo ekvidis nigran objekton ĉe la akvorando.
 
-“Jen la boato, Bilbilo\!” li kriis ĝoje, kaj kurinte al
+“Jen la boato, Bilbilo!” li kriis ĝoje, kaj kurinte al
 
 ĝi li trovis ke efektive ĝi ja estas granda spacoplena
 
 boato. Kvankam drivinte sur la plaĝon, ĝi estis
 
-perfekte bonstata kaj neniel suferis pro la ŝtormo. 
+perfekte bonstata kaj neniel suferis pro la ŝtormo.
 
-92
 
 Ĉapitro Ses
 
@@ -3554,7 +3332,7 @@ forte ke la surfaco similis spegulon kaj brilegis pro
 
 la sunradioj. La ŝegoj havis sur si blankajn kusenojn
 
-kaj la kusenoj estis belege broditaj per oraj fadenoj. 
+kaj la kusenoj estis belege broditaj per oraj fadenoj.
 
 Ĉe unu ekstremo, sub la larĝa benko, estis
 
@@ -3566,65 +3344,64 @@ sandalligno, ligita kaj ornamita per arĝento, staris
 
 en la alia ekstremo de la boato. Ingo levis la
 
-kovrilon kaj trovis la keston plena de marbiskvitoj, 
+kovrilon kaj trovis la keston plena de marbiskvitoj,
 
 kukoj, viando en ladskatoletoj, kaj maturaj
 
 sukoplenaj melonoj; sufiĉaj bonsanigaj manĝaĵoj por
 
-nutri la grupon dum longa tempo. 
+nutri la grupon dum longa tempo.
 
 Kuŝante sur la fundo de la boato estis du brilantaj
 
 remiloj, kaj supre, sed nun retrorulita, estis baldakeno
 
-el arĝenta ŝtofo por deteni la varmegon de la suno. 
+el arĝenta ŝtofo por deteni la varmegon de la suno.
 
 Ne mirigas ke la knabo ĝojegis pro la alveno de
 
 tiu bela boato; sed pripensinte li timis ke ĝi estos tro
 
-granda por ke li povu remi ĝin longan distancon. 
+granda por ke li povu remi ĝin longan distancon.
 
-93
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Krom se, vere, la Blua Perlo donos al li nekutiman
 
-forton. 
+forton.
 
-Dum li konsideris tiun aferon, Reĝo Rinkitinko
+Dum li konsideris tiun aferon, Reĝo Rinkit
 
 venis anaspaŝante al li kaj diris:
 
-“Nu, nu, nu, mia Princo, viaj vortoj plenumiĝis\! 
+“Nu, nu, nu, mia Princo, viaj vortoj plenumiĝis!
 
 Jen la boato, tute certe, sed kiel ĝi venis ĉi tien—kaj
 
 kiel vi sciis ke ĝi venos al ni—estas enigmo kiun mi
 
-ne povas solvi. Mi ne dubas nian bonfortunon, tamen, 
+ne povas solvi. Mi ne dubas nian bonfortunon, tamen,
 
 kaj mia koro bobeladas pro ĝojo, ĉar en ĉi tiu boato
 
 mi reiros tuj al mia Urbo Gilgado, de kiu mi restas
 
-jam multe tro longe for.” 
+jam multe tro longe for.”
 
-“Mi ne deziras iri al Gilgado,” diris Ingo. 
+“Mi ne deziras iri al Gilgado,” diris Ingo.
 
 “Domaĝe, mia amiko, ĉar vi estus tre bonvena. Sed
 
 vi povos resti sur ĉi tiu insulo, se vi deziras,” pludiris
 
-Rinkitinko, “kaj reirinte hejmen mi sendos kelkajn
+Rinkit, “kaj reirinte hejmen mi sendos kelkajn
 
-miajn regatojn savi vin.” 
+miajn regatojn savi vin.”
 
 “La boato estas mia, Via Moŝto,” diris Ingo
 
-trankvile. 
+trankvile.
 
 “Eble, eble,” estis la senzorga respondo, “sed mi
 
@@ -3634,39 +3411,38 @@ Princo sen menciinda regno. Sekve, ĉar mi estas pli
 
 grava ol vi, estas juste kaj dece ke mi prenos vian
 
-boaton kaj reiros per ĝi al mia propra lando.” 
+boaton kaj reiros per ĝi al mia propra lando.”
 
 “Mi bedaŭras malsamopinii ol Via Moŝto,” diris
 
-94
 
 Ĉapitro Ses
 
 Ingo, “sed anstataŭ iri al Gilgado mi opinias ke pli
 
-gravas ke ni iru al la insuloj Regoso kaj Koregoso.” 
+gravas ke ni iru al la insuloj Regoso kaj Koregoso.”
 
 “He? Kio?” kriis la mirigita Reĝo. “Al Regoso kaj
 
-Koregoso\! Por fariĝi sklavoj de la barbaroj, same kiel
+Koregoso! Por fariĝi sklavoj de la barbaroj, same kiel
 
-la Reĝo via patro? Ne, ne, mia knabo\! Via Onĉjo
+la Reĝo via patro? Ne, ne, mia knabo! Via Onĉjo
 
 Rinki eble havas vakan pensilon, kiel pretendas
 
 Bilbilo, sed li estas multe tro saĝa por meti sian
 
-kapon en buŝon de leono. Ne amuzas esti sklavo.” 
+kapon en buŝon de leono. Ne amuzas esti sklavo.”
 
 “La popolo de Regoso kaj Koregoso ne sklavigos
 
 nin,” deklaris Ingo. “Male, mia intenco estas liberigi
 
-miajn karajn gepatrojn, ankaŭ mian tutan popolon, 
+miajn karajn gepatrojn, ankaŭ mian tutan popolon,
 
-kaj revenigi ilin al Pingario.” 
+kaj revenigi ilin al Pingario.”
 
-“Ĉik-ik-ik-ik-ik\! Tre komike\!” ridis Rinkitinko, 
+“Ĉik-ik-ik-ik-ik! Tre komike!” ridis Rinkit,
 
 palpebrumante al la kapro, kiu sulkis la frunton
 
@@ -3678,7 +3454,7 @@ ne estus tiel dika, mi tuj konsentus al via plano, kaj
 
 verŝajne povus konkeri tiun amason da ferocaj
 
-batalistoj tute sen helpo—tute sen—ĉu ne, Bilbilo? 
+batalistoj tute sen helpo—tute sen—ĉu ne, Bilbilo?
 
 Sed malfeliĉigas min diri ke mi ja estas dika, kaj ne
 
@@ -3688,19 +3464,18 @@ mia agnosko, mi mem ne povas fari, Ingo, nu mi
 
 timas ke vi forgesas ke vi estas nur knabo, efektive
 
-iom malgranda knabo.” 
+iom malgranda knabo.”
 
-95
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Ne, mi ne forgesas tion,” estis la respondo de Ingo. 
+“Ne, mi ne forgesas tion,” estis la respondo de Ingo.
 
 “Do bonvolu pripensi ke vi kaj mi kaj Bilbilo estas
 
 ne sufiĉe fortaj, kiel armeo, por konkeri potencan
 
-nacion de spertaj militistoj. Ni povus provi, 
+nacion de spertaj militistoj. Ni povus provi,
 
 kompreneble, sed vi estas tro juna por morto, kaj mi
 
@@ -3708,11 +3483,11 @@ estas tro maljuna. Venu kun mi al mia Urbo Gilgad, kie
 
 vi estos multe honoratos. Mi derigos ke miaj profesoroj
 
-instruu al vi bonan konduton. Nu kion vi diras?” 
+instruu al vi bonan konduton. Nu kion vi diras?”
 
 Ingo iom perpleksis pri kiel respondi al tiuj
 
-argumentoj, ĉar li sciis ke Reĝo Rinkitinko kredas ilin
+argumentoj, ĉar li sciis ke Reĝo Rinkit kredas ilin
 
 saĝaj; do, post iom da pensado, li diris:
 
@@ -3720,17 +3495,17 @@ saĝaj; do, post iom da pensado, li diris:
 
 ne deziras ke manku en mi respekto pri tiel inda
 
-persono kaj grava Reĝo kiel vi. Ĉi tiu boato estas mia, 
+persono kaj grava Reĝo kiel vi. Ĉi tiu boato estas mia,
 
 kiel mi diris, kaj dum la foresto de mia patro vi
 
 fariĝis mia gasto; tial mi pretendas ke mi meritas iom
 
-da konsidero, same kial vi.” 
+da konsidero, same kial vi.”
 
-“Tute sendube,” akordis Rinkitinko. “Kiun
+“Tute sendube,” akordis Rinkit. “Kiun
 
-interakordon vi proponas, Ingo?” 
+interakordon vi proponas, Ingo?”
 
 “Ni ambaŭ eniru la boaton, kaj vi unue provos
 
@@ -3740,23 +3515,22 @@ akompanos vin; sed se vi malsukcesos, mi remos la
 
 boaton al Regoso, kaj vi devos veni kun mi sen plia
 
-protesto.” 
+protesto.”
 
-96
 
 Ĉapitro Ses
 
-“Justa kaj inda interkonsento\!” kriis la Reĝo, multe
+“Justa kaj inda interkonsento!” kriis la Reĝo, multe
 
-plaĉite. “Tamen, kvankam mi estas heroeca persono, 
+plaĉite. “Tamen, kvankam mi estas heroeca persono,
 
 mi ne antaŭvidas ĝui remi tiel grandan boaton la
 
 tutan vojon al Gilgado. Sed mi faros mian plejeblon
 
-kaj akceptos la rezulton.” 
+kaj akceptos la rezulton.”
 
-Tiel pace decidinte la aferon, ili preparis enboatiĝi. 
+Tiel pace decidinte la aferon, ili preparis enboatiĝi.
 
 Plia provizo da fruktoj estis metita en la boaton kaj
 
@@ -3766,19 +3540,19 @@ abundas sur la bordo de Pingario sed kiujn li ĝis nun
 
 ne povis atingi pro manko de boato. Tion li faris laŭ
 
-sugesto de la ĉiam malsata Rinkitinko, kaj kiam la ŝel-
+sugesto de la ĉiam malsata Rinkit, kaj kiam la ŝel-
 
 havaj ostroj estis jam metitaj malantaŭ la akvobarelon
 
 kaj abunda kvanto da herbo estis enboatigita por
 
-Bilbilo, ili decidis ke ili pretas komenci sian vojaĝon. 
+Bilbilo, ili decidis ke ili pretas komenci sian vojaĝon.
 
-Montriĝis tute ne facila tasko enboatigi Bilbilon, 
+Montriĝis tute ne facila tasko enboatigi Bilbilon,
 
-ĉar li estis rimarkinde mallerta kapro kaj unufoje, 
+ĉar li estis rimarkinde mallerta kapro kaj unufoje,
 
-kiam Rinkitinko puŝis lin, li falis en la akvon kaj
+kiam Rinkit puŝis lin, li falis en la akvon kaj
 
 preskaŭ dronis antaŭ ol ili povis elakvigi lin. Sed tute
 
@@ -3790,25 +3564,24 @@ la knabo, kaj la dika Reĝo tiom kutimis al sia
 
 malafabla kompano ke nenio instigus lin apartiĝi de
 
-li. Fine Bilbilo falis sternite en la fundon de la boato, 
+li. Fine Bilbilo falis sternite en la fundon de la boato,
 
 kaj Ingo helpis lin moviĝi al la antaŭa parto, kie estis
 
-97
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-sufiĉa spaco por ke li kuŝu tie. 
+sufiĉa spaco por ke li kuŝu tie.
 
-Rinkitinko nun prenis lokon en la arĝente tegita
+Rinkit nun prenis lokon en la arĝente tegita
 
 veturilo kaj la knabo venis la lasta, forpuŝante la boaton
 
-dum li enboaten saltis, tiel ke ĝi flosis libere sur la akvo. 
+dum li enboaten saltis, tiel ke ĝi flosis libere sur la akvo.
 
-“Nu, nun ni iras al Gilgado\!” kriis la Reĝo, 
+“Nu, nun ni iras al Gilgado!” kriis la Reĝo,
 
-prenante la remilojn kaj metante ilin en la ingojn. 
+prenante la remilojn kaj metante ilin en la ingojn.
 
 Post tio li komencis remi laŭeble plej forte, samtempe
 
@@ -3816,21 +3589,21 @@ kantante kuriozan kanton kies vortoj diris:
 
 “Voj’ al Gilgad’, bela pad’
 
-Por dika Reĝo kaj knabo brava, 
+Por dika Reĝo kaj knabo brava,
 
 Por kolera kapro—malseka apro—
 
-Kaj arĝenta ŝip’ kun ligna rip’. 
+Kaj arĝenta ŝip’ kun ligna rip’.
 
 Kun koro gaja, animo rava
 
-Ni rapidas al bela Gilgad’\!” 
+Ni rapidas al bela Gilgad’!”
 
-“Ne, Rinkitinko; bonvolu, ne\! Tio marmalsanigas
+“Ne, Rinkit; bonvolu, ne! Tio marmalsanigas
 
-min,” grumblis Bilbilo. 
+min,” grumblis Bilbilo.
 
-Rinkitinko ĉesis remi, ĉar jam li estis senspira kaj
+Rinkit ĉesis remi, ĉar jam li estis senspira kaj
 
 lia ronda vizaĝo estis kovrita de grandaj gutoj da
 
@@ -3838,27 +3611,26 @@ lia ronda vizaĝo estis kovrita de grandaj gutoj da
 
 ĉagrenate ke la boato apenaŭ estas movinta sin eĉ
 
-tridek centimetrojn for de sia antaŭa pozicio. 
+tridek centimetrojn for de sia antaŭa pozicio.
 
 Ingo diris nenion kaj ŝajnigis ne rimarki la mal-
 
-98
 
 Ĉapitro Ses
 
-sukceson de la Reĝo. Do nun Rinkitinko, kun aspekto
+sukceson de la Reĝo. Do nun Rinkit, kun aspekto
 
 de seriozeco sur sia dika ruĝa vizaĝo, deprenis sian
 
 purpuran robon kaj suprenrulis la manikojn de sia
 
-tuniko kaj denove provis. 
+tuniko kaj denove provis.
 
 Tamen li ne sukcesis pli ol antaŭe kaj aŭdinte
 
 Bilbilon fari raŭkan ridon kaj vidinte rideton sur la
 
-vizaĝo de la knaba Princo, Rinkitinko subite faligis la
+vizaĝo de la knaba Princo, Rinkit subite faligis la
 
 remilojn kaj komencis krii ride pro sia propra
 
@@ -3868,69 +3640,63 @@ poŝtuko li kantis gajvoĉe:
 
 “Velista bravo, kapa kavo—
 
-La boaton mi ne povas remi. 
+La boaton mi ne povas remi.
 
 Do mi agnoskas: prave mokas
 
-Min la senutila kapro.” 
+Min la senutila kapro.”
 
 “Bonvolu ellasi min el viaj versoj,” diris Bilbilo
 
-spiregante pro kolero. 
+spiregante pro kolero.
 
 “Kiam mi ridindigas min, Bilbilo, mi fariĝas
 
-kapro,” respondis Rinkitinko. 
+kapro,” respondis Rinkit.
 
 “Neniel,” insistis Bilbilo. “Nenio povus fari el vi
 
-anon de mia supera raso.” 
+anon de mia supera raso.”
 
 “Supera? Nu, Bilbilo, kapro estas nur besto, sed
 
-mi estas Reĝo\!” 
+mi estas Reĝo!”
 
-99
 
-!(images/000039.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 “Mi pretendas ke supera estas inteligento,” diris la
 
-kapro. 
+kapro.
 
-Rinkitinko tute ne atentis tiun komenton, sed
+Rinkit tute ne atentis tiun komenton, sed
 
 turninte sin al Ingo li diris:
 
 “Plejbone ni reiru al la bordo, ĉar la boato estas
 
-tro peza por esti remita al Gilgado aŭ iu alia loko. 
+tro peza por esti remita al Gilgado aŭ iu alia loko.
 
-Efektive, estos malfacile por ni reatingi la teron.” 
+Efektive, estos malfacile por ni reatingi la teron.”
 
 “Mi prenu la remilojn,” sugestis Ingo. “Ne forgesu
 
-nian interakordon.” 
+nian interakordon.”
 
-“Tute ne,” respondis Rinkitinko. “Se vi povos remi
+“Tute ne,” respondis Rinkit. “Se vi povos remi
 
-100
-
-!(images/000041.png)
 
 Ĉapitro Ses
 
 nin al Regoso, aŭ al iu alia loko, mi senproteste iros
 
-kun vi.” 
+kun vi.”
 
 Do la Reĝo prenis la lokon de Ingo en la malantaŭo
 
 de la boato kaj la knabo prenis la remilojn kaj
 
-komencis remi. Kaj nun, mirigante Rinkitinkon—kaj
+komencis remi. Kaj nun, mirigante Rinkitn—kaj
 
 eĉ Ingon—la remiloj fariĝis senpezaj kiel plumoj tuj
 
@@ -3942,13 +3708,12 @@ turnis la pruon cele la nordon. Li ne sciis precize kie
 
 situas Regoso kaj Koregoso, sed li ja sciis ke la insuloj
 
-101
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 situas norde de Pingario, do li decidis fidi ke la
 
-bonŝanco kaj la gvido fare de la perloj portos ilin tien. 
+bonŝanco kaj la gvido fare de la perloj portos ilin tien.
 
 Iom post iom la Insulo Pingario fariĝis malgranda
 
@@ -3956,9 +3721,9 @@ en ilia vidpovo dum la boato rapidis antaŭen, ĝis je
 
 la fino de horo ili tute ne plu povis vidi ĝin kaj ilin
 
-ĉirkaŭis la purpura akvo de la Nonesta Oceano. 
+ĉirkaŭis la purpura akvo de la Nonesta Oceano.
 
-Princo Ingo ne laciĝis pro la tasko remadi; efektive, 
+Princo Ingo ne laciĝis pro la tasko remadi; efektive,
 
 tute ne ŝajnis al li esti laboro. Unufoje li ĉesis sufiĉe
 
@@ -3968,33 +3733,32 @@ faritajn por ili, en la randojn de la boato, kaj por
 
 etendi la arĝentan baldakenon super la stangojn, ĉar
 
-Rinkitinko plendis pro la varmego de la suno. Sed la
+Rinkit plendis pro la varmego de la suno. Sed la
 
 baldakeno detenis la varmegajn radiojn kaj kaŭzis ke
 
-la interno de la boato estu plaĉe frideta. 
+la interno de la boato estu plaĉe frideta.
 
-“Jen glora veturo\!” kriis Rinkitinko, dum li kuŝiĝis
+“Jen glora veturo!” kriis Rinkit, dum li kuŝiĝis
 
 en la ombro. “Mi trovas granda senŝarĝiĝo nian
 
-foreston de tiu morna insulo Pingario.” 
+foreston de tiu morna insulo Pingario.”
 
 “Eble dum mallonga tempo estos senŝarĝiĝo,” diris
 
-Bilbilo, “sed vi iras al la lando de viaj malamikoj, 
+Bilbilo, “sed vi iras al la lando de viaj malamikoj,
 
 kiuj verŝajne pikos vian tutan dikan korpon per lancoj
 
-kaj sagoj.” 
+kaj sagoj.”
 
-“Ho, mi esperas ke ne\!” kriis Ingo, kiun mal-
+“Ho, mi esperas ke ne!” kriis Ingo, kiun mal-
 
-feliĉigis tiun penso. 
+feliĉigis tiun penso.
 
 “Ne gravas,” diris la Reĝo trankvile, “oni povas
 
-102
 
 Ĉapitro Ses
 
@@ -4002,15 +3766,15 @@ morti nur unufoje, memoru, kaj kiam la malamikoj
 
 mortigos min mi petos ankaŭ mortigi Bilbilon, tiel ke
 
-ni restos kunaj en la morto kiel en la vivo.” 
+ni restos kunaj en la morto kiel en la vivo.”
 
 “Ili eble estos kanibaloj; tiuokaze, ili rostos kaj
 
 manĝos nin,” sugestis Bilbilo, kiu volis timigi sian
 
-mastron. 
+mastron.
 
-“Kiu scias?” respondis Rinkitinko, timtreme. “Sed
+“Kiu scias?” respondis Rinkit, timtreme. “Sed
 
 gajiĝu, Bilbilo; eble ili ja ne mortigos nin, eble eĉ ne
 
@@ -4018,21 +3782,21 @@ kaptos nin; do ni ne anticipu niajn problemojn. Ne
 
 mienu tiel kolere, mia sprita kvarpiedulo, kaj mi
 
-kantos por distri vin.” 
+kantos por distri vin.”
 
-“Via kanto eĉ pli profunde kolerigus min,” 
+“Via kanto eĉ pli profunde kolerigus min,”
 
-grumblis la kapro. 
+grumblis la kapro.
 
 “Tute neeble, kara Bilbilo. Vi ne povus esti pli
 
-malafabla eĉ se vi strebus. Do jen fama kanto por vi.” 
+malafabla eĉ se vi strebus. Do jen fama kanto por vi.”
 
 Dum la knabo plu remadis senpaŭze kaj la boato
 
 rapidis trans la akvon, la gaja Reĝo, kiu neniam povis
 
-esti malgaja aŭ serioza dum multaj sinsekvaj minutoj, 
+esti malgaja aŭ serioza dum multaj sinsekvaj minutoj,
 
 malantaŭen klinis sin sur siajn broditajn kusenojn kaj
 
@@ -4040,79 +3804,77 @@ kantis tion:
 
 “Gaja knabino sur la mar’—
 
-Kantu tu-ral-u-ral-i-do\! 
+Kantu tu-ral-u-ral-i-do!
 
 Sidis sur genuo de l’ ŝipcar’
 
-103
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Serĉo perokula ŝia far’
 
 Tamen min ne vidis tie, ĉar—
 
-Kantu tu-ral-u-ral-i-do\!” 
+Kantu tu-ral-u-ral-i-do!”
 
-“Ĉu plaĉas al vi tio, Bilbilo?” 
+“Ĉu plaĉas al vi tio, Bilbilo?”
 
 “Al mi ĝi ne plaĉas,” plendis la kapro. “Ĝi
 
-memorigas min pri la aligatoro kiu provis fajfi.” 
+memorigas min pri la aligatoro kiu provis fajfi.”
 
-“Ĉu li sukcesis, Bilbilo?” demandis la Reĝo. 
+“Ĉu li sukcesis, Bilbilo?” demandis la Reĝo.
 
-“Li fajfis egale bone kiel vi kantas.” 
+“Li fajfis egale bone kiel vi kantas.”
 
-“Ha, ha, ha, ha, hik, kik, ik\!” ridis la Reĝo. “Do
+“Ha, ha, ha, ha, hik, kik, ik!” ridis la Reĝo. “Do
 
-sendube li belege fajfis, ĉu ne, mia amiko?” 
+sendube li belege fajfis, ĉu ne, mia amiko?”
 
-“Mi ne estas via amiko,” respondis la kapro, 
+“Mi ne estas via amiko,” respondis la kapro,
 
-skuante siajn orelojn malafable. 
+skuante siajn orelojn malafable.
 
 “Tamen mi estas via amiko,” estis la gaja respondo
 
 de la Reĝo, “kaj por pruvi tion mi kantos al vi plian
 
-verson.” 
+verson.”
 
-“Ne, mi petegas\!” 
+“Ne, mi petegas!”
 
 Sed la Reĝo kantis tion:
 
 “La vento blovis ŝian ŝuon—
 
-Kantu tu-ral-u-ral-i-do\! 
+Kantu tu-ral-u-ral-i-do!
 
 La ŝu’ altflugis en la bluon
 
-Knabino perdis la ŝuduon; 
+Knabino perdis la ŝuduon;
 
 Ne povis sekvi post la pruon—
 
-Kantu tu-ral-u-ral-i-do\!” 
+Kantu tu-ral-u-ral-i-do!”
 
-104
 
 Ĉapitro Ses
 
-“Ĉu ne dolĉa kanto, mia bela kapro?” 
+“Ĉu ne dolĉa kanto, mia bela kapro?”
 
 “Ĉu dolĉa, vi demandas?” koleris Bilbilo. “Mi
 
 opinias ĝin egale dolĉa kiel manĝaĵo el mustardo kaj
 
-vinagro.” 
+vinagro.”
 
-“Sed ne tiel dolĉa kiel via humoro, mi agnoskas. 
+“Sed ne tiel dolĉa kiel via humoro, mi agnoskas.
 
-Ha, Bilbilo, via humoro hontigus eĉ mielon.” 
+Ha, Bilbilo, via humoro hontigus eĉ mielon.”
 
 “Ne kverelu, mi petegas,” pledis Ingo. “Ĉu ni ne
 
-jam sufiĉe malĝojas?” 
+jam sufiĉe malĝojas?”
 
 “Sed ĉi tiu kverelo estas gaja,” diris la Reĝo, “kaj
 
@@ -4122,7 +3884,7 @@ plej lastan verson:
 
 “Knabino perdis ŝuon, ploris
 
-Kantu tu-ral-u-ral-i-do\! 
+Kantu tu-ral-u-ral-i-do!
 
 Kapitanon novedzin’ amoris
 
@@ -4130,45 +3892,44 @@ Kaj manĝi l’ larmojn ŝi fervoris
 
 Kaj honton de l’ knabin’ ŝi voris
 
-Kantu tu-ral-u-ral-i-do\!” 
+Kantu tu-ral-u-ral-i-do!”
 
-“Eĉ pli aĉe\!” grumblis Bilbilo, tre malestime. “Min
+“Eĉ pli aĉe!” grumblis Bilbilo, tre malestime. “Min
 
 plezurigas ke tiu estis la lasta verso, ĉar plia verso
 
-tiuspeca eble svenigus min.” 
+tiuspeca eble svenigus min.”
 
-“Mi timas ke via orelo ne komprenas muzikon,” 
+“Mi timas ke via orelo ne komprenas muzikon,”
 
-diris la Reĝo. 
+diris la Reĝo.
 
-105
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Mi ankoraŭ ne aŭdis muzikon,” deklaris la kapro. 
+“Mi ankoraŭ ne aŭdis muzikon,” deklaris la kapro.
 
-“Certe vi havas fortan imagon, Reĝo Rinkitinko, se vi
+“Certe vi havas fortan imagon, Reĝo Rinkit, se vi
 
 kredas viajn kantojn muziko. Ĉu vi memoras la
 
-rakonton pri la urso kiu dungiĝis kiel vartistino?” 
+rakonton pri la urso kiu dungiĝis kiel vartistino?”
 
-“Mi ne memoras ĝin ĝuste nun,” diris Rinkitinko, 
+“Mi ne memoras ĝin ĝuste nun,” diris Rinkit,
 
-palpebrumante al Ingo. 
+palpebrumante al Ingo.
 
 “Nu, la urso provis lulkanti por endormigi la
 
-bebon.” 
+bebon.”
 
-“Kaj?” diris la Reĝo. 
+“Kaj?” diris la Reĝo.
 
 “Al la urso multe plaĉis ĝia propra voĉo, sed ĝi
 
-preskaŭ morttimigis la bebon.” 
+preskaŭ morttimigis la bebon.”
 
-“He, he, he, he, hu, hu, hu\! Vi estas gaja fripono, 
+“He, he, he, he, hu, hu, hu! Vi estas gaja fripono,
 
 Bilbilo,” ridis la Reĝo; “gaja fripono malgraŭ viaj
 
@@ -4176,7 +3937,7 @@ malgajaj mienoj. Tamen, se mi ne amuzis vin, mi
 
 almenaŭ plezurigis min, ĉar mi multege amas bonan
 
-kanton. Do ni ne plu parolu pri la afero.” 
+kanton. Do ni ne plu parolu pri la afero.”
 
 Tutdume la knaba Princo remadis la boaton. Li
 
@@ -4184,19 +3945,16 @@ tute ne laciĝis, ĉar la remiloj kiujn li tenis ŝajne mem
 
 movis sin. Li malmulte atentis la konversacion inter
 
-Rinkitinko kaj la kapro, sed li plenigis siajn pensojn
+Rinkit kaj la kapro, sed li plenigis siajn pensojn
 
 per kion li devos fari kiam li atingos la insulojn
 
-Regoso kaj Koregoso kaj frontos siajn malamikojn. 
+Regoso kaj Koregoso kaj frontos siajn malamikojn.
 
 Kiam la aliaj fine silentiĝis, Ingo demandis:
 
-“Ĉu vi scipovas batali, Reĝo Rinkitinko?” 
+“Ĉu vi scipovas batali, Reĝo Rinkit?”
 
-106
-
-!(images/000052.jpg)
 
 Ĉapitro Ses
 
@@ -4204,17 +3962,17 @@ Kiam la aliaj fine silentiĝis, Ingo demandis:
 
 minacis danĝero mi ĉiam trovis ke estas pli facile
 
-forkuri ol fronti la malamikojn.” 
+forkuri ol fronti la malamikojn.”
 
-“Sed ĉu vi *povus* batali?” demandis la knabo. 
+“Sed ĉu vi *povus* batali?” demandis la knabo.
 
 “Mi eble provus, se ne estus oportuno eskapi per
 
 forkurado. Ĉu vi havas taŭgan armilon per kiu mi
 
-batalus?” 
+batalus?”
 
-“Mi havas nenian armilon,” agnoskis Ingo. 
+“Mi havas nenian armilon,” agnoskis Ingo.
 
 “Do ni uzu argumentojn kaj persvadon anstataŭ
 
@@ -4222,11 +3980,11 @@ batali. Ekzemple, se ni povus persvadi la batalistojn
 
 de Regoso kuŝiĝi, por ke mi tretu sur ilin, ili
 
-dispremiĝus facile.” 
+dispremiĝus facile.”
 
 Princo Ingo ne anticipis subtenon de la Reĝo, do
 
-lin ne senkuraĝigis tiu respondo. Efektive, li pensis, 
+lin ne senkuraĝigis tiu respondo. Efektive, li pensis,
 
 venko per batalo estus tute neebla, tamen la Blanka
 
@@ -4236,29 +3994,26 @@ se la misio estus senespera. Ŝajnis al li, post plia
 
 pripenso, ke li devos fidi la cirkonstancojn por decidi
 
-siajn agojn kiam li atingos la insulojn de la barbaroj. 
+siajn agojn kiam li atingos la insulojn de la barbaroj.
 
-Jam Ingo sentis plenan fidon al la Magiaj Perloj. 
+Jam Ingo sentis plenan fidon al la Magiaj Perloj.
 
 La Blanka Perlo ja donis al li la boaton, kaj la Blua
 
 Perlo donis al li la forton por remi ĝin. Li kredis ke
 
-la Palruĝa Perlo protektos lin kontraŭ ĉia eventuala
+la Palruĝa Perlo protektos lntraŭ ĉia eventuala
 
 danĝero; do li maltrankvilis ne pri si sed pri siaj
 
-107
 
-!(images/000058.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-kompanoj. Reĝo Rinkitinko kaj la kapro ne havis
+kompanoj. Reĝo Rinkit kaj la kapro ne havis
 
 protektan magion, do Ingo ĵuris al si fari ĉion eblan
 
-por eviti damaĝon al ili. 
+por eviti damaĝon al ili.
 
 Tri tagojn kaj tri noktojn la boato arĝente tegita
 
@@ -4268,17 +4023,14 @@ kvara tago, pro ilia rapidega veturado, Ingo vidis
 
 antaŭ si la bordojn de la du grandaj insuloj Regoso
 
-kaj Koregoso. 
+kaj Koregoso.
 
-“La perloj ĝuste gvidis min\!” li flustris al si. “Nun, 
+“La perloj ĝuste gvidis min!” li flustris al si. “Nun,
 
 se mi estos saĝa, kaj sinzorga, kaj brava, mi kredas
 
-povi savi miajn patron kaj patrinon kaj popolon.” 
+povi savi miajn patron kaj patrinon kaj popolon.”
 
-108
-
-!(images/000017.png)
 
 La Ĝemelaj Insuloj
 
@@ -4286,19 +4038,19 @@ La Ĝemelaj Insuloj
 
 La Insulo Regoso estis
 
-dek 
+dek
 
-kvin 
+kvin
 
 kilometrojn
 
 larĝa kaj sesdek kvin
 
-longa 
+longa
 
-kaj 
+kaj
 
-ĝin 
+ĝin
 
 regis
 
@@ -4314,13 +4066,12 @@ nenio povis kreski tie. Sed en tiuj montoj estis minoj
 
 de oro kaj arĝento, kiujn devis fosi la sklavoj de la
 
-Reĝo, fermite en obskuraj subteraj koridoroj tiucelaj. 
+Reĝo, fermite en obskuraj subteraj koridoroj tiucelaj.
 
 Dum la paso de tempo la sklavoj fosis gigantajn
 
-109
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kavernojn en kiuj ili loĝis kaj dormis, kaj neniam
 
@@ -4332,7 +4083,7 @@ atakogrupoj de Reĝo Goso, kaj la mastroj tute volonte
 
 vipis la sklavojn se ili paŭzis eĉ momente dum sia
 
-laborado. 
+laborado.
 
 Inter la verdaj bordoj kaj la montoj estis arbaroj
 
@@ -4340,7 +4091,7 @@ da densaj interplektitaj arboj, inter kiuj oni tranĉis
 
 nelarĝajn padojn kondukantajn al la minkavoj. Sur
 
-la ebenaj verdaj kampoj, ne distance de la oceano, 
+la ebenaj verdaj kampoj, ne distance de la oceano,
 
 la granda Urbo Regoso estis konstruita, en kiu
 
@@ -4360,7 +4111,7 @@ urbo tiel fariĝis danĝera loko por iu ajn pacema
 
 persono, ĉar la batalistoj estis egale senleĝaj kiel
 
-ilia Reĝo. 
+ilia Reĝo.
 
 La Insulo Koregoso situis proksime al la Insulo
 
@@ -4370,7 +4121,6 @@ Regoso; tiel proksime, efektive, ke oni povus ĵeti
 
 nur duone tiel granda kiel Regoso kaj anstataŭ esti
 
-110
 
 Ĉapitro Sep
 
@@ -4382,7 +4132,7 @@ provizis manĝaĵojn por la batalistoj kaj civitanoj de
 
 ambaŭ landoj, dum la minoj de Regoso riĉigis ilin
 
-ĉiujn. 
+ĉiujn.
 
 Koregoson regis Reĝino Koro, kiu estis edzino de
 
@@ -4390,17 +4140,17 @@ Reĝo Goso; sed tiel severa kaj kruela estis la naturo
 
 de tiu Reĝino ke la popolo ne povis decidi kiun el la
 
-regantoj ili plej timis. 
+regantoj ili plej timis.
 
-Reĝino Koro loĝis en sia propra Urbo Koregoso, 
+Reĝino Koro loĝis en sia propra Urbo Koregoso,
 
 kiu situis sur tiu flanko de la insulo kiu frontis
 
 Regoson, kaj ŝiaj sklavoj, plejparte virinoj, devis plugi
 
-la teron kaj semi kaj rikolti la grenon. 
+la teron kaj semi kaj rikolti la grenon.
 
-De Regoso al Koregoso etendiĝis ponto el boatoj, 
+De Regoso al Koregoso etendiĝis ponto el boatoj,
 
 unu apud la alia, sur kiuj estis tabuloj etenditaj trans
 
@@ -4408,7 +4158,7 @@ la randojn tiel ke oni povis marŝi sur ili. Tiel estis
 
 facile transiri de unu insulo al la alia kaj kiam estis
 
-danĝero la ponto estis facile forprenebla. 
+danĝero la ponto estis facile forprenebla.
 
 La indiĝenoj de Regoso kaj Koregoso konsistis el
 
@@ -4422,11 +4172,10 @@ mondo. Aliaj insulanoj hatis kaj timis ilin, ĉar iliajn
 
 sklavojn ili kruele mistraktis kaj absolute nenian
 
-111
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-kompaton ili donis al la feblaj aŭ malsanaj. 
+kompaton ili donis al la feblaj aŭ malsanaj.
 
 Kiam revenis la boatoj irintaj al Pingario, ŝarĝite
 
@@ -4448,11 +4197,11 @@ Goso kaj Reĝino Koro, kiu venis de sia insulo por
 
 partopreni en la festo. Tiam ĉiujn rabaĵojn ŝtelitajn
 
-disde la Reĝo de Pingario oni dividis laŭ la rangoj, 
+disde la Reĝo de Pingario oni dividis laŭ la rangoj,
 
 la Reĝo kaj la Reĝino prenis duonon, la kapitanoj
 
-kvaronon, kaj la resto dividiĝis inter la batalistoj. 
+kvaronon, kaj la resto dividiĝis inter la batalistoj.
 
 La tagon tuj post la festeno Reĝo Goso sendis
 
@@ -4466,7 +4215,7 @@ ne povos eskapi. La milda Reĝino de Pingario kaj ĉiuj
 
 donitaj al Reĝino Koro, kiu laborigis ilin en siaj
 
-grenkampoj. 
+grenkampoj.
 
 Tiam la regantoj kaj batalistoj de tiuj teruraj
 
@@ -4474,15 +4223,12 @@ insuloj kredis esti por ĉiam detruintaj Pingarion. Sen
 
 ĝiaj riĉoj, kun ĉiuj domoj detruitaj, ĝiaj boatoj
 
-112
 
-!(images/000022.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 kaptitaj kaj la tuta popolo sklavigita, kiel verŝajne
 
-estus ke ili iam denove aŭdus pri la dizertita insulo? 
+estus ke ili iam denove aŭdus pri la dizertita insulo?
 
 Tial la popolojn de Regoso kaj Koregoso surprizis
 
@@ -4496,7 +4242,7 @@ demandis unu al la alia kiuj ili povus esti, kaj el
 
 kie ili venis? Neniu iam venis al tiuj insuloj
 
-propravole, tio estis certa. 
+propravole, tio estis certa.
 
 Princo Ingo gvidis sian boaton al la suda ekstremo
 
@@ -4506,19 +4252,19 @@ proksima al la urbo, kaj kiam la batalistoj vidis tiun
 
 agon ili iris al la bordo por renkonti lin, kondukate
 
-de granda kapitano nomata Buzubo. 
+de granda kapitano nomata Buzubo.
 
-“Tiuj homoj certe malbonintencas kontraŭ ni,” 
+“Tiuj homoj certe malbonintencas kontraŭ ni,”
 
-diris Rinkitinko maltrankvile al la knabo. “Tute sen-
+diris Rinkit maltrankvile al la knabo. “Tute sen-
 
-dube ili intencas kapti kaj sklavigi nin.” 
+dube ili intencas kapti kaj sklavigi nin.”
 
 “Ne timu, sinjoro,” respondis Ingo, per trankvila
 
 voĉo. “Restu kviete en la boato kun Bilbilo ĝis mi
 
-estos parolinta kun tiuj homoj.” 
+estos parolinta kun tiuj homoj.”
 
 Li haltigis la boaton kvar metrojn de la bordo, kaj
 
@@ -4528,19 +4274,18 @@ da homoj frontantaj lin. Diris la granda Kapitano
 
 Buzubo malafablavoĉe:
 
-114
 
 Ĉapitro Sep
 
-“Nu, etulo, kiu vi estas? Kaj kial vi aŭdacas veni, 
+“Nu, etulo, kiu vi estas? Kaj kial vi aŭdacas veni,
 
-neinvitite kaj tute sola, al la Insulo Regoso?” 
+neinvitite kaj tute sola, al la Insulo Regoso?”
 
 “Mi estas Ingo, Princo de Pingario,” respondis la
 
 knabo, “kaj mi venis ĉi tien por liberigi miajn ge-
 
-patrojn kaj mian popolon, kiujn vi fie sklavigis.” 
+patrojn kaj mian popolon, kiujn vi fie sklavigis.”
 
 Kiam ili aŭdis tiun aŭdacan parolon granda rido
 
@@ -4552,39 +4297,38 @@ aŭdiĝis de la amaso da batalistoj, kaj kiam la rido
 
 estas ne malbona. Sed kial vi volonte ĵetis vian
 
-kapon en la buŝon de leono? Kiam vi estis libera, 
+kapon en la buŝon de leono? Kiam vi estis libera,
 
 kial vi ne restis libera? Ni ne sciis ke ni lasis eĉ
 
-unu personon en Pingario\! Sed ĉar vi sukcesis
+unu personon en Pingario! Sed ĉar vi sukcesis
 
 eskapi de ni, nu, do estas vere afable veni ĉi tien
 
 tute propravole por esti nia sklavo. Kiu estas la
 
-komika dikulo kun vi?” 
+komika dikulo kun vi?”
 
-“Tiu estas Lia Moŝto, Reĝo Rinkitinko de la
+“Tiu estas Lia Moŝto, Reĝo Rinkit de la
 
 granda Urbo Gilgado. Li akompanis min por
 
 certigi ke vi plene kompensos ĉion ŝtelitan el
 
-Pingario.” 
+Pingario.”
 
-“Eĉ pli bone\!” ridis Buzubo. “Li estos bela sklavo
+“Eĉ pli bone!” ridis Buzubo. “Li estos bela sklavo
 
 por Reĝino Koro, kiu amas tikli dikulojn kaj saltigi
 
-ilin.” 
+ilin.”
 
-Reĝo Rinkitinko pleniĝis per hororo kiam li aŭdis
+Reĝo Rinkit pleniĝis per hororo kiam li aŭdis
 
-115
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-tion, sed la Princo respondis aŭdace kiel antaŭe, 
+tion, sed la Princo respondis aŭdace kiel antaŭe,
 
 dirante:
 
@@ -4598,7 +4342,7 @@ povus kontraŭstari nin, kaj tial mi petas vin cedi vian
 
 urbon kaj vian insulon al ni, por ke ni ne dispremu
 
-vin per nia potenco.” 
+vin per nia potenco.”
 
 La knabo parolis tre serioze kaj fervore, sed liaj
 
@@ -4608,13 +4352,13 @@ de Regoso ridadis Ingo movis la boaton firme sur la
 
 sablan plaĝon kaj elsaltis. Li ankaŭ helpis Rinki-
 
-tinkon eliri, kaj kiam la kapro sen helpo saltis sur
+tn eliri, kaj kiam la kapro sen helpo saltis sur
 
-la sablon, la Reĝo suriris la dorson de Bilbilo, 
+la sablon, la Reĝo suriris la dorson de Bilbilo,
 
 tremante iomete interne sed penante aspekti laŭeble
 
-kuraĝa. 
+kuraĝa.
 
 Estis aro da maldelikataj haroj inter la oreloj de la
 
@@ -4622,9 +4366,9 @@ kapro, kaj tiun Ingo firme tenis per sia maldekstra
 
 mano. La knabo sciis ke la Palruĝa Perlo protektos
 
-ne nur lin sed ĉiun kiun li tuŝas, kontraŭ ĉia damaĝo, 
+ne nur lin sed ĉiun kiun li tuŝas, kontraŭ ĉia damaĝo,
 
-kaj ĉar Rinkitinko estis rajdanta la kapron kaj Ingo
+kaj ĉar Rinkit estis rajdanta la kapron kaj Ingo
 
 tenis sian manon sur la besto, la trio ne estus
 
@@ -4632,7 +4376,6 @@ damaĝebla per io farata de la batalistoj. Sed Kapitano
 
 Buzubo ne sciis tion, kaj la grupo de tri uloj aspektis
 
-116
 
 Ĉapitro Sep
 
@@ -4642,11 +4385,11 @@ ilin. Do li turnis sin al siaj soldatoj kaj kun mangesto
 
 diris:
 
-“Kaptu la entrudiĝintojn\!” 
+“Kaptu la entrudiĝintojn!”
 
-Tuj du aŭ tri el la batalistoj antaŭenpaŝis por obei, 
+Tuj du aŭ tri el la batalistoj antaŭenpaŝis por obei,
 
-sed mirige al ili ili ne povis atingi iun el la tri uloj; 
+sed mirige al ili ili ne povis atingi iun el la tri uloj;
 
 iliaj manoj estis haltigitaj kvazaŭ de nevidebla fera
 
@@ -4654,7 +4397,7 @@ muro. Sen atenti tiujn provojn kapti, Ingo antaŭeniris
 
 malrapide kaj la kapro sampaŝis kun li. Kaj kiam
 
-Rinkitinko vidis ke li estas sekura kontraŭ damaĝo li
+Rinkit vidis ke li estas sekura kontraŭ damaĝo li
 
 faris unu el siaj grandaj gajaj ridoj, kaj tio alarmis la
 
@@ -4674,7 +4417,7 @@ urben, kaj Buzubo devis ĉasi ilin kaj krii
 
 punminacojn antaŭ ol povi haltigi ilin kaj devigi ilin
 
-formi batalvicon. 
+formi batalvicon.
 
 Ĉiuj soldatoj de Regoso portis lancojn kaj
 
@@ -4684,9 +4427,8 @@ glavojn kaj batalhakilojn; do Buzubo ordonis ke ili
 
 restu firme kaj pafu por mortigi la proksimiĝantajn
 
-117
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 fremdulojn. Tion ili penis fari. Ingo estis la plej
 
@@ -4694,9 +4436,9 @@ antaŭa, do la batalisto pafis flugon da akraj sagoj
 
 rekte kontraŭ la bruston de la knabo, dum aliaj
 
-ĵetis siajn longajn lancojn kontraŭ lin. 
+ĵetis siajn longajn lancojn kontraŭ lin.
 
-Ŝajnis al Rinkitinko ke la malgranda Princo nepre
+Ŝajnis al Rinkit ke la malgranda Princo nepre
 
 pereos starante antaŭ tiu hajlo de murdaj ĵetaĵoj; sed
 
@@ -4706,11 +4448,11 @@ kiam la sagoj kaj lancoj atingis pozicion tri
 
 centimetron for de lia korpo ili resaltis kaj falis
 
-sendamaĝe ĉe liaj piedoj. Nek Rinkitinko nek Bilbilo
+sendamaĝe ĉe liaj piedoj. Nek Rinkit nek Bilbilo
 
 estis eĉ plejete damaĝita, kvankam ili staris tute apud
 
-Ingo. 
+Ingo.
 
 Buzubo staris dum momento rigardante la knabon
 
@@ -4718,9 +4460,9 @@ kaj silente mirante. Post tio, rekonsciiĝinte, li kriis per
 
 laŭta voĉo:
 
-“Denove\! Ĉiuj kune, viroj. Neniu iam defios nian
+“Denove! Ĉiuj kune, viroj. Neniu iam defios nian
 
-potencon kaj plu vivos\!” 
+potencon kaj plu vivos!”
 
 Denove flugo da sagoj kaj lancoj rapidis cele la
 
@@ -4730,21 +4472,18 @@ grupiĝis kun siaj kompanoj, la aero dum momento
 
 senlumiĝis pro la mortigaj ĵetaĵoj. Sed denove ĉiuj
 
-falis sendanĝere pro la potenco de la Palruĝa Perlo, 
+falis sendanĝere pro la potenco de la Palruĝa Perlo,
 
 kaj Bilbilo, kiu fariĝis tre kolera pro la provoj damaĝi
 
 lin kaj lian grupon, subite kuris antaŭen, forpuŝante
 
-118
 
-!(images/000085.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
+la tenon de Ingo, kaj kapfrapis la vicon da batalistoj,
 
-la tenon de Ingo, kaj kapfrapis la vicon da batalistoj, 
-
-kiuj staradis mirigite de la malsukceso konkeri. 
+kiuj staradis mirigite de la malsukceso konkeri.
 
 Surprizite de la atako fare de la kapro, dekduo da
 
@@ -4766,7 +4505,7 @@ fine saltis al siaj piedoj kaj kuris kriante, sekvante
 
 siajn venkitajn batalistojn. Tiu kapbato fare de la
 
-kapro estis tre malfacila por Reĝo Rinkitinko, kiu
+kapro estis tre malfacila por Reĝo Rinkit, kiu
 
 preskaŭ falis de la dorso de Bilbilo pro la ŝoko de la
 
@@ -4778,35 +4517,34 @@ kaj tenis laŭeble plej firmege. Nur kiam li aŭdis
 
 Ingon diri triumfe, “Ni venkis en la batalo sen eĉ
 
-unufoje frapi\!” Rinkitinko kuraĝis remalfermi siajn
+unufoje frapi!” Rinkit kuraĝis remalfermi siajn
 
 okulojn. Kaj li vidis la batalistojn kurantaj en la
 
 Urbon Regoson kaj barantaj la pezajn pordegojn, kaj
 
-li multe pli facile spiris pro tiu vidaĵo. 
+li multe pli facile spiris pro tiu vidaĵo.
 
-“Sen eĉ unufoje frapi\!” diris Bilbilo indigne. “Tio
+“Sen eĉ unufoje frapi!” diris Bilbilo indigne. “Tio
 
 ne estas tute vera, Princo Ingo. Vi ne batalis, mi
 
-120
 
 Ĉapitro Sep
 
-agnoskas tion, sed mi plurfoje batis tute bonrezulte, 
+agnoskas tion, sed mi plurfoje batis tute bonrezulte,
 
 kaj mi pretendas esti konkerinta la malkuraĝajn
 
-batalistojn tute sen helpo.” 
+batalistojn tute sen helpo.”
 
-“Vi kaj mi kune, Bilbilo,” diris Rinkitinko milde. 
+“Vi kaj mi kune, Bilbilo,” diris Rinkit milde.
 
 “Sed kiam vi sekvafoje batkuros, bonvolu akurate
 
 antaŭaverti min, por mi deiru de via dorso kaj povu
 
-aklami vin kiel la solan atakinton.” 
+aklami vin kiel la solan atakinton.”
 
 Ĉar neniu nun restis por kontraŭi ilian antaŭ-
 
@@ -4820,15 +4558,15 @@ urbo amaso da batalistoj nun aperis armite per sagoj
 
 kaj lancoj kaj aliaj bataliloj. Ĉar Buzubo iris rekte al
 
-la palaco de Reĝo Goso kaj raportis sian venkiĝon, 
+la palaco de Reĝo Goso kaj raportis sian venkiĝon,
 
 rakontante pri la potenca magio de la knabo kaj de
 
 la dika Reĝo kaj de la kapro, kaj demandis kion fari
 
-ĉisekve. 
+ĉisekve.
 
-La granda kapitano ankoraŭ tremadis pro timo, 
+La granda kapitano ankoraŭ tremadis pro timo,
 
 sed Reĝo Goso ne kredis pri magio, kaj nomis
 
@@ -4838,13 +4576,12 @@ mem komandi siajn soldatojn, kaj li ordonis ke ili
 
 okupu la murojn kaj pafu mortige se iu el la tri
 
-fremduloj proksimiĝos al la pordegoj. 
+fremduloj proksimiĝos al la pordegoj.
 
-Kompreneble nek Rinkitinko nek Bilbilo sciis kiel
+Kompreneble nek Rinkit nek Bilbilo sciis kiel
 
-121
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 ili estis protektitaj kontraŭ damaĝo do unue ili emis
 
@@ -4858,7 +4595,7 @@ savos ilin de damaĝo, ili akceptis obei, ĉar ili nun
 
 jam vidis sufiĉon por konvinkiĝi ke la Princon vere
 
-protektas ia nevidebla potenco. 
+protektas ia nevidebla potenco.
 
 Dum ili proksimiĝis al la pordegoj nova pluvo da
 
@@ -4872,29 +4609,28 @@ maltrankviliĝis, sed li dependis de la forto de siaj
 
 pordegoj kaj ordonis al siaj soldatoj ke ili plu pafadu
 
-ĝis plene eluziĝos ĉiuj iliaj armiloj. 
+ĝis plene eluziĝos ĉiuj iliaj armiloj.
 
 Ingo lasis ilin pafadi laŭvole, dum li staris antaŭ
 
-la grandaj pordegoj kaj ekzamenis ilin zorge. 
+la grandaj pordegoj kaj ekzamenis ilin zorge.
 
 “Eble Bilbilo povos forbati la pordegojn,” sugestis
 
-Rinkitinko. 
+Rinkit.
 
-“Ne,” respondis la kapro; “mia kapo estas dura, 
+“Ne,” respondis la kapro; “mia kapo estas dura,
 
-sed ne pli dura ol fero.” 
+sed ne pli dura ol fero.”
 
 “Do,” respondis la Reĝo, “ni restu ekstere; precipe
 
-ĉar ni ne povas eniri.” 
+ĉar ni ne povas eniri.”
 
-Sed Ingo estis tute ne certa ke ili ne povos eniri. 
+Sed Ingo estis tute ne certa ke ili ne povos eniri.
 
 La pordegoj malfermiĝis internen, kaj tri pezajn
 
-122
 
 Ĉapitro Sep
 
@@ -4902,9 +4638,9 @@ riglilojn tenis en pozicio fortikaj krampoj nititaj al la
 
 ŝtalaj plakoj. Al la knabo estis dirite ke la potenco de
 
-la Blua Perlo ebligos ke li efektivigu ian ajn fortagon, 
+la Blua Perlo ebligos ke li efektivigu ian ajn fortagon,
 
-kaj li kredis ke tio estas vera. 
+kaj li kredis ke tio estas vera.
 
 La batalistoj, komandate de Reĝo Goso, ankoraŭ
 
@@ -4932,7 +4668,7 @@ povus fari tion, sed la malgranda maldika knabo faris
 
 Ingo antaŭenmarŝis en la urbostraton kaj vokis al
 
-Reĝo Goso ke li cedu. 
+Reĝo Goso ke li cedu.
 
 Sed Goso nun estis tiom timoplena kiel liaj batal-
 
@@ -4944,11 +4680,10 @@ landojn, sed jen la malgranda knabo, dikulo kaj
 
 kapro ne estis vundeblaj per lia tuta militlerto, lia
 
-abunda armeo kaj miloj da mortigaj armiloj. Krome, 
+abunda armeo kaj miloj da mortigaj armiloj. Krome,
 
-123
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 ili ne nur defiis la tutan armeon de Reĝo Goso sed
 
@@ -4964,7 +4699,7 @@ malkuraĝulo, kaj nun paniko kaptis lin kaj li turnis
 
 sin kaj fuĝis pro la trankvila antaŭeniro de Princo
 
-Ingo el Pingario. La batalistoj estis kiaj sia mastro, 
+Ingo el Pingario. La batalistoj estis kiaj sia mastro,
 
 kaj ĵetinte ĉiujn armilojn trans la muron kaj estante
 
@@ -4972,7 +4707,7 @@ senhelpaj penante kontraŭi la fremdulojn, ili ĉiuj
 
 svarmis sekvante Goson, kiu forlasis sian urbon kaj
 
-transiris la ponton el boatoj al la Insulo Koregoso. 
+transiris la ponton el boatoj al la Insulo Koregoso.
 
 Okazis fervorega bataktado inter la malkuraĝaj
 
@@ -4988,7 +4723,7 @@ ilin sur sian propran bordon, esperante ke la kvanto
 
 da nekovrita akvo neebligos ke la magiaj invadantoj
 
-sekvu ilin. 
+sekvu ilin.
 
 La humilaj citivanoj kaj servistoj de Regoso, kiuj
 
@@ -4998,13 +4733,8 @@ dum la tuta vivo, ne nur multe miris pro tiu subita
 
 konkeriĝo de siaj mastroj sed multe ĝojis. Dum la
 
-124
 
-!(images/000098.png)
-
-!(images/000104.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Reĝo kaj lia armeo fuĝis al Koregoso, la popolanoj
 
@@ -5012,13 +4742,10 @@ Reĝo kaj lia armeo fuĝis al Koregoso, la popolanoj
 
 ili turnis sin por vidi kiaj estas la konkerintoj de
 
-Regoso. 
+Regoso.
 
-126
 
-!(images/000016.png)
-
-Rinkitinko Grave Eraras
+Rinkit Grave Eraras
 
 ĈAPITRO 8
 
@@ -5034,7 +4761,7 @@ apud li, dum ĉiuj homoj
 
 klinis siajn kapojn humile al siaj novaj mastroj, kiujn
 
-ili pretis servi sammaniere kiel Reĝon Goson. 
+ili pretis servi sammaniere kiel Reĝon Goson.
 
 Eĉ ne unu batalisto restis en la tuta Regoso por
 
@@ -5042,13 +4769,12 @@ kontraŭi la triumfan trion; la ponto el boatoj estis
 
 detruita; Ingo kaj liaj kompanoj estis ekster
 
-danĝero—almenaŭ provizore. 
+danĝero—almenaŭ provizore.
 
 La gaja malgranda Reĝo rekonis tiun fakton kaj
 
-127
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 ĝojis ĉar li eskapis ĉian damaĝon dum la batalo. Kiel
 
@@ -5066,27 +4792,27 @@ kunfaldis siajn brakojn kaj kantis per sia plej bona
 
 voĉo la ĉisekvajn liniojn:
 
-“Ho, jen la armeo de Reĝ’ Rinkitink’\! 
+“Ho, jen la armeo de Reĝ’ Rinkitink’!
 
-Ĝi estas negranda, kaj eĉ ne el zink’\! 
+Ĝi estas negranda, kaj eĉ ne el zink’!
 
 Malamikojn ĝi traktis pli tuje ol ink’—
 
-Rink-i-tink, tink-i-tink, tink\! 
+Rink-i-tink, tink-i-tink, tink!
 
-Heroa la Reĝo, kaj ankaŭ Bilbil’; 
+Heroa la Reĝo, kaj ankaŭ Bilbil’;
 
-Malamikoj forkuris ade po mil; 
+Malamikoj forkuris ade po mil;
 
 Ĉar venkis la ulojn vivanta batil’—
 
-Rink-i-tink, tink-i-tink, tink\!” 
+Rink-i-tink, tink-i-tink, tink!”
 
 “Kial vi ne iomete kreditas Ingon?” demandis la
 
 kapro. “Se mi ĝuste memoras, li mem faris parton de
 
-la konkerado.” 
+la konkerado.”
 
 “Tiel estis,” respondis la Reĝo, “kaj tial mi konigas
 
@@ -5094,13 +4820,12 @@ laŭdon al ni, Bilbilo. Kiuj malplej agas, ofte plej laŭte
 
 proklamas sin kaj tiel ricevas la plejan gloron. Ingo
 
-128
 
 Ĉapitro Ok
 
 faris tiom ke ekzistas danĝero ke oni opinios lin pli
 
-grava ol ni, do plej bone estas tute ne mencii lin.” 
+grava ol ni, do plej bone estas tute ne mencii lin.”
 
 Kiam ili atingis la palacon, kiu estis giganta
 
@@ -5108,13 +4833,13 @@ konstruaĵo, plene meblita per reĝaj grandiozaĵoj, Ingo
 
 formale ekposedis ĝin kaj ordonis al la domestro ke
 
-li gvidu ilin al la plej belaj ĉambroj en la konstruaĵo. 
+li gvidu ilin al la plej belaj ĉambroj en la konstruaĵo.
 
-Estis multaj plaĉaj ĉambraroj, sed Rinkitinko proponis
+Estis multaj plaĉaj ĉambraroj, sed Rinkit proponis
 
 al Ingo ke ili kune uzu unu el la plej grandaj
 
-litĉambroj. 
+litĉambroj.
 
 “Ĉar,” diris li, “ni ne certas ke olda Goso ne
 
@@ -5126,7 +4851,7 @@ danĝero dum mi estas sola, mi povos esti facile
 
 mortigita aŭ kaptita, sed se vi estos apud mi vi povos
 
-savi min kontraŭ damaĝo.” 
+savi mntraŭ damaĝo.”
 
 La knabo rekonis la saĝecon de tiu plano, kaj
 
@@ -5134,29 +4859,28 @@ elektis belan grandan litĉambron sur la dua etaĝo de
 
 la palaco, kaj ordonis ke oni enmetu kaj pretigu du
 
-orajn litojn por Reĝo Rinkitinko kaj li mem. Al
+orajn litojn por Reĝo Rinkit kaj li mem. Al
 
 Bilbilo li donis ĉambraron alifianke de la palaco, kie
 
 servistoj portis al la kapro freŝtonditan herbon kiel
 
-manĝaĵon kaj faris por li molan liton sur kiu kuŝi. 
+manĝaĵon kaj faris por li molan liton sur kiu kuŝi.
 
 Tiun vesperon la knaba Princo kaj la dika Reĝo
 
 festenis tre formale en la altkupola manĝhalo de la
 
-129
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 palaco, kie kvardek servistoj servis ilin. La reĝa
 
-ĉefkuiristo, fervora favorigi la konkerintojn de Regoso, 
+ĉefkuiristo, fervora favorigi la konkerintojn de Regoso,
 
 preparis siajn plej elegantajn kaj plej gustoplenajn
 
-manĝaĵojn por ili, kiujn Rinkitinko manĝis tre
+manĝaĵojn por ili, kiujn Rinkit manĝis tre
 
 grandapetite kaj trovis tiel bonegaj ke li ordonis venigi
 
@@ -5164,17 +4888,17 @@ la reĝan ĉefkuiriston en la bankedhalon kaj donacis
 
 al li oran butonon kiun la Reĝo tondis de sia propra
 
-jako. 
+jako.
 
-“Vi nepre akceptu ĝin,” diris li al la ĉefkuiristo, 
+“Vi nepre akceptu ĝin,” diris li al la ĉefkuiristo,
 
 “ĉar mi mem tiom manĝis ke mi tute ne plu povas
 
-uzi tiun malsupran butonon.” 
+uzi tiun malsupran butonon.”
 
-Al Rinkitinko multege plaĉis denove loĝi en
+Al Rinkit multege plaĉis denove loĝi en
 
-komforta palaco kaj manĝi ĉe bone provizita tablo. 
+komforta palaco kaj manĝi ĉe bone provizita tablo.
 
 Lia ĝojo pligrandiĝis ĉiumomente, tiel ke post kelka
 
@@ -5184,7 +4908,7 @@ detruiĝo de Pingario. Kaj, kvankam li estis multe
 
 timoplena dum la defio fare de Ingo je la armeo de
 
-Reĝo Goso, li nun komencis fari ŝercon el ĝi. 
+Reĝo Goso, li nun komencis fari ŝercon el ĝi.
 
 “Nu, mia knabo,” diris li, “vi vipis la grandan
 
@@ -5196,17 +4920,14 @@ humiliĝis pro timo al via magio, kaj tio memorigas
 
 al mi ke mi devas postuli ke vi klarigu. Kiel vi faris
 
-tion, Ingo? Kaj el kie venis la mirinda magio?” 
+tion, Ingo? Kaj el kie venis la mirinda magio?”
 
-130
 
-!(images/000115.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Eble la Princo saĝe agus se li klarigus la rolon de
 
-la magiaj perloj, sed tiumomente li ne emis fari tion. 
+la magiaj perloj, sed tiumomente li ne emis fari tion.
 
 Anstataŭe, li respondis:
 
@@ -5214,69 +4935,68 @@ Anstataŭe, li respondis:
 
 mi, do bonvolu ne peti ke mi konigu ĝin. Ĉu ne
 
-sufiĉas, por nun, ke la magio savis vin kontraŭ la
+sufiĉas, por nun, ke la magio savis vntraŭ la
 
-morto hodiaŭ?” 
+morto hodiaŭ?”
 
 “Ne kredu min sendanka,” respondis la Reĝo
 
-fervore. “Miliono da lancoj falis sur min de la muro, 
+fervore. “Miliono da lancoj falis sur min de la muro,
 
 kaj pluraj ŝtonoj grandaj kiel montoj, tamen neniu el
 
-ili eĉ vundis min\!” 
+ili eĉ vundis min!”
 
-“La ŝtonoj ne estis grandaj kiel montoj, sinjoro,” 
+“La ŝtonoj ne estis grandaj kiel montoj, sinjoro,”
 
 diris la Princo ridetante. “Ili estis, efektive, ne pli
 
-grandaj ol via kapo.” 
+grandaj ol via kapo.”
 
-“Ĉu vi estas certa pri tio?” demandis Rinkitinko. 
+“Ĉu vi estas certa pri tio?” demandis Rinkit.
 
-“Plene certa, Via Moŝto.” 
+“Plene certa, Via Moŝto.”
 
-“Kiom trompas aspektoj\!” ĝemis la Reĝo. “Ĉi tiu
+“Kiom trompas aspektoj!” ĝemis la Reĝo. “Ĉi tiu
 
-kvereleto memorigas al mi la rakonton pri Tom Tiko, 
+kvereleto memorigas al mi la rakonton pri Tom Tiko,
 
-kiun mia patro ofte rakontis al mi.” 
+kiun mia patro ofte rakontis al mi.”
 
-“Mi neniam aŭdis tiun rakonton,” Ingo respondis. 
+“Mi neniam aŭdis tiun rakonton,” Ingo respondis.
 
 “Nu, kiel li rakontis ĝin, ĝi estas tia:
 
-“Tom eliris kaj rigardis, 
+“Tom eliris kaj rigardis,
 
-Petola kulo lin ekgardis; 
+Petola kulo lin ekgardis;
 
-132
 
 Ĉapitro Ok
 
-Sed Tom ne sciis ke jen kul’, 
+Sed Tom ne sciis ke jen kul’,
 
-‘Jen kato\!’ diris lia okul’. 
+‘Jen kato!’ diris lia okul’.
 
-“Ĝi pikis, vere granda ĝi\! 
+“Ĝi pikis, vere granda ĝi!
 
-‘Ĉu porko?’ sin demandis li. 
+‘Ĉu porko?’ sin demandis li.
 
-Li tiam aŭdis ĝin muĝanta, 
+Li tiam aŭdis ĝin muĝanta,
 
-Kaj kriis: ‘Ho, ja elefanta\!’
+Kaj kriis: ‘Ho, ja elefanta!’
 
 “Sed—jen de l’ kulo reelflugo
 
-Doloro ĉesis en la pugo, 
+Doloro ĉesis en la pugo,
 
-Li diris: ‘Estis, ho okul’, 
+Li diris: ‘Estis, ho okul’,
 
-Malgranda, eta, eta pul’.’ ” 
+Malgranda, eta, eta pul’.’ ”
 
 “Vere,” diris Ingo, ridante, “la kulo estis tre simila
 
-al la ŝtonoj kiuj ŝajnis grandaj kiel montoj.” 
+al la ŝtonoj kiuj ŝajnis grandaj kiel montoj.”
 
 Post sia manĝo ili inspektis la palacon, kiu estis
 
@@ -5284,9 +5004,9 @@ plena de rabaĵoj ŝtelitaj de Reĝo Goso el multaj
 
 nacioj. Sed la tageventoj lacigis ilin kaj ili enlitiĝis
 
-frue en sia granda dormoĉambro. 
+frue en sia granda dormoĉambro.
 
-“En la mateno,” diris la knabo al Rinkitinko, dum
+“En la mateno,” diris la knabo al Rinkit, dum
 
 li senvestis sin por enlitiĝi, “mi komencos serĉi miajn
 
@@ -5294,17 +5014,16 @@ patron kaj patrinon kaj la Pingarianojn. Kaj, trovinte
 
 kaj savinte ilin, ni ĉiuj reiros hejmen, kaj estos feliĉaj
 
-kiel antaŭe.” 
+kiel antaŭe.”
 
-133
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Ili zorge riglis la pordon de sia ĉambro, por ke
 
 neniu eniru, kaj poste eniris siajn litojn, kie Rinki-
 
-tinko tuj endormiĝis. La knabo kuŝis veka dum kelka
+t tuj endormiĝis. La knabo kuŝis veka dum kelka
 
 tempo pripensante la tagaventurojn, sed baldaŭ ankaŭ
 
@@ -5316,21 +5035,21 @@ sunradio lumis en liajn okulojn, rampinte en la
 
 ĉambron tra la malferma fenestro apud la lito de
 
-Reĝo Rinkitinko. 
+Reĝo Rinkit.
 
 Decidinte komenci serĉi siajn gepatrojn tute sen
 
 nenecesa prokrasto, Ingo tuj eliris la liton kaj
 
-komencis vesti sin, dum Rinkitinko, en la alia lito, 
+komencis vesti sin, dum Rinkit, en la alia lito,
 
 ankoraŭ dormis pace. Sed kiam la knabo surmetis
 
-ambaŭ siajn ŝtrumpojn kaj komencis serĉi siajn ŝuojn, 
+ambaŭ siajn ŝtrumpojn kaj komencis serĉi siajn ŝuojn,
 
 li povis trovi nur unu. La maldekstra ŝuo, en kiu estis
 
-la Palruĝa Perlo, mankis. 
+la Palruĝa Perlo, mankis.
 
 Plena de maltrankvilo pro tiu trovo, Ingo traserĉis
 
@@ -5344,41 +5063,38 @@ pordon, kaj trovis ĝin ankoraŭ riglita; do, pli kaj pli
 
 maltrankvile, la knabo devis agnoski ke la valora ŝuo
 
-ne estas en la ĉambro. 
+ne estas en la ĉambro.
 
-Kun koro forte batanta li vekis sian kompanon. 
+Kun koro forte batanta li vekis sian kompanon.
 
-134
 
-!(images/000092.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
+“Reĝo Rinkit,” diris li, “ĉu vi scias kio okazis
 
-“Reĝo Rinkitinko,” diris li, “ĉu vi scias kio okazis
+al mia maldekstra ŝuo?”
 
-al mia maldekstra ŝuo?” 
-
-“Via ŝuo\!” krietis la Reĝo, larĝe oscedante kaj
+“Via ŝuo!” krietis la Reĝo, larĝe oscedante kaj
 
 frotante siajn okulojn por eligi la dormon. “Ĉu vi
 
-perdis ŝuon?” 
+perdis ŝuon?”
 
 “Jes,” diris Ingo. “Mi serĉis ĉie en la ĉambro, kaj
 
-ne povas trovi ĝin.” 
+ne povas trovi ĝin.”
 
 “Sed kial ĝeni min pri tia trivialaĵo?” demandis
 
-Rinkitinko. “Ŝuo estas nur ŝuo, kaj vi facile ricevos
+Rinkit. “Ŝuo estas nur ŝuo, kaj vi facile ricevos
 
-novan. Sed, jen\! Eble vian ŝuon mi ĵetis kontraŭ la
+novan. Sed, jen! Eble vian ŝuon mi ĵetis kontraŭ la
 
-katon dum la nokto.” 
+katon dum la nokto.”
 
-“La katon\!” kriis Ingo. “Kio okazis?” 
+“La katon!” kriis Ingo. “Kio okazis?”
 
-“Nu, dum la nokto,” klarigis Rinkitinko, sidiĝante
+“Nu, dum la nokto,” klarigis Rinkit, sidiĝante
 
 kaj komencante vesti sin, “min vekis la miaŭado de
 
@@ -5386,25 +5102,22 @@ kato sidanta sur muro de la palaco tuj ekster mia
 
 fenestro. Ĉar la bruo ĝenis min, mi en la mallumo
 
-etendis manon kaj prenis ion kaj ĵetis ĝin kontraŭ la
+etendis manon kaj prenis ion kaj ĵetis ĝntraŭ la
 
 katon, por fortimigi la beston. Mi ne sciis kion mi
 
-ĵetas, kaj mi estis tro dormema, do ne gravis al mi; 
+ĵetas, kaj mi estis tro dormema, do ne gravis al mi;
 
-sed verŝajne mi ĵetis vian ŝuon, ĉar nun ĝi mankas.” 
+sed verŝajne mi ĵetis vian ŝuon, ĉar nun ĝi mankas.”
 
 “Do,” diris la knabo, per senespera voĉtono, “via
 
 malzorgemo ruinigis min kaj ankaŭ vin, Reĝo Rinki-
 
-tinko, ĉar en tiu ŝuo estis kaŝita la magia forto kiu
+t, ĉar en tiu ŝuo estis kaŝita la magia forto kiu
 
-protektis nin kontraŭ danĝero.” 
+protektis nntraŭ danĝero.”
 
-136
-
-!(images/000037.jpg)
 
 Ĉapitro Ok
 
@@ -5412,9 +5125,9 @@ La vizaĝo de la Reĝo fariĝis tre seriozaspekta kiam
 
 li aŭdis tion kaj li nelaŭte fajfis pro surpriziĝo kaj
 
-bedaŭro. 
+bedaŭro.
 
-“Jadi\! Kial vi ne avertis min pri tio?” li demandis
+“Jadi! Kial vi ne avertis min pri tio?” li demandis
 
 tre malkviete. “Kaj kial vi gardis tiom necesan povon
 
@@ -5424,19 +5137,19 @@ kapkusenon? Vi ege eraris, mia knabo, kiam vi ne
 
 konfidis la sekreton al mi, via fidela amiko, ĉar
 
-tiuokaze la ŝuo ne estus nun perdita.” 
+tiuokaze la ŝuo ne estus nun perdita.”
 
 Al ĉio ĉi Ingo ne povis respondi. Li sidis sur la flanko
 
 de sia lito, kun pendanta kapo, plene senkonsola, kaj
 
-vidante tion, Rinkitinko kompatis lin pro lia malfeliĉo. 
+vidante tion, Rinkit kompatis lin pro lia malfeliĉo.
 
-“Sed jen\!” kriis la Reĝo; “ni tuj eliru kaj serĉu la
+“Sed jen!” kriis la Reĝo; “ni tuj eliru kaj serĉu la
 
 ŝuon kiun mi ĵetis kontraŭ la katon. Sendube ĝi
 
-ankoraŭ nun kuŝas sur la korto de la palaco.” 
+ankoraŭ nun kuŝas sur la korto de la palaco.”
 
 Tiu propono vigligis la knabon. Li tuj malfermis
 
@@ -5444,11 +5157,11 @@ la pordon kaj havante sur siaj piedoj nur ŝtrumpojn
 
 li kuris malsupren laŭ la ŝtuparo, tuj sekvate de
 
-Rinkitinko. Sed kvankam ili serĉis ambaŭflanke de la
+Rinkit. Sed kvankam ili serĉis ambaŭflanke de la
 
 muro de la palaco kaj en ĉiu ebla fendeto kaj angulo
 
-kie ŝuo povus troviĝi, ili malsukcesis trovi ĝin. 
+kie ŝuo povus troviĝi, ili malsukcesis trovi ĝin.
 
 Post duonhoro da zorga serĉado la knabo diris
 
@@ -5456,13 +5169,12 @@ lamente:
 
 “Nepre iu trapasis, dum ni dormis, kaj prenis la
 
-137
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 necesegan ŝuon, ne sciante ĝian valoron. Por ni, Reĝo
 
-Rinkitinko, ĉi tio estos aĉa misfortuno, ĉar nin
+Rinkit, ĉi tio estos aĉa misfortuno, ĉar nin
 
 ĉirkaŭas danĝeroj kontraŭ kiuj ni nun havas nenian
 
@@ -5470,9 +5182,9 @@ protekton. Bonfortune mi havas ankoraŭ la alian
 
 ŝuon, en kiu estas la magia povo kiu donas al mi
 
-forton; do ne ĉio estas perdita.” 
+forton; do ne ĉio estas perdita.”
 
-Kaj li rakontis al Rinkitinko, per nemultaj vortoj, 
+Kaj li rakontis al Rinkit, per nemultaj vortoj,
 
 la sekreton pri la mirindaj perloj, kaj kiel li retrovis
 
@@ -5484,71 +5196,70 @@ el Regoso kaj kapti la urbon. La Reĝo miregis, kaj
 
 post la fino de la rakonto li diris al Ingo:
 
-“Kion vi faris pri la alia ŝuo?” 
+“Kion vi faris pri la alia ŝuo?”
 
 “Nu, mi lasis ĝin en nia litĉambro,” respondis la
 
-knabo. 
+knabo.
 
 “Do mi konsilas ke vi tuj iru preni ĝin,” pludiris
 
-Rinkitinko “ĉar nin forte ĉagrenus perdi la duan ŝuon, 
+Rinkit “ĉar nin forte ĉagrenus perdi la duan ŝuon,
 
-kaj ne nur tiun kiun mi ĵetis kontraŭ la katon.” 
+kaj ne nur tiun kiun mi ĵetis kontraŭ la katon.”
 
-“Vi pravas\!” kriis Ingo, kaj ili retrorapidis al sia
+“Vi pravas!” kriis Ingo, kaj ili retrorapidis al sia
 
-litĉambro. 
+litĉambro.
 
 Enirante la ĉambron ili trovis maljunulinon
 
-balanta kaj disflugiganta multan polvon. 
+balanta kaj disflugiganta multan polvon.
 
-“Kie estas mia ŝuo?” demandis la Princo, malkviete. 
+“Kie estas mia ŝuo?” demandis la Princo, malkviete.
 
-La maljunulino ĉesis balai kaj rigardis lin stulte, 
+La maljunulino ĉesis balai kaj rigardis lin stulte,
 
-138
 
 Ĉapitro Ok
 
-ĉar ŝi ne estis tre inteligenta. 
+ĉar ŝi ne estis tre inteligenta.
 
 “Ĉu vi parolas pri la sola senpara ŝuo kuŝinta sur
 
-la planko kiam mi eniris?” ŝi fine demandis. 
+la planko kiam mi eniris?” ŝi fine demandis.
 
-“Jes—jes\!” respondis la knabo. “Kie ĝi estas? Diru
+“Jes—jes!” respondis la knabo. “Kie ĝi estas? Diru
 
-al mi kie ĝi estas\!” 
+al mi kie ĝi estas!”
 
 “Nu, mi ĵetis ĝin en la rubaĵojn, ekster la
 
 malantaŭa barilo,” diri ŝi, “ĉar ĝi estis nur sola ŝuo
 
-senpara, do ĝi estas tute senutila.” 
+senpara, do ĝi estas tute senutila.”
 
-“Montru al ni la vojon al la rubaĵoj—tuj\!” ordonis
+“Montru al ni la vojon al la rubaĵoj—tuj!” ordonis
 
 la knabo severe, ĉar lin multe timigis tiu nova mis-
 
-fortuno minacanta lin. 
+fortuno minacanta lin.
 
-La maljunulino forlamis kaj ili sekvis ŝin, 
+La maljunulino forlamis kaj ili sekvis ŝin,
 
 konstante urĝante ŝin rapidi; sed kiam ili atingis la
 
-rubaĵojn neniu ŝuo troveblis. 
+rubaĵojn neniu ŝuo troveblis.
 
-“Estas terure\!” lamentegis la juna Princo, preta
+“Estas terure!” lamentegis la juna Princo, preta
 
 plori pro la perdo. “Ni nun estas plene ruinigitaj, kaj
 
 subigitaj al niaj malamikoj. Nek mi povos liberigi
 
-miajn karajn patron kaj patrinon.” 
+miajn karajn patron kaj patrinon.”
 
-“Nu,” respondis Rinkitinko, apogante sin per mal-
+“Nu,” respondis Rinkit, apogante sin per mal-
 
 nova barelo kaj aspektante tre solena, “la okazo estas
 
@@ -5560,15 +5271,14 @@ la rubaĵoj, forportis ĝin. Sed neniu povus scii pri la
 
 magia povo kiun la ŝuo enhavas kaj sekve ne uzos
 
-139
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-ĝin kontraŭ ni. Mi kredas, Ingo, ke ni devas de nun
+ĝntraŭ ni. Mi kredas, Ingo, ke ni devas de nun
 
 dependi de niaj intelektoj por liberigi nin el nia nuna
 
-katastrofa situacio.” 
+katastrofa situacio.”
 
 Kun malĝojaj koroj ili reiris al la palaco, kaj
 
@@ -5580,7 +5290,7 @@ el ĝia silka sako kaj tenis ĝin apud sia orelo, kaj
 
 demandis:
 
-“Kion mi faru nun?” 
+“Kion mi faru nun?”
 
 “Informu neniun pri via perdo,” respondis la Voĉo
 
@@ -5588,11 +5298,11 @@ de la Perlo. “Se viaj malamikoj ne scios ke vi estas
 
 senpova, ili timos vin same kiel ĝis nun. Gardu la
 
-sekreton, estu pacienca, kaj ne timu\!” 
+sekreton, estu pacienca, kaj ne timu!”
 
 Ingo obeis tiun konsilon kaj ankaŭ avertis Rinki-
 
-tinkon diri nenion al iu ajn pri la perdiĝo de la ŝuoj
+tn diri nenion al iu ajn pri la perdiĝo de la ŝuoj
 
 kaj la magiaj povoj en ili. Li alvokis la ŝufariston de
 
@@ -5600,9 +5310,9 @@ Reĝo Goso, kiu baldaŭ portis al li novan paron da
 
 ruĝaj ledaj ŝuoj kiuj tre bone taŭgis al li. Metinte ilin
 
-sur siajn piedojn, la Princo, akompanate de la Reĝo, 
+sur siajn piedojn, la Princo, akompanate de la Reĝo,
 
-komencis marŝi tra la urbo. 
+komencis marŝi tra la urbo.
 
 Kien ajn ili iris oni klinis sin profunde antaŭ la
 
@@ -5612,9 +5322,6 @@ forton de Ingo, forkuris timante kaj tremante. Ili
 
 kutimis al severaj mastroj kaj ankoraŭ ne sciis kiel ilin
 
-140
-
-!(images/000080.png)
 
 Ĉapitro Ok
 
@@ -5622,9 +5329,9 @@ traktos la posteulo de Reĝo Goso. Ĉar ne estis bezono
 
 uzi la povojn montritajn dum la antaŭa tago, lian
 
-nunan senhelpecon ne suspektis iu ajn el la Regosanoj, 
+nunan senhelpecon ne suspektis iu ajn el la Regosanoj,
 
-kiuj ankoraŭ konsideris lin mirinda magiisto. 
+kiuj ankoraŭ konsideris lin mirinda magiisto.
 
 Ingo ne kuraĝis perforte eniri la minojn, nun-
 
@@ -5638,11 +5345,11 @@ sin tre pompe en la reĝa palaco li komencis regi la
 
 popolon afable, komplezante al eĉ la plej humilaj
 
-homoj. 
+homoj.
 
 La Reĝo de Regoso kaj liaj sekvantoj transsendis
 
-spionojn al la insulo kiun ili forlasis dum sia fuĝo, 
+spionojn al la insulo kiun ili forlasis dum sia fuĝo,
 
 kaj tiuj spionoj retroiris por informi ke la terura
 
@@ -5656,11 +5363,8 @@ kaj treme, kaj penis komploti kaj plani metodojn
 
 superforti la Princon de Pingario kaj la dikan Reĝon
 
-de Gilgado. 
+de Gilgado.
 
-141
-
-!(images/000053.png)
 
 Donaco por Zella
 
@@ -5674,9 +5378,9 @@ la Princo de Pingario
 
 spertis la perdiĝon de siaj
 
-senprezaj 
+senprezaj
 
-ŝuoj, 
+ŝuoj,
 
 ke
 
@@ -5684,7 +5388,7 @@ hazarde laŭlonge de la vojo kiu bordis la flankon de
 
 la reĝa palaco, marŝis malriĉa braĝobruligisto nomata
 
-Nikoroĉjo, kiu intencis reiri al sia hejmo en la arbaro. 
+Nikoroĉjo, kiu intencis reiri al sia hejmo en la arbaro.
 
 Nikoroĉjo kunportis hakilon kaj faskon da torĉoj
 
@@ -5694,11 +5398,10 @@ estis profunde pensanta pri la stranga maniero laŭ kiu
 
 potenca Reĝo Goso kaj lia urbo estis konkeritaj de
 
-142
 
 Ĉapitro Naŭ
 
-knaba Princo kiu venis el Pingario. 
+knaba Princo kiu venis el Pingario.
 
 Subite la braĝobruligisto ekvidis ŝuon kuŝantan sur
 
@@ -5708,15 +5411,15 @@ antaŭ li. Li prenis ĝin kaj, vidinte ke ĝi estas bela
 
 ŝuo, kvankam multe tro malgranda por lia propra
 
-piedo, li metis ĝin en sian poŝon. 
+piedo, li metis ĝin en sian poŝon.
 
-Nelonge poste, ĉirkaŭirinte angulon de la muro, 
+Nelonge poste, ĉirkaŭirinte angulon de la muro,
 
 Nikoroĉjo atingis rubaĵaron kie, kuŝanta inter amaso
 
 da rubaĵoj, estis alia ŝuo—la parulo de tiu kiun li
 
-jam antaŭe trovis. Ankaŭ tiun li metis en sian poŝon, 
+jam antaŭe trovis. Ankaŭ tiun li metis en sian poŝon,
 
 dirante al si:
 
@@ -5724,19 +5427,19 @@ dirante al si:
 
 Zella, al kiu multe plaĉos trovi ke mi portis al ŝi
 
-donacon el la urbo.” 
+donacon el la urbo.”
 
 Kaj dum la braĝobruligisto turnis sin en la arbaron
 
 kaj paŝadis laŭ la pado cele sian hejmon, Ingo kaj
 
-Rinkitinko ankoraŭ serĉadis la mankantajn ŝuojn. 
+Rinkit ankoraŭ serĉadis la mankantajn ŝuojn.
 
 Kompreneble ili ne sciis ke Nikoroĉjo trovis ilin, nek
 
 la honestulo supozis ke li prenis ion pli valoran ol
 
-paron da forĵetitaj ŝuoj kiujn neniu deziras. 
+paron da forĵetitaj ŝuoj kiujn neniu deziras.
 
 Nikoroĉjo devis marŝi plurajn kilometrojn tra la
 
@@ -5746,15 +5449,14 @@ arbaro antaŭ ol povi atingi la malgrandan kabanon el
 
 lia filineto Zella, sed li kutimis al longa marŝado kaj
 
-143
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-paŝadis laŭ la pado gaje fajfante por distri sin. 
+paŝadis laŭ la pado gaje fajfante por distri sin.
 
 Malmultaj homoj, kiel mi jam diris, iam trairis la
 
-senlumajn kaj kunplektiĝintajn arbarojn de Regoso, 
+senlumajn kaj kunplektiĝintajn arbarojn de Regoso,
 
 krom por iri al la minoj en la pretera monto, ĉar
 
@@ -5764,7 +5466,7 @@ multaj danĝeraj bestoj kaŝis sin en la sovaĝaj
 
 mesaĝiston al la minoj, ĉu aŭ ne tiu sekure alvenos
 
-tien. 
+tien.
 
 Tamen la braĝobruligisto bone konis la sovaĝan
 
@@ -5786,9 +5488,9 @@ pli duraj kaj ĝiaj makzeloj fariĝis pli larĝaj kaj ĝiaj
 
 dentoj fariĝis pli akraj kaj ĝia apetito fariĝis pli
 
-vorema ol iam antaŭe. 
+vorema ol iam antaŭe.
 
-Dum antaŭaj epokoj estis multaj drakoj en Regoso, 
+Dum antaŭaj epokoj estis multaj drakoj en Regoso,
 
 sed Ĉogenmugero tiom amis la drakojn ke li manĝis
 
@@ -5798,17 +5500,14 @@ kaj krokodiloj en la arbarmarĉoj, sed ĉiun voris la
 
 malsata Ĉogenmugero. La popolo de Regoso bone
 
-144
 
-!(images/000102.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 sciis ke ne utilas kontraŭi la Grandan Beston, do
 
 kiam iu el ili misfortune renkontis ĝin li kalkulis sin
 
-jam pereinta. 
+jam pereinta.
 
 Ĉion ĉi Nikoroĉjo bone sciis, sed la sorto ĉiam
 
@@ -5826,11 +5525,11 @@ subite li aŭdis la bruadon de rompiĝantaj arboj kaj
 
 sentis tremadon de la tero kaj vidis la gigantajn
 
-makzelojn de Ĉogenmugero malfermiĝi antaŭ li. 
+makzelojn de Ĉogenmugero malfermiĝi antaŭ li.
 
 Tiam Nikoroĉjo kalkulis sin pereinta kaj lia koro
 
-preskaŭ ĉesis batadi. 
+preskaŭ ĉesis batadi.
 
 Li kredis ke ne eblas eskapi. Neniu iam kuraĝis
 
@@ -5842,7 +5541,7 @@ manĝata malgraŭ protestoj. Do li levis sian hakilon
 
 kaj faligis ĝin sur la ruĝan etendiĝantan langon de la
 
-monstro—kaj plene fortranĉis ĝin\! 
+monstro—kaj plene fortranĉis ĝin!
 
 Dummomente la braĝobruligisto apenaŭ kredis
 
@@ -5852,7 +5551,6 @@ kiujn li portas en sia poŝo nek pri la magia povo kiun
 
 ili donas al lia brako. Tamen, lia sukceso kuraĝigis
 
-146
 
 Ĉapitro Naŭ
 
@@ -5860,7 +5558,7 @@ lin denove bati, kaj ĉifoje la giganta skvamokovrita
 
 makzelo de Ĉogenmugero estis splitita kaj la besto
 
-kriegis pro teruriĝoplena kolero. 
+kriegis pro teruriĝoplena kolero.
 
 Nikoroĉjo deprenis sian mantelon, por ebligi al si
 
@@ -5874,7 +5572,7 @@ kolere gapantaj fiokuloj, kaj Nikoroĉjo ekprenis sian
 
 mantelon kaj metis ĝin sub sian brakon kaj turnis sin
 
-por fuĝi. 
+por fuĝi.
 
 Tiu estis malsaĝa ago, ĉar Ĉogenmugero povis kuri
 
@@ -5890,39 +5588,38 @@ en la poŝo de la mantelo estis la ŝuoj de Ingo, kaj
 
 en la pintoj de la ŝuoj estis la magiaj perloj. Trovinte
 
-sin sendifekta, Nikoroĉjo surmetis sian mantelon, 
+sin sendifekta, Nikoroĉjo surmetis sian mantelon,
 
 denove prenis sian hakilon, kaj post nelonge jam
 
 dispecigis Ĉogenmugeron—tasko kiu montriĝis ne
 
-nur facila sed tre agrabla. 
+nur facila sed tre agrabla.
 
 “Sendube mi estas la plej forta homo en la tuta
 
-mondo\!” pensis la braĝobruligisto, dum li fiere
+mondo!” pensis la braĝobruligisto, dum li fiere
 
 rekomencis marŝi, “ĉar Ĉogenmugero estas la
 
-147
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-teroranto de Regoso ekde la komenco de la mondo, 
+teroranto de Regoso ekde la komenco de la mondo,
 
 kaj nur mi sola kapablis detrui la beston. Tamen estas
 
 kurioze ke neniam antaŭ nun mi trovis kiom forta
 
-persono mi estas.” 
+persono mi estas.”
 
 Li renkontis neniun plian aventuron kaj je la
 
 tagmezo li atingis malgrandan klaran spacon en la
 
-arbaro kie staras lia modesta kabano. 
+arbaro kie staras lia modesta kabano.
 
-“Bonan informon\! Mi havas bonegajn informojn
+“Bonan informon! Mi havas bonegajn informojn
 
 por vi,” li kriis, dum liaj edzino kaj filineto venis
 
@@ -5932,7 +5629,7 @@ Princo de la fora insulo Pingario, kaj mi hodiaŭ
 
 mem—sen helpo—detruis Ĉogenmugeron per la forto
 
-de mia brako.” 
+de mia brako.”
 
 Tio ja estis bonega informo. Ili kondukis
 
@@ -5944,25 +5641,22 @@ Pingario kaj la dika Reĝo de Gilgado, kaj ankaŭ la
 
 detalojn de sia mirinda batalo kontraŭ potenca
 
-Ĉogenmugero. 
+Ĉogenmugero.
 
 “Kaj nun, mia filino,” diris la braĝobruligisto, kiam
 
-li jam la trian fojon rakontis ĉiujn siajn informojn, 
+li jam la trian fojon rakontis ĉiujn siajn informojn,
 
-“jen bela donaco kiun mi portis al vi el la urbo.” 
+“jen bela donaco kiun mi portis al vi el la urbo.”
 
 Dirante tion li tiris la ŝuojn el la poŝo de sia
 
 mantelo kaj transdonis ilin al Zella, kiu dekdufoje
 
-148
 
-!(images/000061.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-kisis lin kiel page kaj al kiu multe plaĉis la donaco. 
+kisis lin kiel page kaj al kiu multe plaĉis la donaco.
 
 La knabineto neniam antaŭe surhavis ŝuojn, ĉar ŝiaj
 
@@ -5974,9 +5668,9 @@ multe uzitaj, ĝojplenigis la koron de la infano. Ŝi
 
 admiris la ruĝan ledon kaj la gracian bukliĝon de la
 
-pintaj piedfingroj. Kiam ŝi provis ilin sur siaj piedoj, 
+pintaj piedfingroj. Kiam ŝi provis ilin sur siaj piedoj,
 
-ili taŭgis kvazaŭ specife faritaj por ŝi. 
+ili taŭgis kvazaŭ specife faritaj por ŝi.
 
 La tutan posttagmezon, dum ŝi helpis sian
 
@@ -5986,9 +5680,9 @@ belaj ŝuoj. Ili ŝajnis pli gravaj al ŝi ol la veno al
 
 Regoso de la konkeranta Princo de Pingario, aŭ eĉ la
 
-morto de Ĉogenmugero. 
+morto de Ĉogenmugero.
 
-Kiam Zella kaj ŝia patrino ne laboris en la kabano, 
+Kiam Zella kaj ŝia patrino ne laboris en la kabano,
 
 kuirante aŭ kudrante, ili ofte traserĉis la najbaran
 
@@ -6000,17 +5694,16 @@ Nikoroĉjo, dum ili eliris denove serĉi mielon, Zella
 
 decidis surmeti siajn novajn ŝuojn, ĉar ili protektos
 
-ŝiajn piedojn kontraŭ la vergetoj kiuj kovras la teron. 
+ŝiajn piedojn kontraŭ la vergetoj kiuj kovras la teron.
 
 Ŝi kutimis al la vergetoj, kompreneble, sed kiel utilas
 
-belaj komfortaj ŝuoj, se oni ne uzas ilin? 
+belaj komfortaj ŝuoj, se oni ne uzas ilin?
 
 Do ŝi dance promenis, tre feliĉe, sekvate de sia
 
 patrino, kaj baldaŭ ili atingis arbon en kiu estas
 
-150
 
 Ĉapitro Naŭ
 
@@ -6018,13 +5711,13 @@ profunda kavaĵo. Zella enmetis siajn manon kaj
 
 brakon en la spacon kaj trovis la arbon plena de
 
-mielo, do ŝi komencis elfosi ĝin per ligna padeleto. 
+mielo, do ŝi komencis elfosi ĝin per ligna padeleto.
 
 Ŝia patrino, kiu tenis la sitelon, subite kriis averte:
 
-“Atentu, Zella; la abeloj venas\!” kaj tuj la bonulino
+“Atentu, Zella; la abeloj venas!” kaj tuj la bonulino
 
-kuris rapide cele la domon por eskapi. 
+kuris rapide cele la domon por eskapi.
 
 Tamen Zella ne havis tempon pli ol sufiĉe por turni
 
@@ -6032,7 +5725,7 @@ sian kapon kiam densa abelsvarmo ekĉirkaŭis ŝin, kaj
 
 la abeloj koleris ĉar ili trovis ŝin ŝtelanta ilian mielon
 
-kaj ili firme\* intencis piki la knabinon pune. Ŝi konis
+kaj ili firme* intencis piki la knabinon pune. Ŝi konis
 
 la danĝeron kaj anticipis grave vundiĝi per la amaso
 
@@ -6044,7 +5737,7 @@ sagetsimilajn pikojn en ŝian karnon. Ili svarmadis
 
 ĉirkaŭ ŝi kvazaŭ obskura nubo, kaj ilia kolera zumado
 
-estis terursona, sed la knabineto restis nevundita. 
+estis terursona, sed la knabineto restis nevundita.
 
 Ekrekonante tion, Zella ne plu timis sed plu
 
@@ -6052,19 +5745,18 @@ elĉerpis mielon ĝis ŝi havis ĉiom kiom estis en la
 
 arbo. Post tio ŝi reiris al la kabano, kie ŝia patrino
 
-ploradas kaj lamentas la sorton de sia amata infano, 
+ploradas kaj lamentas la sorton de sia amata infano,
 
 kaj la bonulinon multe mirigis la trovo ke Zella
 
-eskapis senvunde. 
+eskapis senvunde.
 
 Denove ili eniris la arbaron por serĉi mielon, kaj
 
 kvankam la patrino ĉiam forkuris kiam ajn la abeloj
 
-151
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 alproksimiĝis, Zella tute ne atentis la bestetojn sed
 
@@ -6072,27 +5764,27 @@ daŭris labori, tiel ke antaŭ la horo por la
 
 vespermanĝo la siteloj estis denove superfluantaj per
 
-bongustega mielo. 
+bongustega mielo.
 
-“Pro tia bonfortuno kiel hodiaŭ,” diris ŝia patrino, 
+“Pro tia bonfortuno kiel hodiaŭ,” diris ŝia patrino,
 
 “ni baldaŭ kolektos sufiĉan mielon por ke vi portu
 
 ĝin al Reĝino Koro.” Ĉar montriĝas ke la fireĝino tre
 
-amis mielon kaj Zella kutimis, unufoje dum ĉiu jaro, 
+amis mielon kaj Zella kutimis, unufoje dum ĉiu jaro,
 
 iri al la Urbo Koregoso, por porti al la Reĝino
 
 provizon da dolĉa mielo por ŝia tablo. Kutime ŝi
 
-alportis nur unu sitelon. 
+alportis nur unu sitelon.
 
 “Sed ĉifoje,” diris Zella, “mi povos alporti du
 
 sitelojn al la Reĝino, kiu certe pagos bonan prezon
 
-pro ĝi.” 
+pro ĝi.”
 
 “Estas vere,” respondis ŝia patrino, “kaj, ĉar la
 
@@ -6104,19 +5796,16 @@ komencu vian veturon al Reĝino Koro morgaŭ
 
 matene. Ĉu vi ne akordas kun mi, Nikoroĉjo?” ŝi
 
-pludiris, turnante sin al sia edzo, la braĝobruligisto, 
+pludiris, turnante sin al sia edzo, la braĝobruligisto,
 
-kiu vespermanĝas. 
+kiu vespermanĝas.
 
 “Mi samopinias,” li respondis. “Se Zella iru al la
 
 Urbo Koregoso, estos bone ke ŝi komencu morgaŭ
 
-matene.” 
+matene.”
 
-152
-
-!(images/000018.png)
 
 La Ruzeco de Reĝino Koro
 
@@ -6144,17 +5833,16 @@ Reĝino Koro kaj troplenigis la domojn de ŝiaj propraj
 
 regatoj, kiuj grumblis kaj plendis ĝis ilia Reĝino plene
 
-enuis pro tio. 
+enuis pro tio.
 
-153
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Fi\!” ŝi diris al sia edzo, Reĝo Goso, “vi estas pelita
+“Fi!” ŝi diris al sia edzo, Reĝo Goso, “vi estas pelita
 
-el via urbo de knabo, ridinde dika Reĝo kaj virkapro\! 
+el via urbo de knabo, ridinde dika Reĝo kaj virkapro!
 
-Kial vi ne reiras batali ilin?” 
+Kial vi ne reiras batali ilin?”
 
 “Neniu homo povas batali kontraŭ la povoj de
 
@@ -6166,9 +5854,9 @@ vivaj nur ĉar ni hastis forkuri; sed se ni reirus al
 
 Regoso, la sama terura povo kiu rompegis la
 
-urbopordegojn disatomigus nin.” 
+urbopordegojn disatomigus nin.”
 
-“Ba\! vi estas kovardo\!” kriis la Reĝino, moke. 
+“Ba! vi estas kovardo!” kriis la Reĝino, moke.
 
 “Mi ne estas kovardo,” diris la granda Reĝo. “Mi
 
@@ -6184,7 +5872,7 @@ gigantan povon de la Princo de Pingario, eĉ kvankam
 
 li estas nur knabo. Tio ne estus kuraĝo, tio estus
 
-malsaĝo.” 
+malsaĝo.”
 
 “Do frontu lian povon per ruzemo,” sugestis la
 
@@ -6192,23 +5880,20 @@ Reĝino. “Akceptu mian konsilon, kaŝe transiru al
 
 Regoso dum la nokto, kiam estos obskure, kaj kaptu
 
-aŭ detruu la knabon dum li dormas.” 
+aŭ detruu la knabon dum li dormas.”
 
 “Neniu armilo povas tuŝi lian korpon,” estis la
 
 respondo. “Lia vivo estas sorĉita kaj li ne estas
 
-154
-
-!(images/000072.jpg)
 
 Ĉapitro Dek
 
-damaĝebla.” 
+damaĝebla.”
 
 “Ĉu la dika Reĝo posedas magiajn povojn, aŭ la
 
-kapro?” demandis Koro. 
+kapro?” demandis Koro.
 
 “Mi kredas ke ne,” diris Goso. “Ni ja ne povus
 
@@ -6216,17 +5901,17 @@ damaĝi ilin, same kiel ne la knabon, sed ili ne ŝajnis
 
 havi nekutiman forton, kvankam la kapo de la kapro
 
-estas pli dura ol murrompilo.” 
+estas pli dura ol murrompilo.”
 
 “Nu,” meditis la Reĝino, “certe eblas iel konkeri
 
-tiun feblan knabon. Se vi timas entrepreni la taskon, 
+tiun feblan knabon. Se vi timas entrepreni la taskon,
 
 mi mem iros. Per ia ruzo mi sukcesos kapti lin. Li
 
 ne kuraĝos defii Reĝinon kaj nenia magio povas
 
-kontraŭstari la ruzemon de virino.” 
+kontraŭstari la ruzemon de virino.”
 
 “Agu laŭvole,” respondis la Reĝo, figrimacante, “kaj
 
@@ -6236,11 +5921,11 @@ karceron, vi estos juste rekompencita pro via supozo
 
 ke vi povos sukcesi kie trejnita batalisto ne aŭdacas
 
-eĉ provi.” 
+eĉ provi.”
 
 “Mi ne timas,” respondis la Reĝino. “Nur soldatoj
 
-kaj tiranemuloj estas kovardaj.” 
+kaj tiranemuloj estas kovardaj.”
 
 Malgraŭ tiu aserto, Reĝino Koro ne estis tiel
 
@@ -6252,13 +5937,12 @@ verŝajne sukcesus. Ŝi neniam vidis la knaban Princon
 
 sed ŝi aŭdis tiom da rakontoj pri li de la venkitaj
 
-155
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 batalistoj, kaj precipe de Kapitano Buzubo, ke ŝi sciis
 
-respekti lian povon. 
+respekti lian povon.
 
 Insigate de la scio ke ŝi neniam povos forsendi
 
@@ -6276,7 +5960,7 @@ suspekti kion ŝi faros, ĉar ŝi mem ne sciis. Ŝi
 
 intencis agi aŭdace kaj fidi al la ŝanco ke ŝi
 
-venkos. 
+venkos.
 
 Estas evidente ke se la ruzema Reĝino scius ke
 
@@ -6290,9 +5974,9 @@ povo kiun li faris konkerante Regoson, kaj estis
 
 nenia kialo kredi ke la knabo estas malpli forta
 
-nun. 
+nun.
 
-Unu matenon Reĝino Koro kuraĝe eniris boaton, 
+Unu matenon Reĝino Koro kuraĝe eniris boaton,
 
 kaj, kunprenante kvar virojn kiel eskorton kaj
 
@@ -6300,25 +5984,24 @@ gardistojn, ŝi estis remita trans la mallarĝan markolon
 
 al Regoso. Princo Ingo sidis en la palaco ludante
 
-damojn kun Reĝo Rinkitinko kiam servisto venis al
+damojn kun Reĝo Rinkit kiam servisto venis al
 
 li, dirante ke Reĝino Koro alvenis kaj deziras paroli
 
-156
 
 Ĉapitro Dek
 
-kun li. 
+kun li.
 
 Tre heziteme, ĉar li timis ke la fireĝino eble
 
-trovos ke li nun jam perdis siajn magiajn povojn, 
+trovos ke li nun jam perdis siajn magiajn povojn,
 
 la knabo ordonis enkonduki ŝin, kaj ŝi baldaŭ eniris
 
-la ĉambron kaj profunde kliniĝis antaŭ li, 
+la ĉambron kaj profunde kliniĝis antaŭ li,
 
-mokrespekte. 
+mokrespekte.
 
 Koro estis granda virino, preskaŭ tiel alta kiel Reĝo
 
@@ -6329,12 +6012,11 @@ malpalan haŭtkoloron kiun oni vidas ĉe ciganoj. Ŝia
 temperamento, kiam ŝi estis malplezurigita, estis vere
 
 
-
 terura, kaj ŝia vizaĝo havis fimienon kiun ŝi penis
 
 kovri per dolĉa rideto—ofte kiam ŝi celis plej fian
 
-agon. 
+agon.
 
 “Mi venis,” diris ŝi per nelaŭta voĉo, “por honori
 
@@ -6344,7 +6026,7 @@ Moŝto estas la plej forta persono en la mondo, kaj
 
 nevenkebla en bataloj, kaj tial mi volas ke vi estu mia
 
-amiko, kaj ne mia malamiko.” 
+amiko, kaj ne mia malamiko.”
 
 Nu, Ingo ne sciis respondi al tiu parolo. Li ne ŝatis
 
@@ -6358,9 +6040,8 @@ respondon, kiun fine li faris ĉivorte:
 
 “Mi ne deziras malpaci kun Via Moŝto, kaj la sola
 
-157
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kialo de mia alveno ĉi tien estas liberigi miajn patron
 
@@ -6372,7 +6053,7 @@ de la Insulo Pingario. Tion mi esperas baldaŭ
 
 efektivigi, kaj se vi vere deziras esti mia amiko, vi
 
-povos multe helpi min.” 
+povos multe helpi min.”
 
 Dum li parolis Reĝino Koro studadis la vizaĝon
 
@@ -6394,11 +6075,11 @@ amikon, la grandan Reĝon de Gilgado, viziti mian
 
 modestan povran palacon ĉe Koregoso, kie ĉiuj miaj
 
-regatoj honoros vin. Ĉu vi venos?” 
+regatoj honoros vin. Ĉu vi venos?”
 
 “Nuntempe,” respondis Ingo, maltrankvile, “mi
 
-devas rifuzi vian afablan inviton.” 
+devas rifuzi vian afablan inviton.”
 
 “Estos festenado, kaj dancistinoj, kaj ludoj kaj
 
@@ -6406,17 +6087,14 @@ piroteknikaĵoj,” diris la Reĝino, parolante kvazaŭ
 
 fervorante logi lin kaj je ĉiu vorto venante paŝon pli
 
-proksimen al kie li staras. 
+proksimen al kie li staras.
 
 “Mi ne povus ĝui ilin dum miaj povraj gepatroj
 
-158
 
-!(images/000033.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-estas sklavoj,” diris la knabo, malfeliĉe. 
+estas sklavoj,” diris la knabo, malfeliĉe.
 
 “Ĉu vi certas pri tio?” demandis Reĝino Koro, kaj
 
@@ -6426,35 +6104,35 @@ klinis sin kaj ĵetis ambaŭ siajn longajn brakojn ĉirkaŭ
 
 la korpon de Ingo, tenante lin per firma teno kia de
 
-ŝraŭbtenilo. 
+ŝraŭbtenilo.
 
-Nun Rinkitinko eksaltis antaŭen por savi sian
+Nun Rinkit eksaltis antaŭen por savi sian
 
 amikon, sed Koro fortege piedfrapis kaj batis la
 
 Reĝon rekte sur lia stomako—tre delikata loko por
 
-piedfrapo, precipe kiam oni estas dika. Post tio, 
+piedfrapo, precipe kiam oni estas dika. Post tio,
 
 ankoraŭ strikte ĉirkaŭbrakumante Ingon, la Reĝino
 
 laŭte kriis:
 
-“Mi havas lin\! Enportu la ŝnurojn.” 
+“Mi havas lin! Enportu la ŝnurojn.”
 
 Tuj la kvar viroj kiujn ŝi kunportis kuris en la
 
-ĉambron kaj ligis la manojn kaj piedojn de la knabo. 
+ĉambron kaj ligis la manojn kaj piedojn de la knabo.
 
-Post tio ili kaptis Rinkitinkon, kiu ankoraŭ frotadis
+Post tio ili kaptis Rinkitn, kiu ankoraŭ frotadis
 
-sian somakon, kaj simile ligis lin. 
+sian somakon, kaj simile ligis lin.
 
 Ridante pro fitriumfo, Reĝino Koro nun kondukis
 
 siajn kaptitojn al la boato kaj reiris kun ili al
 
-Koregoso. 
+Koregoso.
 
 Granda estis la mirego de Reĝo Goso kaj liaj
 
@@ -6464,7 +6142,6 @@ Pingario, kiu antaŭe fuĝigis ilin ĉiujn, estas kaptita
 
 de virino. Kvankam kovardoj, ili nun dense amasiĝis
 
-160
 
 Ĉapitro Dek
 
@@ -6472,13 +6149,13 @@ de virino. Kvankam kovardoj, ili nun dense amasiĝis
 
 batus lin se la Reĝino ne elkrius:
 
-“Detenu la manojn\! Li estas mia kaptito, 
+“Detenu la manojn! Li estas mia kaptito,
 
-memoru—ne via.” 
+memoru—ne via.”
 
 “Nu, Koro, kion vi faros pri li?” demandis Reĝo
 
-Goso. 
+Goso.
 
 “Mi sklavigos lin, por ke li distru min dum miaj
 
@@ -6486,13 +6163,13 @@ neokupataj horoj. Ĉar li estas belaspekta knabo, kaj
 
 milda, kvankam li ja fortimigis tiom terure ĉiujn vin
 
-la grandajn batalistojn.” 
+la grandajn batalistojn.”
 
 La Reĝo sulkis la frunton pro tiu parolo, ĉar ne
 
 plaĉis al li esti mokata, sed li nenion pli diris. Li kaj
 
-liaj soldatoj reiris tiun saman tagon al Regoso, 
+liaj soldatoj reiris tiun saman tagon al Regoso,
 
 reestablinte la ponton el boatoj. Kaj ili okazigis
 
@@ -6504,37 +6181,36 @@ Regoso kiuj ne estis batalistoj ĉiuj bedaŭris ke la
 
 afabla juna Princo estas kaptita de siaj malamikoj kaj
 
-ne plu povas regi ilin. 
+ne plu povas regi ilin.
 
 Kiam ŝiaj nebonvenaj gastoj jam reiris al Regoso
 
 kaj la Reĝino estis sola en sia palaco, ŝi ordonis venigi
 
-Ingon kaj Rinkitinkon antaŭ ŝin kaj forpreni iliajn
+Ingon kaj Rinkitn antaŭ ŝin kaj forpreni iliajn
 
 ligilojn. Ili venis sufiĉe malfeliĉe, sciante ke ili estas
 
 en serioza missituacio kaj je la dispono de kruela
 
-161
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-mastrino. Ingo antaŭe konsiliĝis kun la Blanka Perlo, 
+mastrino. Ingo antaŭe konsiliĝis kun la Blanka Perlo,
 
-kiu konsilis ke li elportu brave sian misfortunon, 
+kiu konsilis ke li elportu brave sian misfortunon,
 
 promesante pliboniĝon tre baldaŭ. Konsolite de tiu
 
 promeso, Ingo frontis la Reĝinon per digna mieno kiu
 
-indikis kaj fieron kaj kuraĝon. 
+indikis kaj fieron kaj kuraĝon.
 
 “Nu, junuleto,” diris ŝi, gajatone ĉar al ŝi plaĉis ŝia
 
 sukceso, “vi lerte ruzis je mia povra edzo kaj ege
 
-timigis lin, sed pri tiu friponago mi emas pardoni vin. 
+timigis lin, sed pri tiu friponago mi emas pardoni vin.
 
 Denun mi intencas ke vi estu mia paĝio, kio signifas
 
@@ -6546,11 +6222,11 @@ kapricon sendemande kaj senprokraste, ĉar kiam mi
 
 koleras mi fiiĝas, kaj kiam mi fiiĝas, iun neeviteble
 
-trafas vipo. Ĉu vi komprenas min?” 
+trafas vipo. Ĉu vi komprenas min?”
 
 Ingo riverencis, sed ne respondis. Ŝi turnis sin al
 
-Rinkitinko kaj diris:
+Rinkit kaj diris:
 
 “Rilate al vi, mi ne povas decidi kiel utiligi vin por
 
@@ -6558,17 +6234,16 @@ mi, ĉar vi estas multe tro dika kaj mallerta por labori
 
 en la kampoj. Tamen, eble mi povos uzi vin kiel
 
-pinglokusenon.” 
+pinglokusenon.”
 
-“Kio\!” kriis Rinkitinko hororoplene, “ĉu vi puŝus
+“Kio!” kriis Rinkit hororoplene, “ĉu vi puŝus
 
-pinglojn en la Reĝon de Gilgado?” 
+pinglojn en la Reĝon de Gilgado?”
 
 “Kial ne?” respondis Reĝino Koro. “Vi estas dika
 
-kiel pinglokuseno, kiel vi mem nepre devas agnoski, 
+kiel pinglokuseno, kiel vi mem nepre devas agnoski,
 
-162
 
 Ĉapitro Dek
 
@@ -6576,43 +6251,43 @@ kaj kiam ajn mi bezonus pinglon mi povus alvoki
 
 vin.” Post tio ŝi ridis pro lia timoplena aspekto kaj
 
-demandis: “Krome, ĉu vi estas tikliĝema?” 
+demandis: “Krome, ĉu vi estas tikliĝema?”
 
-Jam tiun demandon Rinkitinko timegis. Li ĝemis
+Jam tiun demandon Rinkit timegis. Li ĝemis
 
-pro malespero kaj gestis per sia kapo. 
+pro malespero kaj gestis per sia kapo.
 
 “Mi volonte tiklus la plandojn de viaj piedoj per
 
 plumo,” pludiris la kruelulino. “Bonvolu depreni
 
-viajn ŝuojn.” 
+viajn ŝuojn.”
 
-“Ho, via Moŝto\!” pledis povra Rinkitinko, “mi
+“Ho, via Moŝto!” pledis povra Rinkit, “mi
 
-petegas ke vi permesu ke mi amuzu vin alimaniere. 
+petegas ke vi permesu ke mi amuzu vin alimaniere.
 
-Mi povas danci, aŭ kanti por vi.” 
+Mi povas danci, aŭ kanti por vi.”
 
 “Nu,” ŝi diris, tremante pro ridado, “vi rajtas
 
 kanti—se la kanto estas gaja. Sed vi ne aspektas tre
 
-gajhumora.” 
+gajhumora.”
 
-“Mi *sentas* min gajhumora—ja vere, Via Moŝto\!” 
+“Mi *sentas* min gajhumora—ja vere, Via Moŝto!”
 
-protestis Rinkitinko, fevora eskapi de tiklado. Sed eĉ
+protestis Rinkit, fevora eskapi de tiklado. Sed eĉ
 
 dum li protestis ke li “sentas sin gaja”, lia ronda ruĝa
 
 vizaĝo havis mienon de hororo kaj malkvieto kiu estis
 
-vere komika. 
+vere komika.
 
-“Kantu, do\!” ordonis Reĝino Koro, multe amuzite. 
+“Kantu, do!” ordonis Reĝino Koro, multe amuzite.
 
-Rinkitinko ĝemis pro senŝarĝiĝo kaj, grakinte kaj
+Rinkit ĝemis pro senŝarĝiĝo kaj, grakinte kaj
 
 penante subpremi siajn plorsingultojn li komencis
 
@@ -6620,81 +6295,72 @@ kanti ĉi tiun kanton—milde, unue, sed fine
 
 elmuĝante ĝin plenvoĉe:
 
-163
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Ho\! 
+“Ho!
 
 Estis Beba Tigro, li loĝis en me-na-ĝe-ri’—
 
-Vula-vala-vila—liberiĝi volis li; 
+Vula-vala-vila—liberiĝi volis li;
 
 Ĉiu kredis ke li mildas, ne povus mildi pli—
 
-Vula-vala-vila—Be-ba Ti-gro\! 
+Vula-vala-vila—Be-ba Ti-gro!
 
-“Ho\! 
+“Ho!
 
 Oni premis la piedon, kapon amkaresis—
 
-Vula-vala-vila—prioste interesis; 
+Vula-vala-vila—prioste interesis;
 
 Sed li kreskis kaj li kreskis kaj kreski li ne
 
 ĉesis—
 
-Vula-vala-vila—ki-a Ti-gro\! 
+Vula-vala-vila—ki-a Ti-gro!
 
-“Ho\! 
+“Ho!
 
 Oni venis al la besto kaj li ekkomence batis—
 
-Vula-vala-vila—senĉese mordis, gratis\! 
+Vula-vala-vila—senĉese mordis, gratis!
 
 Kolere rompis kaĝon, eskapon vere ŝatis—
 
-Vula-vala-vila ve-ra Ti-gro\!” 
+Vula-vala-vila ve-ra Ti-gro!”
 
 “Kaj ĉu la kanto havas celon?” demandis Reĝino
 
-Koro, kiam Reĝo Rinkitinko finis sian kanton vere
+Koro, kiam Reĝo Rinkit finis sian kanton vere
 
-vigle. 
+vigle.
 
-“Se jes,” respondis Rinkitinko, “temas pri averto ne
+“Se jes,” respondis Rinkit, “temas pri averto ne
 
-ludi kun tigroj.” 
+ludi kun tigroj.”
 
-164
 
-!(images/000079.png)
-
-!(images/000083.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 La malgranda Princo ne povis ne rideti pro tiu
 
 sagaca respondo, sed Reĝino Koro sulkis la frunton
 
-kaj akre rigardis la Reĝon. 
+kaj akre rigardis la Reĝon.
 
 “Ho,” diris ŝi; “mi kredas scii la diferencon inter
 
-tigro kaj dorlothundeto. Sed mi memoros la averton, 
+tigro kaj dorlothundeto. Sed mi memoros la averton,
 
-malgraŭ tio.” 
+malgraŭ tio.”
 
 Ĉar, malgraŭ siaj sukcesoj kiam ŝi kaptis ilin, ŝi
 
 iom timis tiujn personojn kiuj antaŭe montris tiom
 
-da eksterordinaraj povoj. 
+da eksterordinaraj povoj.
 
-166
-
-!(images/000086.png)
 
 Zella Iras al Koregoso
 
@@ -6702,9 +6368,9 @@ Zella Iras al Koregoso
 
 La arbaro en kiu loĝis
 
-Nikoroĉjo 
+Nikoroĉjo
 
-kun 
+kun
 
 siaj
 
@@ -6720,7 +6386,7 @@ la urbo al la minoj. Tiun padon uzis la mesaĝistoj
 
 de la Reĝo, kaj kaptitoj estis ankaŭ sendataj laŭ tiu
 
-vojo el Regoso por labori en la subteraj kavernoj. 
+vojo el Regoso por labori en la subteraj kavernoj.
 
 Nikoroĉjo konstruis sian kabanon ĉ. du kilo-
 
@@ -6728,9 +6394,8 @@ metrojn for de tiu pado, por ke lin ne fiĝenu la
 
 sovaĝaj kaj senleĝaj soldatoj de Reĝo Goso, sed la
 
-167
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 familion de la braĝobruligisto ĉirkaŭis multaj bestoj
 
@@ -6754,17 +6419,17 @@ kiam ili faris taskojn kiaj portado de mielo al
 
 Koregoso, kaj tiam Nikoroĉjo avertis ilin esti tre zorg-
 
-atentaj. 
+atentaj.
 
 Do kiam Zella komencis sian veturon al Reĝino
 
-Koro, portante la du sitelojn da mielo per siaj manoj, 
+Koro, portante la du sitelojn da mielo per siaj manoj,
 
 ŝi entreprenis danĝeran aventuron kaj estis nenia
 
-certo ke ŝi revenos sekura al siaj amantaj gepatroj. 
+certo ke ŝi revenos sekura al siaj amantaj gepatroj.
 
-Sed ili estis malriĉaj, kaj la mono de Reĝino Koro, 
+Sed ili estis malriĉaj, kaj la mono de Reĝino Koro,
 
 kiun ili anticipis ricevi pro la mielo, ebligus ke ili
 
@@ -6774,17 +6439,14 @@ bone ke Zella iru. Ŝi estis kuraĝa knabineto kaj
 
 malriĉuloj ofte devas riski hazardojn kiajn riĉuloj ne
 
-devas. 
+devas.
 
 Pasanta lignohakisto jam alportis la informon al la
 
 kabano de Nikoroĉjo ke Reĝino Koro kaptis la
 
-168
 
-!(images/000087.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 konkerintan Princon de Pingario kaj ke Goso kaj liaj
 
@@ -6802,13 +6464,13 @@ batalistoj fariĝis pli senzorgemaj ol eĉ antaŭe, kaj ĝoje
 
 detenu sin de la ordinara pado laŭeble, por ke ŝi ne
 
-renkontu iun el la soldatoj de la Reĝo. 
+renkontu iun el la soldatoj de la Reĝo.
 
 “Kiam necesos elekti inter la batalistoj kaj la
 
 sovaĝaj bestoj,” diris Nikoroĉjo, “vi trovos la bestojn
 
-pli kompatemaj.” 
+pli kompatemaj.”
 
 La knabineto plej bone vestis sin por la veturo
 
@@ -6822,7 +6484,7 @@ preparite, ŝi kisadiaŭis siajn gepatrojn kaj eliris
 
 leĝerkore, portante la sitelojn da mielo per ambaŭ
 
-manoj. 
+manoj.
 
 Necesis ke Zella transiru la padon kondukantan de
 
@@ -6834,7 +6496,6 @@ arbaron kaj tiel atingi la ponton el boatoj sen eniri
 
 la Urbon Regoson, kie oni eble interrompus ŝin. Dum
 
-170
 
 Ĉapitro Dek Unu
 
@@ -6850,7 +6511,7 @@ tien kaj tien por povi trairi, kaj fine ŝi atingis lokon
 
 kie reto da grimpoplantoj kaj branĉoj efike baris ŝian
 
-pluiron. 
+pluiron.
 
 Zella ĉagreniĝis, unue, kiam ŝi renkontis tiun
 
@@ -6866,7 +6527,7 @@ estis falinta trans ŝian padon, sed la knabineto facile
 
 levis ĝin kaj forĵetis ĝin, kvankam ses ordinaraj viroj
 
-apenaŭ povus movi ĝin. 
+apenaŭ povus movi ĝin.
 
 La infanon iom maltrankviligis tiu atesto pri forto
 
@@ -6876,7 +6537,7 @@ al si ke ne temas pri iluzio, ŝi provis sian nove
 
 trovitan povon multmaniere, trovante ke nenio estas
 
-tro granda nek tro peza por ke ŝi povu levi ĝin. Kaj, 
+tro granda nek tro peza por ke ŝi povu levi ĝin. Kaj,
 
 sufiĉe nature, la knabino kuraĝiĝis pro tiuj
 
@@ -6886,11 +6547,10 @@ sin negrave kia katastrofo okazos. Kiam, post kelka
 
 tempo, sovaĝa apro kuris kontraŭ ŝin, muĝante terure
 
-171
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-kaj minacante ŝin per siaj grandaj elstaraj pintodentoj, 
+kaj minacante ŝin per siaj grandaj elstaraj pintodentoj,
 
 ŝi ne grimpis arbon por eskapi, kiel antaŭe ĉiam kiam
 
@@ -6908,7 +6568,7 @@ grandan beston tre foren inter la arboj, kie ĝi falis
 
 kapantaŭe sur la teron, muĝante pli laŭte ol antaŭe
 
-pro surpriziĝo kaj timo. 
+pro surpriziĝo kaj timo.
 
 La knabino ridis gaje pro tiu evento kaj, preninte
 
@@ -6926,7 +6586,7 @@ moviĝi ŝiadirekten kaj granda pumo—besto timegata
 
 de ĉiuj homoj—forrampis de la pado dum ŝi
 
-proksimiĝis, kaj ekmalaperis inter la arbojn. 
+proksimiĝis, kaj ekmalaperis inter la arbojn.
 
 Tiel ĉio favoris la veturon de la knabino kaj ŝi tiel
 
@@ -6938,23 +6598,15 @@ boatoj kondukanta al Koregoso. Tion ŝi transiris
 
 sekure kaj sen renkonti iujn el la krudaj batalistoj
 
-172
 
-!(images/000096.png)
-
-!(images/000099.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 kiujn ŝi tiom timis, kaj kvin minutojn poste la filino
 
 de la braĝobruligisto petis eniron ĉe la malantaŭa
 
-pordo de la palaco de Reĝino Koro. 
+pordo de la palaco de Reĝino Koro.
 
-174
-
-!(images/000029.png)
 
 La Ekscitiĝo de Bilbilo la Kapro
 
@@ -6964,11 +6616,11 @@ Nia rakonto nun devas
 
 reiri al unu el la rolantoj
 
-kiujn ni devis neglekti. 
+kiujn ni devis neglekti.
 
-La 
+La
 
-temperamento 
+temperamento
 
 de
 
@@ -6988,9 +6640,8 @@ utiligi Bilbilon por io ajn, kaj enfermis la kapron en
 
 supraetaĝan ĉambron por malebligi ke li vagadu tra
 
-175
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 la urbo kaj kverelu kun la civitanoj. Sed tio tute ne
 
@@ -7010,15 +6661,15 @@ servistoj forrestis de la ĉambro kaj Bilbilo fariĝis pli
 
 malsata kaj pli kolera ĉiuhore. Li provis manĝi la
 
-tapiŝojn kaj ornamaĵojn, sed trovis ilin tute sennutraj. 
+tapiŝojn kaj ornamaĵojn, sed trovis ilin tute sennutraj.
 
 Ne estis herbo havebla krom se li eskapus el la
 
-palaco. 
+palaco.
 
 Kiam Reĝino Koro venis kapti Ingon kaj Rinki-
 
-tinkon, ambaŭ kaptitoj tiom pleniĝis per malespero
+tn, ambaŭ kaptitoj tiom pleniĝis per malespero
 
 pro sia propra misfortuno ke ili tute ne pripensis la
 
@@ -7034,15 +6685,12 @@ kiuj aŭdacas tiel ĝeni lin, Bilbilo vidis la korton tute
 
 plena de batalistoj kaj sciis per tio ke la palaco iel
 
-denove falis en la manojn de la malamikoj. 
+denove falis en la manojn de la malamikoj.
 
 Nu, kvankam Bilbilo estis ofte ege malafabla al
 
-Reĝo Rinkitinko, ankaŭ al la Princo, kaj kelkfoje li
+Reĝo Rinkit, ankaŭ al la Princo, kaj kelkfoje li
 
-176
-
-!(images/000105.jpg)
 
 Ĉapitro Dek Du
 
@@ -7050,7 +6698,7 @@ uzis severajn vortojn parolante al ili, li estis sufiĉe
 
 inteligenta por scii ke ili estas liaj amikoj, kaj por scii
 
-ke Reĝo Goso kaj liaj soldatoj estas liaj malamikoj. 
+ke Reĝo Goso kaj liaj soldatoj estas liaj malamikoj.
 
 Pro subita kolero, provokite de sia vido al la batalistoj
 
@@ -7064,7 +6712,7 @@ supro de la ŝtuparo kaj vidis Reĝon Goson grimpi la
 
 ŝtupojn sekvate de longa vico de siaj ĉefkapitanoj kaj
 
-batalistoj. 
+batalistoj.
 
 La kapro klinis sian kapon, tremante pro furiozo
 
@@ -7072,31 +6720,30 @@ kaj ekscitiĝo, kaj ĝuste kiam la Reĝo atingis la
 
 plejsupran ŝtupon la besto kuris antaŭen kaj kapbatis
 
-Lian Moŝton tiom feroce ke la granda potenca Reĝo, 
+Lian Moŝton tiom feroce ke la granda potenca Reĝo,
 
-kiu ne anticipis atakon, faldiĝis kaj falis surdorsen. 
+kiu ne anticipis atakon, faldiĝis kaj falis surdorsen.
 
 Lia granda pezo renversbatis la sekvan bataliston kaj
 
-li siavice batis la sekvan bataliston kaj renversis lin, 
+li siavice batis la sekvan bataliston kaj renversis lin,
 
 tiel ke tuje la tuta vico de la malamikoj de Bilbilo
 
-faladis pied-super-kapen ĝis la fundo de la ŝtuparo, 
+faladis pied-super-kapen ĝis la fundo de la ŝtuparo,
 
 kie ili amasiĝis, baraktante kaj kriante kaj pro la
 
 konfuzo batante unu la alian per siaj pugnoj, ĝis ĉiu
 
-el ili estis kontuzita kaj doloroplena. 
+el ili estis kontuzita kaj doloroplena.
 
 Fine Reĝo Goso sukcesis eligi sin el la amaso kaj
 
 rekuris supren laŭ la ŝtuparo, vere ege kolera. Bilbilo
 
-177
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 pretis por li kaj duafoje kapbatis la Reĝon tiel ke li
 
@@ -7108,9 +6755,9 @@ plene sur la konfuzitan amason da soldatoj. Tie li
 
 piedbatis tiom ferocege per siaj kalkanoj ke li baldaŭ
 
-liberigis sin kaj kuris el la pordejo de la palaco. 
+liberigis sin kaj kuris el la pordejo de la palaco.
 
-“Haltigu lin\!” kriis Reĝo Goso, kurante post li. 
+“Haltigu lin!” kriis Reĝo Goso, kurante post li.
 
 Sed la kapro estis nun tiom sovaĝa kaj ekscitita ke
 
@@ -7122,13 +6769,13 @@ du provis forturni la kapron, Bilbilo sternis ilin sur
 
 la teron. La plej multaj batalistoj, tamen, estis sufiĉe
 
-saĝaj por ne provi influi lian fuĝon. 
+saĝaj por ne provi influi lian fuĝon.
 
 Kurante laŭ la strato, Bilbilo trovis sin
 
 proksimiĝanta al la ponto el boatoj kaj sen paŭzi por
 
-pensi pri kien ĝi kondukos lin li transiris kaj plukuris. 
+pensi pri kien ĝi kondukos lin li transiris kaj plukuris.
 
 Post kelkaj momentoj granda ŝtona konstruaĵo blokis
 
@@ -7136,13 +6783,8 @@ lin. Ĝi estis la palaco de Reĝino Koro, kaj vidinte la
 
 pordegojn de la korto tute malfermaj, Bilbilo tra-
 
-rapidis sen malgrandigi sian rapidon. 
+rapidis sen malgrandigi sian rapidon.
 
-178
-
-!(images/000045.png)
-
-!(images/000066.png)
 
 Zella Savas la Princon
 
@@ -7160,23 +6802,22 @@ venis de la kampoj por
 
 diri ke nombro de ŝiaj sklavoj ribelis kaj rifuzas
 
-labori. 
+labori.
 
-“Venigu ilin al mi\!” ŝi kriis sovaĝe. “Vigla vipado
+“Venigu ilin al mi!” ŝi kriis sovaĝe. “Vigla vipado
 
-eble ŝanĝos ilian decidon.” 
+eble ŝanĝos ilian decidon.”
 
 Do la sklavestro foriris alvenigi la ribelantojn kaj
 
-Reĝino Koro sidiĝis por matenmanĝi, kun fimieno. 
+Reĝino Koro sidiĝis por matenmanĝi, kun fimieno.
 
 Princo Ingo ricevis ordonon stari malantaŭ sia
 
-180
 
 Ĉapitro Dek Tri
 
-nova mastrino kun granda ventumilo el pavplumoj, 
+nova mastrino kun granda ventumilo el pavplumoj,
 
 sed li tiom malkutimis al tia servado ke li mallerte
 
@@ -7192,7 +6833,7 @@ frapojn sen retiri sin aŭ krieti, kvankam ili vundis
 
 lian fieron multe pli ol lian korpon. Sed Reĝo Rinki-
 
-tinko, kiu agis kiel servisto de la Reĝino kaj ĵus
+t, kiu agis kiel servisto de la Reĝino kaj ĵus
 
 enportis ŝian kafon, estis tiom surprizita kiam li vidis
 
@@ -7200,11 +6841,11 @@ la junan Princon punata ke li renversis la ujon kaj
 
 la varmega kafo fluis trans la sinon de la plej bona
 
-matenrobo de la Reĝino. 
+matenrobo de la Reĝino.
 
 Koro saltis el sia seĝo kriegante pro kolero kaj
 
-povra Rinkitinko sendube ricevus teruran batadon se
+povra Rinkit sendube ricevus teruran batadon se
 
 ne revenus la sklavestro je tiu momento kaj altirus la
 
@@ -7212,9 +6853,9 @@ atenton de la virino. La estro alkondukis ĉiujn
 
 sklavinojn el Pingario, kiuj estis ŝarĝitaj per ĉenoj kaj
 
-estis tiel feblaj kaj malsanaj ke ili apenaŭ povis marŝi, 
+estis tiel feblaj kaj malsanaj ke ili apenaŭ povis marŝi,
 
-kaj tute ne labori en la kampoj. 
+kaj tute ne labori en la kampoj.
 
 La okuloj de Princo Ingo obskuriĝis per lamento-
 
@@ -7224,31 +6865,30 @@ mistrakata, sed lia propra embaraso estis tiel senhelpa
 
 ke li ne povis helpi ilin. Bonfortune la patrino de la
 
-181
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 knabo, Reĝino Gario, ne estis inter la slavoj, ĉar
 
 Reĝino Koro metis ŝin en la reĝan laktejon por fari
 
-buteron. 
+buteron.
 
 “Kial vi rifuzas labori?” demandis Koro per severa
 
-voĉo, ĉar la sklavinoj el Pingario staris antaŭ ŝi, 
+voĉo, ĉar la sklavinoj el Pingario staris antaŭ ŝi,
 
-tremante kaj kun subenklinitaj okuloj. 
+tremante kaj kun subenklinitaj okuloj.
 
 “Ĉar mankas al ni forto por fari la taskojn kiujn
 
-viaj estroj postulas,” respondis unu el la virinoj. 
+viaj estroj postulas,” respondis unu el la virinoj.
 
-“Do vi estos vipataj ĝis revenos via forto\!” kriis la
+“Do vi estos vipataj ĝis revenos via forto!” kriis la
 
 Reĝino, kaj turninte sin al Ingo, ŝi ordonis: “Alportu
 
-al mi la vipon kun la sep ŝnuroj.” 
+al mi la vipon kun la sep ŝnuroj.”
 
 Elirinte la ĉambron, demandante al si kiel li povos
 
@@ -7258,9 +6898,9 @@ renkontis knabinon kiu eniradis tra la malantaŭa
 
 pordo, kiu demandis:
 
-“Ĉu vi povas diri al mi kie mi trovos Ŝian Moŝton, 
+“Ĉu vi povas diri al mi kie mi trovos Ŝian Moŝton,
 
-Reĝinon Koron?” 
+Reĝinon Koron?”
 
 “Ŝi estas en la ĉambro kun la ruĝa kupolo, kie
 
@@ -7268,23 +6908,22 @@ verdaj drakoj estas pentritaj sur la muroj,” respondis
 
 Ingo; “sed ŝi havas koleran kaj malgracan humoron
 
-hodiaŭ. Kial vi deziras vidi ŝin?” 
+hodiaŭ. Kial vi deziras vidi ŝin?”
 
-“Mi havas mielon vendotan,” respondis la knabino, 
+“Mi havas mielon vendotan,” respondis la knabino,
 
 kiu estis Zella, ĵus veninta de la arbaro. “La Reĝino
 
-multe amas mian mielon.” 
+multe amas mian mielon.”
 
-182
 
 Ĉapitro Dek Tri
 
-“Vi povas iri al ŝi, se vi deziras,” diris la knabo, 
+“Vi povas iri al ŝi, se vi deziras,” diris la knabo,
 
 “sed atentu ne kolerigi la kruelan Reĝinon, alie ŝi
 
-eble mistraktos vin fie.” 
+eble mistraktos vin fie.”
 
 “Kial ŝi mistraktus min, kiu portas al ŝi la mielon
 
@@ -7292,7 +6931,7 @@ kiun ŝi tiom amas?” demandis la infano naive. “Sed
 
 mi dankas vin pro via averto; kaj mi penos ne kolerigi
 
-la Reĝinon.” 
+la Reĝinon.”
 
 Kiam Zella komencis foriri, la okuloj de Inga
 
@@ -7300,19 +6939,19 @@ subite ekvidis ŝiajn ŝuojn kaj tuj li rekonis ilin kiel
 
 siajn. Ĉar nur en Pingario estis ŝuoj tiel formitaj: kun
 
-altaj kalkanumoj kaj pintaj piedfingrejoj. 
+altaj kalkanumoj kaj pintaj piedfingrejoj.
 
-“Haltu\!” li kriis per voĉo de ekscitiĝo, kaj la
+“Haltu!” li kriis per voĉo de ekscitiĝo, kaj la
 
 knabino obeis, mirante. “Diru al mi,” li pludiris, pli
 
-milde, “el kie vi akiris tiujn ŝuojn?” 
+milde, “el kie vi akiris tiujn ŝuojn?”
 
-“Mia patro portis ilin al mi el Regoso,” ŝi respondis. 
+“Mia patro portis ilin al mi el Regoso,” ŝi respondis.
 
-“El Regoso\!” 
+“El Regoso!”
 
-“Jes. Ili estas belaj, ĉu ne?” demandis Zella, 
+“Jes. Ili estas belaj, ĉu ne?” demandis Zella,
 
 rigardante siajn piedojn por admiri ilin. “Mia patro
 
@@ -7320,57 +6959,56 @@ trovis unu el ili apud la muro de la palaco, kaj la
 
 alian sur rubaĵaro. Do li portis ilin al mi kaj ili taŭgas
 
-al miaj piedoj perfekte.” 
+al miaj piedoj perfekte.”
 
 Jam Ingo tremadis pro fervora ĝojo, kiun
 
-kompreneble ne povis kompreni la knabino. 
+kompreneble ne povis kompreni la knabino.
 
-“Kiel vi nomiĝas, fraŭlineto?” li demandis. 
+“Kiel vi nomiĝas, fraŭlineto?” li demandis.
 
-183
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Mi nomiĝas Zella, kaj mia patro estas Nikoroĉjo, 
+“Mi nomiĝas Zella, kaj mia patro estas Nikoroĉjo,
 
-la braĝobruligisto.” 
+la braĝobruligisto.”
 
 “Zella estas bela nomo. Mi estas Ingo, Princo de
 
-Pingario,” diris li, “kaj la ŝuoj kiujn vi nun portas, 
+Pingario,” diris li, “kaj la ŝuoj kiujn vi nun portas,
 
 Zella, apartenas al mi. Ili ne estis forĵetitaj, kiel
 
 supozis via patro, sed ili estis perditaj. Ĉu vi bonvolos
 
-permesi ke mi rehavu ilin?” 
+permesi ke mi rehavu ilin?”
 
-La okuloj de Zella pleniĝis per larmoj. 
+La okuloj de Zella pleniĝis per larmoj.
 
 “Ĉu do mi devos fordoni miajn belajn ŝuojn?” ŝi
 
-demandis. “Ili estas la solaj ŝuoj kiujn iam mi posedis.” 
+demandis. “Ili estas la solaj ŝuoj kiujn iam mi posedis.”
 
 Ingo kompatis la povran infanon, sed li sciis kiom
 
-grave estas reposedi la Magiajn Perlojn. Do li diris, 
+grave estas reposedi la Magiajn Perlojn. Do li diris,
 
 petegante:
 
-“Bonvolu permesi ke mi havu ilin, Zella. Vidu\! Mi
+“Bonvolu permesi ke mi havu ilin, Zella. Vidu! Mi
 
-interŝanĝos por ili la ŝuojn kiujn mi nun surhavas, 
+interŝanĝos por ili la ŝuojn kiujn mi nun surhavas,
 
-kiuj estas pli novaj kaj pli belaj ol la aliaj.” 
+kiuj estas pli novaj kaj pli belaj ol la aliaj.”
 
 La knabino hezitis. Ŝi volis plaĉi al la knaba
 
 Princo, tamen ŝi malvolis interŝanĝi la ŝuojn kiujn ŝia
 
-patro portis al ŝi kiel donacon. 
+patro portis al ŝi kiel donacon.
 
-“Se vi donos al mi la ŝuojn,” daŭrigis la knabo, 
+“Se vi donos al mi la ŝuojn,” daŭrigis la knabo,
 
 maltrankvile, “mi promesas riĉigi kaj prosperigi vin
 
@@ -7380,21 +7018,18 @@ plenumi kian ajn peton vi faros al mi,” kaj li sidiĝis
 
 sur la planko kaj detiris la ŝuojn kiujn li surhavas kaj
 
-184
 
-!(images/000084.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
+etendis ilin al la knabino.
 
-etendis ilin al la knabino. 
-
-“Mi provos ĉu ili taŭgos al mi,” diris Zella, 
+“Mi provos ĉu ili taŭgos al mi,” diris Zella,
 
 deprenante sian maldekstran ŝuon—tiun en kiu estis
 
 la Palruĝa Perlo—kaj komencante surmeti unu el la
 
-ŝuoj de Ingo. 
+ŝuoj de Ingo.
 
 Ĝuste tiam Reĝino Koro, kolera pro la devo atendi
 
@@ -7406,15 +7041,15 @@ apud Zella, la virino saltis cele lin por bati lin per siaj
 
 firmaj pugnoj; sed Ingo nun jam surmetis la ŝuon kaj
 
-la batoj de la Reĝino ne povis atingi lian korpon. 
+la batoj de la Reĝino ne povis atingi lian korpon.
 
 Tiam Koro ekvidis la vipon kuŝantan apud Ingo
 
-kaj preninte ĝin ŝi penis vipi lin per ĝi—tute vane. 
+kaj preninte ĝin ŝi penis vipi lin per ĝi—tute vane.
 
 Dum Zella sidis hororoplena pro tiu sceno, la
 
-Princo, kiu komprenis ke li devas ne malŝpari tempon, 
+Princo, kiu komprenis ke li devas ne malŝpari tempon,
 
 etendis sian manon kaj tiris la dekstran ŝuon de la
 
@@ -7424,29 +7059,28 @@ piedon. Post tio li stariĝis kaj, frontante la furiozan sed
 
 miregantan Reĝinon, li diris al ŝi per trankvila voĉo:
 
-“Sinjorino, bonvolu doni al mi tiun vipon.” 
+“Sinjorino, bonvolu doni al mi tiun vipon.”
 
-“Mi rifuzas\!” respondis Koro. “Mi vipos tiujn
+“Mi rifuzas!” respondis Koro. “Mi vipos tiujn
 
-Pingariajn virinojn per ĝi.” 
+Pingariajn virinojn per ĝi.”
 
 La knabo ekkaptis la vipon kaj per nerezistebla forto
 
 li tiris ĝin el la mano de la Reĝino. Sed ŝi tiris el sia
 
-186
 
 Ĉapitro Dek Tri
 
 mamzono akran ponardon kaj rapide kiel fulmo ŝi celis
 
-piki la koron de Ingo. Li nur staris senmove kaj ridetis, 
+piki la koron de Ingo. Li nur staris senmove kaj ridetis,
 
-ĉar la klingo resaltis kaj falis brue sur la plankon. 
+ĉar la klingo resaltis kaj falis brue sur la plankon.
 
 Tiam, fine, Reĝino Koro komprenis la magian povon
 
-kiu teruris ŝian edzon sed kiun ŝi mokis pro sia senscio, 
+kiu teruris ŝian edzon sed kiun ŝi mokis pro sia senscio,
 
 ne kredante je ĝi. Ŝi ne sciis ke la povo de Ingo estis
 
@@ -7460,7 +7094,7 @@ Koregoso finiĝis. Por gajni tempon, ŝi reiris al la
 
 ruĝkupola ĉambro kaj sidigis sin en sian tronon, antaŭ
 
-kiu grupiĝis la plorantaj sklavinoj el Pingario. 
+kiu grupiĝis la plorantaj sklavinoj el Pingario.
 
 Ingo estis preninta manon de Zella kaj helpis ŝin
 
@@ -7468,39 +7102,38 @@ surmeti la ŝuojn kiujn li estis doninta al ŝi interŝanĝe
 
 por siaj propraj. Ŝi trovis ilin tre komfortaj kaj ne sciis
 
-ke ŝi perdis ion per la transdono. 
+ke ŝi perdis ion per la transdono.
 
 “Venu kun mi,” tiam diris la knaba Princo, kaj li
 
 gvidis ŝin antaŭ Reĝinon Koron, kiu tiumomente
 
-riproĉadis Rinkitinkon. Al la estro Ingo diris:
+riproĉadis Rinkitn. Al la estro Ingo diris:
 
 “Donu al mi la ŝlosilojn kiuj malŝlosas tiujn
 
-ĉenojn, por ke mi liberigu ĉi tiujn povrulinojn.” 
+ĉenojn, por ke mi liberigu ĉi tiujn povrulinojn.”
 
-“Ne faru tion\!” kriegis Reĝino Koro. 
+“Ne faru tion!” kriegis Reĝino Koro.
 
-“Se vi intermiksos vin, sinjorino,” diris la knabo, 
+“Se vi intermiksos vin, sinjorino,” diris la knabo,
 
-“mi metos vin en karceron.” 
+“mi metos vin en karceron.”
 
-187
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-Per tio Rinkitinko sciis ke Ingo jam reakiris siajn
+Per tio Rinkit sciis ke Ingo jam reakiris siajn
 
 Magiajn Perlojn kaj la malgranda dika Reĝo tiom
 
-ĝojegis ke li dancis kaj saltadis tra la tuta ĉambro. 
+ĝojegis ke li dancis kaj saltadis tra la tuta ĉambro.
 
-Sed la Reĝinon alarmis la minaco kaj la sklavestro, 
+Sed la Reĝinon alarmis la minaco kaj la sklavestro,
 
 timante la konkerinton de Regoso, tremante trans-
 
-donis la ŝlosilojn. 
+donis la ŝlosilojn.
 
 Ingo rapide deprenis ĉiujn ligilojn de la virinoj de
 
@@ -7520,9 +7153,9 @@ maltrankvila, eksaltis de sia trono kaj antaŭ ol Ingo
 
 povis haltigi ŝin jam kuris tra la ĉambron kaj tra la
 
-pordon en la korton de la palaco, intencante eskapi. 
+pordon en la korton de la palaco, intencante eskapi.
 
-Rinkitinko sekvis ŝin, kurante laŭeble rapide. 
+Rinkit sekvis ŝin, kurante laŭeble rapide.
 
 Ĝuste tiumomente Bilbilo, sovaĝe fuĝante el
 
@@ -7530,7 +7163,7 @@ Regoso, turnis sin tra la pordegojn de la korto, kaj
 
 ĉar li venis el unu direkto kaj Reĝino Koro iris laŭ
 
-la kontraŭa direkto, ili ekbatis unu la alian tre forte. 
+la kontraŭa direkto, ili ekbatis unu la alian tre forte.
 
 La virino ekflugis tra la aero, trans la kapon de
 
@@ -7538,7 +7171,6 @@ Bilbilo, kaj surteriĝis ekster la pordegoj, kie ŝia krono
 
 ruliĝis en fosaĵon kaj ŝi stariĝis, duonkonscie, kaj
 
-188
 
 Ĉapitro Dek Tri
 
@@ -7546,31 +7178,31 @@ daŭrigis sian fuĝon. Bilbilon ankaŭ iomete konfuzis
 
 la neanticipita renkonto, sed li daŭrigis sian kuron
 
-iom blinde kaj tial batis povan Rinkitinkon, kiu
+iom blinde kaj tial batis povan Rinkitn, kiu
 
 ĉasadis Reĝinon Koron. Ili ruliĝis unu super la alian
 
-plurfoje kaj post tio Rinkitinko sidiĝis kaj Bilbilo
+plurfoje kaj post tio Rinkit sidiĝis kaj Bilbilo
 
-sidiĝis kaj ili rigardis unu la alian miregante. 
+sidiĝis kaj ili rigardis unu la alian miregante.
 
-“Bilbilo,” diris la Reĝo, “vi mirigas min\!” 
+“Bilbilo,” diris la Reĝo, “vi mirigas min!”
 
 “Via Moŝto,” diris Bilbilo, “mi anticipis ke vi pli
 
-afable traktos min.” 
+afable traktos min.”
 
-“Vi interrompis min,” diris Rinkitinko. 
+“Vi interrompis min,” diris Rinkit.
 
 “Estis multa spaco tiel ke vi ne bezonis uzi mian
 
-vojon,” deklaris la kapro. 
+vojon,” deklaris la kapro.
 
 Ekvenis Ingo elkurante kaj li diris: “Kie estas la
 
-Reĝino?” 
+Reĝino?”
 
-“Ŝi foriris,” respondis Rinkitinko, “sed ŝi ne povas
+“Ŝi foriris,” respondis Rinkit, “sed ŝi ne povas
 
 iri multe foren, ĉar ĉi tiu estas insulo. Tamen, mi
 
@@ -7578,27 +7210,26 @@ trovis Bilbilon, kaj nia grupo denove unuiĝis. Vi
 
 retrovis viajn magiajn povojn, kaj denove ni mastras
 
-la situacion. Do ni estu dankemaj.” 
+la situacion. Do ni estu dankemaj.”
 
 Dirinte tion, la bona malgranda Reĝo surpiediĝis
 
 kaj relamis en la tronĉambron por helpi konsoli la
 
-virinojn. 
+virinojn.
 
 Baldaŭ la infanoj de Pingario, kiujn la sklavestro
 
 kungrupigis, estis enkondukitaj kaj redonitaj al siaj
 
-189
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 patrinoj, kaj okazis granda ĝojado inter ili, estu certa
 
-pri tio. 
+pri tio.
 
-“Sed kie estas Reĝino Gario, mia kara patrino?” 
+“Sed kie estas Reĝino Gario, mia kara patrino?”
 
 demandis Ingo; sed la virinoj ne sciis kaj pasis iom
 
@@ -7606,9 +7237,9 @@ longa tempo antaŭ ol la sklavestro memoris ke unu
 
 el la sklavinoj el Pingario estis metita en la reĝan
 
-laktejon. Eble tiu estis la virino kiun serĉas la knabo. 
+laktejon. Eble tiu estis la virino kiun serĉas la knabo.
 
-Ingo tuj ordonis ke li gvidu ilin al la buterdomo, 
+Ingo tuj ordonis ke li gvidu ilin al la buterdomo,
 
 sed kiam ili alvenis tien Reĝino Gario estis nenie en
 
@@ -7620,11 +7251,11 @@ patrino. Post tio ili komencis traserĉi la tutan insulon
 
 Koregoson, sed ili nenie povis trovi la patrinon de
 
-Ingo. 
+Ingo.
 
 Kiam ili reiris al la palaco de Reĝino Koro, Rinki-
 
-tinko trovis ke la ponto el boatoj estis denove
+t trovis ke la ponto el boatoj estis denove
 
 forprenita, apartigante ilin de Regoso, kaj pro tio ili
 
@@ -7634,23 +7265,20 @@ edzo kaj kunprenis Reĝinon Garion. Ingo multe
 
 perpleksis pri kion fari kaj reiris kun siaj amikoj al
 
-la palaco por diskuti la aferon. 
+la palaco por diskuti la aferon.
 
 Zella nun ploradis ĉar ŝi ne vendis sian mielon kaj
 
-ne povis reiri al siaj gepatroj sur la insulo Regoso, 
+ne povis reiri al siaj gepatroj sur la insulo Regoso,
 
 sed la knaba Princo konsolis ŝin kaj promesis ke ŝi
 
-190
-
-!(images/000031.png)
 
 Ĉapitro Dek Tri
 
-estos protektata ĝis ŝi povos reesti en sia hejmo. 
+estos protektata ĝis ŝi povos reesti en sia hejmo.
 
-Rinkitinko trovis la monujon de Reĝino Koro, kiun
+Rinkit trovis la monujon de Reĝino Koro, kiun
 
 pro manko de tempo ŝi ne kunprenis, kaj donis al
 
@@ -7662,17 +7290,14 @@ festenon por ĉiuj virinoj kaj infanoj el Pingario kaj
 
 preparu por ili litojn en la granda palaco, kiu estis
 
-sufiĉe granda por loĝigi ilin ĉiujn. 
+sufiĉe granda por loĝigi ilin ĉiujn.
 
-Post tio la knabo kaj la kapro kaj Rinkitinko kaj
+Post tio la knabo kaj la kapro kaj Rinkit kaj
 
 Zella eniris privatan ĉambron por pripensi kion sekve
 
-fari. 
+fari.
 
-191
-
-!(images/000035.png)
 
 La Eskapo
 
@@ -7680,9 +7305,9 @@ La Eskapo
 
 “Nia eraro,” diris Rinki-
 
-tinko, 
+t,
 
-“konsistas 
+“konsistas
 
 el
 
@@ -7696,27 +7321,26 @@ Regoson, niaj malamikoj ĉiuj venis al Koregoso, kaj
 
 nun kiam ni konkeris Koregoson, la Reĝino fuĝis al
 
-Regoso. Kaj ĉiufoje ili forprenis la ponton el boatoj, 
+Regoso. Kaj ĉiufoje ili forprenis la ponton el boatoj,
 
-por ke ni ne povu sekvi ilin.” 
+por ke ni ne povu sekvi ilin.”
 
 “Kio okazis al nia propra boato, en kiu ni venis
 
-el Pingario?” demandis Bilbilo. 
+el Pingario?” demandis Bilbilo.
 
 “Ni lasis ĝin sur la bordo de Regoso,” respondis la
 
-192
 
 Ĉapitro Dek Kvar
 
 Princo, “sed mi demandas al mi ĉu eble ni povos
 
-rehavi ĝin.” 
+rehavi ĝin.”
 
 “Kial ne demandi la Blankan Perlon?” sugestis
 
-Rinkitinko. 
+Rinkit.
 
 “Jen bona ideo,” respondis la knabo, kaj tuj li tiris
 
@@ -7724,25 +7348,25 @@ la Blankan Perlon el ĝia silka sako kaj tenis ĝin apud
 
 sia orelo. Farinte tion, li demandis: “Kiel mi povos
 
-rehavi nian boaton?” 
+rehavi nian boaton?”
 
 La Voĉo de la Perlo respondis: “Iru al la suda
 
 ekstremo de la Insulo Koregoso, kaj kunfrapu viajn
 
-manojn trifoje kaj la boato venos al vi.” 
+manojn trifoje kaj la boato venos al vi.”
 
-“Tre bone\!” kriis Ingo, kaj post tio li turnis sin al
+“Tre bone!” kriis Ingo, kaj post tio li turnis sin al
 
 siaj kompanoj kaj diris: “Ni povos rehavi nian boaton
 
-kiam ajn ni deziros; sed kion ni faru poste?” 
+kiam ajn ni deziros; sed kion ni faru poste?”
 
-“Portu min hejmen en ĝi\!” pledis Zella. 
+“Portu min hejmen en ĝi!” pledis Zella.
 
-“Venu kun mi al mia Urbo Gilgado,” diris la Reĝo, 
+“Venu kun mi al mia Urbo Gilgado,” diris la Reĝo,
 
-“kie vi estos tre bonvenaj kaj rajtos resti por ĉiam.” 
+“kie vi estos tre bonvenaj kaj rajtos resti por ĉiam.”
 
 “Ne,” respondis Ingo, “mi devas savi miajn patron
 
@@ -7754,21 +7378,20 @@ mia patro en la minoj de Regoso, kaj mia kara patrino
 
 estas forprenita de Reĝino Koro. Antaŭ ol ĉiuj estos
 
-savitaj mi ne povos konsenti foriri de ĉi tiuj insuloj.” 
+savitaj mi ne povos konsenti foriri de ĉi tiuj insuloj.”
 
-“Tute prave\!” kriis Bilbilo. 
+“Tute prave!” kriis Bilbilo.
 
-193
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Repensinte,” diris Rinkitinko, “mi konsentas kun
+“Repensinte,” diris Rinkit, “mi konsentas kun
 
 vi. Se vi zorgos dormi en viaj ŝuoj, kaj neniam
 
 demetos ilin denove, mi kredas ke vi povos plenumi
 
-la taskon kiun vi entreprenis.” 
+la taskon kiun vi entreprenis.”
 
 Ili interkonsiliĝis dum longa tempo pri sia
 
@@ -7786,7 +7409,7 @@ diris al ili ke ili povos iri en sia boato laŭ la bordo
 
 de Regoso al loko kontraŭ la minoj, tiel ili povos eviti
 
-konflikon kun la batalistoj de Reĝo Goso. 
+konflikon kun la batalistoj de Reĝo Goso.
 
 Ĉar decidiĝis ke jen la plej bona agplano, ili decidis
 
@@ -7796,7 +7419,7 @@ proksimiĝas. La servistoj estis plene okupataj per
 
 prizorgado de la virinoj kaj infanoj, do Zella
 
-entreprenis prepari manĝon por Ingo kaj Rinkitinko kaj
+entreprenis prepari manĝon por Ingo kaj Rinkit kaj
 
 si kaj baldaŭ preparis belan manĝon en la kuirejo de la
 
@@ -7804,21 +7427,18 @@ palaco, ĉar ŝi estis bona kuiristineto kaj ofte helpis sian
 
 patrinon. La manĝon ŝi estigis en malgranda ĉambro
 
-kiu elrigardis al la ĝardenoj kaj Rinkitinko opiniis ke la
+kiu elrigardis al la ĝardenoj kaj Rinkit opiniis ke la
 
 plej bona parto ĝia estas la dolĉa mielo, kiun li ŝmiris
 
 sur la panbuletojn kiujn bakis Zella. Rilate al Bilbilo, li
 
-194
 
-!(images/000040.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 vagis tra la tereno de la palaco kaj trovis herbon kiu
 
-fariĝis por li bona manĝo. 
+fariĝis por li bona manĝo.
 
 Dum la vespero Ingo parolis kun la virinoj kaj
 
@@ -7826,19 +7446,19 @@ feliĉigis ilin, promesante ke baldaŭ li rekunigos ilin
 
 kun iliaj edzoj kiuj laboras en la minoj kaj resendos
 
-ilin al ilia propra insulo Pingario. 
+ilin al ilia propra insulo Pingario.
 
 La sekvan matenon la knabo ellitiĝis sunleviĝe frue
 
-kaj trovis ke Zella jam preparis belan matenmanĝon. 
+kaj trovis ke Zella jam preparis belan matenmanĝon.
 
 Kaj post la manĝo ili iris al la plej suda parto de la
 
-insulo, kiu ne estas tre for; Rinkitinko rajdis sur la
+insulo, kiu ne estas tre for; Rinkit rajdis sur la
 
 dorso de Bilbilo kaj Ingo kaj Zella sekvis ilin, man-
 
-en-mane. 
+en-mane.
 
 Kiam ili atingis la randon de la akvo la knabo
 
@@ -7848,9 +7468,9 @@ instrukciis al li la Blanka Perlo. Kaj post kelkaj
 
 momentoj ili trovis tre for la nigran boaton kun la
 
-arĝenta tegaĵo, venantan rapide iliadirekten de la maro. 
+arĝenta tegaĵo, venantan rapide iliadirekten de la maro.
 
-Baldaŭ ĝi surteriĝis sur la plaĝon kaj ili ĉiuj eniris ĝin. 
+Baldaŭ ĝi surteriĝis sur la plaĝon kaj ili ĉiuj eniris ĝin.
 
 Al Zella plaĉegis la boato, kiu estis la plej bela kiun
 
@@ -7864,7 +7484,6 @@ boato ekiris rapide cele al Regoso. Ili ĉirkaŭiris la
 
 pinton de tiu insulo kie la urbo estis konstruita kaj
 
-196
 
 Ĉapitro Dek Kvar
 
@@ -7878,7 +7497,7 @@ pri kion fari, aŭ eble ili jam lernis timi la magiajn
 
 povojn de ĉi tiuj aventurantoj el Pingario kaj ne volis
 
-ataki ilin krom se ilia Reĝo ordonos. 
+ataki ilin krom se ilia Reĝo ordonos.
 
 La bordo de la okcidenta flanko de la Insulo Regoso
 
@@ -7888,19 +7507,19 @@ situon de la minoj de la enlanda arbara pado, ne sciis
 
 decidi kiu el la montoj kiujn ili nun vidas de la maro
 
-estas tiu kie troviĝas la enirejo de la subteraj kavernoj. 
+estas tiu kie troviĝas la enirejo de la subteraj kavernoj.
 
 Unue ŝi kredis ke la ĝusta estas tiu ĉi pinto, kaj poste
 
 ŝi supozis ke estas tiu; do konsiderinda kvanto da
 
-tempo perdiĝis pro ŝia necerto. 
+tempo perdiĝis pro ŝia necerto.
 
 Ili fine decidis alteriĝi kaj esplori la landon, por
 
 vidi kie ili estas, do Ingo direktis la boaton en
 
-malgrandan rokoplenan krekon kie ili ĉiuj elboatiĝis. 
+malgrandan rokoplenan krekon kie ili ĉiuj elboatiĝis.
 
 Dum horo ili serĉis la padon sen trovi spuron de ĝi
 
@@ -7908,7 +7527,7 @@ kaj nun Zella kredis ke ili jam iris tro for norden kaj
 
 devas reiri al alia monto kiu estas pli proksima al la
 
-urbo. 
+urbo.
 
 Denove ili eniris la boaton kaj sekvis la serpent-
 
@@ -7916,9 +7535,8 @@ umantan bordon suden ĝis ili kredis esti atingintaj la
 
 ĝustan lokon. Jam, tamen, komencis senlumiĝi, ĉar la
 
-197
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 tuta tago estis pasigita per serĉado je la enirejo de la
 
@@ -7936,7 +7554,7 @@ surteriĝus kaj batalus ĉiujn sovaĝajn bestojn en la
 
 arbaro anstataŭ trankvile resti en la boato ĝis la
 
-mateno. 
+mateno.
 
 Tamen, nenion sciante pri la ruzaj planoj de
 
@@ -7952,7 +7570,7 @@ la steloj montriĝis en la ĉielo kaj kovris la ondojn
 
 estis belege kviete escepte de hazardaj muĝoj de besto
 
-sur la najbara bordo. 
+sur la najbara bordo.
 
 Ili interparolis trankvile pri siaj aventuroj kaj
 
@@ -7962,19 +7580,18 @@ simplan historion kaj pri kiel ŝia povra patro devas
 
 labori, bruligante braĝon por vendi ĝin por sufiĉa
 
-mono por subteni siajn edzinon kaj infanon. 
+mono por subteni siajn edzinon kaj infanon.
 
 Nikoroĉjo eble estas la plej humila viro en la tuta
 
-Regoso, sed Zella deklaris lin bonulo, kaj honestulo, 
+Regoso, sed Zella deklaris lin bonulo, kaj honestulo,
 
-198
 
 Ĉapitro Dek Kvar
 
-kaj ne kulpis li ke lian landon regas tiel fia Reĝo. 
+kaj ne kulpis li ke lian landon regas tiel fia Reĝo.
 
-Post tio Rinkitinko, por amuzi ilin, proponis kanti, 
+Post tio Rinkit, por amuzi ilin, proponis kanti,
 
 kaj kvankam Bilbilo protestis laŭ sia malafabla
 
@@ -7982,71 +7599,70 @@ maniero, pretendante ke la voĉo de lia mastro estas
 
 fendita kaj malagrabla, la malgrandan Reĝon kuraĝ-
 
-igis la aliaj kanti sian kanton, kaj tion li faris. 
+igis la aliaj kanti sian kanton, kaj tion li faris.
 
-“Ned, ruĝharulo sed mortulo, 
+“Ned, ruĝharulo sed mortulo,
 
-Kantu fidle-kum-fadle-kum-fi-do\! 
+Kantu fidle-kum-fadle-kum-fi-do!
 
-En batal’ kap’ iĝis nulo; 
+En batal’ kap’ iĝis nulo;
 
-Kantu fidle-kum-fadle-kum-fi-do\! 
+Kantu fidle-kum-fadle-kum-fi-do!
 
-‘Ho ve, Ned\!’, diris mi, ‘sur tulo
+‘Ho ve, Ned!’, diris mi, ‘sur tulo
 
 Kial perdis vi kapbulon?’
 
-Kantu fidle-kum-fadle-kum-fi-do\! 
+Kantu fidle-kum-fadle-kum-fi-do!
 
 “Diris Ned: ‘Por la land’ mi sangis,’
 
-Kantu fidle-kum-fadle-kum-fi-do\! 
+Kantu fidle-kum-fadle-kum-fi-do!
 
 ‘Do mort’ en lit’ al mi mankis;’
 
-Kantu fidle-kum-fadle-kum-fi-do\! 
+Kantu fidle-kum-fadle-kum-fi-do!
 
 ‘Sed kial per fuĝ’ ne flankis
 
 Kaj plu la kapon por mi dankis?’
 
-Kantu fidle-kum-fadle-kum-fi-do\! 
+Kantu fidle-kum-fadle-kum-fi-do!
 
-“Al Ned mi diris—” 
+“Al Ned mi diris—”
 
-199
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Tamen ĉesu, Via Moŝto\!” petegis Bilbilo. “Vi
+“Tamen ĉesu, Via Moŝto!” petegis Bilbilo. “Vi
 
-dolorigas mian kapon.” 
+dolorigas mian kapon.”
 
-“Sed la kanto ne estas finita,” respondis Rinkitinko, 
+“Sed la kanto ne estas finita,” respondis Rinkit,
 
 “kaj rilate al via kapdoloro, pensu pri povra Ned, kiu
 
-ne plu eĉ havis kapon\!” 
+ne plu eĉ havis kapon!”
 
-“Mi povas pensi nur pri via morna kantado,” 
+“Mi povas pensi nur pri via morna kantado,”
 
 respondis Bilbilo kolere. “Kial vi ne elektis feliĉigan
 
 temon, anstataŭ paroli pri kiel mortulo perdis sian
 
-ruĝan kapbulon? Vere, Rinkitinko, vi mirigas min.” 
+ruĝan kapbulon? Vere, Rinkit, vi mirigas min.”
 
-“Mi parkere lernis belegan kanton pri vivanto,” 
+“Mi parkere lernis belegan kanton pri vivanto,”
 
-diris la Reĝo. 
+diris la Reĝo.
 
-“Do ne kantu ĝin,” petegis Bilbilo. 
+“Do ne kantu ĝin,” petegis Bilbilo.
 
 Zellan kaj mirigis kaj malfeliĉigis la senrespektaj
 
 vortoj de la kapro, ĉar ŝi vere ĝuis la kantadon de
 
-Rinkitinko kaj al ŝi estis instruita deca respekto al
+Rinkit kaj al ŝi estis instruita deca respekto al
 
 Reĝoj kaj altaŭtoritatuloj. Sed ĉar nun malfruiĝis ili
 
@@ -8060,35 +7676,32 @@ gardataj sub la seĝoj precize por tiaj eventoj. Ili ne
 
 bezonis longan tempon por endormiĝi kaj ne vekiĝis
 
-antaŭ la tagiĝo. 
+antaŭ la tagiĝo.
 
 Post hasta matenmanĝo, ĉar Ingo fervoris liberigi
 
-200
 
-!(images/000002.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 sian patron, la knabo remis la boaton al la tero
 
-kaj ili ĉiuj surteriĝis kaj komencis serĉi la padon. 
+kaj ili ĉiuj surteriĝis kaj komencis serĉi la padon.
 
 Zella trovis ĝin dum la sekva duonhoro kaj
 
 deklaris ke ili sendube estas tre proksimaj al la
 
-enirejo de la minoj; do ili sekvis la padon norden, 
+enirejo de la minoj; do ili sekvis la padon norden,
 
 Ingo iris la unua, kaj Zella sekvis lin, dum Rinki-
 
-tinko estis malantaŭ ili rajdante sur la dorso de
+t estis malantaŭ ili rajdante sur la dorso de
 
-Bilbilo. 
+Bilbilo.
 
 Post nelonge ili vidis grandan muron el roko
 
-turanta antaŭ ili, en kiu estas malalta arkhava enirejo, 
+turanta antaŭ ili, en kiu estas malalta arkhava enirejo,
 
 kaj ambaŭflanke de tiu enirejo staras gardisto, armita
 
@@ -8102,29 +7715,28 @@ por ke ili ne eskapu; sed ili estis tiom kruelaj kiom
 
 deziris ilia kruela mastro, kaj egale kovardaj kiel
 
-kruelaj. 
+kruelaj.
 
 Ingo marŝis al la du viroj ĉe la enirejo kaj diris:
 
 “Ĉu ĉi tiu aperturo kondukas al la minoj de Reĝo
 
-Goso?” 
+Goso?”
 
 “Jes,” respondis unu el la gardistoj, “sed estas
 
-malpermesate ke iu kiu jam eniris eliros.” 
+malpermesate ke iu kiu jam eniris eliros.”
 
 “Tamen,” diris la knabo, “ni intencas eniri kaj ni
 
 elvenos kiam ajn ni deziros. Mi estas la Princo de
 
-202
 
 Ĉapitro Dek Kvar
 
 Pingario, kaj mi venis liberigi mian popolon, kiun
 
-sklavigis Reĝo Goso.” 
+sklavigis Reĝo Goso.”
 
 Nu kiam la du gardistoj aŭdis tiun parolon ili
 
@@ -8132,27 +7744,27 @@ rigardis unu la alian kaj ridis, kaj unu el ili diris:
 
 “La Reĝo pravis, ĉar li diris ke la knabo verŝajne
 
-venos ĉi tien kaj ke li provos liberigi sian popolon. 
+venos ĉi tien kaj ke li provos liberigi sian popolon.
 
 Kaj ankaŭ la Reĝo ordonis ke ni restigu la Princeton
 
 en la minoj, kaj devigu lin labori, kune kun liaj
 
-kompanoj.” 
+kompanoj.”
 
-“Do ni obeu la Reĝon,” respondis la alia viro. 
+“Do ni obeu la Reĝon,” respondis la alia viro.
 
 Ingon surprizis aŭdi tion, kaj li demandis:
 
-“Kiam Reĝo Goso donis al vi tiun ordonon?” 
+“Kiam Reĝo Goso donis al vi tiun ordonon?”
 
-“Lia Moŝto mem estis ĉi tie la pasintan nokton,” 
+“Lia Moŝto mem estis ĉi tie la pasintan nokton,”
 
-respondis la viro, “kaj li reforiris antaŭ nur unu horo. 
+respondis la viro, “kaj li reforiris antaŭ nur unu horo.
 
 Li suspektis ke vi venas ĉi tien kaj diris ke ni kaptu
 
-vin se ni povos.” 
+vin se ni povos.”
 
 Tiu raporto tre malkvietigis la knabon, ne rilate al
 
@@ -8162,7 +7774,7 @@ iel. Do li rapidis eniri la minojn kaj la gardistoj faris
 
 nenion por kontraŭi lin aŭ liajn kompanojn, ĉar la
 
-ordono al ili diris ke ili permesu lin eniri sed ne eliri. 
+ordono al ili diris ke ili permesu lin eniri sed ne eliri.
 
 La malgranda grupo de aventurantoj pasis tra
 
@@ -8170,15 +7782,14 @@ longa roka koridoro kaj atingis nealtan, larĝan
 
 kavernon kie ili trovis dekduon da gardistoj kaj cent
 
-203
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 sklavojn, ĉi tiuj laboregadis per pioĉoj kaj ŝoveloj
 
 fosante oron, dum la gardistoj staras estrante ilin per
 
-longaj vipoj. 
+longaj vipoj.
 
 Ingo trovis multajn el la viroj el Pingario inter tiuj
 
@@ -8186,15 +7797,15 @@ sklavoj, sed Reĝo Kitikuto ne estis en tiu kaverno; do
 
 ili trapasis ĝin kaj eniris alian koridoron kondukantan
 
-al dua kaverno. Ankaŭ tie centoj da viroj laboradis, 
+al dua kaverno. Ankaŭ tie centoj da viroj laboradis,
 
 sed la knabo ne trovis sian patron inter ili, do ili
 
-pluiris al tria kaverno. 
+pluiris al tria kaverno.
 
 La koridoroj ĉiuj deklivetis malsupren, tiel ke ju
 
-pli ili iris des pli malsupren en la teron ili descendis, 
+pli ili iris des pli malsupren en la teron ili descendis,
 
 kaj nun ili trovis la aeron varmega kaj prema kaj
 
@@ -8202,7 +7813,7 @@ malfacile spirebla. Flamantaj torĉoj estis metitaj en la
 
 murojn por doni lumon al la laborantoj, kaj tiuj
 
-aldonis al la superprema varmego. 
+aldonis al la superprema varmego.
 
 La tria kaj plej suba kaverno estis la lasta en la
 
@@ -8222,13 +7833,10 @@ paŝis al kelkaj el la viroj el Pingario kaj petis
 
 informon pri sia patro, dirante al ili ke ili ne timu la
 
-204
 
-!(images/000019.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-gardistojn ĉar li protektos ilin kontraŭ la vipoj. 
+gardistojn ĉar li protektos ilntraŭ la vipoj.
 
 Tiam li informiĝis ke Reĝo Kitikuto ja vere laboris
 
@@ -8236,9 +7844,9 @@ en ĉi tiu kaverno mem ĝis la antaŭa vespero, kiam
 
 Reĝo Goso venis kaj forkondukis lin—ankoraŭ
 
-ŝarĝitan per ĉenoj. 
+ŝarĝitan per ĉenoj.
 
-“Ŝajnas al mi,” diris Reĝo Rinkitinko, kiam li
+“Ŝajnas al mi,” diris Reĝo Rinkit, kiam li
 
 aŭdis tiun raporton, “ke Goso forkondukis vian
 
@@ -8246,11 +7854,11 @@ patron al Regoso, por ke ni ne savu lin. Li eble
 
 kaŝos povran Kitikuton en karcero, kie ni ne povos
 
-trovi lin.” 
+trovi lin.”
 
 “Eble vi pravas,” respondis la knabo, “sed mi firme
 
-intencas trovi lin, negrave kie li estas.” 
+intencas trovi lin, negrave kie li estas.”
 
 Ingo parolis firme kaj kuraĝe, sed lin multe
 
@@ -8266,7 +7874,7 @@ gardistoj, li diris:
 
 “Forprenu la ĉenojn de ĉi tiuj sklavoj kaj liberigu
 
-ilin.” 
+ilin.”
 
 La gardistoj ridis pro tiu ordono, kaj unu el ili
 
@@ -8274,11 +7882,8 @@ alportis manplenon da ĉenoj, dirante: “Lia Moŝto
 
 ordonis ke ni sklavigu ankaŭ vin, ĉar vi neniam reiros
 
-el ĉi tiuj kavernoj.” 
+el ĉi tiuj kavernoj.”
 
-206
-
-!(images/000026.jpg)
 
 Ĉapitro Dek Kvar
 
@@ -8292,7 +7897,7 @@ ekkuris kapti lin, la Princo svingis la finaĵon de la
 
 ĉeno kvazaŭ vipon kaj pelis ilin en angulon, kie ili
 
-kaŭriĝis kaj petegis kompaton. 
+kaŭriĝis kaj petegis kompaton.
 
 Rakontoj pri la miriga forto de la knaba Princo
 
@@ -8304,7 +7909,7 @@ Reĝo Goso diris al ili ke de Ingo jam estis forprenita
 
 estas vera, do ili opiniis ke estas saĝe ne provi
 
-kontraŭi lin. 
+kontraŭi lin.
 
 La ĉenoj de la sklavoj estis ĉiuj nititaj firme al
 
@@ -8320,7 +7925,7 @@ estis tre dankemaj, kiel vi povas supozi, kaj akceptis
 
 subteni princon Ingon negrave kian agadon li
 
-ordonos. 
+ordonos.
 
 Li gvidis ilin al la meza kaverno, kie ĉiuj gardistoj
 
@@ -8330,11 +7935,10 @@ baldaŭ li disrompis la ĉenojn de la sklavoj laborintaj
 
 en tiu parto de la minoj. Tie ili proksimiĝis al la
 
-207
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-unua kaverno kaj liberigis ĉiujn tri. 
+unua kaverno kaj liberigis ĉiujn tri.
 
 La sklavojn traktis tiel kruele la servistoj de Reĝo
 
@@ -8348,25 +7952,25 @@ ordonis ke ili marŝu bonorde laŭ la pado al la Urbo
 
 Regoso, kie li renkontos ilin kaj ordonos al ili kion
 
-sekve fari. 
+sekve fari.
 
 Ili volonte konsentis, kaj, arminte sin per feraj
 
-stangoj kaj pioĉhakiloj kiujn ili alportis el la minoj, 
+stangoj kaj pioĉhakiloj kiujn ili alportis el la minoj,
 
-la sklavoj komencis sian marŝon al la urbo. 
+la sklavoj komencis sian marŝon al la urbo.
 
 Unue Zella volis postresti, por povi marŝi al sia
 
-propra hejmo, sed nek Rinkitinko nek Ingo opiniis ke
+propra hejmo, sed nek Rinkit nek Ingo opiniis ke
 
 ŝi estus sekura vagante sola tra la arbaro, do ili
 
-instigis ŝin reiri kun ili al la urbo. 
+instigis ŝin reiri kun ili al la urbo.
 
 La knabo surterigis sian boaton ĉifoje ĉe la sama
 
-loko kiel kiam li unue alteriĝis ĉe Regoso, kaj, 
+loko kiel kiam li unue alteriĝis ĉe Regoso, kaj,
 
 kvankam multaj el la batalistoj staris sur la bordo
 
@@ -8378,21 +7982,18 @@ maltrankvilaj kaj malkvietaj, kaj kiam Ingo renkontis
 
 Kapitanon Buzumon li demandis ĉu io okazis dum
 
-lia foresto. 
+lia foresto.
 
 “Multo okazis,” respondis Buzubo. “Niaj Reĝo kaj
 
-208
-
-!(images/000047.png)
 
 Ĉapitro Dek Kvar
 
 Reĝino forkuris kaj lasis nin, kaj ni ne scias kion
 
-fari.” 
+fari.”
 
-“Forkuris\!” kriis Ingo. “Kien ili iris?” 
+“Forkuris!” kriis Ingo. “Kien ili iris?”
 
 “Kiu scias?” diris la viro, gestante malgaje per sia
 
@@ -8400,11 +8001,8 @@ kapo. “Ili foriris antaŭ kelkaj horoj, en boato kun
 
 kvardek remistoj, kaj ili kunprenis la Reĝon kaj
 
-Reĝinon de Pingario\!” 
+Reĝinon de Pingario!”
 
-209
-
-!(images/000051.png)
 
 La Fuĝo de la Regantoj
 
@@ -8428,49 +8026,48 @@ kun si al Regoso. La batalistoj de Reĝo Goso neniam
 
 antaŭe vidis la teruran Reĝinon Koron tima, kaj tial
 
-kiam ŝi venis kurante trans la ponton el boatoj, 
+kiam ŝi venis kurante trans la ponton el boatoj,
 
 trenante la Reĝinon de Pingario per unu brako, la
 
 efiko de la timego de la virino estis terurigi la
 
-210
 
 Ĉapitro Dek Kvin
 
-atendantajn batalistojn. 
+atendantajn batalistojn.
 
-“Ek\!” kriis Koro. “Detruu la ponton, alie ni
+“Ek!” kriis Koro. “Detruu la ponton, alie ni
 
-pereos.” 
+pereos.”
 
 Dum la viroj fortiris la ponton el boatoj la Reĝino
 
 kuris al la palaco de Goso, kie ŝi renkontis sian
 
-edzon. 
+edzon.
 
-“Tiu knabo estas sorĉisto\!” ŝi elspiregis. “Ne eblas
+“Tiu knabo estas sorĉisto!” ŝi elspiregis. “Ne eblas
 
-kontraŭstari lin.” 
+kontraŭstari lin.”
 
 “Ho, ĉu fine vi trovis lian magion?” respondis
 
 Goso, ridante al ŝia vizaĝo. “Kiu, nun, do estas la
 
-kovardo?” 
+kovardo?”
 
-“Ne ridu\!” kriis Reĝino Koro. “Nenio komika
+“Ne ridu!” kriis Reĝino Koro. “Nenio komika
 
 okazas. Ambaŭ niaj insuloj estas en la vero
 
-konkeritaj, jam ĉi-minute. Kion ni faru, Goso?” 
+konkeritaj, jam ĉi-minute. Kion ni faru, Goso?”
 
-“Envenu,” li diris, serioziĝante, “kaj ni diskutu.” 
+“Envenu,” li diris, serioziĝante, “kaj ni diskutu.”
 
 Do ili eniris ĉambron de la palaco kaj diskutis
 
-longe kaj tre serioze. 
+longe kaj tre serioze.
 
 “La knabo intencas liberigi siajn patron kaj
 
@@ -8482,13 +8079,12 @@ niajn palacojn kaj sklavigos nin. Mi vidas nur unu
 
 metodon, Goso, por malebligi ke li faros ĉion ĉi, kaj
 
-kion ajn alian li deziras.” 
+kion ajn alian li deziras.”
 
-“Kiu metodo estas?” demandis Reĝo Goso. 
+“Kiu metodo estas?” demandis Reĝo Goso.
 
-211
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 “Ni devas forkonduki la gepatrojn el ĉi tie kiel
 
@@ -8508,7 +8104,7 @@ knaba sorĉisto ke se li ne foriros de niaj insuloj kaj
 
 permesos nin regi ilin neĝenate, laŭ nia propra
 
-maniero, ni mortigos liajn patron kaj patrinon. 
+maniero, ni mortigos liajn patron kaj patrinon.
 
 Ankaŭ ni diros ke nur dum li lasos nin neĝenataj
 
@@ -8518,13 +8114,13 @@ kaŝitaj. Mi kredas, Goso, ke tiumaniere ni povos
 
 devigi Princon Ingon obei nin, ĉar ŝajne li multe
 
-amas siajn gepatrojn.” 
+amas siajn gepatrojn.”
 
 “Ne malbona ideo,” diris Goso, penseme; “sed kie
 
 ni povos kaŝi la Reĝon kaj Reĝinon, tiel ke la knabo
 
-ne povos trovi ilin?” 
+ne povos trovi ilin?”
 
 “En la lando de la Reĝo de la Knomoj, sur la
 
@@ -8538,15 +8134,12 @@ ni povos sukcese konduki la Reĝon kaj Reĝinon de
 
 Pingario al la Regno de la Knomoj antaŭ ol la
 
-212
 
-!(images/000059.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 knabo scios kion ni faras, mi estas certa ke nia
 
-komploto sukcesos.” 
+komploto sukcesos.”
 
 Goso multe pripensis la planon dum la sekvaj
 
@@ -8560,7 +8153,7 @@ minoj, kie li alvenis antaŭ ol Princo Ingo. La
 
 sekvan matenon li rekondukis Reĝon Kitikuton al
 
-Regoso. 
+Regoso.
 
 Dum Goso estis for, Reĝino Koro okupis sin per
 
@@ -8582,41 +8175,35 @@ popolo kaj ordonis ke la remistoj komencu, kaj
 
 baldaŭ ili estis nevideble for sur la larĝa surfaco de
 
-la Nonesta Oceano. 
+la Nonesta Oceano.
 
 Ingo venis al la urbo kelkajn horojn poste kaj lin
 
 multe ĉagrenis la sciiĝo ke liaj patroj kaj patrino estis
 
-kaŝe forprenitaj for de la insuloj. 
+kaŝe forprenitaj for de la insuloj.
 
 “Mi sekvos ilin, kompreneble,” diris la knabo al
 
-214
-
-!(images/000063.png)
 
 Ĉapitro Dek Kvin
 
-Rinkitinko, “kaj se mi ne povos atingi ilin sur la
+Rinkit, “kaj se mi ne povos atingi ilin sur la
 
-oceano mi traserĉos la tutan mondon ĝis trovi ilin. 
+oceano mi traserĉos la tutan mondon ĝis trovi ilin.
 
 Sed antaŭ ol foriri el ĉi tie mi devas aranĝi resendi
 
-nian popolon al Pingario.” 
+nian popolon al Pingario.”
 
-215
-
-!(images/000070.png)
 
 Nikoroĉjo Rifuzas Kronon
 
 ĈAPITRO 16
 
-Preskaŭ 
+Preskaŭ
 
-la 
+la
 
 unuaj
 
@@ -8630,7 +8217,7 @@ Regoso estis ŝiaj patro kaj
 
 patrino. Nikoroĉjon kaj lian edzinon multe
 
-maltrankviligis la nereveno de sia filineto el Koregoso, 
+maltrankviligis la nereveno de sia filineto el Koregoso,
 
 do ili eliris por trovi kio okazis al ŝi. Kiam ili atingis
 
@@ -8638,27 +8225,26 @@ la Urbon Regoson, tiun matenon mem, ilin mirigis
 
 aŭdi informojn pri la multaj strangaj eventoj
 
-okazintaj; tamen, ilin konsolis la informo ke oni vidis
+okazintaj; tamen, ilnsolis la informo ke oni vidis
 
-Zellan en la boato de Princo Ingo, kiu iris norden. 
+Zellan en la boato de Princo Ingo, kiu iris norden.
 
-216
 
 Ĉapitro Dek Ses
 
-Poste, dum ili demandis al si kion povas signifi tio, 
+Poste, dum ili demandis al si kion povas signifi tio,
 
-la arĝente tegita boato reaperis, kun ilia filino en si, 
+la arĝente tegita boato reaperis, kun ilia filino en si,
 
 kaj ili kuris al la bordo por bonvenigi ŝin kaj multe
 
-ĝoje kisi ŝin. 
+ĝoje kisi ŝin.
 
 Ingo invitis la du bonulojn al la palaco de Reĝo
 
-Goso, kie li konsiliĝis kun ili, ankaŭ kun Rinkitinko
+Goso, kie li konsiliĝis kun ili, ankaŭ kun Rinkit
 
-kaj Bilbilo. 
+kaj Bilbilo.
 
 “Nun post la forkuro de la Reĝo kaj Reĝino de
 
@@ -8670,33 +8256,32 @@ reganton, kaj ĉar Nikoroĉjo, la patro de Zella, estas
 
 honesta kaj fidinda persono, mi nomumos lin la Reĝo
 
-de la Ĝemelaj Insuloj.” 
+de la Ĝemelaj Insuloj.”
 
-“Min?” kriis Nikoroĉjo, mirigita pro tiu parolo. 
+“Min?” kriis Nikoroĉjo, mirigita pro tiu parolo.
 
 “Mi petegas Vian Moŝton, sur miaj genuoj, ne tiele
 
-kruele trakti min, ne faru el mi Reĝon\!” 
+kruele trakti min, ne faru el mi Reĝon!”
 
-“Kial ne?” demandis Rinkitinko. “Mi estas Reĝo, 
+“Kial ne?” demandis Rinkit. “Mi estas Reĝo,
 
 kaj mi konas la senton. Mi certigas al vi, bona
 
-Nikoroĉjo, ke mi multe ĝuas mian altan rangon, 
+Nikoroĉjo, ke mi multe ĝuas mian altan rangon,
 
 kvankam juveloplena krono ja estas iom peza sur-
 
-kapaĵo dum la varmega vetero.” 
+kapaĵo dum la varmega vetero.”
 
 “Por vi, nobla sinjoro, estas malsimile,” diris
 
 Nikoroĉjo, “ĉar vi estas tre for de via regno kaj ĝiaj
 
-ĉagrenoj kaj ĝenoj kaj povas fari kion ajn vi volas. 
+ĉagrenoj kaj ĝenoj kaj povas fari kion ajn vi volas.
 
-217
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Sed resti en Regoso, kiel Reĝo de ĉi tiuj ferocaj kaj
 
@@ -8710,13 +8295,13 @@ faris nenian damaĝon al iu ajn kaj mi penis esti bona
 
 kaj justa persono, mi ne opinias ke mi devus esti
 
-kondamnita al tia terura fato.” 
+kondamnita al tia terura fato.”
 
 “Tute bone,” respondis Ingo, “ni ne plu parolos pri
 
 via reĝiĝo. Mi nur volis riĉigi kaj prosperigi vin, laŭ
 
-mia promeso al Zella.” 
+mia promeso al Zella.”
 
 “Bonvolu forgesi tiun promeson,” petegis la braĝo-
 
@@ -8730,31 +8315,28 @@ vi riĉigos kaj prosperigos min mi tuj fariĝos predoto
 
 de ŝtelistoj kaj perfortistoj kaj verŝajne perdos mian
 
-vivon penante protekti mian riĉon.” 
+vivon penante protekti mian riĉon.”
 
-Ingo rigardis la viron surprizite. 
+Ingo rigardis la viron surprizite.
 
-“Kion, do, mi povos fari plaĉe al vi?” li demandis. 
+“Kion, do, mi povos fari plaĉe al vi?” li demandis.
 
 “Nenion pli ol permesi ke mi iru al mia povra
 
-kabano,” diris Nikoroĉjo. 
+kabano,” diris Nikoroĉjo.
 
-“Eble,” komentis Reĝo Rinkitinko, “la braĝo-
+“Eble,” komentis Reĝo Rinkit, “la braĝo-
 
 bruligisto havas pli da saĝo kaŝita en tiu malmola
 
-kapo lia ol ni supozis pri li. Sed ni uzu tiun saĝon, 
+kapo lia ol ni supozis pri li. Sed ni uzu tiun saĝon,
 
-218
 
-!(images/000074.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 nune, por akiri konsilon pri kion fari dum ĉi tiu
 
-krizo.” 
+krizo.”
 
 “Kion vi nomas mia saĝo,” diris Nikoroĉjo, “estas
 
@@ -8770,7 +8352,7 @@ vivas nerimarkate kaj nekonate eskapas el ĉiuj tiuj
 
 ĝenoj kaj estas la sola persono kiu povas vere ĝui la
 
-vivon.” 
+vivon.”
 
 “Se mi havus manon, anstaŭ fenditan hufon, mi
 
@@ -8778,13 +8360,13 @@ volonte premus vian manon, Nikoroĉjo,” diris Bilbilo
 
 la kapro. “Sed la malriĉulo nepre ne havu kruelan
 
-mastron, alie li ja suferus.” 
+mastron, alie li ja suferus.”
 
 Dum la interkonsiliĝo ili trovis, efektive, ke la
 
 konsilo de la braĝobruligisto estas kaj sagaca kaj
 
-bonsenca, kaj ili multe profitis per liaj vortoj. 
+bonsenca, kaj ili multe profitis per liaj vortoj.
 
 Ingo donis al Kapitano Buzubo la rajton komandi
 
@@ -8800,7 +8382,6 @@ bezonas kaj stoki ilin per provizaĵoj kaj forremi al siaj
 
 propraj landoj. Kiam ili estis foririntaj, elkore
 
-220
 
 Ĉapitro Dek Ses
 
@@ -8814,7 +8395,7 @@ rekonstruu siajn domojn kaj poste starigu novan
 
 reĝan palacon. Ili post tio atendu pacience la venon
 
-de Reĝo Kitikuto aŭ de Princo Ingo. 
+de Reĝo Kitikuto aŭ de Princo Ingo.
 
 “Min plej maltrankviligas,” diris la knabo al siaj
 
@@ -8826,7 +8407,7 @@ miaj homoj estas perlofiŝistoj, kaj kvankam volontaj
 
 kaj honestaj, ili ne havas talenton estri la laboradon
 
-de aliaj personoj.” 
+de aliaj personoj.”
 
 Dum oni faris la preparojn por foriro, Nikoroĉjo
 
@@ -8852,13 +8433,12 @@ ajn pli, kiom ili bezonos por komfortigi siajn novajn
 
 hejmojn, tiel ke multaj boatoj estis plene ŝarĝitaj per
 
-221
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 varoj kiuj ebligos ke la popolo redonu al Pingario
 
-ĝian antaŭan komforton. 
+ĝian antaŭan komforton.
 
 Por la nova palaco de sia patro la knabo rabis el
 
@@ -8870,7 +8450,7 @@ novan loĝejon de Reĝo Kitikuto egale bele ornamita
 
 kaj meblita kiel tiu kiun la senkompataj invadintoj el
 
-Regoso detruis. 
+Regoso detruis.
 
 La amaso da boatoj estis granda, forvelante dum
 
@@ -8890,9 +8470,9 @@ patrinon tien; krom se, efektive, Reĝo Goso fie detruis
 
 liajn amatajn gepatrojn, kiuokaze Ingo fariĝus la Reĝo
 
-de Pingario kaj li devus iri al sia popolo kaj regi ĝin. 
+de Pingario kaj li devus iri al sia popolo kaj regi ĝin.
 
-Dum la lastaj boatoj pretiĝis veli al Pingario, 
+Dum la lastaj boatoj pretiĝis veli al Pingario,
 
 Nikoroĉjo, kiu multe servis pri ilia pretigado, venis al
 
@@ -8904,11 +8484,8 @@ foriri de Regoso kaj ekloĝi en via insulo, en nova
 
 hejmo. Laŭ tio kion diras via popolo al mi, Pingario
 
-222
 
-!(images/000081.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 estas pli bona loĝejo ol Regoso, kaj ne ekzistas tie
 
@@ -8918,7 +8495,7 @@ timigas pri la sekureco de la amatoj. Tial, mi venis
 
 por peti permeson iri kun mia familio en unu el tiuj
 
-boatoj.” 
+boatoj.”
 
 Al Ingo multe plaĉis tiu propono kaj li ne nur
 
@@ -8936,17 +8513,17 @@ mem alvenos, kaj la popolo aprobis tiun ordonon ĉar
 
 ili amis Nikoroĉjon kaj sciis ke li estas justa kaj
 
-honesta. 
+honesta.
 
 Tuj kiam la lasta boato de la granda floto malaperis
 
-el la vidkapablo de la personoj restantaj en Regoso, 
+el la vidkapablo de la personoj restantaj en Regoso,
 
-Ingo kaj Rinkitinko preparis mem foriri de la insulo. 
+Ingo kaj Rinkit preparis mem foriri de la insulo.
 
 La knabo fervoris atingi la boaton de Reĝo Goso, se
 
-eble, kaj Rinkitinko tute ne deziris resti en Regoso. 
+eble, kaj Rinkit tute ne deziris resti en Regoso.
 
 Buzubo kaj la batalistoj staris silente sur la bordo
 
@@ -8956,11 +8533,8 @@ foriris, kaj mi estas certa ke ili tiom ĝojis pro la foriro
 
 de iliaj nebonvenaj vizitintoj kiom Ingo kaj Rinki-
 
-tinko kaj Bilbilo ĝojis foriri. 
+t kaj Bilbilo ĝojis foriri.
 
-224
-
-!(images/000028.png)
 
 Ĉapitro Dek Ses
 
@@ -8974,11 +8548,8 @@ tute sen laciĝi. Sed, kvankam la nigra boato moviĝis
 
 tre rapide, ĝi malsukcesis atingi la barĝon kiun remas
 
-la kvardek elektitaj remistoj de Reĝino Koro. 
+la kvardek elektitaj remistoj de Reĝino Koro.
 
-225
-
-!(images/000107.png)
 
 La Reĝo de la Knomoj
 
@@ -8992,11 +8563,11 @@ Oceanon, de kiu ĝi estas
 
 apartigita de la Regno de
 
-Rinkitinko kaj la lando
+Rinkit kaj la lando
 
 de la Raduloj, kiu estas parto de la Lando Ev. La
 
-lando de Rinkitinko estas apartigita disde la lando de
+lando de Rinkit estas apartigita disde la lando de
 
 la Knomoj de vico de altaj kaj krutaj montoj, de kiuj
 
@@ -9008,7 +8579,6 @@ la Nonesta Oceano kaj aliflanke ne havas barieron
 
 por apartigi ĝin de la Lando de la Knomoj, tial sur
 
-226
 
 Ĉapitro Dek Sep
 
@@ -9016,19 +8586,19 @@ la bordon de la Raduloj Reĝo Goso surteriĝis—en
 
 loko tute dizertita de ĉiuj kuriozaj loĝantoj de tiu
 
-lando. 
+lando.
 
 La Lando de la Knomoj estas tre vasta, kaj estas
 
-apartigita disde la Lando Oz, ĉe sia orienta bordo, 
+apartigita disde la Lando Oz, ĉe sia orienta bordo,
 
 nur de Mortiga Dezerto kiun ne povas transiri
 
-mortipovuloj, krom se ilin helpas la feoj aŭ magio. 
+mortipovuloj, krom se ilin helpas la feoj aŭ magio.
 
 La Knomoj estas grandnombra kaj petolema
 
-popolo, loĝanta en subteraj kavernoj tre larĝaj, 
+popolo, loĝanta en subteraj kavernoj tre larĝaj,
 
 interkonektitaj per arkaĵoj kaj koridoroj. La vorto
 
@@ -9048,29 +8618,28 @@ enterigas ĝin, kaj eble jen la kialo ke nur ili mem
 
 scias kie trovi ĝin. La knomojn regis, dum la tempo
 
-pri kiu mi skribas, Reĝo nomata Kalikoto. 
+pri kiu mi skribas, Reĝo nomata Kalikoto.
 
 Reĝo Goso anticipis esti ĉasata de Ingo en lia
 
 magia boato, do li laŭeble plej rapidis, urĝante siajn
 
-kvardek remistojn plej forte labori nokte kaj tage. 
+kvardek remistojn plej forte labori nokte kaj tage.
 
 Ĝojige al li li ne estis atingita, sed surteriĝis sur la
 
-sabla plaĝo de la Raduloj la matenon de la oka tago. 
+sabla plaĝo de la Raduloj la matenon de la oka tago.
 
-227
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 La kvardek remistoj lasiĝis kun la boato, dum
 
-Reĝino Koro kaj Reĝo Goso, kun siaj reĝaj kaptitoj, 
+Reĝino Koro kaj Reĝo Goso, kun siaj reĝaj kaptitoj,
 
 kiuj estis ankoraŭ ĉenitaj, komencis la veturon al la
 
-Reĝo de la Knomoj. 
+Reĝo de la Knomoj.
 
 Post nelonge ili pasis la sablojn kaj atingis la rokan
 
@@ -9082,7 +8651,7 @@ kavernoj en kiuj loĝas la Reĝo de la Knomoj. Estis
 
 obskureta pado serpentumanta inter ŝtonoj kaj
 
-rokegoj, trans kiujn la marŝado estis tre malfacila, 
+rokegoj, trans kiujn la marŝado estis tre malfacila,
 
 precipe ĉar la pado kondukis trans montetojn kiuj
 
@@ -9096,7 +8665,7 @@ veturo ili grimpis duonvoje sur severa monto kaj
 
 trovis sin ĉe la enirejo de la kavernoj de la Reĝo de
 
-la Knomoj. 
+la Knomoj.
 
 Je ilia alveno, la enirejo aspektis libera kaj
 
@@ -9110,11 +8679,8 @@ faliloj. Do Reĝo Goso staris senmove kaj kriis, kaj tuj
 
 ilin ekĉirkaŭis grupo de malrektaj knomoj, kiuj
 
-kvazaŭ saltis el la tero. 
+kvazaŭ saltis el la tero.
 
-228
-
-!(images/000114.jpg)
 
 Ĉapitro Dek Sep
 
@@ -9122,7 +8688,7 @@ Unu el ili havis tre longajn orelojn kaj nomiĝis La
 
 Longorela Aŭdanto. Li diris: “Mi aŭdis vin venantaj
 
-frue ĉimatene.” 
+frue ĉimatene.”
 
 Alia havis okulojn kiuj rigardas diversdirekte je la
 
@@ -9132,31 +8698,31 @@ povis transrigardi monteton aŭ ĉirkaŭ angulon kaj
 
 nomiĝis La Vidisto. Diris li: “Mi vidis vin venantaj
 
-hieraŭ.” 
+hieraŭ.”
 
 “Sekve,” diris Reĝo Goso, “eble Reĝo Kalikoto
 
-ekspektas nin.” 
+ekspektas nin.”
 
 “Estas vere,” respondis alia Knomo, ĉirkaŭ kies
 
 kolo estis ora kolumo kaj kiu portis aron da oraj
 
-ŝlosiloj. “La potenca Reĝo de la Knomoj atendas vin, 
+ŝlosiloj. “La potenca Reĝo de la Knomoj atendas vin,
 
-kaj ordonas ke vi sekvu min al lia ĉeestejo.” 
+kaj ordonas ke vi sekvu min al lia ĉeestejo.”
 
 Dirinte tion li gvidis en la kavernojn, kaj Goso kaj
 
 Koro sekvis, kuntrenante siajn lacajn kaptitojn, ĉar
 
-povra Reĝo Kitikuto kaj lia milda Reĝino devis porti, 
+povra Reĝo Kitikuto kaj lia milda Reĝino devis porti,
 
 dum la tuta teda veturo, la sakojn da oro kaj juveloj
 
 kiuj estos uzitaj por subaĉeti la Reĝon de la Knomoj
 
-por ke li akceptu ilin kiel sklavojn. 
+por ke li akceptu ilin kiel sklavojn.
 
 Tra pluraj longaj koridoroj la gvidisto kondukis
 
@@ -9164,17 +8730,16 @@ ilin kaj fine ili eniris malgrandan kavernon kiu estis
 
 bele ornamita kaj inkrustita per raraj juveloj kiuj
 
-flagris de ĉiu parto de la muro, planko kaj plafono. 
+flagris de ĉiu parto de la muro, planko kaj plafono.
 
-229
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Tiu estis atendejo por vizitantoj, kaj tie ilia gvidanto
 
 lasis ilin dum li iris informi Reĝon Kalikoton pri
 
-ilia alveno. 
+ilia alveno.
 
 Post nelonge ili estis eskortitaj en grandan kupol-
 
@@ -9186,7 +8751,7 @@ Pingario kaj la Reĝo kaj la Reĝino de Regoso kaj
 
 Koregoso—enspiregis pro miro kaj kiel eble plej larĝe
 
-malfermis siajn okulojn. 
+malfermis siajn okulojn.
 
 En ebura trono sidis malgranda ronda viro kiu
 
@@ -9208,17 +8773,17 @@ gestis per sia kapo sufiĉe afable al siaj vizitantoj kaj
 
 diris per gaja voĉo:
 
-“Nu, Viaj Moŝtoj, kion mi povas fari por vi?” 
+“Nu, Viaj Moŝtoj, kion mi povas fari por vi?”
 
-“Mia 
+“Mia
 
-deziro,” 
+deziro,”
 
-respondis 
+respondis
 
-Reĝo 
+Reĝo
 
-Goso, 
+Goso,
 
 respektoplene, “estas meti en vian zorgon du
 
@@ -9226,17 +8791,16 @@ kaptitojn, kiujn vi nun vidas antaŭ vi. Ili devas esti
 
 zorge gardataj, por malebligi ilian eskapon, ĉar ili
 
-230
 
 Ĉapitro Dek Sep
 
-havas la lertecon de vulpoj kaj ne estas fideblaj. 
+havas la lertecon de vulpoj kaj ne estas fideblaj.
 
-Kompense por la komplezo kiun mi petas de vi, 
+Kompense por la komplezo kiun mi petas de vi,
 
 mi alportis al Via Moŝto valorajn donacojn de oro
 
-kaj valoregaj gemoj.” 
+kaj valoregaj gemoj.”
 
 “Tre bone,” diris Reĝo Kalikoto, kapjesante
 
@@ -9246,9 +8810,9 @@ oro kaj juveloj. “Sed kiuj estas la kaptitoj kiujn vi
 
 venigis ĉi tien, kaj kial vi metas ilin je mia dispono
 
-anstataŭ mem gardi ilin? Ili aspektas sufiĉe mildaj, 
+anstataŭ mem gardi ilin? Ili aspektas sufiĉe mildaj,
 
-mi certas.” 
+mi certas.”
 
 “La kaptitoj,” respondis Reĝo Goso, “estas la Reĝo
 
@@ -9272,17 +8836,16 @@ ilin, por ke ili plu faru sian fiagadon. Tial, ĉar ni ne
 
 havas magion por defendi nin, ni alvenigis la
 
-kaptitojn al vi por ke vi sekure gardu ilin.” 
+kaptitojn al vi por ke vi sekure gardu ilin.”
 
 “Via Moŝto,” ekparolis Reĝo Kitikuto, parolante al
 
 la Reĝo de la Knomoj tre indigne, “ne kredu tiun
 
-231
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-rakonton, mi petegas vin. La tuto estas mensogo\!” 
+rakonton, mi petegas vin. La tuto estas mensogo!”
 
 “Mi scias tion,” diris Kalikoto. “Tamen mi opinias
 
@@ -9292,7 +8855,7 @@ da vero. Tamen, tio ne estas mia afero. La fakto restas
 
 ke mia bona amiko Reĝo Goso deziras meti vin en
 
-miajn subterajn kavernojn, por ke vi ne povu eskapi. 
+miajn subterajn kavernojn, por ke vi ne povu eskapi.
 
 Kaj kial mi ne favoru lin per ĉi tiu komplezeto? Goso
 
@@ -9306,7 +8869,7 @@ kun vi, sed laŭ negocpolitiko ni la potencaj Reĝoj
 
 devas kune stari kaj treti la malfortajn sub niajn
 
-piedojn.” 
+piedojn.”
 
 Reĝon Kitikuton surprizis trovi la Reĝon de la
 
@@ -9322,23 +8885,20 @@ Regoso. Sed Kalikoto nur skuis sian kapon kaj
 
 ridetis, dirante:
 
-“La fakto ke vi estas kaptito, mia povra Kitikuto, 
+“La fakto ke vi estas kaptito, mia povra Kitikuto,
 
 estas indiko ke vi estas malpli forta ol Reĝo Goso, kaj
 
-mi preferas trakti kun la fortuloj. Flanke,” li pludiris, 
+mi preferas trakti kun la fortuloj. Flanke,” li pludiris,
 
 turninte sin al la Reĝo de Regoso, “ĉu ĉi tiuj kaptitoj
 
-232
 
-!(images/000076.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
+iel rilatas al la Lando Oz?”
 
-iel rilatas al la Lando Oz?” 
-
-“Kial vi demandas?” diris Goso. 
+“Kial vi demandas?” diris Goso.
 
 “Ĉar mi ne nepre ne ofendu la Ozanojn,” estis la
 
@@ -9348,47 +8908,46 @@ Ozma de Oz estas multe pli potenca ol mi; tial, se
 
 ĉi tiuj Reĝo kaj Reĝino de Pingario troviĝus
 
-protektataj de Ozma, mi neniel pritraktus ilin.” 
+protektataj de Ozma, mi neniel pritraktus ilin.”
 
 “Mi certigas al Via Moŝto ke la kaptitoj neniel
 
-rilatas al la Ozanoj,” Goso hastis diri. Kaj Kitikuto, 
+rilatas al la Ozanoj,” Goso hastis diri. Kaj Kitikuto,
 
-demandite, agnoskis ke tio estas vera. 
+demandite, agnoskis ke tio estas vera.
 
-“Sed kio pri tiu sorĉisto kiun vi menciis?” 
+“Sed kio pri tiu sorĉisto kiun vi menciis?”
 
-demandis la Reĝo de la Knomoj. 
+demandis la Reĝo de la Knomoj.
 
 “Ho, li estas nur knabo; sed li estas tre feroca kaj
 
 obstina kaj lin helpas malgranda dika sorĉisto nomata
 
-Rinkitinko kaj parolanta kapro.” 
+Rinkit kaj parolanta kapro.”
 
-“Oho\! Parolanta kapro, ĉu? Tio certe sonas kiel
+“Oho! Parolanta kapro, ĉu? Tio certe sonas kiel
 
 magio; kaj ankaŭ sonas kiel la Lando Oz, kie ĉiuj
 
-bestoj parolas,” diris Kalikoto, kun dubema mieno. 
+bestoj parolas,” diris Kalikoto, kun dubema mieno.
 
 Sed Reĝo Goso certigis al li ke la parolanta kapro
 
-neniam estis en Oz. 
+neniam estis en Oz.
 
-“Rilate al Rinkitinko, kiun vi nomas sorĉisto,” 
+“Rilate al Rinkit, kiun vi nomas sorĉisto,”
 
-pludiris la Reĝo de la Knomoj, “li estas najbaro mia, 
+pludiris la Reĝo de la Knomoj, “li estas najbaro mia,
 
 sciu, sed ĉar ni estas apartigitaj unu de la alia de altaj
 
 montoj sub kiuj fluas tre forta rivero, mi ankoraŭ
 
-234
 
 Ĉapitro Dek Sep
 
-neniam renkontis Reĝon Rinkitinkon. Sed mi ja aŭdis
+neniam renkontis Reĝon Rinkitn. Sed mi ja aŭdis
 
 pri li, kaj laŭ ĉiuj raportoj li estas gaja fripono, kaj
 
@@ -9398,21 +8957,21 @@ kaj misdiroj, mi perlaboros la trezoron kiun vi portis
 
 al mi, per sekura gardado de viaj kaptitoj en miaj
 
-kavernoj.” 
+kavernoj.”
 
 “Laborigu ilin,” konsilis Reĝino Koro. “Ili estas
 
 iom delikataj, kaj se vi laborigos ilin tio bele suferigos
 
-ilin.” 
+ilin.”
 
 “Mi agos laŭ mia propra deziro pri tio,” diris la
 
 Reĝo de la Knomoj severe. “Kontentiĝu per la fakto
 
-ke mi konsentas sekurigi ilin.” 
+ke mi konsentas sekurigi ilin.”
 
-Ĉar la interkonsento estis tiel farita kaj finita, 
+Ĉar la interkonsento estis tiel farita kaj finita,
 
 Kalikoto unue ekzamenis la oron kaj juvelojn kaj
 
@@ -9420,11 +8979,11 @@ poste sendis ilin al sia reĝa magazeno, kiu estis tre
 
 plena de tia trezoro. Poste la kaptitoj estis forsenditaj
 
-estrate de la Knomo kun la ora kolumo kaj ŝlosiloj, 
+estrate de la Knomo kun la ora kolumo kaj ŝlosiloj,
 
 kies nomo estis Kliko, kaj li eskortis ilin al malgranda
 
-kaverno kaj donis al ili bonan manĝon. 
+kaverno kaj donis al ili bonan manĝon.
 
 “Mi ŝlosos vian pordon,” diris Kliko, “do ne plu
 
@@ -9436,9 +8995,8 @@ lian Reĝinon. La unuan fojon post sia forportiĝo el
 
 Pingario fare de la Norduloj la bonaj Reĝo kaj Reĝino
 
-235
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 estis kune solaj kaj liberaj de ĉiuj ligiloj, kaj dum ili
 
@@ -9454,11 +9012,11 @@ Kalikoto. Ili ankoraŭ estis kaptitoj sed ili kredis ke ili
 
 estos pli feliĉaj en la subteraj kavernoj de la Knomoj
 
-ol en Regoso kaj Koregoso. 
+ol en Regoso kaj Koregoso.
 
 Intertempe, en la reĝa kaverno de la Reĝo granda
 
-festeno estis pretigita. Reĝo Goso kaj Reĝino Koro, 
+festeno estis pretigita. Reĝo Goso kaj Reĝino Koro,
 
 triumfinte pri sia intrigo, estis tiom plaĉitaj ke ili gaje
 
@@ -9472,11 +9030,8 @@ ili ordonos tion, la Reĝo kaj Reĝino de Koregoso
 
 forlasis la kavernojn de la knomoj por reiri al la
 
-bordo de la oceano kie ili estis lasintaj sian boaton. 
+bordo de la oceano kie ili estis lasintaj sian boaton.
 
-236
-
-!(images/000073.png)
 
 Ingo Transdonas Sian Palruĝan Perlon
 
@@ -9486,7 +9041,7 @@ La Blanka Perlo gvidis
 
 Ingon fidele dum li serĉis
 
-la boaton de Reĝo Goso, 
+la boaton de Reĝo Goso,
 
 sed la knabo perdis tiom
 
@@ -9498,7 +9053,7 @@ la alteriĝo de Goso kaj Koro sur la bordon de la
 
 Lando de la Raduloj la boato de Ingo venis al la
 
-sama loko. 
+sama loko.
 
 Tie li trovis la kvardek remistojn gardantajn la
 
@@ -9506,17 +9061,16 @@ barĝon de Reĝino Koro, kaj kvankam ili ne volis aŭ
 
 ne povis diri al la infano kien la Reĝo kaj Reĝino
 
-237
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kondukis liajn patron kaj patrinon, la Blanka Perlo
 
 konsilis ke li sekvu la vojon al la lando kaj la
 
-kavernoj de la knomoj. 
+kavernoj de la knomoj.
 
-Rinkitinko ne deziris entrepreni la rokoplenan kaj
+Rinkit ne deziris entrepreni la rokoplenan kaj
 
 montan veturon, eĉ dum Bilbilo portos lin, sed li
 
@@ -9530,19 +9084,19 @@ la kapron, kiu ĉiam grumblis sed ĉiam obeis sian
 
 mastron, kaj la trio tuj ekiris cele la kavernojn de la
 
-knomoj. 
+knomoj.
 
 Ili veturis same nerapide kiel Reĝino Koro kaj
 
 Reĝo Goso, tiel ke kiam ili estis ĉirkaŭ duonvoje ili
 
-trovis la Reĝon kaj Reĝinon revenantaj al sia boato. 
+trovis la Reĝon kaj Reĝinon revenantaj al sia boato.
 
 La fakto ke Goso kaj Koro nun estas solaj pruvis ke
 
 ili postlasis la patron kaj patrinon de Ingo; do, laŭ
 
-propono de Rinkitinko, la trio kaŝis sin malantaŭ alta
+propono de Rinkit, la trio kaŝis sin malantaŭ alta
 
 roko ĝis la Reĝo de Regoso kaj la Reĝino de
 
@@ -9550,27 +9104,26 @@ Koregoso, kiuj ne observis ilin, preterpasis. Post tio ili
 
 daŭrigis sian veturon, feliĉaj ĉar ili ne denove devis
 
-batali aŭ kvereli siajn fimalamikojn. 
+batali aŭ kvereli siajn fimalamikojn.
 
 “Tamen, ni povus esti demandintaj al ili kion ili
 
-faris pri viaj povraj gepatroj,” diris Rinkitinko. 
+faris pri viaj povraj gepatroj,” diris Rinkit.
 
 “Ne gravas,” respondis Ingo. “Mi estas certa ke la
 
-238
 
 Ĉapitro Dek Ok
 
-Blanka Perlo ĝuste gvidos nin.” 
+Blanka Perlo ĝuste gvidos nin.”
 
 Dum iom da tempo ili plumarŝis silente kaj post
 
-tio Rinkitinko komencis ridi laŭ la plaĉa maniero
+tio Rinkit komencis ridi laŭ la plaĉa maniero
 
-kiun li kutimis antaŭ ol liaj misfortunoj trafis lin. 
+kiun li kutimis antaŭ ol liaj misfortunoj trafis lin.
 
-“Kio amuzas Vian Moŝton?” demandis la knabo. 
+“Kio amuzas Vian Moŝton?” demandis la knabo.
 
 “Penso pri kiom surprizitaj estus miaj karaj regatoj
 
@@ -9584,11 +9137,11 @@ Knomoj, kiu estas plena de misteroj kaj magio kaj
 
 ke mi pripensu tian aferon, timante ke mi estus
 
-damaĝita aŭ sorĉita.” 
+damaĝita aŭ sorĉita.”
 
 “Ĉu vi timas, nun kiam vi estas ĉi tie?” demandis
 
-Ingo. 
+Ingo.
 
 “Iomete, sed ne multe, ĉar oni diras ke la nova
 
@@ -9598,29 +9151,28 @@ Reĝo. Tamen, ni ja entreprenas danĝeran veturon kaj
 
 mi opinias ke vi devus protekti min per pruntedono
 
-de unu el viaj perloj al mi.” 
+de unu el viaj perloj al mi.”
 
-Ingo pripensis tion kaj la peto ŝajnis inda. 
+Ingo pripensis tion kaj la peto ŝajnis inda.
 
-“Kiun perlon vi deziras?” demandis la knabo. 
+“Kiun perlon vi deziras?” demandis la knabo.
 
-“Nu, ni pensu,” respondis Rinkitinko; “vi eble
+“Nu, ni pensu,” respondis Rinkit; “vi eble
 
-bezonos forton por liberigi viajn kaptitajn gepatrojn, 
+bezonos forton por liberigi viajn kaptitajn gepatrojn,
 
 do vi devas reteni la Bluan Perlon. Kaj vi bezonos la
 
-239
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 konsilon de la Blanka Perlo, do estos plejbone ke vi
 
 retenu ankaŭ tiun. Sed se ni apartiĝus, mi havus
 
-nenion por protekti min kontraŭ damaĝo, do vi devus
+nenion por protekti mntraŭ damaĝo, do vi devus
 
-pruntedoni al mi la Palruĝan Perlon.” 
+pruntedoni al mi la Palruĝan Perlon.”
 
 “Konsentite,” konsentis Ingo, kaj sidiĝinte sur
 
@@ -9630,43 +9182,40 @@ tukon el la pinta piedfingrejo li elprenis la Palruĝan
 
 Perlon—tiun kiu protektas kontraŭ damaĝo tiun
 
-personon kiu portas ĝin. 
+personon kiu portas ĝin.
 
 “Kien vi povos meti ĝin, por sekure gardi ĝin?” li
 
-demandis. 
+demandis.
 
 “En la poŝon de mia veŝto,” respondis la Reĝo. “La
 
 poŝo havas klapon kaj mi povas pingle fermi ĝin tiel
 
-ke la perlo ne povos eliri kaj perdiĝi. Rilate al rabo, 
+ke la perlo ne povos eliri kaj perdiĝi. Rilate al rabo,
 
 neniu fiintenca povos tuŝi min dum mi havos la
 
-perlon.” 
+perlon.”
 
-Do Ingo donis al Rinkitinko la Palruĝan Perlon
+Do Ingo donis al Rinkit la Palruĝan Perlon
 
 kaj la malgranda Reĝo metis ĝin en la poŝon de sia
 
 ruĝ-kaj-verde brokita velura veŝto, kaj firme
 
-fermpinglis la klapon de la poŝo. 
+fermpinglis la klapon de la poŝo.
 
 Ili nun rekomencis sian veturon kaj fine atingis la
 
-enirejon de la kavernoj de la Reĝo de la Knomoj. 
+enirejon de la kavernoj de la Reĝo de la Knomoj.
 
 Metinte la Blankan Perlon apud sian orelon, Ingo
 
 demandis: “Kion mi faru nun?” kaj la Voĉo de la
 
-240
 
-!(images/000088.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Perlo respondis: “Kunfrapu viajn manojn kvarfoje kaj
 
@@ -9674,7 +9223,7 @@ laŭtvoku la vorton ‘Klik’. Post tio permesu vin esti
 
 kondukitaj al la Reĝo de la Knomoj, kiu nun gardas
 
-kaptitaj viajn patron kaj patrino.” 
+kaptitaj viajn patron kaj patrino.”
 
 Ingo obeis tiujn instrukciojn kaj kiam Klik alvenis
 
@@ -9682,11 +9231,11 @@ responde al la alvoko la knabo petis renkontiĝon kun
 
 la Reĝo de la Knomoj. Do Klik kondukis ilin al Reĝo
 
-Kalikoto, kiu tiutempe suferis pro severa kapdoloro, 
+Kalikoto, kiu tiutempe suferis pro severa kapdoloro,
 
 pro sia gaja festenado dum la pasinta nokto, kaj tial
 
-estis nekutime malafabla kaj grumblema. 
+estis nekutime malafabla kaj grumblema.
 
 “Mi scias kiucele vi venis,” diris li, antaŭ ol Ingo
 
@@ -9694,39 +9243,38 @@ povis paroli. “Vi volas forpreni de mi la kaptitojn el
 
 Regoso; sed vi ne povos fari tion, do plej bone estas
 
-ke vi reforiru.” 
+ke vi reforiru.”
 
 “La kaptitoj estas miaj patro kaj patrino, kaj mi
 
-intencas liberigi ilin,” diris la knabo firme. 
+intencas liberigi ilin,” diris la knabo firme.
 
-La Reĝo gapis Ingon firme, mirante pro lia aŭdaco. 
+La Reĝo gapis Ingon firme, mirante pro lia aŭdaco.
 
-Post tio li turnis sin por rigardi Reĝon Rinkitinkon
+Post tio li turnis sin por rigardi Reĝon Rinkitn
 
 kaj diris:
 
 “Mi supozas ke vi estas la Reĝo de Gilgado, kiu
 
-estas en la Regno Rinkitinko.” 
+estas en la Regno Rinkit.”
 
 “Vi ĝuste divenis jam la unuan fojon,” respondis
 
-Rinkitinko. 
+Rinkit.
 
-“Kiom ronda kaj dika vi estas\!” krietis Kalikoto. 
+“Kiom ronda kaj dika vi estas!” krietis Kalikoto.
 
-242
 
 Ĉapitro Dek Ok
 
 “Mi ĵus pensis kiom dika kaj ronda estas *vi*,” diris
 
-Rinkitinko. “Vere, Reĝo Kalikoto, ni devus esti
+Rinkit. “Vere, Reĝo Kalikoto, ni devus esti
 
 amikoj, ĉar ni tiel similas ĉiel escepte de pri humoro
 
-kaj inteligento.” 
+kaj inteligento.”
 
 Post tio li komencis nelaŭte ridi, dum Kalikoto
 
@@ -9736,53 +9284,52 @@ parolon kiel komplimenton. Kaj nun la okuloj de la
 
 knomo vagis al Bilbilo, kaj li demandis:
 
-“Ĉu tiu estas via parolanta kapro?” 
+“Ĉu tiu estas via parolanta kapro?”
 
 Bilbilo renkontis la grimacan gapon de la Reĝo de
 
 la Knomoj per rigardo egale malafabla kaj defia, dum
 
-Rinkitinko respondis: “Jes, Via Moŝto.” 
+Rinkit respondis: “Jes, Via Moŝto.”
 
-“Ĉu li vere kapablas paroli?” demandis Kalikoto, 
+“Ĉu li vere kapablas paroli?” demandis Kalikoto,
 
-scivoleme. 
+scivoleme.
 
 “Li kapablas. Sed lia plej granda talento estas
 
-riproĉado. Parolu al Lia Moŝto, Bilbilo.” 
+riproĉado. Parolu al Lia Moŝto, Bilbilo.”
 
-Sed Bilbilo restis silenta kaj rifuzis paroli. 
+Sed Bilbilo restis silenta kaj rifuzis paroli.
 
 “Ĉu vi ĉiam rajdas sur lia dorso?” pludiris
 
-Kalikoto, demandante Rinkitinkon. 
+Kalikoto, demandante Rinkitn.
 
 “Jes,” estis la respondo, “ĉar estas malfacile por
 
 dikulo longe marŝi, kiel eble vi mem scias pro via
 
-sperto.” 
+sperto.”
 
 “Estas vere,” diris Kalikoto. “Deiru de la dorso de
 
 la kapro kaj lasu min rajdi lin dum kelka tempo por
 
-243
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-trovi kiel plaĉos al mi. Eble mi forprenos lin de vi, 
+trovi kiel plaĉos al mi. Eble mi forprenos lin de vi,
 
-por rajdi tra miaj kavernoj.” 
+por rajdi tra miaj kavernoj.”
 
-Rinkitinko ridis tre nelaŭte aŭdante tion, sed tuj li
+Rinkit ridis tre nelaŭte aŭdante tion, sed tuj li
 
 deiris de la dorso de Bilbilo kaj permesis ke Kalikoto
 
 suriru. La Reĝo de la Knomoj estis iom mallerta, sed
 
-kiam li fine sidis sur la selo li vokis laŭtavoĉe: “Ek\!” 
+kiam li fine sidis sur la selo li vokis laŭtavoĉe: “Ek!”
 
 Kiam Bilbilo tute ne atentis la ordonon kaj rifuzis
 
@@ -9808,11 +9355,11 @@ kovris unu okulon kaj parton de lia nazo. Eble tio
 
 protektis la kapon de Kalikoto kontraŭ frakasiĝo pro
 
-la roka muro, sed multe damaĝis la kronon. 
+la roka muro, sed multe damaĝis la kronon.
 
 Al Bilbilo multe plaĉis la sukceso de lia ago kaj
 
-Rinkitinko ridis gaje pro la komika aspekto de la
+Rinkit ridis gaje pro la komika aspekto de la
 
 Reĝo de la Knomo; sed Kalikoto murmuradis kaj
 
@@ -9820,11 +9367,8 @@ grumbladis dum li relevis sin kaj klopodis tiri la
 
 misbatitan kronon de sia kapo, kaj estis evidente ke
 
-244
 
-!(images/000093.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 li estas neniel amuzita. Efektive, Ingo povis vidi ke
 
@@ -9832,7 +9376,7 @@ la Reĝo estas tre kolera, kaj la knabo sciis ke la evento
 
 verŝajne malamikigos Kalikoton kontraŭ la tuta
 
-grupo. 
+grupo.
 
 La Reĝo de la Knomoj sendis Klikon alporti alian
 
@@ -9842,15 +9386,15 @@ damaĝitan kronon. Dum li atendis la novan kronon
 
 li sidis rigardante siajn vizitantojn sulkante la
 
-frunton, kaj tio des pli maltrankviligis Ingon. Fine, 
+frunton, kaj tio des pli maltrankviligis Ingon. Fine,
 
 kiam la nova krono estis metita sur lian kapon, Reĝo
 
-Kalikoto diris: “Sekvu min, fremduloj\!” kaj gvidis ilin
+Kalikoto diris: “Sekvu min, fremduloj!” kaj gvidis ilin
 
-al malgranda pordo ĉe unu ekstremo de la kaverno. 
+al malgranda pordo ĉe unu ekstremo de la kaverno.
 
-Ingo kaj Rinkitinko sekvis lin tra la pordejon kaj
+Ingo kaj Rinkit sekvis lin tra la pordejon kaj
 
 trovis sin starantaj sur balkono kiu alrigardis enorman
 
@@ -9860,7 +9404,7 @@ kupolitan kavon—tiel vastan ke ŝajnis esti kilometroj
 
 hele lumigis brilo el nevidebla origino, estis arkaĵoj
 
-konektitaj kun aliaj kavernoj. 
+konektitaj kun aliaj kavernoj.
 
 Kalikoto prenis oran fajfilon el sia poŝo kaj sonigis
 
@@ -9872,15 +9416,14 @@ multnombre, ĝis la enorman spacon ili plenigis ĝis
 
 preter la vidpovo de la rigardantoj. Ĉiuj estis armitaj
 
-per scintilantaj armiloj el poluritaj arĝento kaj oro, 
+per scintilantaj armiloj el poluritaj arĝento kaj oro,
 
-246
 
 Ĉapitro Dek Ok
 
 kaj Ingon mirigis ke Reĝo povus komandi tiel
 
-grandan armeon. 
+grandan armeon.
 
 Ili komencis marŝi kaj remarŝi laŭ tre bonorda
 
@@ -9894,7 +9437,7 @@ Kalikoto reiris kun siaj vizitantoj al sia propra reĝa
 
 ĉambro, kie li denove sidigis sin sur sian eburan
 
-tronon. 
+tronon.
 
 “Mi montris al vi,” diris li al Ingo, “parton de mia
 
@@ -9912,7 +9455,7 @@ mi volis konvinki vin ke mia povo estas tro granda
 
 tiel ke neniu povas kontraŭi ĝin. Oni diris al mi ke
 
-vi estas sorĉisto, kaj dependas de magio por helpi vin; 
+vi estas sorĉisto, kaj dependas de magio por helpi vin;
 
 sed sciu ke la knomoj ne estas mortipovuloj, kaj ili
 
@@ -9926,9 +9469,8 @@ tion zorge, mia knabo, kaj penu kompreni ke mi
 
 superfortas vin. Mi ne kredas ke vi povos devigi min
 
-247
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 liberigi Reĝon Kitikuton kaj Reĝinon Garion, kaj mi
 
@@ -9936,7 +9478,7 @@ scias ke vi ne povos kaĵoli min fari tion, ĉar mi
 
 promesis al Reĝo Goso. Tial, ĉar mi ne volas damaĝi
 
-vin, mi petas ke vi pace foriru kaj lasu min sola.” 
+vin, mi petas ke vi pace foriru kaj lasu min sola.”
 
 “Pardonu min se mi ne konsentas kun vi, Reĝo
 
@@ -9946,9 +9488,9 @@ kaj danĝera eble estas mia tasko, mi ne povas foriri
 
 el via regno antaŭ ol fari ĉian penon liberigi miajn
 
-gepatrojn kaj fiaskinte plene senkuraĝiĝi.” 
+gepatrojn kaj fiaskinte plene senkuraĝiĝi.”
 
-“Bone,” diris la Reĝo, al kiu evidente malplaĉis tio. 
+“Bone,” diris la Reĝo, al kiu evidente malplaĉis tio.
 
 “Mi avertis vin, do nun se malbono superos vin vi
 
@@ -9958,7 +9500,7 @@ povas dece konduti al vi laŭ viaj rangoj; sed Klik
 
 gvidos vin al miaj gastoĉambroj kaj morgaŭ mi
 
-denove parolos kun vi.” 
+denove parolos kun vi.”
 
 Tiu ŝajnis justa kaj ĝentila maniero trakti sin-
 
@@ -9974,15 +9516,14 @@ bele meblitajn litoĉambrojn ĉizitajn el solida griza
 
 roko kaj bone lumigatajn kaj aerumatajn per ia
 
-mistera metodo konata de la knomoj. 
+mistera metodo konata de la knomoj.
 
 La unua de tiuj ĉambroj doniĝis al Reĝo Rinki-
 
-248
 
 Ĉapitro Dek Ok
 
-tinko, la dua al Ingo kaj la tria al Bilbilo la kapro. 
+t, la dua al Ingo kaj la tria al Bilbilo la kapro.
 
 Estis balanciĝanta roka pordo inter la tria kaj dua
 
@@ -9990,13 +9531,13 @@ Estis balanciĝanta roka pordo inter la tria kaj dua
 
 havis pordon kiu malfermiĝas al la koridoro. La
 
-ĉambro de Rinkitinko estis la plej granda, do tie
+ĉambro de Rinkit estis la plej granda, do tie
 
 bonega manĝo estis provizita de kelkaj knomaj
 
-servistoj, kiuj, malgraŭ siaj malrektaj formoj, 
+servistoj, kiuj, malgraŭ siaj malrektaj formoj,
 
-montriĝis bone trejnitaj kaj kompetentaj. 
+montriĝis bone trejnitaj kaj kompetentaj.
 
 “Vi ne estas kaptitoj, sciu,” diris Klik, “nek vi estas
 
@@ -10008,9 +9549,9 @@ malbonvolas al vi, kaj vi estos bone manĝigataj kaj
 
 prizorgataj dum vi restos en niaj kavernoj. Manĝu
 
-ĝissate, dormu trankvile, kaj bonajn sonĝojn havu.” 
+ĝissate, dormu trankvile, kaj bonajn sonĝojn havu.”
 
-Dirinte tion, li lasis ilin solaj kaj tuj Rinkitinko kaj
+Dirinte tion, li lasis ilin solaj kaj tuj Rinkit kaj
 
 Ingo komencis interkonsiliĝi pri la plej bona metodo
 
@@ -10022,23 +9563,22 @@ la knabo ĝuste nun, ĉar la Voĉo diris responde al liaj
 
 demandoj nur: “Estu pacienca, kuraĝa, kaj
 
-firmintenca.” 
+firmintenca.”
 
-Rinkitinko proponis ke ili provu trovi en kiu parto
+Rinkit proponis ke ili provu trovi en kiu parto
 
 de la serio de subteraj kavernoj la gepatroj de Ingo
 
 estas enfermitaj, ĉar tiu sciaĵo estas necesa antaŭ ol
 
-249
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 ili povos agi; do kune ili komencis serĉi, lasante
 
 Bilbilon dormantan en sia ĉambro, kaj marŝis
 
-neoponate tra multaj koridoroj kaj kavernoj. 
+neoponate tra multaj koridoroj kaj kavernoj.
 
 En kelkaj lokoj estis grandaj fornoj, kie oni
 
@@ -10054,13 +9594,13 @@ kavernojn uzatajn kiel magazenojn, kie trezoro
 
 ĉiuspeca estis alte stakita. Ankaŭ ili venis al la loĝejoj
 
-de la armeo kaj la grandaj kuirejoj. 
+de la armeo kaj la grandaj kuirejoj.
 
 Estis Knomoj ĉie—nenombreblaj miloj da ili—sed
 
 neniu eĉ ete atentis la vizitantojn el la surfaco de la
 
-tero. Tamen, kvankam Ingo kaj Rinkitinko marŝis ĝis
+tero. Tamen, kvankam Ingo kaj Rinkit marŝis ĝis
 
 laciĝo, ili ne povis trovi la lokon kie la patro kaj
 
@@ -10068,21 +9608,20 @@ patrino de la knabo estis enfermitaj, kaj kiam ili
 
 provis reiri al siaj propraj ĉambroj ili trovis sin
 
-senespere perdiĝintaj en la labirinto da koridoroj. 
+senespere perdiĝintaj en la labirinto da koridoroj.
 
 Tamen, Klik baldaŭ venis al ili, ridante pro ilia
 
-embarasiĝo, kaj regvidis ilin al iliaj litoĉambroj. 
+embarasiĝo, kaj regvidis ilin al iliaj litoĉambroj.
 
 Antaŭ ol endormiĝi ili zorge barieris la pordon
 
-inter la ĉambro de Rinkitinko kaj la koridoro, sed ili
+inter la ĉambro de Rinkit kaj la koridoro, sed ili
 
 lasis la pordojn konektantajn la tri ĉambrojn plene
 
-malfermaj. 
+malfermaj.
 
-250
 
 Ĉapitro Dek Ok
 
@@ -10096,13 +9635,13 @@ malaperis tuj kiam li enlitiĝis, sed li sukcesis palpi
 
 sian vojon al la pordo kondukanta en la ĉambron de
 
-Rinkitinko kaj trovis ĝin firme ŝlosita kaj nemovebla. 
+Rinkit kaj trovis ĝin firme ŝlosita kaj nemovebla.
 
 Post tio li paŝis al la kontraŭa pordo, kondukanta al
 
 la ĉambro de Bilbilo, kaj trovis ke ankaŭ tiu estis
 
-fermita kaj ŝlosita. 
+fermita kaj ŝlosita.
 
 La knabo havis kuriozan senton ke lia tuta
 
@@ -10114,7 +9653,7 @@ malkomfortiga ke li denove enlitiĝis, ne sciante kion
 
 alian fari. Kaj ĉar la gratsono jam ĉesis kaj la ĉambro
 
-nun ŝajne estis senmova, li baldaŭ reendormiĝis. 
+nun ŝajne estis senmova, li baldaŭ reendormiĝis.
 
 Kiam la knabo vekiĝis, post multaj horoj, li trovis
 
@@ -10132,15 +9671,14 @@ demandante al si kiu enŝlosis lin kaj kial li fariĝis
 
 kaptito. Post tio li denove iris al la pordo kiu laŭ lia
 
-supozo kondukas en la ĉambron de Rinkitinko kaj
+supozo kondukas en la ĉambron de Rinkit kaj
 
-251
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 surprize al li la riglilo facile leviĝis kaj la pordo
 
-malfermiĝis. 
+malfermiĝis.
 
 Antaŭ li estis kruda koridoro ĉizita en la roko kaj
 
@@ -10148,27 +9686,27 @@ nebrile iluminata. Ĝi ne havis allogan aspekton, do
 
 Ingo fermis la pordon, perpleksa pri kio okazis al la
 
-ĉambro de Rinkitinko kaj la Reĝo, kaj li iris al la
+ĉambro de Rinkit kaj la Reĝo, kaj li iris al la
 
 kontraŭa pordo. Malferminte tion, li trovis solidan
 
 rokan muron antaŭ si, kiu efike neebligis ke li eskapu
 
-tiudirekte. 
+tiudirekte.
 
 La knabo nun komprenis ke Reĝo Kalikoto
 
 trompis lin, kaj kvankam dirante akcepti lin kiel
 
-gaston tamen komplotis apartigi lin de liaj kamaradoj. 
+gaston tamen komplotis apartigi lin de liaj kamaradoj.
 
 Unu vojo tamen restis, per kiu li povus eskapi, kaj li
 
-decidis vidi kien ĝi kondukas. 
+decidis vidi kien ĝi kondukas.
 
 Do, irinte al la unua pordo, li malfermis ĝin kaj
 
-nerapide paŝis en la malhele iluminatan koridoron. 
+nerapide paŝis en la malhele iluminatan koridoron.
 
 Antaŭenirinte kelkajn paŝojn li aŭdis la pordon de sia
 
@@ -10176,21 +9714,18 @@ Antaŭenirinte kelkajn paŝojn li aŭdis la pordon de sia
 
 roka pordo tiel strikte plenigis la aperturon ke li trovis
 
-ke estas neeble remalfermi ĝin. Tio ne multe gravis, 
+ke estas neeble remalfermi ĝin. Tio ne multe gravis,
 
 tamen, ĉar la ĉambro estis karcero kaj la sola
 
-eskapvojo ŝajnis esti antaŭ li. 
+eskapvojo ŝajnis esti antaŭ li.
 
 Laŭ la koridoro li rampis ĝis, turninte sin ĉirkaŭ
 
 angulon, li trovis sin en granda kupolhava kaverno
 
-252
 
-!(images/000100.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 kiu estis vaka kaj senhoma. Ankaŭ tie estis nehela
 
@@ -10202,7 +9737,7 @@ la kaverno kaj eniris duan koridoron. Tiu serpentumis
 
 ĉiudirekte sed ne estis tre longa, do baldaŭ la knabo
 
-atingis duan kavernon, ne tiel grandan kiel la unua. 
+atingis duan kavernon, ne tiel grandan kiel la unua.
 
 Tiun li ankaŭ trovis vaka, sed alia koridoro kondukis
 
@@ -10212,7 +9747,7 @@ kaj preter ĝi estis tria kaverno, kiu malmulte
 
 diferencis de la aliaj krom ke ĉe unu ĝia flanko estis
 
-fortika fera krado. 
+fortika fera krado.
 
 Ĉiuj tri kavernoj estis krude ĉizitaj el la roko kaj
 
@@ -10236,23 +9771,22 @@ plejfino li ne povos esperi eskapi el ĝi, do li kuraĝe
 
 eniris la senluman koridoron kaj palpis sian vojon
 
-zorge dum li antaŭenpaŝis. 
+zorge dum li antaŭenpaŝis.
 
 Apenaŭ li faris du paŝojn kiam bruego sonis
 
-254
 
 Ĉapitro Dek Ok
 
 malantaŭ li kaj peza ŝtalplato fermis la aperturon en
 
-la kaverno el kiu li ĵus venis. Li paŭzis momente, 
+la kaverno el kiu li ĵus venis. Li paŭzis momente,
 
 sed ankoraŭ ŝajnis ke estos plej bone plumarŝi, kaj
 
 dum Ingo antaŭeniris en la mallumo, tenante siajn
 
-manojn etenditaj antaŭ si por palpi la vojon, 
+manojn etenditaj antaŭ si por palpi la vojon,
 
 manligiloj falis sur liajn pojnojn kaj kunŝlosis sin
 
@@ -10260,7 +9794,7 @@ per akra klako, kaj momenton poste li trovis sin
 
 ĉenita al fortika fera stango firme fiksita en la roka
 
-planko. 
+planko.
 
 La ĉenoj estis sufiĉe longaj por permesi lin moviĝi
 
@@ -10268,11 +9802,11 @@ unu-du metrojn ĉiudirekte kaj palpante la murojn li
 
 trovis sin en malgranda ronda ĉambro kiu havis
 
-neniun elirejon krom la koridoron per kiu li eniris, 
+neniun elirejon krom la koridoron per kiu li eniris,
 
 kaj tio nun estis fermita per la ŝtala pordo. Jen la
 
-fino de la serio de kavernoj kaj koridoroj. 
+fino de la serio de kavernoj kaj koridoroj.
 
 Nur nun la hororo de lia situacio trafis la knabon
 
@@ -10282,19 +9816,18 @@ senbarakte, kaj ekmemorante ke li posedas la Bluan
 
 Perlon, kiu donas al li mirindan forton, li rapide
 
-rompis la ĉenojn kaj liberigis sin de la manligiloj. 
+rompis la ĉenojn kaj liberigis sin de la manligiloj.
 
 Post tio li tordis la ŝtalan pordon de ĝiaj ĉarniroj, kaj
 
 rampinte laŭ la mallonga koridoro, li trovis sin en la
 
-tria kavo. 
+tria kavo.
 
 Nun la nehela lumo, kiu antaŭe gvidis lin, jam
 
-255
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 malaperis; sed rigardetante en la senlumecon de la
 
@@ -10308,7 +9841,7 @@ de enorma viro, kiu sidas en la centro de la kavo, kaj
 
 li vidis ke la fera krado estis forprenita, tiel ke la viro
 
-povis eniri. 
+povis eniri.
 
 La giganto estis nevestita kaj ĝiaj membroj estis
 
@@ -10320,7 +9853,7 @@ malfermis sian buŝon por oscedi Ingo vidis ke ĝiaj
 
 makzeloj estas sufiĉe larĝaj por dispremi dekduon da
 
-homoj inter la gigantaj vicoj de dentoj. 
+homoj inter la gigantaj vicoj de dentoj.
 
 Baldaŭ la giganto suprenrigardis kaj perceptis la
 
@@ -10328,29 +9861,26 @@ knabon kaŭrantan ĉe la kontraŭa flanko de la
 
 kaverno, do li vokis per raŭka kruda voĉo:
 
-“Venu ĉi tien, mia bela knabo. Ni kune baraktos, 
+“Venu ĉi tien, mia bela knabo. Ni kune baraktos,
 
 vi kaj mi, kaj se vi sukcesos ĵeti min surteren mi
 
-permesos ke vi trairu mian kavon.” 
+permesos ke vi trairu mian kavon.”
 
 La knabo ne respondis al la defio. Li komprenis
 
 ke li estas en severa danĝero kaj bedaŭris ke li
 
-pruntedonis la Palruĝan Perlon al Reĝo Rinkitinko. 
+pruntedonis la Palruĝan Perlon al Reĝo Rinkit.
 
-Sed nun estis tro malfrue por vanaj bedaŭroj, 
+Sed nun estis tro malfrue por vanaj bedaŭroj,
 
 kvankam li timis ke eĉ lia granda forto malmulte
 
-256
 
-!(images/000034.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-helpos lin kontraŭ tiu harkovrita monstro. Ĉar liaj
+helpos lntraŭ tiu harkovrita monstro. Ĉar liaj
 
 brakoj ne estis sufiĉe longaj por etendiĝi trans
 
@@ -10358,7 +9888,7 @@ kvaronon de la grandega korpo de la giganto, kaj la
 
 fortegaj membroj de la monstro verŝajne premus la
 
-vivon el Ingo antaŭ ol li povus fariĝi mastro. 
+vivon el Ingo antaŭ ol li povus fariĝi mastro.
 
 Tial la Princo decidis uzi aliajn rimedojn por batali
 
@@ -10374,7 +9904,7 @@ dika kaj pli ol metron longa, kaj ĉar ĝi estis el solida
 
 fero ĝi estis tiel peza ke tri ordinaraj viroj trovus ĝin
 
-malfacile levebla. 
+malfacile levebla.
 
 Reirinte al la kaverno, la knabo svingis la grandan
 
@@ -10384,9 +9914,9 @@ la giganto. Finaĵo de la stango batis la frunton de la
 
 monstro, kaj farinte unusolan ĝemon ĝi falis sternite
 
-sur la plankon kaj kuŝis senmove. 
+sur la plankon kaj kuŝis senmove.
 
-Kiam la giganto falis, la brilo fadis el ĝiaj okuloj, 
+Kiam la giganto falis, la brilo fadis el ĝiaj okuloj,
 
 kaj fariĝis tute senlume. Zorgoplene, ĉar Ingo ne estis
 
@@ -10398,7 +9928,6 @@ kaverno. La aperturo estis mallarĝa kaj la mallumo
 
 estis intensa, sed, estante nun pli kuraĝa, la knabo
 
-258
 
 Ĉapitro Dek Ok
 
@@ -10408,7 +9937,7 @@ li kaj tre alarmite li turnis sin kaj saltis sufiĉe forte
 
 por kroĉiĝi al la rokaj flankoj de la muro kaj refirmigi
 
-sian staron en la koridoro tra kiun li ĵus venis. 
+sian staron en la koridoro tra kiun li ĵus venis.
 
 Apenaŭ li atingis tiun rifuĝejon kiam giganta bruo
 
@@ -10426,7 +9955,7 @@ se li ne estus tuj regajinta sian piedstaron en la
 
 koridoro li estus plonĝinta en la abismon situantan
 
-sub li. 
+sub li.
 
 Per la lumo de alia alumeto li vidis la aperturon
 
@@ -10438,11 +9967,11 @@ tute ne estus farebla sen la mirinda forto pruntita al
 
 li de la Blua Perlo, sed Ingo havis senton ke unu
 
-fortega salto eble portus lin trans la abismon sekure. 
+fortega salto eble portus lin trans la abismon sekure.
 
 Li ne povis resti kie li estas, tio estis certa, do li
 
-decidis provi. 
+decidis provi.
 
 Li faris longan kuron tra la unuan kavon kaj la
 
@@ -10450,9 +9979,8 @@ nelongan koridoron; post tio, uzante sian tutan
 
 forton, li ĵetis sin trans la nigran abismon de la dua
 
-259
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kavo. Rapide li flugis kaj, kvankam lia koro pro timo
 
@@ -10460,9 +9988,9 @@ kavo. Rapide li flugis kaj, kvankam lia koro pro timo
 
 piedoj tuŝis la breton de la kontraŭa koridoro kaj li
 
-eksciis ke li sekure sukcesis fari la mirindan taskon. 
+eksciis ke li sekure sukcesis fari la mirindan taskon.
 
-Paŭzinte nur por entiri unu senŝarĝigan spiron, 
+Paŭzinte nur por entiri unu senŝarĝigan spiron,
 
 Ingo rapide trairis la nerektan koridoron kiu
 
@@ -10482,7 +10010,7 @@ fine povis rigardi senpalpebrume la strangan brilon
 
 kiu tiel rapide ŝanĝis la kondiĉon de la kaverno. Kiam
 
-li antaŭe trapasis ĉi tiun volbon ĝi estis tute vaka. 
+li antaŭe trapasis ĉi tiun volbon ĝi estis tute vaka.
 
 Nun la plata planko el roko estis ĉie kovrata de bedo
 
@@ -10492,7 +10020,7 @@ langojn da ruĝaj kaj blankaj flamoj. Efektive, la tuta
 
 kavo estis unu monstra forno kaj la varmego venanta
 
-el ĝi estis timiga. 
+el ĝi estis timiga.
 
 La koro de Ingo sinkis en li dum li komprenis pri
 
@@ -10502,11 +10030,8 @@ Knomoj inter lin kaj la sekurecon troveblan en la
 
 aliaj kavernoj. Ne eblis retroiri, ĉar estus neeble ke li
 
-260
 
-!(images/000108.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 denove transsaltu la abismon en la dua kaverno, ĉar
 
@@ -10522,7 +10047,7 @@ lia granda forto ne utilos al li kaj li amare riproĉis
 
 sin ke li fordonis la Palruĝan Perlon, kiu protektus
 
-lin kontraŭ damaĝo. 
+lntraŭ damaĝo.
 
 Tamen, Princo Ingo ne havis naturon kiu
 
@@ -10542,13 +10067,13 @@ kuraĝigu vin, sed kredu ke ekzistas metodo eliri ĉiun
 
 embarason, kaj oni povas trovi ĝin per profunda
 
-pensado. 
+pensado.
 
 Estis multaj pintoj kaj etendaĵoj de roko en la
 
 muroj de la malrekta koridoro en kiu staras Ingo kaj
 
-kelkaj el tiuj rokoj estis fenditaj kaj malfiksitaj, 
+kelkaj el tiuj rokoj estis fenditaj kaj malfiksitaj,
 
 kvankam ili ankoraŭ kroĉiĝis al siaj lokoj. La knabo
 
@@ -10556,9 +10081,6 @@ elektis grandan pecon, kaj, per sia tuta forto, ŝirtiris
 
 ĝin el la muro. Li poste portis ĝin al la kaverno kaj
 
-262
-
-!(images/000112.jpg)
 
 Ĉapitro Dek Ok
 
@@ -10578,7 +10100,7 @@ trans la kavernon ĝis la obskura pretera koridoro, kiu
 
 laŭ lia espero rekondukos lin al sekureco eĉ se ne al
 
-libereco. 
+libereco.
 
 Kompletiginte sian laboron, Ingo ne longe hezitis
 
@@ -10590,7 +10112,7 @@ karboj antaŭ ol la rokoj fariĝos tiom varmaj ke ili
 
 bruligos liajn piedojn. Do li saltis al la unua roko kaj
 
-de tie li komencis salti de unu al alia rapide sinsekve. 
+de tie li komencis salti de unu al alia rapide sinsekve.
 
 Velkiga ondo da varmego tuj kovris lin, kaj dum kelka
 
@@ -10600,7 +10122,7 @@ kavernon; sed li entenis sian spiron, por neebligi ke
 
 la varmega aero eniru liajn pulmojn, kaj daŭrigis
 
-siajn saltojn firme kvankam preskaŭ senespere. 
+siajn saltojn firme kvankam preskaŭ senespere.
 
 Post tio, antaŭ ol li sciiĝis, liaj piedoj premis la
 
@@ -10610,17 +10132,14 @@ ruliĝis senhelpe sur la planko, anhelante pro manko
 
 de spiro. Lia haŭto estis tiom ruĝa ke ĝi similis la
 
-263
 
-!(images/000060.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 ŝelon de boligita omaro, sed lia rapida moviĝo evitigis
 
 brulon, kaj liaj ŝuoj havis dikajn plandumojn, kiuj
 
-sekurigis liajn piedojn. 
+sekurigis liajn piedojn.
 
 Ripozinte dum kelkaj minutoj, la knabo sentis sin
 
@@ -10646,39 +10165,36 @@ la Knomoj, kie antaŭ li staris Reĝo Kalikoto, kun
 
 larĝa rideto sur sia vizaĝo, kaj Klik, la ĉambelano de
 
-la Reĝo, kiu aspektis surprizita, kaj Reĝo Rinkitinko
+la Reĝo, kiu aspektis surprizita, kaj Reĝo Rinkit
 
 sidanta sur Bilbilo la kapro, al kiuj klare plaĉis la
 
-reveno de Ingo. 
+reveno de Ingo.
 
-264
 
-!(images/000071.png)
-
-Rinkitinko Subridas
+Rinkit Subridas
 
 ĈAPITRO 19
 
 Ni nun rakontos kio
 
-okazis al Rinkitinko kaj
+okazis al Rinkit kaj
 
 Bilbilo tiumatene, dum
 
-Ingo 
+Ingo
 
-spertis 
+spertis
 
 siajn
 
 ĉagrenajn spertojn dum
 
-sia eskapo de la timigaj danĝeroj de la tri kavernoj. 
+sia eskapo de la timigaj danĝeroj de la tri kavernoj.
 
 La Reĝo de Gilgado vekiĝis kaj trovis ke la pordo
 
-de la ĉambro de Ingo estas firme fermita kaj ŝlosita, 
+de la ĉambro de Ingo estas firme fermita kaj ŝlosita,
 
 sed li tute ne spertis problemon kiam li malfermis
 
@@ -10688,11 +10204,10 @@ sian propran pordon en la koridoron, ĉar ŝajnas ke la
 
 sur pivoto, sed la apudaj ĉambroj, okupataj de Bilbilo
 
-265
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-kaj Rinkitinko, restis senmovaj. La malgranda Reĝo
+kaj Rinkit, restis senmovaj. La malgranda Reĝo
 
 ankaŭ trovis matenmanĝon magie sendita en sian
 
@@ -10700,15 +10215,15 @@ ankaŭ trovis matenmanĝon magie sendita en sian
 
 deklaris ke Lia Moŝto, Reĝo Kalikoto, deziras ke li
 
-ĉeestu en la reĝa kaverno. 
+ĉeestu en la reĝa kaverno.
 
-Do Rinkitinko, unue certiginte ke la Palruĝa Perlo
+Do Rinkit, unue certiginte ke la Palruĝa Perlo
 
 ankoraŭ estas en la poŝo de lia veŝto, volonte sekvis
 
 Klikon, kiu kuris antaŭe je ioma distanco. Sed tuj
 
-kiam Rinkitinko paŝis en la koridoron granda roko, 
+kiam Rinkit paŝis en la koridoron granda roko,
 
 peza almenaŭ tunon, malfiksiĝis kaj falis de la
 
@@ -10718,39 +10233,38 @@ povis damaĝi lin, ĉar li estis protektata de la Palruĝa
 
 Perlo, kaj ĝi flankensaltis kaj frakasiĝis sur la
 
-plankon, kie ĝi diseriĝis pro sia propra pezo. 
+plankon, kie ĝi diseriĝis pro sia propra pezo.
 
-“Tre senzorge\!” kriis la malgranda Reĝo, kaj anas-
+“Tre senzorge!” kriis la malgranda Reĝo, kaj anas-
 
 paŝis sekvante Klikon, kiu aspektis surprizegita de lia
 
-eskapo. 
+eskapo.
 
-Baldaŭ alia roko super Rinkitinko plonĝis suben, 
+Baldaŭ alia roko super Rinkit plonĝis suben,
 
-kaj ankaŭ alia, sed neniu tuŝis lian korpon. Klinko
+kaj ankaŭ alia, sed neniu tuŝis lian korpon. Kl
 
 aspektis multe perpleksa pro tiuj pluaj eskapoj kaj
 
-certe Kalikoto estis surprizita kiam Rinkitinko, plene
+certe Kalikoto estis surprizita kiam Rinkit, plene
 
-sekura, eniris la reĝan kavernon. 
+sekura, eniris la reĝan kavernon.
 
 “Bonan matenon,” diris la Reĝo de Gilgado. “Viaj
 
 rokoj malfiksiĝas, Kalikoto, kaj vi nepre regluigu ilin
 
-266
 
 Ĉapitro Dek Naŭ
 
 en iliajn lokojn antaŭ ol ili damaĝos iun.” Poste li
 
-komencis subridi: “Hu, hu, hu-hi, hi-hik, kik, ik\!” kaj
+komencis subridi: “Hu, hu, hu-hi, hi-hik, kik, ik!” kaj
 
 Kalikoto sidis kaj sulkis la frunton ĉar li ekkomprenis
 
-ke la malgranda dika Reĝo mokas lin. 
+ke la malgranda dika Reĝo mokas lin.
 
 “Mi petis ke Via Moŝto venu ĉi tien,” diris la Reĝo
 
@@ -10758,61 +10272,60 @@ de la Knomoj, “por montri al vi kuriozan buklaron
 
 da ora fadeno kiun faris miaj metiistoj. Se ĝi plaĉas
 
-al vi, mi donacos ĝin al vi.” 
+al vi, mi donacos ĝin al vi.”
 
 Dirinte tion li etendis malgrandan buklaron da
 
-scintilanta ora ŝnuro, kiu estis vere bela kaj kurioza. 
+scintilanta ora ŝnuro, kiu estis vere bela kaj kurioza.
 
-Rinkitinko prenis ĝin per mano kaj tuj la ora fadeno
+Rinkit prenis ĝin per mano kaj tuj la ora fadeno
 
 komencis malvolviĝi—tiel rapide ke la okulo ne povis
 
 sekvi ĝian moviĝon. Kaj, dum ĝi malvolviĝis, ĝi volvis
 
-sin ĉirkaŭ la korpon de Rinkitinko, samtempe
+sin ĉirkaŭ la korpon de Rinkit, samtempe
 
 teksante sin en reton, ĝis ĝi kovris la malgrandan
 
 Reĝon de kapo ĝis piedo kaj metis lin en oran
 
-karceron. 
+karceron.
 
-“Aha\!” kriis Kalikoto; “*ĉi tiu* magio ĝuste funkciis, 
+“Aha!” kriis Kalikoto; “*ĉi tiu* magio ĝuste funkciis,
 
-laŭŝajne.” 
+laŭŝajne.”
 
-“Ho, ĉu?” respondis Rinkitinko, kaj antaŭen-
+“Ho, ĉu?” respondis Rinkit, kaj antaŭen-
 
 paŝante li marŝis tute tra la oran reton, kiu falis
 
-surplanken, konfuzita amaso. 
+surplanken, konfuzita amaso.
 
 Kalikoto frotis sian mentonon penseme kaj gapis
 
-firme Rinkitinkon. 
+firme Rinkitn.
 
-267
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 “Mi komprenas multan magion,” diris li, “sed Via
 
-Moŝto havas ian magion kiu multe perpleksigas min, 
+Moŝto havas ian magion kiu multe perpleksigas min,
 
 ĉar ĝi estas malsimila al ĉio tia kion mi ĝis nun
 
-renkontis.” 
+renkontis.”
 
-“Nu, atentu, Kalikoto,” diris Rinkitinko; “se vi
+“Nu, atentu, Kalikoto,” diris Rinkit; “se vi
 
 celas damaĝi min aŭ miajn kompanojn, ĉesu, ĉar vi
 
-neniam sukcesos. Ni estas nedamaĝeblaj, pli-malpli, 
+neniam sukcesos. Ni estas nedamaĝeblaj, pli-malpli,
 
 kaj vi nur malŝparas vian tempon penante difekti
 
-nin.” 
+nin.”
 
 “Vi eble pravas, kaj mi esperas ne esti tiom mal-
 
@@ -10824,7 +10337,7 @@ estas konvinkita ke vi estas pli forta ol mia fama
 
 magio. Tamen, mi petas ke vi kredu ke mi neniel
 
-malbonvolas al vi, Reĝo Rinkitinko; sed mia devo
+malbonvolas al vi, Reĝo Rinkit; sed mia devo
 
 estas detrui vin, se eble, ĉar vi kaj tiu sensignifa
 
@@ -10834,51 +10347,48 @@ kaptitojn kaj firme rifuzis reiri al la tersurfaco kaj ĉesi
 
 ĝeni min. Mi estas tre molkora, efektive, kaj mi
 
-multege ŝatas vin kaj ĝuus vin kiel amikon, sed—” 
+multege ŝatas vin kaj ĝuus vin kiel amikon, sed—”
 
 Nun li premis butonon sur la brako de sia tronseĝo
 
-kaj la parto de la planko kie staras Rinkitinko
+kaj la parto de la planko kie staras Rinkit
 
 ekmalfermiĝis kaj montris nigran truegon suban, kiu
 
-estis parto de la terura Senfunda Abismo. 
+estis parto de la terura Senfunda Abismo.
 
-268
 
-!(images/000082.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-Sed Rinkitinko ne falis en la truon; lia korpo restis
+Sed Rinkit ne falis en la truon; lia korpo restis
 
 ŝvebanta en la aero ĝis li antaŭenmetis piedon kaj
 
 paŝis sur la solidan plankon, kaj tiam la aperturo
 
-ekrefermiĝis. 
+ekrefermiĝis.
 
-“Mi altetaksas la amikecon de Via Moŝto,” 
+“Mi altetaksas la amikecon de Via Moŝto,”
 
-komentis Rinkitinko, trankvile kvazaŭ neniu okazis, 
+komentis Rinkit, trankvile kvazaŭ neniu okazis,
 
 “sed mi laciĝas pro starado. Ĉu vi bonvolos venigi
 
 mian kapron, Bilbilo, por ke mi sidu sur lia dorso
 
-kaj ripozu?” 
+kaj ripozu?”
 
-“Jes ja\!” promesis Kalikoto. “Mi ankoraŭ ne
+“Jes ja!” promesis Kalikoto. “Mi ankoraŭ ne
 
 kompletigis mian provon de via magio, kaj ĉar mi
 
 ŝuldas iom da venĝo al tiu kapro ĉar li batis mian
 
-kapon kaj frakasis mian preskaŭ-plej-bonan kronon, 
+kapon kaj frakasis mian preskaŭ-plej-bonan kronon,
 
 mi volonte trovos ĉu ankaŭ la besto povos eskapi de
 
-miaj plezurigaj sorĉaĵetoj.” 
+miaj plezurigaj sorĉaĵetoj.”
 
 Do Klik estis senditu venigi Bilbilon kaj baldaŭ
 
@@ -10886,9 +10396,9 @@ revenis kun la kapro, kiu estis tre malafabla tiun
 
 matenon ĉar ĝi ne bone dormis en la subteraj
 
-kavernoj. 
+kavernoj.
 
-Rinkitinko ne prokrastis suriri la ruĝveluran selon
+Rinkit ne prokrastis suriri la ruĝveluran selon
 
 kiun konstante portis la kapro, ĉar li timis ke la Reĝo
 
@@ -10898,19 +10408,18 @@ lia korpo tuŝas tiun de la kapro la Palruĝa Perlo
 
 protektos ilin ambaŭ; sed, se Bilbilo starus sola, nenia
 
-270
 
 Ĉapitro Dek Naŭ
 
-magio savus lin. 
+magio savus lin.
 
 Bilbilo figapis Reĝon Kalikoton, kiu moviĝis mal-
 
 trankvile en sia ebura trono. Post tio la Reĝo de la
 
-Knomoj flustris dum momento en orelon de Kliko, 
+Knomoj flustris dum momento en orelon de Kliko,
 
-kiu kapjesis kaj foriris el la ĉambro. 
+kiu kapjesis kaj foriris el la ĉambro.
 
 “Bonvolu senti vin ĉehejme ĉi tie dum kelkaj
 
@@ -10920,19 +10429,19 @@ la Knomoj, stariĝante de la trono. “Mi revenos al vi
 
 baldaŭ, kaj mi esperas trovi vin pecama aŭ pacema—
 
-ha, ha, ha\!—tiun ŝercon vi ne povas ĝuste taksi nun
+ha, ha, ha!—tiun ŝercon vi ne povas ĝuste taksi nun
 
-sed vi povos poste. Estu pacpecema—jen la koncepto. 
+sed vi povos poste. Estu pacpecema—jen la koncepto.
 
-Ho, ho, ho\! Vere komike.” Post tio li anaspaŝis el la
+Ho, ho, ho! Vere komike.” Post tio li anaspaŝis el la
 
-kaverno, kaj fermis la pordon post si. 
+kaverno, kaj fermis la pordon post si.
 
-“Nu, kial vi ne ridis kiam Kalikoto ridis?” 
+“Nu, kial vi ne ridis kiam Kalikoto ridis?”
 
-demandis la kapro, kiam ili estis solaj en la kaverno. 
+demandis la kapro, kiam ili estis solaj en la kaverno.
 
-“Ĉar li fiplanas ion,” respondis Rinkitinko, “kaj ni
+“Ĉar li fiplanas ion,” respondis Rinkit, “kaj ni
 
 ridos post la finiĝo de la danĝero, Bilbilo. Malnova
 
@@ -10940,7 +10449,7 @@ maksimo diras: ‘Kiu laste ridas plej bone ridas’, kaj
 
 oni nur laste ridas se la aliulo havas oportunon. El
 
-kie venis tiu tranĉilo? Kurioze.” 
+kie venis tiu tranĉilo? Kurioze.”
 
 Ĉar longa akra tranĉilo subite aperis en la aero
 
@@ -10950,15 +10459,14 @@ flank’, kaj flugante tien kaj tien tre danĝere, tute sen
 
 videbla subteno. Post tio alia tranĉilo vidiĝis—kaj plia
 
-271
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kaj plia—ĝis la tuta spaco en la reĝa kaverno aspektis
 
 plena de ili. Iliaj akraj pintoj kaj randoj flugis cele
 
-Rinkitinkon kaj Bilbilon konstante kaj nenio savus
+Rinkitn kaj Bilbilon konstante kaj nenio savus
 
 ilin de diseriĝo escepte de la protektanta povo de la
 
@@ -10966,11 +10474,11 @@ Palruĝa Perlo. Sed efektive, neniu tranĉilo tuŝis ilin
 
 kaj eĉ Bilbilo raŭke ridis pro la fiasko de la lerta
 
-magio de Kalikoto. 
+magio de Kalikoto.
 
 La kapro vagis tien kaj tien en la kaverno, portante
 
-Rinkitinkon sur sia dorso, kaj neniu el ili eĉ ete
+Rinkitn sur sia dorso, kaj neniu el ili eĉ ete
 
 atentis la zumantajn tranĉilojn, kvankam la scintilo
 
@@ -10978,9 +10486,9 @@ de la centoj da poluritaj klingoj iom ĝenis iliajn
 
 okulojn. Dum eble dek minutoj la tranĉiloj ĉirkaŭ-
 
-flugis ilin konfuzege; sed subite ili malaperis subite
+flugis ilnfuzege; sed subite ili malaperis subite
 
-kiel ili estis aperintaj. 
+kiel ili estis aperintaj.
 
 Kalikoto sinzorge puŝis sian kapon tra la pordejon
 
@@ -10988,39 +10496,38 @@ kaj trovis la kapron maĉanta la brodaĵojn de lia reĝa
 
 mantelo, kiun li lasis kuŝanta sur la trono, dum
 
-Rinkitinko legas sian manuskripton pri “Kiel Bone
+Rinkit legas sian manuskripton pri “Kiel Bone
 
 Konduti” kaj subridas pro ĝia konsilo. La Reĝo de la
 
 Knomoj aspektis ege malfeliĉa dum li envenis kaj
 
-residiĝis sur la tronon. Diris Rinkitinko subridante:
+residiĝis sur la tronon. Diris Rinkit subridante:
 
 “Vere estis tre pace, Kalikoto, kvankam ne pece
 
 kiel anticipis vi. Pardonu ke mi indulgas min per
 
-rido—hu, hu, hu-hi, hik-kik-ik\! Kaj nun, diru al mi; 
+rido—hu, hu, hu-hi, hik-kik-ik! Kaj nun, diru al mi;
 
-272
 
 Ĉapitro Dek Naŭ
 
-ĉu vi ne enuas pro la provoj damaĝi nin?” 
+ĉu vi ne enuas pro la provoj damaĝi nin?”
 
 “E-he,” diris la Reĝo de la Knomoj. “Mi vidas nun
 
-ke via magio povas protekti vin kontraŭ ĉiuj miaj
+ke via magio povas protekti vntraŭ ĉiuj miaj
 
 artoj. Sed ĉu la knabo Ingo estas tiel bone protektata
 
-kiel Via Moŝto kaj la kapro?” 
+kiel Via Moŝto kaj la kapro?”
 
-“Kial vi demandas?” demandis Rinkitinko, kiun
+“Kial vi demandas?” demandis Rinkit, kiun
 
 maltrankviligis la demando ĉar li memoris ne esti
 
-vidinta la malgrandan Princon de Pingario tiumatene. 
+vidinta la malgrandan Princon de Pingario tiumatene.
 
 “Ĉar,” diris Kalikoto, “la knabo trasuferas provojn
 
@@ -11030,9 +10537,9 @@ renkontis, kaj de centoj da jaroj neniu kapablas
 
 eskapi viva el la danĝeroj de miaj Tri Trompaj
 
-Kavernoj.” 
+Kavernoj.”
 
-Reĝon Rinkitinkon multe alarmis aŭdi tion, ĉar
+Reĝon Rinkitn multe alarmis aŭdi tion, ĉar
 
 kvankam li sciis ke Ingo posedas la Bluan Perlon, tio
 
@@ -11044,19 +10551,18 @@ malvolis ke Kalikoto vidu la timon kiun li sentas pri
 
 la sekureco de Ingo, do li diris laŭ senzorga maniero:
 
-“Vi estas ege malkompetanta magiisto, Kalikoto, 
+“Vi estas ege malkompetanta magiisto, Kalikoto,
 
 kaj mi donos al vi mian kronon se Ingo ne eskapis
 
-el ĉiu danĝero per kiu vi minacis lin.” 
+el ĉiu danĝero per kiu vi minacis lin.”
 
 “Via tuta krono ne valoras unu el la valoraj
 
 diamantoj en mia krono,” respondis la Reĝo de la
 
-273
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Knomoj, “sed mi prenos ĝin. Ni iru tuj, do, kaj vidu
 
@@ -11064,11 +10570,11 @@ kio okazis al la knaba Princo, ĉar se li ne estas jam
 
 detruita, mi agnoskas ke li ne estas damaĝebla per iu
 
-el la magiaj artoj kiujn mi komandas.” 
+el la magiaj artoj kiujn mi komandas.”
 
 Li foriris el la ĉambro, akompanate de Klik, kiu
 
-nun jam revenis al sia mastro, kaj de Rinkitinko
+nun jam revenis al sia mastro, kaj de Rinkit
 
 rajdanta sur Bilbilo. Trairinte plurajn el la gigantaj
 
@@ -11082,15 +10588,12 @@ sekretan risorton kaj sekcio de la muro malfermiĝis
 
 kaj montris la koridoron kie staras Princo Ingo
 
-frontante ilin. 
+frontante ilin.
 
-“Tortoj kaj ranidoj\!” kriis Kalikoto surprizite. “La
+“Tortoj kaj ranidoj!” kriis Kalikoto surprizite. “La
 
-knabo ankoraŭ vivas\!” 
+knabo ankoraŭ vivas!”
 
-274
-
-!(images/000003.png)
 
 Doroteo Venas Savi
 
@@ -11116,19 +10619,18 @@ kaptiĝo de Reĝo Kitikuto kaj Reĝino Gario kaj ilia
 
 tuta popolo, kaj la kurioza eskapo de Ingo, la knaba
 
-Princo, kaj de Reĝo Rinkitinko kaj la parolanta kapro. 
+Princo, kaj de Reĝo Rinkit kaj la parolanta kapro.
 
 Turninte kelkajn el la sekvaj paĝoj, Doroteo legis pri
 
-275
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kiel Ingo trovis la Magiajn Perlojn kaj remas la
 
 arĝente tegitan boaton al Regoso por provi savi siajn
 
-gepatrojn. 
+gepatrojn.
 
 La knabineton multe interesis scii kiel Ingo
 
@@ -11146,9 +10648,9 @@ scenon oni deziras, la knabino ekpensis pri Ingo kaj
 
 ordonis la Magian Bildon montri kion faras la knabo
 
-tiumomente. 
+tiumomente.
 
-Tiutempe Ingo kaj Rinkitinko estis sekvintaj la
+Tiutempe Ingo kaj Rinkit estis sekvintaj la
 
 Reĝon de Regoso kaj la Reĝinon de Koregoso al la
 
@@ -11166,45 +10668,44 @@ Ingo kaj liaj amikoj en la kavernoj de la Reĝo de la
 
 Knomoj, kaj la danĝero kaj la senhelpeco de la povra
 
-knabo vekis kompaton kaj indignon en la knabineto. 
+knabo vekis kompaton kaj indignon en la knabineto.
 
 Do ŝi iris al Ozma kaj rakontis ĉion pri Ingo kaj
 
-Rinkitinko al la bela knabina Reganto de Oz. 
+Rinkit al la bela knabina Reganto de Oz.
 
-276
 
 Ĉapitro Dudek
 
-“Mi opinias ke Kalikoto ege aĉe mistraktas ilin,” 
+“Mi opinias ke Kalikoto ege aĉe mistraktas ilin,”
 
 deklaris Doroteo, “kaj mi volas ke vi permesu ke mi
 
 iru al la Lando de la Knomoj kaj helpu ilin eskapi
 
-el siaj problemoj.” 
+el siaj problemoj.”
 
 “Iru, kara, se vi deziras,” respondis Ozmo, “sed mi
 
-opinias ke estos plej bone ke vi kunprenu la Sorĉiston.” 
+opinias ke estos plej bone ke vi kunprenu la Sorĉiston.”
 
 “Ho, mi ne timas la Knomojn,” diris Doroteo, “sed
 
 mi volonte kunprenos la Sorĉiston kiel kompanon. Kaj
 
-ĉu ni rajtos uzi vian Magian Tapiŝon, Ozma?” 
+ĉu ni rajtos uzi vian Magian Tapiŝon, Ozma?”
 
 “Kompreneble. Metu la Magian Tapiŝon en la
 
 Ruĝan Ĉaregon kaj lasu la Segĉevalon tiri vin kaj la
 
-Sorĉiston al la rando de la dezerto. Dum via foresto, 
+Sorĉiston al la rando de la dezerto. Dum via foresto,
 
 Doroteo, mi observos vin en la Magia Bildo, kaj se
 
 ia danĝero minacos vin mi certigos ke vi ne estos
 
-damaĝita.” 
+damaĝita.”
 
 Doroteo dankis la Reganton de Oz kaj kise adiaŭis
 
@@ -11218,15 +10719,14 @@ akceptis akompani la knabineton al la kavernoj de la
 
 Reĝo de la Knomoj. Ili ambaŭ jam antaŭe estis tie
 
-kaj konkeris la Knomojn facile, do ili tute ne timis. 
+kaj konkeris la Knomojn facile, do ili tute ne timis.
 
 La Sorĉisto, kiu estis gaja vireto kun kalva kapo
 
 kaj ĉarma rideto, jungis la Lignan Segĉevalon al la
 
-277
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Ruĝa Ĉarego kaj enŝarĝis la Magian Tapiŝon de
 
@@ -11236,7 +10736,7 @@ kaj la Segĉevalo ekkomencis tiri ilin rapide tra la bela
 
 Lando Oz al la rando de la Mortiga Dezerto kiu
 
-apartigis ilian felandon de la Lando de la Knomoj. 
+apartigis ilian felandon de la Lando de la Knomoj.
 
 Eĉ Doroteo kaj la lerta Sorĉisto ne kuraĝus transiri
 
@@ -11254,17 +10754,17 @@ komencis malruliĝi antaŭ ili kaj dum ili marŝis sur
 
 Mortigan Dezerton kaj estis sur la bordo de la regno
 
-de la Reĝo de la Knomoj. 
+de la Reĝo de la Knomoj.
 
-Tiu veturo estis kompletigita dum kelkaj minutoj, 
+Tiu veturo estis kompletigita dum kelkaj minutoj,
 
 kvankam tioma distanco necesigus plurajn tagojn da
 
-veturado se ili ne marŝus sur la Magia Tapiŝo. 
+veturado se ili ne marŝus sur la Magia Tapiŝo.
 
 Alveninte ili tuj marŝis cele la enirejon de la kavernoj
 
-de la knomoj. 
+de la knomoj.
 
 La Sorĉisto portis malgrandan nigran sakon en kiu
 
@@ -11274,21 +10774,16 @@ kovritan korbon en kiu ŝi estis enmetinta dek du
 
 ovojn, per kiuj ŝi konkeros la knomojn se ili okazigos
 
-problemojn. 
+problemojn.
 
-278
 
-!(images/000101.png)
-
-!(images/000077.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Eble vi opinias ke ovoj estas kurioza armilo per
 
-kiu batali, sed la knabineto bone konis ilian valoron. 
+kiu batali, sed la knabineto bone konis ilian valoron.
 
-La knomoj estas senmortaj; tio estas, ili ne pereas, 
+La knomoj estas senmortaj; tio estas, ili ne pereas,
 
 kiel mortipovuloj, *krom se ili ekkontaktas ovon*. Se ovo
 
@@ -11298,7 +10793,7 @@ ovo—la knomoj perdas sian ŝorĉkaŭzitan eternan
 
 vivon kaj post tio povas morti pro akcidento aŭ
 
-maljuneco, same kiel ĉiuj homoj. 
+maljuneco, same kiel ĉiuj homoj.
 
 Pro tio eĉ la ekvido de ovo plenigas knomon per
 
@@ -11310,13 +10805,8 @@ kunprenis sian korbon da ovoj, ŝi sciis ke ŝi estas pli
 
 forte armita ol se ŝi havus regimenton da soldatoj
 
-malantaŭ si. 
+malantaŭ si.
 
-280
-
-!(images/000069.jpg)
-
-!(images/000065.png)
 
 La Sorĉisto Trovas Sorĉaĵon
 
@@ -11324,15 +10814,15 @@ La Sorĉisto Trovas Sorĉaĵon
 
 Post kiam Kalikoto mal-
 
-sukcesis 
+sukcesis
 
-detrui 
+detrui
 
 siajn
 
-gastojn, 
+gastojn,
 
-kiel 
+kiel
 
 estas
 
@@ -11340,13 +10830,13 @@ rakontite, la Reĝo de la
 
 Knomoj faris nenion pli
 
-por damaĝi ilin sed traktis ilin amikeme. Li rifuzis, 
+por damaĝi ilin sed traktis ilin amikeme. Li rifuzis,
 
-tamen, permesi Ingon vidi siajn patron kaj patrinon, 
+tamen, permesi Ingon vidi siajn patron kaj patrinon,
 
 aŭ paroli kun ili, aŭ eĉ scii en kiu parto de la subteraj
 
-kavernoj ili estas enfermitaj. 
+kavernoj ili estas enfermitaj.
 
 “Vi kapablas protekti viajn vivojn kaj korpojn, mi
 
@@ -11354,13 +10844,12 @@ senrezerve agnoskas tion,” diris Kalikoto; “sed mi
 
 firme kredas ke vi ne havas povon, ĉu magian ĉu
 
-281
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 alispecan, forpreni de mi la kaptitojn kiujn mi
 
-akceptis gardi por Reĝo Goso.” 
+akceptis gardi por Reĝo Goso.”
 
 Ingo rifuzis konsenti pri tio. Li firme decidis ne
 
@@ -11368,25 +10857,25 @@ foriri el la kavernoj antaŭ ol liberigi siajn patron kaj
 
 patrinon, kvankam li ne tiutempe sciis kiel tio estus
 
-efektivigebla. Rilate al Rinkitinko, tiu gaja Reĝo estis
+efektivigebla. Rilate al Rinkit, tiu gaja Reĝo estis
 
-bone manĝigata kaj havis bonan liton sur kiu dormi, 
+bone manĝigata kaj havis bonan liton sur kiu dormi,
 
 do li ne maltrankvilis pri io ajn kaj ŝajne tute ne
 
-fervoris foriri. 
+fervoris foriri.
 
-Kalikoto kaj Rinkitinko okupadis sin per ĵetludo
+Kalikoto kaj Rinkit okupadis sin per ĵetludo
 
 uzanta solidajn orajn ĵetaĵojn, sur la planko de la
 
 reĝa ĉambro, kaj Ingo kaj Bilbilo rigardis ilin, kiam
 
-Klik ekenkuris. Liaj haroj staris rekte pro ekscitiĝo, 
+Klik ekenkuris. Liaj haroj staris rekte pro ekscitiĝo,
 
 kaj li kriis ke la Sorĉisto de Oz kaj Doroteo
 
-proksimiĝas. 
+proksimiĝas.
 
 Kalikoto paliĝis aŭdante tiun nebonvenan
 
@@ -11394,11 +10883,11 @@ informon kaj, lasante sian ludon, iris sidi en sia ebura
 
 trono kaj peni konjekti kio venigis tiujn timigajn
 
-vizitantojn al lia regno. 
+vizitantojn al lia regno.
 
-“Kiu estas Doroteo?” demandis Ingo. 
+“Kiu estas Doroteo?” demandis Ingo.
 
-“Ŝi estas knabineto kiu iam loĝis en Kansas,” 
+“Ŝi estas knabineto kiu iam loĝis en Kansas,”
 
 respondis Klik tremante, “sed ŝi nun loĝas en la
 
@@ -11406,13 +10895,12 @@ palaco de Ozma en la Smeralda Urbo kaj estas
 
 Princino de Oz—tio signifas ke ŝi estas terura
 
-282
 
 Ĉapitro Dudek Unu
 
-malamiko por ni.” 
+malamiko por ni.”
 
-“Ĉu ŝi malamas la knomojn?” demandis la knabo. 
+“Ĉu ŝi malamas la knomojn?” demandis la knabo.
 
 “Ne pro tio,” diris Reĝo Kalikoto, ĝemante, “sed
 
@@ -11432,19 +10920,19 @@ magio kiun mi ne povas superi, ĉar li lernis ĝin de
 
 Glinda, kiu estas la plej potenca sorĉistino en la
 
-mondo. Ve al mi\! Kial Doroteo kaj la Sorĉisto ne
+mondo. Ve al mi! Kial Doroteo kaj la Sorĉisto ne
 
-restis en Oz, kie ili devus esti?” 
+restis en Oz, kie ili devus esti?”
 
-Ingo kaj Rinkitinko aŭskultis tion tre ĝoje, ĉar tuj
+Ingo kaj Rinkit aŭskultis tion tre ĝoje, ĉar tuj
 
-ilin trafis la ideo pledi al Doroteo ke ŝi helpu ilin. 
+ilin trafis la ideo pledi al Doroteo ke ŝi helpu ilin.
 
 Eĉ Bilbilo atentigis siajn orelojn aŭdante mencion pri
 
 la Sorĉisto de Oz, kaj la kapro ŝajnis malpli mal-
 
-afabla, kaj multe pli pensema ol kutime. 
+afabla, kaj multe pli pensema ol kutime.
 
 Kelkajn minutojn poste knomo venis diri ke
 
@@ -11452,119 +10940,114 @@ Doroteo kaj la Sorĉisto estas venintaj kaj postulas
 
 eniri, do Klik sendiĝis konduki ilin antaŭ la Reĝon
 
-de la Knomoj. 
+de la Knomoj.
 
 Tuj kiam ŝi envenis la knabineto kuris al la knaba
 
-Princo kaj prenis ambaŭ liajn manojn. 
+Princo kaj prenis ambaŭ liajn manojn.
 
-283
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-“Ho, Ingo\!” ŝi kriis, “tiom ĝojigas min trovi vin
+“Ho, Ingo!” ŝi kriis, “tiom ĝojigas min trovi vin
 
-viva kaj bonstata.” 
+viva kaj bonstata.”
 
 Ingon surprizis tiom varma saluto. Profunde
 
 riverencante li diris:
 
-“Mi kredas ke ni ne antaŭe renkontiĝis, Princino.” 
+“Mi kredas ke ni ne antaŭe renkontiĝis, Princino.”
 
 “Vi ja pravas,” respondis Doroteo, “sed mi scias
 
 ĉion pri vi kaj mi venis helpi vin kaj Reĝon Rinki-
 
-tinkon eskapi el viaj problemoj.” Post tio ŝi turnis sin
+tn eskapi el viaj problemoj.” Post tio ŝi turnis sin
 
 al la Reĝo de la Knomoj: “Vi devus honti, Reĝo
 
 Kalikoto, tiel fie traktinte honestan Princon kaj
 
-honestan Reĝon.” 
+honestan Reĝon.”
 
-“Mi neniel damaĝis ilin,” plendaĉis Kalikoto, 
+“Mi neniel damaĝis ilin,” plendaĉis Kalikoto,
 
-tremante dum ŝiaj okuloj flagris al li. 
+tremante dum ŝiaj okuloj flagris al li.
 
-“Ne; sed vi penis, kaj tio estas egale fia se ne pli,” 
+“Ne; sed vi penis, kaj tio estas egale fia se ne pli,”
 
 diris Doroteo, kiu estis tre indigna. “Kaj nun mi volas
 
-ke vi venigu la Reĝon kaj Reĝinon de Pingario, 
+ke vi venigu la Reĝon kaj Reĝinon de Pingario,
 
-*tujtuje*\!” 
+*tujtuje*!”
 
-“Mi rifuzas,” diris Kalikoto. 
+“Mi rifuzas,” diris Kalikoto.
 
-“Jes ja\!” kriis Dorteo, piedbatante la plankon pro
+“Jes ja!” kriis Dorteo, piedbatante la plankon pro
 
-li. “Mi malpermesas plu malfeliĉigi tiujn povrulojn, 
+li. “Mi malpermesas plu malfeliĉigi tiujn povrulojn,
 
-nek apartigi ilin de ilia fileto. Ĉar estas *aĉege*, 
+nek apartigi ilin de ilia fileto. Ĉar estas *aĉege*,
 
 Kalikoto, kaj mi miras pro vi. Vi nepre estas pli fia
 
-ol mi supozis.” 
+ol mi supozis.”
 
 “Mi ne povas, Doroteo,” diris la Reĝo de la
 
-284
 
-!(images/000008.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 Knomoj, preskaŭ plorante pro senesperiĝo. “Mi
 
 promesis al Reĝo Goso ke mi gardos ilin kaptitaj. Vi
 
-ne petus min rompi mian promeson, ĉu?” 
+ne petus min rompi mian promeson, ĉu?”
 
 “Reĝo Goso estis rabisto kaj krimulo,” ŝi diris, “kaj
 
 eble vi ne scias ke marŝtormo detruis lian boaton, dum
 
-li reiris al Regoso, kaj ke kaj li kaj Reĝino Koro dronis.” 
+li reiris al Regoso, kaj ke kaj li kaj Reĝino Koro dronis.”
 
-“Jadi\!” kriis Kalikoto. “Ĉu vere?” 
+“Jadi!” kriis Kalikoto. “Ĉu vere?”
 
-“Mi vidis tion en la Libro de Arkivoj de Glinda,” 
+“Mi vidis tion en la Libro de Arkivoj de Glinda,”
 
 diris Doroteo. “Do nun alpaŝigu la Reĝon kaj
 
-Reĝinon de Pingario tujtujege.” 
+Reĝinon de Pingario tujtujege.”
 
-“Ne,” persistis la kontraŭema Reĝo de la Knomoj, 
+“Ne,” persistis la kontraŭema Reĝo de la Knomoj,
 
 kapneante, “mi rifuzas. Petu ion alian kaj mi penos
 
 kontentigi vin, sed mi ne povas permesi ke ĉi tiuj
 
-amikaj malamikoj triumfu min.” 
+amikaj malamikoj triumfu min.”
 
 “Tiukaze,” diris Doroteo, komencante depreni la
 
-kovrilon de sia korbo, “mi montros al vi kelkajn ovojn.” 
+kovrilon de sia korbo, “mi montros al vi kelkajn ovojn.”
 
-“Ovoj\!” kriegis la Reĝo de la Knomoj, teruroplene. 
+“Ovoj!” kriegis la Reĝo de la Knomoj, teruroplene.
 
-“Ĉu vi havas ovojn en tiu korbo?” 
+“Ĉu vi havas ovojn en tiu korbo?”
 
-“Dekduon da ili,” respondis Doroteo. 
+“Dekduon da ili,” respondis Doroteo.
 
-“Do restigu ilin tie—mi petas—mi petegas\!—kaj
+“Do restigu ilin tie—mi petas—mi petegas!—kaj
 
 mi faros kion ajn vi ordonas,” pledis Kalikoto, kaj liaj
 
-dentoj kunklakadis tiom ke li apenaŭ povis paroli. 
+dentoj kunklakadis tiom ke li apenaŭ povis paroli.
 
 “Alvenigu la Reĝon kaj Reĝinon de Pingario,” diris
 
-Doroteo. 
+Doroteo.
 
-286
 
 Ĉapitro Dudek Unu
 
@@ -11572,7 +11055,7 @@ Doroteo.
 
 Klik forkuris tre rapide, ĉar li preskaŭ tiom timis
 
-kiom lia mastro. 
+kiom lia mastro.
 
 Estis kortuŝa sceno kiam la misfortunaj Reĝo kaj
 
@@ -11586,17 +11069,17 @@ salutoj kaj kisoj estis interŝanĝitaj kaj Ingo rakontis
 
 al siaj gepatroj kelkvorte pri siaj vanaj klopodoj savi
 
-ilin kaj kiel Princino Doroteo fine venis helpi lin. 
+ilin kaj kiel Princino Doroteo fine venis helpi lin.
 
 Post tio Reĝo Kitikuto premis la manojn de sia
 
-amiko Reĝo Rinkitinko kaj dankis lin pro lia lojala
+amiko Reĝo Rinkit kaj dankis lin pro lia lojala
 
 subteno al lia filo Ingo, kaj Reĝino Gario kisis la
 
 frunton de malgranda Doroteo kaj benis ŝin pro
 
-reliberigi ŝian edzon kaj ŝin. 
+reliberigi ŝian edzon kaj ŝin.
 
 La Sorĉisto staradis apud Bilbilo la kapro kaj nun
 
@@ -11604,29 +11087,28 @@ surprizis lin aŭdi la beston diri:
 
 “Ĝojoplena rekuniĝo, ĉu ne? Sed enuigas min vidi
 
-plenkreskintojn plori kvazaŭ infanoj.” 
+plenkreskintojn plori kvazaŭ infanoj.”
 
-“Oho\!” kriis la Sorĉisto. “Kiel estas, S-ro Kapro, ke
+“Oho!” kriis la Sorĉisto. “Kiel estas, S-ro Kapro, ke
 
-vi, kiu neniam estis en la Lando Oz, kapablas paroli?” 
+vi, kiu neniam estis en la Lando Oz, kapablas paroli?”
 
-“Jen mia afero,” respondis Bilbilo malafablatone. 
+“Jen mia afero,” respondis Bilbilo malafablatone.
 
 La Sorĉisto klinis sin kaj rigardis fikse en la
 
 okulojn de la besto. Post tio li diris, ĝemante
 
-287
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kompate, “mi vidas; vi estas sorĉita. Efektive, mi
 
-kredas vin Princo Bobo de Bobolando.” 
+kredas vin Princo Bobo de Bobolando.”
 
 Bilbilo ne respondis sed falklinis sian kapon
 
-kvazaŭ honte. 
+kvazaŭ honte.
 
 “Jen grava trovo,” diris la Sorĉisto, parolante al
 
@@ -11634,7 +11116,7 @@ Doroteo kaj la aliaj en la grupo. “Antaŭ multaj jaroj
 
 kruela magiisto transformis la bravan Princon de
 
-Bobolando en parolantan kapron, kaj la kapro, 
+Bobolando en parolantan kapron, kaj la kapro,
 
 hontante pro sia stato, forkuris kaj neniam revidiĝis
 
@@ -11650,17 +11132,17 @@ rezulte. Sed mi estas tute certa ke, en la besto kiun
 
 vi nomas Bilbilo, mi trovis la malfeliĉan Princon de
 
-Bobolando.” 
+Bobolando.”
 
-“Jadi, Bilbilo,” diris Rinkitinko, “kial vi neniam
+“Jadi, Bilbilo,” diris Rinkit, “kial vi neniam
 
-diris tion al mi?” 
+diris tion al mi?”
 
 “Kiel utilus?” demandis Bilbilo nelaŭtavoĉe kaj
 
-ankoraŭ rifuzante suprenrigardi. 
+ankoraŭ rifuzante suprenrigardi.
 
-“Utilus?” ripetis Rinkitinko, perplekse. 
+“Utilus?” ripetis Rinkit, perplekse.
 
 “Jes, jen la ĉefproblemo,” diris la Sorĉisto. “Tiu
 
@@ -11668,25 +11150,20 @@ estas unu el la plej fortaj sorĉoj iam efektivigitaj, kaj
 
 la magiisto jam mortis kaj la sekreto de la antidota
 
-288
 
-!(images/000111.png)
-
-!(images/000050.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 sorĉo estas perdita. Eĉ mi, malgraŭ mia tuta lerto, ne
 
-povas redoni al Princo Bobo lian normalan formon. 
+povas redoni al Princo Bobo lian normalan formon.
 
 Sed mi opinias ke Glinda eble povus fari tion kaj se
 
-vi ĉiuj reiros kun Doroteo kaj mi al la Lando Oz, 
+vi ĉiuj reiros kun Doroteo kaj mi al la Lando Oz,
 
 kie Ozma bonvenigos vin, mi petos Glindan provi
 
-rompi tiun sorĉaĵon.” 
+rompi tiun sorĉaĵon.”
 
 Pri tio ili volonte konsentis, ĉar al ĉiuj estis
 
@@ -11702,11 +11179,8 @@ Ruĝan Ĉaregon, kiu ankoraŭ atendis ilin; sed la
 
 Segĉevalon tio ne ĝenis kaj per mirinda rapido li tiris
 
-ilin sekure al la Smeralda Urbo. 
+ilin sekure al la Smeralda Urbo.
 
-290
-
-!(images/000068.png)
 
 La Bankedo de Ozma
 
@@ -11720,7 +11194,7 @@ gepatroj de Ingo kaj la
 
 foriron de la tuta grupo
 
-cele la Smeraldan Urbon, 
+cele la Smeraldan Urbon,
 
 do laŭ sia kutima gastigemo ŝi ordonis prepari
 
@@ -11730,15 +11204,14 @@ amikojn kiuj tiam estis en la Smeralda Urbo ĉeesti
 
 tiun vesperon por renkonti la fremdulojn kiu fariĝos
 
-ŝiaj gastoj. 
+ŝiaj gastoj.
 
 Ankaŭ Glinda, per sia mirinda Libro de Arkivoj
 
 sciiĝis pri la eventoj okazintaj en la kavernoj de la
 
-291
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 Reĝo de la Knomoj, kaj ŝi precipe interesiĝis pri la
 
@@ -11746,13 +11219,13 @@ sorĉiĝo de la Princo de Bobolando. Do ŝi haste
 
 preparis plurajn el siaj plej potencaj sorĉoj kaj post
 
-tio alvokis sian gregon de dek ses blankaj cikonioj, 
+tio alvokis sian gregon de dek ses blankaj cikonioj,
 
 kiuj rapide portis ŝin al la palaco de Ozma. Ŝi alvenis
 
 tie antaŭ la Ruĝa Ĉarego kaj ŝin varme salutis la
 
-knabina Reganto. 
+knabina Reganto.
 
 Komprenante ke la kostumo de Reĝino Gario de
 
@@ -11768,7 +11241,7 @@ sia alveno, por ke ŝi ne hontu ĉe la bankedo. Novaj
 
 kostumoj ankaŭ proviziĝis al Reĝo Kitikuto kaj Reĝo
 
-Rinkitinko kaj Princo Ingo, ĉiuj tajlitaj kaj faritaj kaj
+Rinkit kaj Princo Ingo, ĉiuj tajlitaj kaj faritaj kaj
 
 ornamitaj laŭ la tre detala kaj belaspektiga stilo tiam
 
@@ -11776,7 +11249,7 @@ kutima en la Lando Oz, kaj tuj kiam la grupo alvenis
 
 al la palaco, la gastojn de Ozma eskortis ŝiaj servistoj
 
-al la ĉambroj, por ke ili banu kaj vestu sin. 
+al la ĉambroj, por ke ili banu kaj vestu sin.
 
 Glinda la Sorĉistino kaj la Sorĉisto de Oz speciale
 
@@ -11786,9 +11259,8 @@ kie ili verŝajne ne estos interrompitaj. Glinda unue
 
 demandadis al Bilbilo longe kaj serioze pri kie li estis
 
-sorĉita kaj la rito uzita de la Magiisto kiu sorĉis lin. 
+sorĉita kaj la rito uzita de la Magiisto kiu sorĉis lin.
 
-292
 
 Ĉapitro Dudek Du
 
@@ -11806,7 +11278,7 @@ fimagiisto riskas similan faton, kaj certigis al li ke lia
 
 misfortuno eĉ pli instigos liajn regatojn ami lin kiam
 
-li revenos al ili libera de sia missorĉiteco. 
+li revenos al ili libera de sia missorĉiteco.
 
 Bilbilo fine konvinkiĝis pri la vero de tiu aserto
 
@@ -11814,7 +11286,7 @@ kaj akceptis partopreni en la eksperimentoj de Glinda
 
 kaj la Sorĉisto, kiuj sciis ke ili havas antaŭ si
 
-malfacilan taskon kaj estis tute ne certaj pri sukceso. 
+malfacilan taskon kaj estis tute ne certaj pri sukceso.
 
 Ni scias ke Glinda estas la plej kompleta mastrino de
 
@@ -11826,25 +11298,22 @@ Bobon uzis sorĉon kiun nur tre perplekse ordinara
 
 sorĉisto provus rompi; tial ŝi tre sagace pripensis la
 
-aferon kaj esperis esti farinta planon kiu sukcesos. 
+aferon kaj esperis esti farinta planon kiu sukcesos.
 
 Sed ĉar ŝi ne estis certa pri sukceso ŝi volis ke neniu
 
 ĉeestu dum la sorĉo escepte de ŝia helpisto, la Sorĉisto
 
-de Oz. 
+de Oz.
 
-Unue ŝi transformis Bilbilon la kapron en ŝafidon, 
+Unue ŝi transformis Bilbilon la kapron en ŝafidon,
 
 kaj tio fariĝis tre facile. Post tio ŝi transformis la
 
 ŝafidon en struton, donante al ĝi du krurojn kaj
 
-293
 
-!(images/000075.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 piedojn anstataŭ kvar. Post tio ŝi provis transformi la
 
@@ -11854,7 +11323,7 @@ plene fiaskis. Tamen Glinda ne perdis kuraĝon, sed
 
 per potenca sorĉo ŝi transformis la struton en
 
-totenhoton—kiu estas malpli alta formo de homo. 
+totenhoton—kiu estas malpli alta formo de homo.
 
 Poste la totenhoto transformiĝis en mifketon, kio estis
 
@@ -11866,17 +11335,14 @@ surgenuiĝis antaŭ la granda Sorĉistino kaj dankeme
 
 kisis ŝian manon, agnoskante ke nun li rehavas sian
 
-294
-
-!(images/000048.png)
 
 Ĉapitro Dudek Du
 
 naturan formon kaj estas tute vere Princo Bobo de
 
-Bobolando. 
+Bobolando.
 
-Tiu procedo de magio, kvankam fine sukcesa, 
+Tiu procedo de magio, kvankam fine sukcesa,
 
 necesigis tiom da tempo ke la bankedo nun atendis
 
@@ -11886,17 +11352,14 @@ kaj kvankam li ŝajnis tre multe humiligita pro sia
 
 antaŭnelonga malaltranga stato, ili fine persvadis lin
 
-partopreni en la festeno. 
+partopreni en la festeno.
 
-Kiam Rinkitinko vidis ke lia kapro nun fariĝis
+Kiam Rinkit vidis ke lia kapro nun fariĝis
 
 Princo, li ne sciis ĉu bedaŭri aŭ ĝoji, ĉar li kredis ke
 
-295
 
-!(images/000089.png)
-
-Rinkitinko en Oz
+Rinkit en Oz
 
 li sentos la mankon de la kompaneco de la kverelema
 
@@ -11904,9 +11367,9 @@ besto sur kiu li tiom longe kutimis rajdi, tamen
 
 samtempe li ĝojis ke povra Bilbilo reakiris sian veran
 
-naturon. 
+naturon.
 
-Princo Bobo humile petis pardonon de Rinkitinko
+Princo Bobo humile petis pardonon de Rinkit
 
 pro sia kelkfoja malafableco al li, dirante ke la naturo
 
@@ -11920,15 +11383,12 @@ parolojn kaj volonte pardonas lin. Efektive, ili ĉiuj
 
 trovis la junan Princon Bobon ekstreme ĝentila kaj
 
-296
-
-!(images/000109.png)
 
 Ĉapitro Dudek Du
 
 plaĉa persono, kvankam li estas iom sindetena kaj
 
-digna. 
+digna.
 
 Ha, la festeno kiun Ozma disponigis en sia
 
@@ -11944,15 +11404,14 @@ Trot kaj Betinjo Bobin, kaj la tri knabinetoj estis
 
 preskaŭ tiel dolĉaspektaj kiel Ozma, kiu sidis ĉe la
 
-297
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 kapo de sia tablo kaj superbrilis ĉiujn siajn gastojn
 
-per sia beleco. 
+per sia beleco.
 
-Reĝo Rinkitinko multe ĝuis la kuriozulojn de Oz
+Reĝo Rinkit multe ĝuis la kuriozulojn de Oz
 
 kaj ridis kaj ŝercis kun la stana viro kaj la
 
@@ -11970,15 +11429,15 @@ kiajn bezonas iliaj naturoj. La Malsata Tigro kaj la
 
 Malkuraĝa Leono kaj la Vitra Kato estis multe
 
-admirataj de Rinkitinko, sed kiam li renkontis mulon
+admirataj de Rinkit, sed kiam li renkontis mulon
 
-nomatan Hanĉjo, kiun Betinjo Bobin venigis al Oz, 
+nomatan Hanĉjo, kiun Betinjo Bobin venigis al Oz,
 
 la Reĝo trovis la beston tiom komika ke li ridis kaj
 
-subridis ĝis liaj amikoj kredis ke li sufokiĝos. Poste, 
+subridis ĝis liaj amikoj kredis ke li sufokiĝos. Poste,
 
-dum la bankedo plu daŭris, Rinkitinko komponis kaj
+dum la bankedo plu daŭris, Rinkit komponis kaj
 
 kantis kanton al la mulo kaj ili ĉiuj partoprenis en
 
@@ -11986,29 +11445,26 @@ la rekantaĵo, kiu estis iom tia:
 
 “Jen kia belo, la orelo
 
-De Sinjor’ Azeno\! 
+De Sinjor’ Azeno!
 
 Sed ti’orelo, kia ŝelo
 
-Por simio do malbeno. 
+Por simio do malbeno.
 
-Longa, dika, larĝa, pika, 
+Longa, dika, larĝa, pika,
 
-298
-
-!(images/000014.jpg)
 
 Ĉapitro Dudek Du
 
-Por aŭdi tre rapida, 
+Por aŭdi tre rapida,
 
 Bonaspekta do sur Henĉjo
 
-Sur feo tamen hida\!” 
+Sur feo tamen hida!”
 
 Tiun kanton oni tiom entuziasme akceptis ke
 
-Rinkitinko persvadiĝis kanti duafoje. Oni donis al li
+Rinkit persvadiĝis kanti duafoje. Oni donis al li
 
 iom da tempo por pretigi la rimaĵon; li diris ke ĝi
 
@@ -12018,57 +11474,51 @@ la verko, sed la sento kiun li esprimis estis tiom
 
 admirinda ke neniu kritikis la kanton aŭ la manieron
 
-laŭ kiu la gaja malgranda Reĝo kantis ĝin. 
+laŭ kiu la gaja malgranda Reĝo kantis ĝin.
 
 Doroteo skribis la vortojn sur pecon da papero, kaj
 
 jen ili:
 
-“Kamaradoj gajaj ĉiuj ni, 
+“Kamaradoj gajaj ĉiuj ni,
 
 Ĉar venkis ni en lukto ĉi
 
-Defion en homa formo. 
+Defion en homa formo.
 
 Kaj ni nenion timas, do
 
-Ni ridu gaje, kantu, ho, 
+Ni ridu gaje, kantu, ho,
 
-Ĝis superfortos nin la dormo. 
+Ĝis superfortos nin la dormo.
 
-“Ni ĉion deziratan havas, 
+“Ni ĉion deziratan havas,
 
 Reĝ’ Goso siajn fiŝojn lavas
 
-Kaj ankaŭ Reĝino Koro. 
+Kaj ankaŭ Reĝino Koro.
 
-299
 
-!(images/000005.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
+Reĝ’ Kitikuto trovis bonon,
 
-Reĝ’ Kitikuto trovis bonon, 
+Princ’ Bobo havos sian tronon,
 
-Princ’ Bobo havos sian tronon, 
-
-Foriris la magi-hororo. 
+Foriris la magi-hororo.
 
 “Forgesu ni la ĝenon lacan
 
 Trafintan nian vivon pacan
 
-Doloran pro la ĝen’; 
+Doloran pro la ĝen’;
 
 Ĉar baldaŭ ni transmaren
 
 Iros, kaj vivos ne plu sen
 
-La Pingaria ben’.” 
+La Pingaria ben’.”
 
-300
-
-!(images/000064.png)
 
 La Perla Regno
 
@@ -12078,19 +11528,19 @@ Domaĝe la fama Birdo-
 
 timigilo—la plej populara
 
-persono en la tuta Oz, 
+persono en la tuta Oz,
 
-post 
+post
 
 Ozma—forestis
 
-kiam okazis la bankedo, 
+kiam okazis la bankedo,
 
 ĉar ĝuste tiam, hazarde, li veturadis tra la lando; sed
 
 la Birdotimigilo havis oportunon poste renkonti
 
-Rinkitinkon kaj Ingon kaj la Reĝon kaj Reĝinon de
+Rinkitn kaj Ingon kaj la Reĝon kaj Reĝinon de
 
 Pingario kaj Princon Bobon, ĉar la grupo restis
 
@@ -12100,29 +11550,28 @@ reĝe distrataj, kaj kie kaj la milda Reĝino Gario kaj
 
 la nobla Reĝo Kitikuto reakiris grandan parton de sia
 
-301
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 bonhumoro kaj spirita ekvilibro kaj penis forgesi siajn
 
-terurajn spertojn. 
+terurajn spertojn.
 
 Fine, tamen, la Reĝo kaj Reĝino deziris reiri al sia
 
 propra Pingario, ĉar ili sopiris denove esti kun sia
 
-popolo kaj vidi kiel bone ili rekonstruis siajn hejmojn. 
+popolo kaj vidi kiel bone ili rekonstruis siajn hejmojn.
 
 Ankaŭ Ingo tre fervoris reiri, kvankam li estis tre feliĉa
 
-en Oz, kaj Reĝo Rinkitinko, kiu estis feliĉa ĉie escepte
+en Oz, kaj Reĝo Rinkit, kiu estis feliĉa ĉie escepte
 
 de en Gilgado, decidis iri kun siaj antaŭaj amikoj al
 
 Pingario. Rilate al Princo Bobo, li tiom plezuriĝis pro
 
-Reĝo Rinkitinko ke li ne deziris lasi lin. 
+Reĝo Rinkit ke li ne deziris lasi lin.
 
 Je certa tago ili ĉiuj adiaŭis Ozman kaj Doroteon
 
@@ -12134,13 +11583,13 @@ al la rando de la Mortiga Dezerto, kiun ili sekure
 
 transmarŝis sur la Magia Tapiŝo. Post tio ili transiris
 
-la Regnon de la Knomoj kaj la Regnon de la Raduloj, 
+la Regnon de la Knomoj kaj la Regnon de la Raduloj,
 
 kie neniu molestis ilin, ĝis la bordo de la Nonesta
 
 Oceano. Tie ili trovis la boaton kun la arĝenta tegaĵo
 
-kuŝanta sendifekta sur la plaĝo. 
+kuŝanta sendifekta sur la plaĝo.
 
 Ne estis gravaj aventuroj dum la veturo kaj kiam ili
 
@@ -12152,17 +11601,16 @@ domoj de la popolo jam estis rekonstruitaj kaj estis pli
 
 belaj ol antaŭe, kun verdaj gazonoj antaŭ si kaj
 
-302
 
 Ĉapitro Dudek Tri
 
 florĝardenoj en la malantaŭaj kortoj. La marmoraj turoj
 
-de la nova palaco de Reĝo Kitikuto estis tre imponaj, 
+de la nova palaco de Reĝo Kitikuto estis tre imponaj,
 
 kaj la palaco mem montriĝis multe pli grandioza ol
 
-antaŭ ol la batalistoj el Regoso detruis ĝin. 
+antaŭ ol la batalistoj el Regoso detruis ĝin.
 
 Nikoroĉjo tre aktive kaj lerte direktis la tutan
 
@@ -12180,9 +11628,9 @@ perlofiŝadon kaj kiam Reĝo Kitikuto revenis al
 
 Pingario li trovis nombron da tre bonaj perloj jam en
 
-la reĝa trezorejo. 
+la reĝa trezorejo.
 
-Tiom plaĉis al Kitikuto la bona juĝkapablo, 
+Tiom plaĉis al Kitikuto la bona juĝkapablo,
 
 laboremo kaj honesteco de la iama braĝobruligisto de
 
@@ -12190,7 +11638,7 @@ Regoso, ke li nomumis Nikoroĉjon sia Alta
 
 Ĉambelano kaj estro de la perlofiŝejoj kaj ĉiuj negocoj
 
-de la insula regno. 
+de la insula regno.
 
 Ili ĉiuj ekloĝis tre komforte en la nova palaco kaj
 
@@ -12204,15 +11652,14 @@ Magiajn Perlojn en ilian silkan sakon kaj remetis ilin
 
 en la sekretan kavaĵon sub la kahelkovrita planko de
 
-303
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 la bankedhalo, el kie ili estus rapide elpreneblaj se
 
-danĝero iam minacus la nun prosperan insulon. 
+danĝero iam minacus la nun prosperan insulon.
 
-Reĝo Rinkitinko okupis reĝan gastoĉambron
+Reĝo Rinkit okupis reĝan gastoĉambron
 
 konstruitan specife por li kaj ŝajne tute ne deziris
 
@@ -12224,7 +11671,7 @@ pli sentis la mankon de Bilbilo; sed li malofte marŝis
 
 longe kaj li tiom amis Princon Bobon ke li neniam
 
-bedaŭris la malsorĉiĝon de Bilbilo. 
+bedaŭris la malsorĉiĝon de Bilbilo.
 
 Efektive, la gaja monarko povus resti por ĉiam en
 
@@ -12238,7 +11685,7 @@ tro okupis sin pri ŝtataferoj li amis kuniĝi kun sia
 
 gasto kaj aŭskulti la kantojn kaj rakontojn de sia frata
 
-monarko. Ĉar li trovis Rinkitinkon, malgraŭ ties sen-
+monarko. Ĉar li trovis Rinkitn, malgraŭ ties sen-
 
 zorga humoro, sagaca filozofo, kaj priparolante la
 
@@ -12256,55 +11703,49 @@ venos kaj ni resupreniros; kaj kiuj estas supre preskaŭ
 
 certe subiros. Mia avo havis kanton kiu bone esprimas
 
-304
 
-!(images/000094.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
+tion kaj se vi aŭskultos mi kantos ĝin.”
 
-tion kaj se vi aŭskultos mi kantos ĝin.” 
+“Kompreneble mi aŭskultos vian kanton,”
 
-“Kompreneble mi aŭskultos vian kanton,” 
+respondis Kitikuto, “ĉar estus malĝentile ne aŭskulti.”
 
-respondis Kitikuto, “ĉar estus malĝentile ne aŭskulti.” 
-
-Do Rinkitinko kantis la kanton de sia avo:
+Do Rinkit kantis la kanton de sia avo:
 
 “Potenca Reĝo landon regis—
 
-Sed nun li bakas tortojn. 
+Sed nun li bakas tortojn.
 
-Malriĉulo lignon segis, 
+Malriĉulo lignon segis,
 
-Nun diras Reĝajn vortojn. 
+Nun diras Reĝajn vortojn.
 
 Tigro iam en ĝangalo
 
-loĝis, nun en Zoo paŝas; 
+loĝis, nun en Zoo paŝas;
 
 Al leon’ en kaĝo nun la malo:
 
-En ĝangalo li sin kaŝas. 
+En ĝangalo li sin kaŝas.
 
-Knabon batis vir’ ĝisoste, 
+Knabon batis vir’ ĝisoste,
 
-Plorigis lin per vip’ el fero. 
+Plorigis lin per vip’ el fero.
 
-La knabo Juĝistiĝis poste, 
+La knabo Juĝistiĝis poste,
 
-La viron sendis al karcero. 
+La viron sendis al karcero.
 
-Nokton sekvas suna tago; 
+Nokton sekvas suna tago;
 
-Neĝo sekvas la someron\! 
+Neĝo sekvas la someron!
 
-Misfaron sekvas bona ago, 
+Misfaron sekvas bona ago,
 
-Saĝulo scias tiun veron.” 
+Saĝulo scias tiun veron.”
 
-306
-
-!(images/000046.png)
 
 La Kaptita Reĝo
 
@@ -12314,15 +11755,15 @@ Unu matenon, ĝuste dum
 
 la reĝa grupo finis sian
 
-matenmanĝon, 
+matenmanĝon,
 
 servisto
 
 alkuris por diri ke granda
 
-amaso 
+amaso
 
-da 
+da
 
 boatoj
 
@@ -12332,7 +11773,7 @@ ekstaris, alarmite, ĉar li pro tre bonaj kialoj timis
 
 fremdajn boatojn. La aliaj rapide sekvis lin al la
 
-bordo por vidi kia invado eble venas al ili. 
+bordo por vidi kia invado eble venas al ili.
 
 Ingo ĉeestis kun la unuaj, kaj Nikoroĉjo kaj Zella
 
@@ -12340,59 +11781,57 @@ baldaŭ kuniĝis kun la rigardantoj. Kaj baldaŭ, dum
 
 ĉiuj gapis fervore la alproksimiĝantan boataron, Reĝo
 
-307
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-Rinkitinko subite kriis:
+Rinkit subite kriis:
 
 “Alportu viajn perlojn, Princo Ingo—alportu
 
-rapide\!” 
+rapide!”
 
 “Ĉu venas niaj malamikoj, do?” demandis la
 
 knabo, rigardante surprizite la dikan malgrandan
 
-Reĝon, kiu komencis tremi forte. 
+Reĝon, kiu komencis tremi forte.
 
-“Estas mia popolo el Gilgado\!” respondis Rinki-
+“Estas mia popolo el Gilgado!” respondis Rinki-
 
-tinko, viŝante larmon el sia okulo. “Mi rekonas miajn
+t, viŝante larmon el sia okulo. “Mi rekonas miajn
 
 reĝajn standardojn flirtantajn de la boatoj. Do, mi
 
 petas, kara Ingo, alportu viajn perlojn por protekti
 
-min\!” 
+min!”
 
-“Kion vi timas el la manoj de viaj propraj regatoj?” 
+“Kion vi timas el la manoj de viaj propraj regatoj?”
 
-demandis Kitikuto, mirante. 
+demandis Kitikuto, mirante.
 
 Sed antaŭ ol lia timoplena gasto povis respondi la
 
-demandon Princo Bobo, kiu staris apud sia amiko, 
+demandon Princo Bobo, kiu staris apud sia amiko,
 
 amuzite ridis kaj diris:
 
-“Finfine kaptita, kara Rinkitinko. Via popolo
+“Finfine kaptita, kara Rinkit. Via popolo
 
-reportos vin hejmen kaj devigos vin regi kiel Reĝo.” 
+reportos vin hejmen kaj devigos vin regi kiel Reĝo.”
 
-Rinkitinko laŭte ĝemis kaj kunpremis siajn manojn
+Rinkit laŭte ĝemis kaj kunpremis siajn manojn
 
 per senespera gesto, mieno tiel komika ke la aliaj
 
-apenaŭ povis deteni sin de ridado. 
+apenaŭ povis deteni sin de ridado.
 
-Sed nun la boatoj surteriĝadis. Ili estis kvindek, 
+Sed nun la boatoj surteriĝadis. Ili estis kvindek,
 
 bele ornamitaj kaj remburitaj kaj remataj de viroj
 
-vestitaj per la gajaj uniformoj de la Reĝo de Gilgado. 
+vestitaj per la gajaj uniformoj de la Reĝo de Gilgado.
 
-308
 
 Ĉapitro Dudek Kvar
 
@@ -12400,41 +11839,41 @@ Unu grandioza boato havis tronon el oro en sia
 
 centro, sur ĝi estis drapirita la Reĝa robo purpur-
 
-velura, brodita per oraj ranunkoloj. 
+velura, brodita per oraj ranunkoloj.
 
-Rinkitinko tremis vidante tiun tronon; sed nun alta
+Rinkit tremis vidante tiun tronon; sed nun alta
 
 viro, bele vestita, proksimiĝis kaj surgenuiĝis antaŭ sia
 
 Reĝo, dum ĉiuj aliaj perrsonoj en la boato kriis ĝoje
 
-kaj gestis en la aero per siaj plumhavaj ĉapeloj. 
+kaj gestis en la aero per siaj plumhavaj ĉapeloj.
 
-“Dank’ al nia bonfortuno,” diris la surgenua viro, 
+“Dank’ al nia bonfortuno,” diris la surgenua viro,
 
-“ni fine trovis Vian Moŝton\!” 
+“ni fine trovis Vian Moŝton!”
 
-“Pinkerbluo,” respondis Rinkitinko severe, “mi
+“Pinkerbluo,” respondis Rinkit severe, “mi
 
-nepre pendumigu vin, ĉar vi trovis min kontraŭ mia
+nepre pendumigu vin, ĉar vi trovis mntraŭ mia
 
-volo.” 
+volo.”
 
 “Tion vi opinias nun, Via Moŝto, sed vi neniam
 
 faros tion,” respondis Pinkerbluo, stariĝante kaj
 
-kisante manon de la Reĝo. 
+kisante manon de la Reĝo.
 
-“Kial ne?” demandis Rinkitinko. 
+“Kial ne?” demandis Rinkit.
 
-“Ĉar vi estas multe tro molkora, Via Moŝto.” 
+“Ĉar vi estas multe tro molkora, Via Moŝto.”
 
-“Eble tiel—eble tiel,” konsentis Rinkitinko, mal-
+“Eble tiel—eble tiel,” konsentis Rinkit, mal-
 
 feliĉe. “Jen unu el miaj plej grandaj kulpoj. Sed kiu
 
-fortuno venigis vin ĉi tien, Lordo Pinkerbluo?” 
+fortuno venigis vin ĉi tien, Lordo Pinkerbluo?”
 
 “Ni serĉis vin ĉie, sinjoro, kaj la tuta popolo de
 
@@ -12444,9 +11883,8 @@ aperis. Ni ne povis nomumi novan Reĝon, ĉar ni ne
 
 sciis ĉu vi plu vivas; do ni entreprenis trovi vin, ĉu
 
-309
 
-Rinkitinko en Oz
+Rinkit en Oz
 
 mortan ĉu vivan. Vizitinte multajn insulojn de la
 
@@ -12454,25 +11892,25 @@ Nonesta Oceano ni fine pensis pri Pingario, el kie
 
 venas la valoregaj perloj; kaj nun nia fidela serĉo estas
 
-respondita.” 
+respondita.”
 
-“Kio okazos nun?” demandis Rinkitinko. 
+“Kio okazos nun?” demandis Rinkit.
 
-“Nun, Via Moŝto, vi devas reveni hejmen kun ni, 
+“Nun, Via Moŝto, vi devas reveni hejmen kun ni,
 
-kiel bona kaj fidela Reĝo, kaj regi vian popolon,” 
+kiel bona kaj fidela Reĝo, kaj regi vian popolon,”
 
-deklaris la viro per firma voĉo. 
+deklaris la viro per firma voĉo.
 
-“Mi rifuzas.” 
+“Mi rifuzas.”
 
 “Sed vi devas—pardonu Via Moŝto mian kontraŭ-
 
-diron. 
+diron.
 
-“Kitikuto,” ploris povra Rinkitinko, “vi devas savi
+“Kitikuto,” ploris povra Rinkit, “vi devas savi
 
-min de kaptiĝo fare de tiuj miaj regatoj. Kion\! Ĉu
+min de kaptiĝo fare de tiuj miaj regatoj. Kion! Ĉu
 
 mi devas reiri al Gilgado kaj devi regi grandioze
 
@@ -12488,47 +11926,44 @@ dum horoj dum kortegaj akceptoj, ĝis kaloj formiĝas
 
 sur miaj kalkanumoj; kaj ĉiam mi devos aŭskulti
 
-enuigajn parolojn kaj senfinajn petojn kaj plendojn\!” 
+enuigajn parolojn kaj senfinajn petojn kaj plendojn!”
 
 “Sed iu devas fari tion, Via Moŝto,” diris
 
 Pinkerbluo respektoplene, “kaj ĉar vi estis naskita nia
 
-Reĝo vi ne povas eskapi de via devo.” 
+Reĝo vi ne povas eskapi de via devo.”
 
-310
-
-!(images/000054.jpg)
 
 Ĉapitro Dudek Kvar
 
-“Fato terura\!” ĝemis Rinkitinko. “Volonte mi
+“Fato terura!” ĝemis Rinkit. “Volonte mi
 
 mortus, anstataŭ esti Reĝo—se ne tiom dolorus la
 
-mortado.” 
+mortado.”
 
 “Vi trovos ke estas multe pli komforte regi ol
 
 morti, kvankam mi plene komprenas la malfacilecon
 
-de la pozicio de Via Moŝto kaj vere kompatas vin,” 
+de la pozicio de Via Moŝto kaj vere kompatas vin,”
 
-diris Pinkerbluo. 
+diris Pinkerbluo.
 
-Reĝo 
+Reĝo
 
-Kitikuto 
+Kitikuto
 
-aŭskultis 
+aŭskultis
 
-tiun 
+tiun
 
 konversacion
 
 penseme, do nun li diris al sia amiko:
 
-“La viro pravas, kara Rinkitinko. Via devo estas
+“La viro pravas, kara Rinkit. Via devo estas
 
 regi, ĉar la fato faris vin Reĝo, kaj mi ne vidas
 
@@ -12536,37 +11971,36 @@ honoroplenan eskapon por vi. Mi lamentos la perdon
 
 de via kompaneco, sed mi kredas ke la apartiĝo ne
 
-estas evitebla.” 
+estas evitebla.”
 
-Rinkitinko ĝemis. 
+Rinkit ĝemis.
 
-“Do,” diris li, turninte sin al Lordo Pinkerbluo, 
+“Do,” diris li, turninte sin al Lordo Pinkerbluo,
 
 “post tri tagoj mi foriros kun vi al Gilgado; sed dum
 
 tiuj tri tagoj mi intencas festeni kaj ĝui, akompanate
 
-de mia bona amiko Reĝo Kitikuto.” 
+de mia bona amiko Reĝo Kitikuto.”
 
 Tiam ĉiuj homoj el Gilgado kriis pro ĝojo kaj
 
-fervore saltis surteren por partopreni en la festado. 
+fervore saltis surteren por partopreni en la festado.
 
 Tiuj tri tagoj longe memoriĝis en Pingario, ĉar
 
 neniam—nek antaŭe nek poste—koniĝis tiaj festado
 
-kaj gajeco sur tiu insulo. Rinkitinko bonege okupis
+kaj gajeco sur tiu insulo. Rinkit bonege okupis
 
-311
 
-Rinkitinko en Oz
+Rinkit en Oz
 
-sin kaj ĉiuj ridis kaj kantis kun li tage kaj nokte. 
+sin kaj ĉiuj ridis kaj kantis kun li tage kaj nokte.
 
 Fine la horo de foriro okazis kaj la Reĝon de
 
-Gilgado kaj Reganton de la Regno Rinkitinko eskortis
+Gilgado kaj Reganton de la Regno Rinkit eskortis
 
 granda procesio al lia boato kaj sidigis sur lian oran
 
@@ -12578,45 +12012,42 @@ gigantaj levitaj sabroj, dum la popolo de Pingario—
 
 viroj, virinoj kaj infanoj—staris sur la bordo kriante
 
-reĝan adiaŭon al la gaja Reĝo. 
+reĝan adiaŭon al la gaja Reĝo.
 
-Sekvis subita silento, dum Rinkitinko stariĝis kaj, 
+Sekvis subita silento, dum Rinkit stariĝis kaj,
 
 riverencinte al la personoj kiuj grupiĝis por rigardi
 
 lian foriron, kantis la ĉisekvan kanton, kiun li ĵus
 
-verkis por la evento. 
+verkis por la evento.
 
-“Do ĝis\!, Insulo Pingari’—
+“Do ĝis!, Insulo Pingari’—
 
-Plej bela lando mara vi\! 
+Plej bela lando mara vi!
 
 Neniu homo pova morti
 
-Hontus viajn perlojn porti. 
+Hontus viajn perlojn porti.
 
 “Reĝo Kitikuto, kun bedaŭro
 
-Min plorigas l’ adiaŭo. 
+Min plorigas l’ adiaŭo.
 
-Sed mi ne povas resti pli, 
+Sed mi ne povas resti pli,
 
-Ĉar kvindek ŝipoj prenos min. 
+Ĉar kvindek ŝipoj prenos min.
 
-312
 
-!(images/000062.png)
+Rinkit en Oz
 
-Rinkitinko en Oz
-
-“Adiaŭ, Princ’ de Pingari’; 
+“Adiaŭ, Princ’ de Pingari’;
 
 Nobla Reĝo estos vi
 
 Kaj longe, saĝe volu regi
 
-Al neniu malamiko cedi\!” 
+Al neniu malamiko cedi!”
 
 Ili hurais lin de la bordo; ili hurais lin de la
 
@@ -12626,63 +12057,51 @@ ekplonĝis kvazaŭ unumove kaj premis siajn platajn
 
 flankojn en la purpurkoloran akvon de la Nonesta
 
-Oceano. 
+Oceano.
 
 Dum la boatoj moviĝis rapide trans la ondetojn de
 
-la maro Rinkitinko turnis sin al Princo Bobo, kiu
+la maro Rinkit turnis sin al Princo Bobo, kiu
 
-decidis ne dizerti sian eksmastron kaj nun-amikon, 
+decidis ne dizerti sian eksmastron kaj nun-amikon,
 
 kaj demandis maltrankvile:
 
-“Ĉu plaĉis al vi tiu kanto, Bilbilo—mi volas diri, 
+“Ĉu plaĉis al vi tiu kanto, Bilbilo—mi volas diri,
 
-Bobo? Ĉu majstroverko, laŭ via opinio?” 
+Bobo? Ĉu majstroverko, laŭ via opinio?”
 
 Kaj Bobo respondis ridetante:
 
-“Kiel ĉiuj viaj kantoj, kara Rinkitinko, la sento
+“Kiel ĉiuj viaj kantoj, kara Rinkit, la sento
 
-multe superas la poezion.” 
-
-314
-
-!(images/000030.png)
-
-!(images/000024.png)
-
-!(images/000011.png)
-
-
-
+multe superas la poezion.”
 
 
 # Document Outline
 
-+ Kovrilo 
-+ 1. La Princo de Pingario 
-+ 2. La Alveno de Regho Rinkitinko 
-+ 3. La Batalistoj el la Nordo 
-+ 4. La Dizertita Insulo 
-+ 5. La Tri Perloj 
-+ 6. La Magia Boato 
-+ 7. La Ghemelaj Insuloj 
-+ 8. Rinkitinko Grave Eraras 
-+ 9. Donaco por Zella 
-+ 10. La Ruzeco de Reghino Koro 
-+ 11. Zella Iras al Koregoso 
-+ 12. La Ekscitigho de Bilbilo la Kapro 
-+ 13. Zella Savas la Princon 
-+ 14. La Eskapo 
-+ 15. La Fugho de la Regantoj 
-+ 16. Nikorochjo Rifuzas Kronon 
-+ 17. La Regho de la Knomoj 
-+ 18. Ingo Transdonas Sian Palrughan Perlon 
-+ 19. Rinkitinko Subridas 
-+ 20. Doroteo Venas Savi 
-+ 21. La Sorchisto Trovas Sorchajhon 
-+ 22. La Bankedo de Ozma 
-+ 23. La Perla Regno 
++ Kovrilo
++ 1. La Princo de Pingario
++ 2. La Alveno de Regho Rinkit
++ 3. La Batalistoj el la Nordo
++ 4. La Dizertita Insulo
++ 5. La Tri Perloj
++ 6. La Magia Boato
++ 7. La Ghemelaj Insuloj
++ 8. Rinkit Grave Eraras
++ 9. Donaco por Zella
++ 10. La Ruzeco de Reghino Koro
++ 11. Zella Iras al Koregoso
++ 12. La Ekscitigho de Bilbilo la Kapro
++ 13. Zella Savas la Princon
++ 14. La Eskapo
++ 15. La Fugho de la Regantoj
++ 16. Nikorochjo Rifuzas Kronon
++ 17. La Regho de la Knomoj
++ 18. Ingo Transdonas Sian Palrughan Perlon
++ 19. Rinkit Subridas
++ 20. Doroteo Venas Savi
++ 21. La Sorchisto Trovas Sorchajhon
++ 22. La Bankedo de Ozma
++ 23. La Perla Regno
 + 24. La Kaptita Regho
-
